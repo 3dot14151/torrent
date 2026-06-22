@@ -1,3 +1,29 @@
+###  Публикация: 1752693   (36236) от 25.11.2024
+
+Убийца / Sicario (2015) BDRip [H.264/1080p] [Handmade correction AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безлюдные пустоши, по которым проходит граница между Мексикой и США, - это территория без правил, поле битвы между мексиканскими наркокартелями и американскими спецслужбами. Агент ФБР Кейт Мэйсер, которая работает в приграничных районах, старается придерживаться собственных идеалов, хотя и начинает ощущать, что исход войны с наркотрафиком складывается не в пользу (   Читать дальше...   )Производство: США, Мексика, Гонконг / Black Label Media, Karno's Film, Thunder RoadЖанр: боевик, триллер, драма, криминал, детективРежиссер: Дени ВильнёвАктеры: Эмили Блант, Бенисио Дель Торо, Джош Бролин, Виктор Гарбер, Джон Бернтал, Дэниэл Калуя, Джеффри Донова,н Рауль Макс Трухильо, Хулио Седильо, Хэнк РоджерсонПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full, SDH), английские (forced, full, SDH)Продолжительность: 02:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895454AF0B1E31FD22FA9E900C0110605976695A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754474   (35586) от 01.12.2024
 
 Взрослая любовь (Жизнь с детьми) / Vita coi figli (1991) DVDRip [H.264/1080p] [Handmade Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35586.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35359.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35252.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35248.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35244.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35237.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35157.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34922.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34811.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34732.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34727.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34725.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34709.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34671.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34615.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34584.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34552.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34528.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34434.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34424.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34329.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34311.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34287.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34276.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34224.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28783653A11ECC6A5098A542C9B8EE8B4E1D88ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765824   (34176) от 14.12.2024
-
-Люди Икс: Последняя битва / X-Men: The Last Stand (2006) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Людям Икс во главе с профессором Чарльзом Ксавьером приходится вступить в битву с самой эволюцией в лице их воскресшего товарища по команде. Джин Грэй, возрождённая в облике Тёмного Феникса, представляет опасность не только для самой себя, но и для мутантов и для всей человеческой расы.Производство: США, Канада, Великобритания / 20th Century Fox Film Corporation, Donners' Company, Dune Entertainment, Marvel EnterprisesЖанр: фантастика, боевик, приключенияРежиссер: Бретт РэтнерАктеры: Хью Джекман, Холли Берри, Иэн Маккеллен, Фамке Янссен, Келси Грэммер, Шон Эшмор, Аарон Стэнфорд, Патрик Стюарт, Бен Фостер, Эллиот ПейджПеревод: Дублированный (CPIG)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77EC31273BA06E06D4DEF9A51ED3DE262C5261E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

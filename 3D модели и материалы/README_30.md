@@ -1,3 +1,55 @@
+###  Публикация: 1827432   (186085) от 21.10.2025
+
+3D print - Neko Figurines - Hornet (Hollow Knight: Silksong) [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, ребята! Делимся нашей новой диорамой «Шершень» из Hollow Knight: Silksong! Фигурка поставляется с предустановленными опорами, масштаб одинаковый для поддерживаемых и неподдерживаемых деталей.Формат: STL, LYS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A142DAFB3D25C1F63824E05A7FBAA9070055685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827249   (185806) от 20.10.2025
+
+3D print - Toon Studios - TMNT Leo [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распечатайте на 3D-принтере своего Леонардо из «Черепашек-ниндзя» с помощью этого детализированного STL-файла. Идеально подходит для создания коллекционной фигурки или настольной миниатюры.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B6C0515ABFE27EFAF1F37CE78C3C206050F55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667092   (175549) от 09.10.2023
 
 [PLUGINS] Cinema 4D PLUGIN and SCRIPTS PACK for 2023-2024
@@ -6,7 +58,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175549.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173986.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173561.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173527.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173440.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173415.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170896.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170821.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170807.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170800.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170149.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170128.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170107.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169182.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169160.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169133.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169128.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169002.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168997.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168970.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167370.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161737.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161182.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161128.jpg" />
 </div>
 
 
@@ -619,61 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C800DE185892A3C0B92AD9B3093A383F5C1619E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599107   (160053) от 22.12.2022
-
-3D print - Gol D Roger [STL, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гол Д. Роджер, более известный как Золотой Роджер, был легендарным пиратом, который, будучи капитаном пиратов Роджера, носил титул Короля пиратов и владел легендарным сокровищем, известным как One Piece.
-В раздаче предоставлен по частям для более простого отлива и дальнейшего соединения.Формат: STL, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF491FD95C468A4B3F4E8EC52043237F2B5FCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599102   (160048) от 22.12.2022
-
-3D print - HellBat Helmet [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хеллбат - это броня, созданная Лигой Справедливости и разработанная и созданная Бэтменом, чтобы помочь ему сражаться в битвах, превышающих его уровень силы.
-Оригинальный размер 155.7х199.1 h:260.1mm
-Так же поставляется в "разрезанном" варианте для возможности отливки на маленького размера столах.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9427EE3346CA3401E722A3B87D43634A53ADBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

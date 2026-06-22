@@ -1,3 +1,109 @@
+###  Публикация: 1745389   (45652) от 25.08.2024
+
+Павел Барчук | Цикл "Ублюдок" [Книги 1, 2] (2023) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думал, сдохну и попаду в ад. Почти угадал. Меня ждёт новая жизнь в мире демонов и их потомков. Да это ещё и Россия! В жертву меня принести хотите? Хрен вам, рогатые *удаки! Спецназ не сдаётся!Жанр: Бояръ-Аниме, Попаданцы в магические миры, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FEB08140741750CBCE90B3EDF62F109A416079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745644   (45463) от 27.08.2024
+
+Олег Сапфир, Алексей Ковтунов | Цикл "Лекарь" (книга 21) (2024) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всю свою жизнь я посвятил изучению целительского мастерства, стал лучшим, самым сильным лекарем в своем мире... Но брат почему-то решил, что я буду претендовать на его трон и привел свое войско. Впрочем, неважно, всё равно уже давно собирался провести этот ритуал, и теперь...
+Я в другом мире? В теле какого-то юнца? И что значит лекарь здесь - это самый убогий дар? (   Читать дальше...   )Жанр: Бояръ-Аниме, Боевое фэнтези, ЮморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F722F3863FF30793F94D6374792A16D0EE26B468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745973   (45387) от 28.08.2024
+
+Алексей Ермоленков | Цикл "РОС: Недомерок" [6 книг] (2023-2024) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знатные родА грызутся за власть, а боги погрязли в интригах, совершенно не замечая приближение Скверны, чья ужасающая тень нависла над миром. И если меня закинуло сюда, значит пришла пора подвинуть богов и основать в этом мире свой филиал ордена Искоренителей скверны!Жанр: Бояръ-Аниме, Боевое фэнтези, ПопаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB284FCC0ADAE236F491146262300F29BCA65D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747267   (44621) от 04.09.2024
+
+Джеймс Роллинс | Архангел (2024) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибель архивариуса Ватикана в Москве, открывает тайну, уходящую корнями в прошлое — в эпоху русских царей. Перед гибелью ему удаётся отправить сообщение, о скрытой Золотой библиотеке царей — огромном и драгоценном архиве, который исчез в истории.
+Отряд Сигма призван помочь в поисках — не только этой пропавшей сокровищницы древних книг, но и отправиться по её следу (   Читать дальше...   )Жанр: ТриллерПеревод: Любительский (Dreamer)Язык: РусскийИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BB955529D3C0286FFDD89C40E7DE0700E206FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747722   (44489) от 06.09.2024
 
 Сергей Лукьяненко | Поиски утраченного завтра (2024) [FB2]
@@ -6,7 +112,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44489.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44442.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43648.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43518.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43483.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42863.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42627.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41379.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41377.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41365.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41364.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40509.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38941.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38820.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38703.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38612.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38201.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38021.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37814.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37787.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37413.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36994.jpg" />
 </div>
 
 
@@ -573,114 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C04B833D0693F4AED7036BB2891EDF8413316D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761361   (36778) от 19.11.2024
-
-Дмитрий Билик | Рубежники. Бедовый 5. Ведунские хлопоты (2024)
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36778.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кои-то веки мне можно выдохнуть. Смертоносные кощеи отступили, кроны взяли перерыв. Вот сейчас только закончу войну лешего, разберусь с нечистью, вселившейся в жену Костяна, найду денег на дом и сбегаю за наследством Вранового. А потом... потом съезжу в Питер и все, буду отдыхать... Наверное.Жанр: городское фэнтези, мистика, приключения, юморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FF18F3AD1A386D1DFE2DA657706688F9AD3CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761976   (36353) от 23.11.2024
-
-Дмитрий Билик | Рубежники. Бедовый 6. Тайные поручения (2024) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый юноша на определенном этапе жизни мечтает уехать из родного крохотного городка в мегаполис. На беду, я не как все. И больше всего хотел бы и дальше жить в Выборге. Но Великий Князь призвал своего верного слугу в Санкт-Петербург. И явно не просто так.Жанр: городское фэнтези, мистика, приключения, юморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27093475459BF0E68C546CA5E90ED3E5CCFF856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304966   (36336) от 24.11.2024
-
-Бентли Литтл | Рассказы [сборник] (2024) [FB2] [Обновляемая]
-
->>След.
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36336.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городах общество раскололось. Большая Перемена. Мужчины не любят живых женщин, а женщины не любят живых мужчин. Чем не повод для расцвета больных психопатов и извращенцев!
-Мария страстно хотела ребенка. Первый раз все закончилось смертью младенца. И вот она снова беременна. Чтобы сохранить плод, Мария решает обратиться за помощью к ведьме...
-Талантливый математик (   Читать дальше...   )Жанр: УжасыПеревод: ЛюбительскийИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D65FBFF144EA05C2158EDAD5E587F0424968B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762760   (35979) от 27.11.2024
-
-Игорь Алмазов, Алексей Аржанов | Доктора Звягина вызывали? (2024) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Меня превратили в суперсолдата, но я выбрал иной путь. Вместо того, чтобы забирать жизни, я буду их спасать!
-Медицина в моём родном городе угасает. А потому я снова стану врачом, чтобы помогать людям. Новое имя, новое лицо, но былой опыт никуда не делся. А вместе с ним в моих руках теперь есть магия, которая идеально подходит для работы в этой стезе.
-Приём в поликлинике, (   Читать дальше...   )Жанр: городское фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FBB73DEF734844B2934CB972F9107691B48DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

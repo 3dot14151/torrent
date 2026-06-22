@@ -1,3 +1,55 @@
+###  Публикация: 1420239   (333259) от 31.10.2020
+
+Abandon Ship (2019) [Ru/Multi] (1.3.14934) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте множество островов, таящих уникальные сюжетные события, в разнообразных биомах и регионах. Сразитесь с кораблями-призраками в Морях Призраков. Дайте отпор гигантским паукам на Паучьих Островах. Вас ждут регионы с ядовитым газом, айсбергами, каннибалами и многим, многим другим.Тип издания: LicenseРазработчик: Fireblade SoftwareЖанр: Приключение, Стратегия, Про мореЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F409D43D644F68FCAD8A5CF0D20C64E8559B82F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259529   (332901) от 18.11.2010
+
+Moorhuhn - Das verbotene Schloss (L) [Dе] (2010)
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морхухн возвращается! Вас ждут красочные приключения вместе с морхухном и его друзьями в поисках таинственного замка! Бегайте, прыгайте, ездите верхом по невероятной красоте ландшафтам. Отправляйся в эпический поиск сокровища и отыщи таинственный замок!Тип издания: ЛицензияЖанр: ArcadeЯзык озвучки: НемецкийЯзык интерфейса: Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB88BECABCF60569441F8264436CC19AF8E9614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258977   (332806) от 01.11.2018
 
 Orphan (2018) [Ru/Multi] (1.0.0.0) Repack Other s
@@ -6,7 +58,7 @@ Orphan (2018) [Ru/Multi] (1.0.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332806.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Evil Defenders (2015) [Ru/Multi] (1.0) SteamRip R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327199.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ My Memory of Us (2018) [Ru/Multi] (1.2990) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322852.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Mega Man 11 (2018) [Multi] (1.0.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311081.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Ukrainian Ninja (2014) [En/Uk] (1.0) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306085.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304763.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Bullshot (2016) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303941.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ben 10 (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302728.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Mad Dog 2: The Lost Gold / Mad Dog 2: Золотая лихорадка [Ru] (L)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_301621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_301621.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ GUTS (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300984.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Injustice: Gods Among Us (2013) [Ru/Multi] (1.0.2787.0) Repack xatab [Ultimate E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298443.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Hyperdimension Neptunia Re-Birth2: Sisters Generation (2015) [En/Ru] Repack R.G.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294377.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293277.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License 0x0007
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293100.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287061.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287058.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Zombie Vikings (2015) [Ru/Multi] (1.0) License CODEX [Ragnarök Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286752.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ EARTH'S DAWN (2016) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285406.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Wanted Corp. (2016) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283629.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Inside (2016) [Ru/Multi] (1.0/upd10)  Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283464.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Ball of Light (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281854.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Crossbow Warrior - The Legend of William Tell (2015) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281655.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Mega Man 11 (2018) [Multi] (1.0.0.1/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280838.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Chasm (2018) [En] (1.043) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276184.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Chasm (2018) [En] (1.043) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CB2DC075E81ADD9F36E6AE9C82DD763F9F0BEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083059   (275419) от 14.12.2016
-
-Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.3/dlc) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уходите от страшилищ и охотников по древним руинам. Играйте за Эйба из Oddworld в ремейке классики PlayStation - Abe's Oddysee. Эйб был счастливым полотером на мясной фабрике Oddworld, но узнал секретный план босса: делать из рабов мясные закуски RuptureFarms Tasty Treats. Теперь Эйб спасается от мясорубки. Побег с бойни - лишь начало одиссеи!Тип издания: LicenseРазработчик: Just Add WaterЖанр: Arcade (Platform), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A61A4CA3896F1B5642C47588829FF9D4B6CB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083138   (275342) от 14.12.2016
-
-GUILTY GEAR Xrd -REVELATOR (2016) [En/Ja] (1.0.8767/dlc) License CODEX [Complete Edition]
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спрайтовый файтинг с богатой родословной и до недавнего времени бывший эксклюзивом для приставок и игровых автоматов. Действие игры происходит в будущем, во времена, когда люди научились оперировать магией и применять ее в военных целях. Но все пошло не так, как планировалось: теперь придется сражаться с измененными людьми и уничтожать их.Тип издания: LicenseРазработчик: Arc System WorksЖанр: Action, FightingЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791EDD3FB4BB71514340A2CC0A1F170E47972DF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

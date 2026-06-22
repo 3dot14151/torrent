@@ -1,3 +1,107 @@
+###  Публикация: 1809240   (1380) от 23.09.2025
+
+Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Valor - космическая игра в жанре экшен-РПГ, где вы управляете собственным кораблём и собственной судьбой. Исследуйте огромный процедурно генерируемый мир, начав с самых низов, и станьте самым известным человеком в галактике. Но во вселенной, где человечество влачит существование под пятой почти истребивших его пришельцев, богатство и власть никому не даются (   Читать дальше...   )Тип издания: RepackРазработчик: Rafael BurgosЖанр: Экшены, Инди, Ролевые игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CD3C7B898FA0DDD6546BAB71F695908943F176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780196   (1373) от 23.09.2025
+
+Reality Break (2025) [Multi] (1.1.1) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы играете за наемника, который неожиданно обретает способность искажать реальность, бросая вас в вихрь постоянных изменений и опасностей. По мере прохождения вы столкнетесь с испытаниями, требующими не только боевых навыков - именно ваше мастерство управления реальностью определит исход. Механика Rewrite - ключевая особенность Reality Break, позволяющая юзерам изменять (   Читать дальше...   )Тип издания: LicenseРазработчик: Element Games, LLCЖанр: Экшены, Инди, Ролевые игрыЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819624   (1349) от 23.09.2025
+
+You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1349.jpg" />
+</div>
+
+
+###  Подробнее
+
+You Will Die Here Tonight - ролевой экшен с пошаговыми элементами. Оказавшись в таинственном особняке, предстоит столкнуться с самым настоящим ужасом поместья. Ты умрешь сегодня вечером - это леденящий душу ужастик, выполненный в духе оригинальных частей Resident Evil. Столкнитесь с нечистью в недрах старинного поместья и попытайтесь выбраться из особняка живым.Тип издания: LicenseРазработчик: Spiral Bound Interactive LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Венгерский, Испанский, Немецкий и другиеЯзык интерфейса: Английский, Венгерский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E12A9E27A5FB17F23DF0AB5D4615C5508F3BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809449   (1262) от 24.09.2025
+
+WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в землях Шу, в мрачные и неспокойные времена заката династии Мин. Империю раздирают междоусобицы, а таинственная хворь порождает кошмарных чудовищ. Вы играете за Учан, бывалую пиратку и грозу морей, потерявшую память. Ей предстоит столкнуться с призраками прошлого и выжить после заражения жуткой Пернатой хворью. Исследуйте глубины Шу, собирайте (   Читать дальше...   )Тип издания: RepackРазработчик: LeenzeeЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Китайский (упрощенный), ЯпонскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897916AF527D2FE9A6DA99DD9060FB02738397CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781475   (1258) от 24.09.2025
 
 The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) License GOG [Launch Complete Edition]
@@ -6,7 +110,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1258.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Let'sРlay [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1250.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1216.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.3/dlc) Repack SE7EN [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1112.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1082.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1080.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.37/dlc) License GOG [Gol
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_930.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_730.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_725.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250807/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_680.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_672.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.5.3/dlc) License GOG [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_668.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Repack seleZen [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_657.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Wartales (2021) [Ru/Multi] (1.0.43382 HF2/dlc) Repack Let'sРlay [The Mercenarie
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_449.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_444.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_421.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_323.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_190.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Wandering Sword (2023) [Multi] (1.24.30/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Coromon (2022) [Ru/Multi] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131.jpg" />
 </div>
 
 
@@ -563,32 +667,6 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B2543C78BCFFE57CDB4A0C1AC7D2C7D14CE79E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820774   (87) от 29.09.2025
-
-Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возглавьте Экспедицию 33 и уничтожьте Художницу, чтобы она никогда больше не смогла нарисовать смерть. Исследуйте мир чудес, созданный на основе Прекрасной эпохи Франции, и побеждайте уникальных врагов в пошаговой ролевой игре с механикой реального времени.Тип издания: LicenseРазработчик: Sandfall InteractiveЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FAB06B7C85141105CFC0BAA66534520C55A82A
 ```
 
 https://mybot314.ru/tekegram_catalog/

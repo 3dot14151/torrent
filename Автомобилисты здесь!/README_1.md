@@ -1,3 +1,29 @@
+###  Публикация: 1717033   (59113) от 20.04.2024
+
+"АвтоВАЗ" предложил поднять  утильсбор уже в этом году с 300 тыс. руб. до 550 тыс.
+
+>>След.
+>>Автомобилисты здесь!
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59113.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АвтоВАЗ" предлагает поднять в 2024 году утилизационный сбор для автомобилей с двигателем от одного до двух литров с 300 тыс. до 550 тыс. руб. Об этом сообщил глава компании Максим Соколов на расширенном заседании комитета Совета Федерации по экономической политике во вторник."Для автомобиля с двигателем от одного до двух литров, с нашей точки зрения, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732705   (51873) от 27.06.2024
 
 В Японии впервые задержан водитель электрочемодана
@@ -6,7 +32,7 @@
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51873.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49015.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43502.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36002.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35167.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33918.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29952.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Toyota провела тайные переговоры с бывшими авт
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25813.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21378.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ BMW теперь будет сама  включать поворотники
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14666.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобилисты здесь!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8303.jpg" />
 </div>
 
 

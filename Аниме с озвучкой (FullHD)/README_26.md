@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200452.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200372.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200353.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200340.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200045.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199808.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Schwarzesmarken | Schwarzes Marken | Чёрные метки [2016, TV, 12 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199421.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198625.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198248.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 2nd Season | Classroom of the El
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198215.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Неви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197996.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | В п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197170.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Black Clover: Mahou Tei no Ken | Black Clover: Sword of the Wizard King | Чёр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196944.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Tsugumomo | Цугумомо [2017, TV, 12 эп.] BDRip HEVC 10-bit raw+eng+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196519.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Bakuman | Бакуман [ТВ-1] [2010, TV, 25] BDRip HEVC 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196312.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196227.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196221.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196201.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196193.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196162.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196086.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195870.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195863.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193974.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Paprika | Паприка [2006, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193832.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Hanma Baki: Son of Ogre 2nd Season | Baki Hanma 2nd Season | Баки — сын
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193706.jpg" />
 </div>
 
 

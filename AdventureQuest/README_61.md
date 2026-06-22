@@ -1,3 +1,133 @@
+###  Публикация: 1579651   (195563) от 16.07.2023
+
+Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kena: Bridge of Spirits – сказочное приключение в очаровательном мире, где исследование постоянно сопровождается сражениями. Игрока все время сопровождают крошечные духи, которые помогают расширять спектр доступных умений героя и открывают новые способы взаимодействия с виртуальным миром. Кена, юная духовная вожатая, отправляется в забытую богом деревушку в поисках (   Читать дальше...   )Тип издания: RepackРазработчик: Ember LabЖанр: Adventure, ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36B75DA4326B54D2355D3BD579EB654E17513E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647108   (195532) от 17.07.2023
+
+OXENFREE II: Lost Signals (2023) [Multi] (1.2.14) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195532.jpg" />
+</div>
+
+
+###  Подробнее
+
+OXENFREE 2: Lost Signals продолжает историю о мрачных потусторонних существах, что выходят на связь с людьми через радиомагнитные волны. Главной героиней становится девушка по имени Райли, что прибывает в городок под названием Камен. Протагонистка оказывается втянута в атмосферные приключения, изучая места, в которых не была уже больше 5 лет. Игра представляет собой (   Читать дальше...   )Тип издания: SceneРазработчик: Night School StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B7D7C9A5FE08AD0E4DD87E52A358CC5B0AD278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647305   (195473) от 18.07.2023
+
+Life is Strange Remastered Collection (2022) [Ru/Multi] (11330282/11258280) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Life is Strange Remastered Collection - интерактивное приключение, сочетающее в себе элементы квеста и визуальной новеллы. В центре истории две девушки - Макс Колфилд и Хлоя Прайс, которые расследуют таинственную пропажу девушки по имени Рэйчел Эмбер. Переиздание включает в себя несколько новых нарядов для хлои, в том числе майку Склеп Зомби, улучшенную графику, (   Читать дальше...   )Тип издания: RepackРазработчик: Deck NineЖанр: Action, AdventureЯзык озвучки: Русский (только Life is Strange), АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCC3473651F1B50F125167F1C8FB9ECDF32FBDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647608   (195387) от 20.07.2023
+
+Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195387.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Please, Forgive Me" — психологический хоррор рассказывающий жуткую историю одного слишком уверенного в себе риэлтора по имени Павел. Ему нужно проверить старую квартиру и сдать её некой женщине. Эта ночь обернется для него самым настоящим кошмаром.Тип издания: RepackРазработчик: REVVALUTION StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9146B71F351638037961119F75B8605C311A4536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647871   (195366) от 21.07.2023
+
+My Friendly Neighborhood (2023) [Ru/Multi] (1.0.5) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195366.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Friendly Neighborhood погружает юзеров на роль простого ремонтника Гордона, что вынужден справляться с мрачными и ожившими марионетками, нападающими на героя во время спектакля "Наше дружное соседство". Протагонист вынужден выживать и справляться с различными головоломками, чтобы найти выход из ловушки. Игра MFN является экшен хоррором, где предстоит (   Читать дальше...   )Тип издания: SceneРазработчик: John Szymanski, Evan SzymanskiЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0272898E1123EF97596A1A70F7AFF9F9696E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648523   (195289) от 23.07.2023
 
 Unholy (2023) [Ru/Multi] (30649) Repack Other s
@@ -6,7 +136,7 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195289.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Frozen Garden (2023) [En] (Build 11771483) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195036.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719_1750_15
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195006.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Welcome to Kowloon (2023) [Ru/Multi] (Build 11855091) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194801.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (Build 11792639) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194786.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194644.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194640.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ The Scrap (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194613.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (0.169) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194576.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194314.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Greyhill Incident (2023) [Ru/Multi] (1.0.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194292.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194289.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194249.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194171.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 11965072) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193944.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193928.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193865.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193854.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193748.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193702.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Apartament 1406: Horror (2023) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193519.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Apartament 1406: Horror — это напряженная игра ужасов,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C315DFFABF3C0D4EB713369108D2E01D36B802F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656337   (193494) от 30.08.2023
-
-Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193494.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом детективном приключении вы будете играть за знаменитого сыщика Эркюля Пуаро, которому в сотрудничестве с Lloyd’s of London нужно проследить за перевозкой, безопасностью и продажей ценного портрета Марии Магдалины. Эта картина должна стать жемчужиной новой выставки в музее Лондона, которую на время привезут в Лондон из Брюсселя. Увы, во время церемонии открытия (   Читать дальше...   )Тип издания: SceneРазработчик: Blazing GriffinЖанр: Action, Adventure, SimulationЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7AFE3D789B8AC18BCFCB67CE613DFE84A60A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587051   (193063) от 29.10.2022
-
-Paper Cut Mansion (2022) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paper Cut Mansion - хоррор в жанре roguelite, действие которого происходит в бумажном мире. Играйте за Тоби, полицейского детектива, прибывающего в таинственный старинный особняк. Исследуйте особняк этаж за этажом, пытаясь разгадать историю этого причудливого места, где каждый забег дает вам возможность собрать еще одну улику, которая будет добавлена на вашу доску (   Читать дальше...   )Тип издания: LicenseРазработчик: Space Lizard StudiosЖанр: Приключение, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный), Французский и другиеЯзык интерфейса: Английский, Китайский (упрощенный), Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFFE97E19B67AB6878FAA4495E0C707C3FACB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657103   (192992) от 02.09.2023
-
-KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта игра представляет собой английский перевод визуальной новеллы, выпущенной в Японии. В этом произведении главный герой, мальчик и четыре героини, которым посчастливилось жить в особняке, работают вместе, чтобы раскрыть убийство, произошедшее в неком городе Японии.Тип издания: SceneРазработчик: Cabbit, Inter De PendenceЖанр: Казуальные игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E53B0299167D0B41D0B10CB1C3A6C5623409F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657093   (192902) от 02.09.2023
-
-HeadHorse Legacy (2023) [Ru/Multi] (2.031) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192902.jpg" />
-</div>
-
-
-###  Подробнее
-
-HeadHorse - ваш похититель, и у вас есть единственная миссия - сбежать. Он очень умный убийца с непревзойденной жаждой крови, следит за каждым вашим движением, за каждым шагом, за каждым проблеском надежды на побег, с каждым мгновением приближаясь к своей цели, к вам!Тип издания: SceneРазработчик: Yellow Pixel GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D68528F02DA967CB9EC7759219DB473A00E8EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587394   (192754) от 30.10.2022
-
-FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192754.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 сентября 1986 года два священника прибыли в дом семьи Мартин в сельской местности Коннектикута, чтобы расследовать очевидный случай одержимости демонами. Только два человека выйдут из дома живыми. FAITH - это пиксельная хоррор-игра, вдохновленная эпохой классических 8-битных игр и «Сатанинской угрозой» 1980-х годов. Используйте свое святое распятие для изгнания (   Читать дальше...   )Тип издания: LicenseРазработчик: Airdorf GamesЖанр: Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0C27F8D508A35EA89BA9CD619E35DA93E84D73
 ```
 
 https://mybot314.ru/tekegram_catalog/

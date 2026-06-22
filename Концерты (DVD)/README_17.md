@@ -1,3 +1,59 @@
+###  Публикация: 274721   (46880) от 14.08.2024
+
+Deep Purple: Live In California 1974 (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple - Live In California 74 это пожалуй самый грандиозный концерт культовой группы Deep Purple ??!!!
+Видеокассета VHS "California Jam, April 6th 1974" увидела свет в Великобритании в 1981 г. , потом выпушена там же в 1984 и 1991 годах. В США она была издана в 1983 году под другим названием "Live At The California Jam". В Японии, были выпушены (   Читать дальше...   )1. Burn
+2. Might Just Take Your Life
+3. Lay Down Stay Down
+4. Mistreated(   Читать дальше...   )Жанр: Hard rockФормат: DVD VideoПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BA483B9D5F5611812CF47C830B9F316CA989E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583269   (46786) от 15.08.2024
+
+Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xDVD9)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46786.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 ноября 1993 года вышел в продажу Live Shit: Binge & Purge бокс сет состоящий из 3-х дисков с аудиозаписью концерта в Sports Palace, Мехико, Мексика (25, 26, 27 февраля и 1, 2 марта 1993 года). И 3-х VHS кассет с видеозаписью концерта в Seattle Coliseum, Сиэтл, США (29 и 30 августа 1989 года) и концерта в San Diego Sports Arena, Сан Диего, США (13 и 14 января (   Читать дальше...   )Жанр: Музыка, КонцертАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Jason NewstedПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 03:19:21 + 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047E94687EC9E03B97968B762BA2275D106A5963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 124408   (46685) от 16.08.2024
 
 Eurythmics Ultimate Collection  (2005) DVD5
@@ -6,7 +62,7 @@ Eurythmics Ultimate Collection  (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46685.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Dire Straits - Rockpalast (1979) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46684.jpg" />
 </div>
 
 
@@ -67,7 +123,7 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46678.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46669.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46653.jpg" />
 </div>
 
 
@@ -148,7 +204,7 @@ Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46652.jpg" />
 </div>
 
 
@@ -177,7 +233,7 @@ Grand Funk & Mark Farner (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46651.jpg" />
 </div>
 
 
@@ -206,7 +262,7 @@ Styx -Counght In The Akt- 1984 (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46641.jpg" />
 </div>
 
 
@@ -238,7 +294,7 @@ LIVING LOUD - Live Sydney Fox Studios (2004) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46635.jpg" />
 </div>
 
 
@@ -264,7 +320,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46578.jpg" />
 </div>
 
 
@@ -293,7 +349,7 @@ Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46575.jpg" />
 </div>
 
 
@@ -322,7 +378,7 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46571.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ Rainbow - Live In Munich (1977) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46551.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ VA - Live At Knebworth (2002) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46548.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46544.jpg" />
 </div>
 
 
@@ -435,7 +491,7 @@ The Doors - Live In Europe - 1968 (DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46440.jpg" />
 </div>
 
 
@@ -464,7 +520,7 @@ The Doors - Live At The Isle Of Wight Festival '1970 (2018) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46342.jpg" />
 </div>
 
 
@@ -493,7 +549,7 @@ Guns N' Roses - Use Your Illusion Ultimate (1998) 2 x DVD9/5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45955.jpg" />
 </div>
 
 
@@ -519,7 +575,7 @@ Rainbow - Live In Japan 1984 (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45927.jpg" />
 </div>
 
 
@@ -548,7 +604,7 @@ Deep Purple - History, Hits & Highlights '68-'76 (1968-1976) 2*DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45847.jpg" />
 </div>
 
 
@@ -577,7 +633,7 @@ Pink Floyd - Live at Pompeii (Director's Cut, 1972/2003 гг. DVD9)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45845.jpg" />
 </div>
 
 
@@ -606,7 +662,7 @@ Party at The Palace (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45718.jpg" />
 </div>
 
 
@@ -637,7 +693,7 @@ Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45712.jpg" />
 </div>
 
 
@@ -666,7 +722,7 @@ Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45640.jpg" />
 </div>
 
 
@@ -683,62 +739,6 @@ PHIL LANZON - Keyboards And Vocals(   Читать дальше...   )Форма
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACB1AABB9D054FBA55E1A5CE033CCFB07F1FCAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 61055   (45636) от 26.08.2024
-
-Kiss: "Rock the nation. Live!" (2005)  DVD9x2
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной праздник на улице фэнов KISS вышел в свет двойной DVD "Kiss - Rock The Nation Live!". Издание включает в себя лучшие моменты концертов команды в Вашингтоне и Вирджинии, заснятые во время тура Rock The Nation 2004 г.  В обширном трек-листе DVD-коллекции поклонников легендарного коллектива ждут настоящие находки, ибо многие из представленных композиций (   Читать дальше...   )Жанр: Hard Rock, GlamФормат: DVD videoКачество: DVD9Продолжительность: 01:09:40 / 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6582C18BB9E36431DBCDE8AD7E8B3A7C3F157AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722745   (45615) от 26.08.2024
-
-Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт коллектива Cheap Trick состоялся в 1999 году в Рокфорде, штат Иллинойс, и потому диск назван Silver, что отмечает 25-летие группы.
-Американский релиз этого концерта в NTSC был издан в 2001 году, а в этой раздаче DVD в формате PAL, выпущенный в 2005 году в Германии.1. Ain't That a Shame
- 2. I Want You to Want Me
- 3. Oh Candy
- 4. That 70's Song(   Читать дальше...   )Производство: ГерманияЖанр: Hard Rock, Power PopПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB46E14131E27DD7949A748C69C8FAEEDD34C40
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,148 +1,3 @@
-###  Публикация: 942087   (458227) от 29.09.2015
-
-Elvin Jones introduces Takehisa Tanaka - When I Was At Aso-Mountain (1993) /2005, Enja/[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beautiful Love [07:31]
-02.I Was Too Young [08:29]
-03.You Don't Know What Love Is [10:18]
-04.My Dream Come True, To E. J. [05:27](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DA749276B0592ED2A4253909DFC180CACDEDAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568810   (458043) от 10.08.2022
-
-Max Roach - The Complete Remastered Recordings On Black Saint & Soul Note, Vol. 2 (1979 - 1985) 6CD, 2016, Black Saint [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458043.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Pictures In A Frame:
-01. Reflections [3:37]
-02. Mwalimu [8:16]
-03. A Place of Truth [4:11](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 04:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A244A867EC195D6B2C3043199D34774F32BDFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060126   (457742) от 06.10.2016
-
-Rob Agerbeek Trio - Miss Dee (1980) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Birks Works [03:47]
- 02.Cup Bearers [04:08]
- 03.Little 'Miss Dee' [05:06]
- 04.Out Of This World [06:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8227A23E360214D95857BF8BB39444E366AD97C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059874   (457738) от 06.10.2016
-
-The Trio: John Surman, Stu Martin, Barre Phillips - Conflagration (1971) Remaster, 2002, Dawn Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Conflagration [07:42]
- 02.Malachite [10:01]
- 03.Nuts [06:57]
- 04.6's and 7's [07:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1178B0D6597CF5E3BD5A58DE868135DD6950526A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060132   (457734) от 06.10.2016
-
-The Louis Van Dyke - Trio / Quartet (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Minuet Circa 61 [04:59]
- 02.Blues For Robin-Mark [03:55]
- 03.Hilda's Uneven Mood [07:25]
- 04.Nicolette [03:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA54AC88E56240B0B846CDEAA31324BE50C8340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060128   (457732) от 06.10.2016
 
 The Fred Hersch Trio - Sunday Night at the Vanguard (2016) Palmetto Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -151,7 +6,7 @@ The Fred Hersch Trio - Sunday Night at the Vanguard (2016) Palmetto Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457732.jpg" />
 </div>
 
 
@@ -180,7 +35,7 @@ Al Jarreau - Heart's Horizon (1988) [FLAC|Lossless|image + .cue] <Smooth Jazz, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457723.jpg" />
 </div>
 
 
@@ -209,7 +64,7 @@ Hiromi Uehara - 5 альбомов (2004 - 2011) [FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457265.jpg" />
 </div>
 
 
@@ -243,7 +98,7 @@ Renee Rosnes - Beloved Of The Sky (2018) Smoke Session Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457123.jpg" />
 </div>
 
 
@@ -272,7 +127,7 @@ Count Basie - Celebrating the Best of Jazz (2001) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457122.jpg" />
 </div>
 
 
@@ -301,7 +156,7 @@ Vic Juris - Eye Contact (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457113.jpg" />
 </div>
 
 
@@ -330,7 +185,7 @@ Art Blakey & The Jazz Messengers - Farewell: Live At Sweet Basil (1985) 2CD, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457007.jpg" />
 </div>
 
 
@@ -359,7 +214,7 @@ Quincy Jones - The Quincy Jones ABC / Mercury Big Band Jazz Sessions (1959 - 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456975.jpg" />
 </div>
 
 
@@ -388,7 +243,7 @@ Lionel Hampton - Paris Session (1956) 1989, EMI [FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456129.jpg" />
 </div>
 
 
@@ -417,7 +272,7 @@ Richie Beirach Trio - Trust (1996) /Evidence/[FLAC|tracks+.cue]<Post-Bop, Piano 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456089.jpg" />
 </div>
 
 
@@ -446,7 +301,7 @@ Sidney Bechet, Pee Wee Russell - Soprano And Clarinet (1953 - 1954) 1996, Da Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455815.jpg" />
 </div>
 
 
@@ -475,7 +330,7 @@ Donald Fagen - Donald Fagen's The Nightfly Live (2021) Japanese Edition [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455800.jpg" />
 </div>
 
 
@@ -504,7 +359,7 @@ Gregory Porter - All Rise (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455773.jpg" />
 </div>
 
 
@@ -533,7 +388,7 @@ Al Jarreau - All Fly Home (1978) [FLAC|Lossless|image + .cue] <Soul-Jazz, Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455302.jpg" />
 </div>
 
 
@@ -562,7 +417,7 @@ Bud Freeman - Chicago / Austin High School Jazz In Hi-Fi (1957) 2006, Mosaic Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455135.jpg" />
 </div>
 
 
@@ -591,7 +446,7 @@ June Christy And The Stan Kenton Orchestra - The Complete Studio Recordings (194
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455133.jpg" />
 </div>
 
 
@@ -620,7 +475,7 @@ Will Davis Trio - Have Mood Will Call... (1959) 2017, Warner [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455117.jpg" />
 </div>
 
 
@@ -649,7 +504,7 @@ Diana Horta Popoff - Amor de Verdade (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455111.jpg" />
 </div>
 
 
@@ -678,7 +533,7 @@ Red Rodney - Then And Now (1992) Chesky Records [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454932.jpg" />
 </div>
 
 
@@ -707,7 +562,7 @@ Norah Jones - Day Breaks (Deluxe Edition) (2016) [FLAC|Lossless|image + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454823.jpg" />
 </div>
 
 
@@ -736,7 +591,7 @@ Tony Bennett & Diana Krall - Love Is Here To Stay (2018) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454638.jpg" />
 </div>
 
 
@@ -750,6 +605,151 @@ Tony Bennett & Diana Krall - Love Is Here To Stay (2018) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B047208F8DEDD80F0EB9C4F2A7FC5B8143F2473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408637   (454028) от 13.09.2020
+
+Stanley Cowell - Juneteenth (2014) 2015, Vision Fugitive [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Shall 2 [3:29]
+02. Juneteenth Suite: Introduction [1:20]
+03. Juneteenth Suite: Proclamation [2:04]
+04. Juneteenth Suite: Reality Dreams Echoes [2:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D734DD87BBFBE14B56333A9B430D83BA6330A3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408633   (454026) от 13.09.2020
+
+Stanley Cowell Trio - Bright Passion (1993) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brilliant Circles [8:17]
+02. Bright Passion [6:18]
+03. Dave's Chant #2 [6:10]
+04. Round About Midnight [7:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9927D8ADF0171D215A23B010DCB891EC0E378461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408643   (454025) от 13.09.2020
+
+Stanley Cowell - Are You Real? (2014) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photon in a Paper World [11:34]
+02. You Taught My Heart to Sing [9:54]
+03. Mrs. Parker of KC [6:08]
+04. I Remember Diz [8:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846B8776EDD86E73466A26355804A497EC20866E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408617   (454023) от 13.09.2020
+
+Stanley Cowell Trio - Close To You Alone (1990) DIW [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'D' Bass - IC Blues [5:56]
+02. Endless Flight [8:52]
+03. Close to You Alone [6:58]
+04. Equipoise [5:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963D3EB7BA5A7BEC27F5EAF70470279B01831C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408635   (454022) от 13.09.2020
+
+Stanley Cowell - Reminiscent: plus A Xmas Suite (2015) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intermezzo [4:11]
+02. Re-confirmed [6:05]
+03. A Child Is Born [7:55]
+04. A Xmas Suite [10:03](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA53BDDD5C70A8370E935C6A20F6787C8BCDACA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

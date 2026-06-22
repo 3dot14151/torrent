@@ -1,3 +1,133 @@
+###  Публикация: 1012090   (794581) от 30.04.2016
+
+BBC. Искусство Германии / Art of Germany (2010) HDTVRip (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для поэта Фридриха Шиллера не существовало страны Германии, только вопрос: - "Германия, где это?". Большую часть своей истории Германия не была единой, она представляла собой несколько отдельных земель, не государство, а процесс становления. На протяжение веков Германия существовала только в фантазии, в воображении писателей, художников, провидцев, поэтому (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйРежиссер: Карен МакГанн / Karen McGann, Роджер Парсонс / Roger ParsonsПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:59:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925BF9A960C42D08E95DC817CA85CF3699DCA453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012087   (794569) от 30.04.2016
+
+BBC. Искусство Испании / The Art of Spain (2008) SATRip (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто при мысли об Испании мы представляем себе пляжный отдых, но существует и другая Испания. Эта страна дала миру самое поразительное искусство из существовавших когда-либо в мире. Искусство, которое незаслуженно находится в тени культурных достижений остальной Европы. Между тем, испанское искусство - именно то, которое мы должны знать, ведь оно является ключом (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйРежиссер: Робин Дэшвуд / Robin DashwoodПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D00ECDADDABFBB63E254218E00F5E242253190E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012098   (794495) от 30.04.2016
+
+BBC. Искусство России / The Art of Russia (2009) HDTVRip (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794495.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Art of Russia - 3-х серийный фильм о русском искусстве, начиная с 10 века. Рассказывает об искусстве древней Руси, 18 века, до революции, в советский период и в наше время. Фильм вышел в декабре 2009 года в рамках русского сезона на BBC Four.Телекомпания: BBCЖанр: ДокументальныйРежиссер: Эндрю Грэм-Диксон / Andrew Graham-DixonПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:59:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD71BDD1A38237141FB4E9898AA2CECFE43CB9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122649   (794239) от 05.04.2017
+
+PBS: Истории из королевской спальни / Tales from the Royal Bedchamber (2013) HDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старший куратор исторических королевских дворцов Люси Уорсли заглянет в королевские спальни, чтобы раскрыть нам их величайшие тайны. Ведь, взлеты и падения великолепных спален отражают изменения положения самой монархии.Телекомпания: Великобритания, Tiger Aspect Productions for BBCЖанр: Документальный, ИсторияПеревод: Одноголосый закадровый, профессиональный, ("SDI Media")Продолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03430CF7BBC7692C1B9EF821A893C662C277BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509753   (793857) от 13.11.2021
+
+BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793857.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме «Бог любит Уганду» обладатель премии Оскар режиссёр Роджер Росс Уильямс исследует роль христианской церкви в установлении в Уганде закона, жестоко карающего за гомосексуальность. Этот страшный закон в начале 2010-х продвигали в Уганде политики и горячо пропагандировали некоторые церковные лидеры. Но идея принятия такого закона, равно как и деньги на кампанию (   Читать дальше...   )Производство: США / Full Credit Productions, Motto PicturesЖанр: ДокументальныйРежиссер: Роджер Росс УильямсПеревод: Многоголосый профессиональный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FEBFE3C35247D87CD6D62B034E7667DA4D28C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509764   (793855) от 13.11.2021
 
 Индийский леопард / India's Wild Leopards (2020) WEB-DL [H.264/1080p]
@@ -6,7 +136,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793855.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793690.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ NG: В Поисках гигантского осьминога / Search for the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793370.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793340.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ DV. Чудеса механики / Wonders of the Clockwork World / Mechanical 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793229.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ PBS. Жизнь колибри. Волшебство в воздухе / Humming
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793159.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793099.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792749.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792713.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792700.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792677.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792674.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792668.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ History Channel: Вселенная / The Universe (2007-2012) BDRip [H.264/720p
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792654.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792602.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792431.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ Discovery. Научные приколы / SciJinks (2018) WEB-DL [H.264/1080p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792357.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ Discovery. Как построить... что угодно / How to Build... Ev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792352.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ BBC: Планеты / The Planets (2019) HDTVRip [H.264/720p-LQ] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792317.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792177.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792122.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A0838FC411DB1BBD53D2C2F1A1FAB8B33E996E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387396   (791776) от 01.06.2020
-
-NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip [H.264/1080p-LQ] [PR]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы. Несмотря на свой древний внешний вид, рептилии - это животные, полные загадок, и сложные для изучения. Во время охоты змеи в совершенстве контролируют каждый миг, который отделяет жизнь от (   Читать дальше...   )Производство: Испания, Nat Geo WildЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A532A350C9E407C4F10D0E263D138165DA0EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387250   (791773) от 01.06.2020
-
-DV: Улыбка удачи / The Joy Of Chance (2016) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Спигелхолтер рассказывает, как мы открыли принципы случайности, как мы пытаемся подчинить их себе и как можно научиться их любить.Производство: США / Wingspan ProductionsЖанр: ДокументальныйРежиссер: Dan HillmanПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5DD829CAF9567892694C8547431757B4EF7ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275015   (791685) от 09.01.2019
-
-Animal Planet: Спасение животных: ураган Харви / Surviving Harley. Animals After the Storm (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791685.jpg" />
-</div>
-
-
-###  Подробнее
-
-После урагана Харви и наводнения многие животные лишились крова. Волонтеры и спасатели работали не жалея сил, пристраивая бездомных животных.Производство: США, Peacock Productions, Animal PlanetЖанр: Документальный, природа, катаклизмыРежиссер: Стивен ФлислерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC93FB04273AB7A5A20F29C13D7BB107A00C7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275029   (791606) от 09.01.2019
-
-Охота на ведьм: столетие убийств / Witch Hunt: A Century of Murder (2015) HDTVRip [H.264/1080p-LQ] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791606.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой документальной драме доктор Сюзанна Липскомб отправляется на поиски истоков ужасной массовой охоты на ведьм, что привело её на британские острова и Европу. Каково было невинным жертвам, которых пытали, убивали и обвиняли в преступлениях, которые те не смогли бы совершить никоим образом?Производство: Великобритания, 5 ProductionsЖанр: Документальный, история, реконструкцияРежиссер: Крис ХалтПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199FBD68A0FD4D2016D5285257EDAE4462F476F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201731   (791397) от 26.01.2018
-
-BBC. Земля: Один потрясающий день / Earth: One Amazing Day (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-путешествие, которое раскрывает удивительную силу природы. В течение одного дня сюжет следует за солнцем — от высочайших гор, через отдаленные острова к экзотическим джунглям. С помощью новейших технологий фильм знакомит зрителей с колоритными животными и напоминает: каждый день в мире происходит больше чудес, чем вы можете себе представить.Производство: Великобритания, Earth Film Productions, BBC Worldwide North AmericaЖанр: Документальный, СемейныйРежиссер: Ричард Дэйл, Фань Лисинь, Питер ВебберПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70098F3CDBDED7672EC67D65A4B90FD2F1A41E08
 ```
 
 https://mybot314.ru/tekegram_catalog/

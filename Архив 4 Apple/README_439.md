@@ -1,3 +1,56 @@
+###  Публикация: 1258780   (334688) от 31.10.2018
+
+Scrutiny 8 v8.1.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA8A570A0F1DC1FC9E1B7C749FF0A9FAD6B8BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258607   (334598) от 31.10.2018
+
+PDFelement Express 0.6.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и простой редактор PDF для Mac. Если вы хотите читать, редактировать или комментировать PDF-файлы, у PDFelement Express есть все, без ненужного наполнителя. Создавайте потрясающие документы и четко выражайте свои идеи. PDFelement Express для Mac предлагает бесшовные прокрутки. Независимо от того, с каким типом документа вы работаете, есть опция просмотра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2018Разработчик: Wondershare Technology Corp.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F05217473B72832FE23E0137EC3758AAB82478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258745   (334588) от 31.10.2018
 
 Viscosity 1.7.12 [Multi/Ru]
@@ -6,7 +59,7 @@ Viscosity 1.7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334588.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Lingon X 6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334586.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Cheetah3D 7 v7.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334450.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ iExplorer 4.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334435.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ Children of Morta (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334399.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ Dawn of Man (2019) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334312.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ Marmoset Hexels 3 v3.1.2 Build 7702 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334185.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ MarsEdit 4 v4.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334015.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ Downcast 2.9.57 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334014.jpg" />
 </div>
 
 
@@ -252,7 +305,7 @@ Hookshot 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334013.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ File List Export 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334012.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ Yate 6.1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334010.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ MediaHuman Youtube Downloader 3.9.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333997.jpg" />
 </div>
 
 
@@ -364,7 +417,7 @@ Adguard 2.5.1.913 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333939.jpg" />
 </div>
 
 
@@ -390,7 +443,7 @@ Mirror for Samsung TV 3.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333875.jpg" />
 </div>
 
 
@@ -419,7 +472,7 @@ Forecast Bar 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333851.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ PowerPhotos 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333671.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ Live Home 3D Pro Edition 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333644.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333538.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ Dash 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333236.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ Microsoft Office Standard 2016 v15.16 (with License Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333193.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ JetBrains WebStorm 11.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333183.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ TextMate 2.0-rc.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333156.jpg" />
 </div>
 
 
@@ -636,7 +689,7 @@ PullTube 0.11.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333147.jpg" />
 </div>
 
 
@@ -649,61 +702,6 @@ PullTube предлагает Вам (   Читать дальше...   )Тип
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F0DCA5161CF35F6685971122FEA86B1BF736F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259017   (333038) от 01.11.2018
-
-Fileloupe - Media Browser 1.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fileloupe - cамый быстрый способ, чтобы просмотреть фотографии, смотреть видео, смотреть PDF-файлы и просматривать документы на вашем Mac.
-В отличие от существующих решений, Fileloupe не требует длительного процесса импорта, не использует мастер библиотек и не делает копии файлов. С Fileloupe вам больше не придется открывать несколько окон или несколько приложений, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: Corduroy Code Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02F4F517AB39A0F6C84337EBFD399DD1ED1E620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258912   (333034) от 01.11.2018
-
-BlueHarvest 7 v7.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333034.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlueHarvest - утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
-
-Данная программа будет полезна для тех, кто любит включенную опцию показа скрытых и системных файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: Ross TullochПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C548F8ED3CA8B496BC1735EE695E781031F61D
 ```
 
 https://mybot314.ru/tekegram_catalog/

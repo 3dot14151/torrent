@@ -1,3 +1,85 @@
+###  Публикация: 1716713   (59435) от 17.04.2024
+
+Вячеслав Дубынин | Мозг: эмпатия и лидерство (2023) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темы лекции:
+ЭВОЛЮЦИЯ
+Поговорим о том, как в нашем мозге зарождается стремление лидировать и возможность проявлять эмпатию.
+ЭМПАТИЯ(   Читать дальше...   )Жанр: ВидеоурокЯзык озвучки: РусскийПродолжительность: 02:38:43Реклама: Местами присутствует водяной знак спонсора
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9087F71582563E2353D962856BA6A0CA6470418E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716997   (59338) от 18.04.2024
+
+Институт Современного НЛП, Михаил Пелехатый, Александр Копытько | Бизнес-вербовка (2023) CamRip [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слово “вербовка” пришло к нам из разведки и было связано с перетягиванием агентов других государств на “нашу” сторону. Бизнес-вербовка – все то же самое, только в роли агентов теперь выступают покупатели, клиенты, руководители, конкуренты, коллеги, друзья, служба безопасности, да впрочем, кто угодно, с кем у вас сложились или не сложились деловые отношения. Техники (   Читать дальше...   )Производство: Институт Современного НЛПЖанр: Видеозапись очных занятийЯзык озвучки: РусскийПродолжительность: 09:39:50Реклама: Присутствует водяной знак автора
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646C89B6FE783DEEF0FE5630EBC097FD2DDFF477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718648   (58449) от 26.04.2024
+
+Алексей Филатов | Анализ информации из социальных сетей для подготовки к эффективным переговорам (2024) HDRip [AD][RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как составить психологический портрет человека еще до встречи с ним. Выявить его ценности, особенности и слабости, чтобы определить тактику переговоров, которая приведет к желаемому результату.
+Ведь уже давно существуют и успешно применяются различными структурами методы "чтения" человека на основе всего лишь профиля в соц.сетях. И мы дадим вам эти инструменты! (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:59:39Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0109A395E8EBB67E2EEFDFB86BB232970CFC5245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718643   (58440) от 26.04.2024
 
 Седа Каспарова | Разреши себе говорить (2024) HDRip [AD][RU]
@@ -6,7 +88,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58440.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56502.jpg" />
 </div>
 
 
@@ -64,7 +146,7 @@ Mindvalley, Кристина Мянд-Лакьяни, Эрик Эдмидс, К�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53701.jpg" />
 </div>
 
 
@@ -90,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53223.jpg" />
 </div>
 
 
@@ -116,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_51516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_51516.jpg" />
 </div>
 
 
@@ -142,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48691.jpg" />
 </div>
 
 
@@ -171,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48649.jpg" />
 </div>
 
 
@@ -200,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48549.jpg" />
 </div>
 
 
@@ -229,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_46952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_46952.jpg" />
 </div>
 
 
@@ -258,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_46945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_46945.jpg" />
 </div>
 
 
@@ -284,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45899.jpg" />
 </div>
 
 
@@ -313,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45880.jpg" />
 </div>
 
 
@@ -342,7 +424,7 @@ Proprofiling, Алексей Филатов | Иллюзии мозга. Как 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45803.jpg" />
 </div>
 
 
@@ -368,7 +450,7 @@ Proprofiling, Алексей Филатов | Онлайн курс по про�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45775.jpg" />
 </div>
 
 
@@ -394,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45093.jpg" />
 </div>
 
 
@@ -420,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45071.jpg" />
 </div>
 
 
@@ -446,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45042.jpg" />
 </div>
 
 
@@ -472,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44982.jpg" />
 </div>
 
 
@@ -498,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44330.jpg" />
 </div>
 
 
@@ -524,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_44325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_44325.jpg" />
 </div>
 
 
@@ -550,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_44259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_44259.jpg" />
 </div>
 
 
@@ -576,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44139.jpg" />
 </div>
 
 
@@ -602,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44123.jpg" />
 </div>
 
 
@@ -613,89 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7688E355F8E81B15D89BC65E680E07CEA1224EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756368   (39802) от 20.10.2024
-
-Институт современного НЛП, Михаил Пелехатый, Евгений Спирица | Полный курс невербальной коммуникации (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39802.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Слова могут значить всё, что угодно, а вот тело обмануть невозможно. Если поставить для себя задачу научиться распознавать невербальные сигналы человеческого тела, определять эмоции и ложь за столом переговоров, то научиться читать человека как открытую книгу не составит труда».Производство: Институт современного НЛПЖанр: видеокурс, обучающий курс, профайлинг, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 31:06:18Реклама: сторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B326AB2BD6335B00FE7CE6AEFB32DD26DFFE221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681126   (35790) от 29.11.2024
-
-Psy2.0 | Начинающий практик - путь к уверенному консультированию  (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы знаем, как бывает сложно сразу после обучения внедрить новые инструменты и методы в свою практику.
-Или получив новую специальность, сделать первый шаг и начать работать с клиентами.
-Поэтому мы собрали опыт успешных практикующих экспертов, которые тоже когда-то были на вашем месте
-и создали для вас практическую программу «Начинающий практик: путь к уверенному консультированию».(   Читать дальше...   )Производство: Psy2.0Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 90:55:47Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D373EB2F2D813CD96EFB1936DA4783038936ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710782   (35295) от 04.12.2024
-
-Сергей Бубович | Контакт: Как стать интересным собеседником и развить навыки коммуникации (2023) HDRip [AD][RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс отлично подойдет тем, кто хочет усовершенствовать коммуникативные навыки, повысить свою ценность как личности и профессионала, развить свою внутреннюю привлекательность, стать увереннее и смелее в общении (особенно со статусными людьми), повысить качество окружения, научиться договариваться и находить общий язык с окружающими.
-
-Какие проблемы курс помогает решить: (   Читать дальше...   )Жанр: Межличностные коммуникации, Психология общенияЯзык озвучки: РусскийПродолжительность: 01:57:20Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D278706E68D281251CED1D98825F2EF7C1337892
 ```
 
 https://mybot314.ru/tekegram_catalog/

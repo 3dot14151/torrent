@@ -1,3 +1,30 @@
+###  Публикация: 868856   (893860) от 13.02.2015
+
+Следопыт / Pathfinder (2007) BDRip [1080p] [Unrated] [hand made 60fps]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северная Америка. 600 лет до прибытия Колумба. Викинги вторгаются на земли коренных жителей этих мест — индейцев. После столкновения двух племен, мальчик викингов остается один и попадает в лагерь врага.
+Его принимают в племя и воспитывают. Через 15 лет юный герой вновь встречается со своим некогда родным народом, но последствия этой встречи оказываются трагичными (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, драма, приключения, военный, историяРежиссер: Маркус НиспелАктеры: Карл Урбан, Мун Бладгуд, Рассел Минс, Клэнси Браун, Джей Таваре, Натаниель Арканд, Ральф Мёллер, Кевин Лоринг, Вейн Чарльз Бэйкер, Мишель ТрашПеревод: Дублированный, Профессиональный (многоголосный закадровый), Профессиональный (двухголосный закадровый), АвторскийЯзык субтитров: Русский , АнглийскийПродолжительность: 01:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9B66D3240F4871EFC4B580D8707E782104CDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 868895   (893815) от 13.02.2015
 
 Звездные войны: Эпизод 1 - Скрытая угроза / Star Wars: Episode I - The Phantom Menace (1999) BDRip [1080p] [hand made 60fps]
@@ -6,7 +33,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893815.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893701.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893448.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892661.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891601.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889136.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888953.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888792.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888297.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888294.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887437.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887275.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886642.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885523.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883790.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883711.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883134.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882765.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882523.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882496.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882410.jpg" />
 </div>
 
 
@@ -568,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882267.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881684.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880461.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879007.jpg" />
 </div>
 
 
@@ -657,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0693D8BD801AC0D1E9E2881C6899749AEB16D9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495639   (878714) от 13.09.2021
-
-Долгий поцелуй на ночь / The Long Kiss Goodnight (1996) BDRip [H.264/1080p] [handmade AI remastered]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878714.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 лет назад школьная учительница Саманта Кейн перенесла полную потерю памяти. Она живет с 8-летней дочкой счастливой семейной жизнью и не подозревает о своем кровавом прошлом, ведь когда-то эта красивая женщина была агентом Чарли Бэлтимор, выполнявшим секретные заказы ЦРУ.
-Шокированная неожиданным возвращением некоторых навыков и психологической подготовки профессионального (   Читать дальше...   )Производство: США / Forge, New Line CinemaЖанр: Боевик, Триллер, Драма, Криминал, ДетективРежиссер: Ренни ХарлинАктеры: Джина Дэвис, Сэмюэл Л. Джексон, Патрик Малахайд, Крэйг Бирко, Брайан Кокс, Дэвид Морс, Дж. Д. Спрэдлин, Том Амандес, Ивонн Зима, Мелина Канакаредес, Алан НортПеревод: Авторский, многоголосый профессиональный, одноголосый профессиональныйПродолжительность: 02:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7641BB59CE99A173CBAAFBAFC67D08FBFA563A3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

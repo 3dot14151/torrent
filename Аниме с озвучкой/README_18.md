@@ -1,3 +1,82 @@
+###  Публикация: 1504816   (809627) от 24.10.2021
+
+Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love is War | Госпожа Кагуя: в любви как на войне [ТВ-1] [2019, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокое происхождение, привлекательная внешность, учёба в академии для будущей элиты страны… У Миюки и Кагуи было всё. Когда их избрали главой и заместителем главы ученического совета, только ленивый не говорил, что молодые люди будут чудесной парой. И хотя втайне герои считали так же, за целых полгода ни Миюки, ни Кагуя не открылись друг к другу — гордость мешала (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: Комедия, романтикаРежиссер: Синъити ОматаЯзык озвучки: Русский, японскийПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3309DE065E922321CE368A29D819ED9E0B1C4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504821   (809623) от 24.10.2021
+
+Tokyo Ghoul Root A | Токийский гуль [ТВ-2] [2015, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пройдя через страшную боль, унижение и ломку жизненных ценностей, Кэн Канэки переродился. Вместо неуклюжего гибрида человека и упыря возникло что-то новое, гораздо сильнее и совершеннее. Выпустив и укротив внутреннего зверя, Кэн встал на дорогу могущества, но куда она приведет? Пока что молодой боец уверен в одном – только абсолютная сила позволит ему жить так, как (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: Приключения, мистика, ужасыРежиссер: Сюхэй МоритаЯзык озвучки: Русский, японскийПродолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E851039BB3AB78A1260C27906BD35389394CDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383631   (809231) от 16.05.2020
+
+Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [2012, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна стала началом нового учебного года в старшей школе Камакура. Новый ученик по обмену, Кёичи Кёгоку зачислен в класс N8. Суть в том, что Кёгоку — телепат, и он очень хорошо запомнил наказ отца использовать свой дар в личных целях. Благодаря своей внешности и телепатии он быстро становится популярным в школе. Все склоняются перед влиянием очарования Кёгоку, а (   Читать дальше...   )Производство: Япония,Жанр: романтика, фантастика, повседневностьРежиссер: Накамура РёсукэПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 106 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5229FCE9C7B7D7113378E824874B41B62E5A4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383558   (809230) от 16.05.2020
 
 Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
@@ -6,7 +85,7 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809230.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809229.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ Konohana Kitan | Загадочная история Коноханы [2017, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807815.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Boku no Hero Academia | Моя геройская академия OVA [2016-201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807814.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Eikyuu Kazoku | Eternal Family | Вечная семейка [1997, Movie] DVDRi
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807812.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807793.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ Toaru Majutsu no Index II | Некий Магический Индекс [TV-2] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807419.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Angel Beats! | Ангельские Ритмы! [2010, TV, 13 ep + 3 sp] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807415.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ Ookami Kodomo no Ame to Yuki / The Wolf Children Ame and Yuki / Волчьи д�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806767.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ BECK: Mongolian Chop Squad | БЕК: Восточная Ударная Груп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805877.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ Tattoon Master | Мастер Таттун [1996, OVA, 2 из 2] DVDRip 480p 10-
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805870.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ Honoo no Labyrinth | Labyrinth of Flames | Пламенный лабиринт [
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805713.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ Jungle de Ikou! | В джунгли! [1997, OVA, 3 из 3] DVDRip 480p 10-bit ra
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803997.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ Gokushufudou | Путь домохозяина [2021, Web, 10 из 10] WEB-DLRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803994.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ Idol Jihen / Idol Incidents / Проблемы идола [2017, TV, 12] WEBRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802836.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ Mahoromatic: Motto Utsukushii Mono | Mahoromatic: Something More Beautiful | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800760.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ Mahoromatic: Tadaima Okaeri | Mahoromatic: I'm Home | Махороматик: С
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800759.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ Mahoromatic Natsu no TV Special: Ecchi na no wa Ikenai to Omoimasu | Mahoromatic
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800758.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ Mahoromatic: Automatic Maiden | Махороматик: Автоматическ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800757.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ Rewrite: Moon and Terra / Перезапись: Луна и Земля [2017, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799954.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ Trickster / Обманщик [2016, TV, 24] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799953.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ Kyou Kara Maou! R | Kyo Kara Maoh! R | God? Save Our King R | King From Now On! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799831.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799827.jpg" />
 </div>
 
 
@@ -592,84 +671,6 @@ Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF66BAC45377B22276C838D246BC2B017578DF94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506594   (799826) от 31.10.2021
-
-Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | Отныне Мао, король демонов! [2004, TV, 78 из 78] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зря, зря 15-летний Юри Сибуя вступился за одноклассника Кэна Мурату. Того и след простыл, а злые хулиганы затащили героя в женский туалет и от души макнули в унитаз. Самое интересное, что очнулся Юри в новом мире, которым правит магическая раса мазоку, иные тамошние расы их зовут просто – демоны. Ну а сам Юри, как положено, после ряда приключений узнает, что он не (   Читать дальше...   )Производство: Studio Deen / スタジオディーンЖанр: приключения, комедия, фэнтезиРежиссер: Нисимура ДзюндзиПеревод: Suzume, Xander, Lina, Leoneed, TAI_DAЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 78 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5891FEB0905786D51E4B25BCBB235A6D362746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506613   (798203) от 05.11.2021
-
-Mujaki no Rakuen | Paradise of Innocence | Невинный рай [2014-2016, OVA, 3 из 3] DVDRip 576p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ханда Сёта, 25-летний хикикомори, на встрече одноклассников жалеет о своей никчёмно проведённой жизни и, стоя на крыше, думает: "Хотел бы я просто свалить от всего этого". И, как ни странно, его желание осуществляется. Он поскальзывается, падает в бассейн и... попадает во времена своего детства, в своё собственное тело, когда ему было 10 лет.Производство: Япония. HakusenshaЖанр: комедия, эттиРежиссер: Араки ХидэкиЯзык озвучки: Японский и русскийСубтитры: Русские, английскиеПродолжительность: 3 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BAEAEB3860FD9B99A978150600BC00FACE8ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385418   (797677) от 24.05.2020
-
-Human Lost: Ningen Shikkaku | No Longer Human | Human Lost: Исповедь неполноценного человека [2019, Movie] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Токио, 2036 год. Революционные медицинские технологии победили смерть: при помощи внутренних наноустройств, которые контролируются системой S.H.E.L.L., человек гарантированно может прожить 120 лет, не болея и не нуждаясь в лечении травм. Это привело к социальному и экономическому расслоению, падению морали, деградации общества и сильному загрязнению окружающей среды. (   Читать дальше...   )Производство: Япония / Polygon PicturesЖанр: фантастика, боевик, драмаРежиссер: Кидзаки ФуминориЯзык озвучки: русскийСубтитры: русские - перевод:Продолжительность: 110 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7378E743DDE3EBF0084434A72C892FDDA4F644C
 ```
 
 https://mybot314.ru/tekegram_catalog/

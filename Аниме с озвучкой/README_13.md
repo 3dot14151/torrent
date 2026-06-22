@@ -1,3 +1,83 @@
+###  Публикация: 994019   (893095) от 06.03.2016
+
+Ou Dorobou Jing | King of Bandit Jing | Приключения Джинга | Джинг, король бандитов [2002, TV, 13 эп.] DVDRip 480p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир «Джинга», хоть и представляет собой фантазию, но в нём живут такие же люди, а значит, в нём есть теже человеческие пороки и радости, хотя ценности там “не человеческие”, что, по-моему, является очень интересной находкой авторов, с трудом представлялось, как можно украсть улыбку или солнце стырить на верёвочке, причём тырил он это всё, предупреждая хозяина, но (   Читать дальше...   )Производство: Studio DEENЖанр: приключения, комедияРежиссер: Ватанабэ ХиросиПеревод: KirillЯзык субтитров: Русский (отключаемый)Формат: mkvПродолжительность: 13 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FA53ABB3B40A905A2C3DB3AC3D11E0F1833EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994378   (890681) от 07.03.2016
+
+Gun x Sword | Gun Sword | Огнем и мечом [2005, TV, 26 эп.] DVDRip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890681.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом пародийном сериале была предпринята попытка скрестить вестерн, меха и роуд-муви. Но хотя обыгрывание штампов занимает значительную часть сюжета, а в результате получилась захватывающая история про поиски и месть, спасение человечества и свободу выбора.
+
+Действие происходит на планете «Бесконечная иллюзия»: здесь нашлось место шумным высокотехнологичным городам (   Читать дальше...   )Производство: AIC A.S.T.A.Жанр: приключения, драма, фантастика, мехаРежиссер: Танигути ГороПеревод: karmadone (1-13); Ce$$eL & Dc.Sheff.yO (14-26)Язык субтитров: Русский (отключаемый)Формат: mkvПродолжительность: 26 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6151D874B2817F59965FDDF7350D316991A35464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789284   (890365) от 15.02.2015
+
+Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и Гроб [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как уже бывало не раз, дрязги и предательство развалили некогда могучую, а ныне одряхлевшую империю. Алчные соседи, активно поучаствовавшие в развале, растащили территорию поверженного врага на куски, а группа убийц, толпой набросившихся на последнего императора, так же поступила с его телом. Кстати, убийцы теперь зовутся Восемь героев, ведь в мире меча и волшебства даже частица тела великого мага-правителя – могущественный талисман, дающий силу хозяину. После этого шесть победивших наций долго разбирались между (   Читать дальше...   )Жанр: приключения, фэнтези, романтикаРежиссер: Масуй СойтиПеревод: TimecraftФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F48931BDEF43C1A9B8EB13290C2F50B33B96BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640136   (888976) от 06.04.2013
 
 Shinryaku! Ika Musume / Invasion! Squid Girl / Вторжение Кальмарки [TV-1] [2010, TV, 12+special] BDRip 720p raw+rus
@@ -6,7 +86,7 @@ Shinryaku! Ika Musume / Invasion! Squid Girl / Вторжение Кальмар
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_888976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_888976.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ Ixion Saga DT / Ixion Saga: Dimension Transfer / Иксион сага: Прос
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888825.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ Nekopara (2020) | Кошачий рай (ТВ) [2020, TV, 12 из 12] WEB-DL 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886265.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Истории о магии: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886263.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ Runway de Waratte | Улыбайся на подиуме [2020, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886257.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ Lily C.A.T. | Lily Cat | К.О.Т. Лили [1987, OVA] LDRip 480p 10bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884563.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ Tokyo Majin Gakuen Kenpuchou Tou / Tokyo Majin Gakuen Kenpucho To / Токийс
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883005.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ Koukaku Kidoutai Arise: PYROPHORIC CULT / Ghost in the Shell ARISE: PYROPHORIC C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882024.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ Angel Heart / Сердце ангела [2005, TV, 50 из 50] SDTV 576p raw + r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_881461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881461.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ Made in Abyss | Созданный в Бездне [ТВ-1] [2017, TV, 13 ep] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879597.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878424.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878414.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ Mangaka-san to Assistant-san to The Animation / The Comic Artist and His Assista
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876898.jpg" />
 </div>
 
 
@@ -354,7 +434,7 @@ Hacka Doll The Animation / Цифровые куклы [2015, TV, 13] HDTV 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876771.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876217.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ Gungrave | Гангрейв [2003-2004, TV, 26] BDRip 1080p raw+eng+rus x3
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876200.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ Initial D Final Stage / Инициал Ди Финальная стадия [201
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875186.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ Boku no Hero Academia (2019) / My Hero Academia Season 4 / Моя геройск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874017.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ Shin Gekijouban Initial D / New Initial D / Новый Инициал Ди [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873473.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ Fairy Tail / Сказка о Хвосте феи [2011, OVA, 6] DVDrip 480p raw 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872246.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ Asura / Асура (2012) BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871292.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870225.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869261.jpg" />
 </div>
 
 
@@ -599,84 +679,6 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64F6D4B39F3A9909423F8235F9A731BEE206E379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470691   (869215) от 19.09.2021
-
-Токийские мстители / Tokyo Revengers [2021, TV, 24 ep] WEB-DL 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ханагаки Такэмити - 26 лет, абсолютный неудачник: девственник с отвратительной работой, начальник у него на 6 лет младше, который относится к нему как к идиоту, ужасный дом и полное отсутствие какой-либо поддержки, что может быть еще хуже? В очередной унылый день своей жизни, Такэмити из новостей узнаёт о смерти своей первой и единственной девушки, ставшей случайной (   Читать дальше...   )Жанр: приключенияРежиссер: Хацуми КойтиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FA083ACF48AF410F95FC3163E163CA40E40E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497108   (867755) от 20.09.2021
-
-Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фруктовый пирог | Группа айдолов-неудачниц «Фруктовый пирог» [2020, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятиклассница Сакура Ино переезжает в Токио, чтобы исполнить свою мечту стать айдолом. Она заселяется в общежитие «Нэдзуми», где знакомится со своими соседками: некогда популярной детской актрисой Роко, музыкантом Хаю и моделью Ниной. Но тут девочки узнают, что их общежитие должны вот-вот снести, и решают спасти свой дом! Для этого они создают айдол-группу Fruit (   Читать дальше...   )Производство: FeelЖанр: повседневность, музыкальныйРежиссер: Кавагути КэйитироПеревод: Wakanim (Вадим Попков, Анна Бахарева)Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32DD94D854CFEA8185A367F26FAFDC002D7FF9A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672281   (865974) от 01.03.2015
-
-Kokoro Connect / Единение сердец [2014, TV, 12 ep + 4 sp] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они не друзья детства и не знают друг друга десяток лет. Нет, трое девчонок и двое парней встретились уже в старшей школе Ямабоси, где познакомились и подружились. Никто из них не сумел найти клуб по душе, так и родилось «Общество молодежной культуры». Президентом стала веселая и общительная Иори, ее замом – строгая и рассудительная Химэко, а замкнула женский коллектив симпатичная модница Юй. С парнями тоже все ясно: Тайти – всеобщий помощник, а Ёсифуми – местный «мачо», что не стесняется признаваться Юй в любви (   Читать дальше...   )Жанр: комедия, романтика, драма, школаРежиссер: Онума СинПеревод: Dreamers Team (01-13), Nesitach & Stan WarHammer (sp)Формат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF8EED22D8FC994D10D8C2AA48C8F88253F08A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

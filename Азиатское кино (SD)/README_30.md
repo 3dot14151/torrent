@@ -1,3 +1,81 @@
+###  Публикация: 1300607   (592676) от 07.05.2019
+
+Ведьма / Manyeo / The Witch: Part 1 - The Subversion (2018) BDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная старшеклассница пережила потерю памяти, после чего девушку удочерила пожилая пара. Вроде бы, жизнь начала налаживаться, но однажды неподалеку от ее дома происходит убийство, а после героиня встречает человека, утверждающего, что убийство — ее рук дело. Обычная старшеклассница оказывается запрограммированной убийцей, результатом секретных экспериментов.Производство: Корея Южная / Peppermint & CompanyЖанр: Боевик, триллер, фантастикаРежиссер: Пак Хун-джонАктеры: Ким Да-ми, Чо Мин-су, Чхве У-щик, Пак Хи-сун, Ко Мин-щи, Чхве Джон-у, О Ми-хи, Чон Да-ын, Ким Бён-ок, Ли Джу-вонПеревод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Русские (Forced, full)Продолжительность: 02:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4B7764B5B26A084F7D5E8754B4F24B773E6256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550249   (592495) от 10.05.2022
+
+День разрушения / Hakai no Hi (The Day of Destruction) (2020) BDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь лет назад молодой человек отправился в закрытую шахту, чтобы посмотреть на недавно обнаруженного там монстра. С тех пор по местности распространяются слухи об эпидемии некой болезни, от которой люди сходят с ума.Производство: Япония, Imagination (II), Second SightЖанр: Драма, ужасы, фэнтезиРежиссер: Тосиаки ТоёдаАктеры: Киёхико Сибукава, MahiToThePeople, Иссэй Огата, Рюхэй Мацуда, Ёсукэ Кубодзука, Ицуки Нагасава, Сима ОнисиПеревод: Авторский (Андрей Дольский)Субтитры: Английские - отдельным файломПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8399CDE14EA22D25820DD189E1F40DB744E5ACD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550453   (592147) от 11.05.2022
+
+Висячий сад / Kuchu teien (Hanging garden) (2005) BDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Кёбаши переезжает в новый модный дом. Они надеются, что там их ждет счастье. Но проходит время, счастье не наступает, зато у каждого члена семьи от мала до велика появляются свои секреты. И, когда сын приводит в дом свою новую девушку, внезапно всё скрытое вдруг оказывается на поверхности, что в свою очередь приводит к конфликту.Производство: Япония, Asahi National Broadcasting Company, Asmik Ace Entertainment, Culture Publishers Inc. (CP)Жанр: ДрамаРежиссер: Тойода ТосиакиАктеры: Кёко Коидзуми, Ан Судзуки, Ицудзи Итао, Масахиро Хирота, Дзюн Кунимура, Эйта, Асами Имадзюку, Рё Кацудзи, Соним, Хироми НагасакуПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D8D28903398AFD0DEDC3169E9F81262A30D934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551152   (590699) от 14.05.2022
 
 Дом повешенной на Больничном спуске / Byoinzaka no kubikukuri no ie (The House of Hanging) (1979) WEB-DLRip [H.264] [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590699.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590218.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588485.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588240.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587655.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587653.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586772.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586624.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586109.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585984.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585926.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582653.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581952.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581911.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581141.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581084.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581010.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580753.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580749.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580055.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579948.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578954.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578941.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EFC8317A4C64828250A54EA7CE484E2C1277E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554221   (578855) от 29.05.2022
-
-Новые битвы без чести и жалости 2 / Shin jingi naki tatakai: Kumicho no kubi (1975) BDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть трилогии продолжает срывать маску с романтичного образа якудза. На этот раз драма разгорается в проливе Канмон, где группировки Овада и Кюёй схватились за право владеть территориями и контролировать наркотрафик. Семья Овада посылает Тецу и его друга Сюдзи убить босса группировки Кюёй. Сюдзи, которому пообещали славу и богатство лично убивает босса группировки, (   Читать дальше...   )Производство: Япония, Toei Co. Ltd.Жанр: Боевик, драма, комедия, криминалРежиссер: Киндзи ФукасакуАктеры: Сэидзо Фукумото, Юрико Хисими, Мэико Кадзи, Рюдзи Катагири, Хидэо Мурота, Микио Нарита, Ко Нисимура, Бунта Сугавара, Асао Утида, Цунэхико ВатасэПеревод: Авторский (Александр Смиронов)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC8F1C0A2CB1EC1BB3447043F92B590B0E6B7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360849   (578713) от 09.07.2011
-
-[JAP] Пастораль. Умереть в деревне / Den-en ni shisu (1974) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578713.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пастораль» - это откровенная медитация на тему детства и взросления, диалог взрослого режиссера с самим собой в том возрасте, когда ему было 15 лет. Свободный полет фантазии, провокационный тон, богатство поэтических ассоциаций, интеллектуальная полемичность и заостренность в сочетании с жесткой оппозицией академизму; пристрастие к ярким визуальным и театральным эффектам, эротическая образность – все черты режиссерского стиля в полной мере проявились в этой работе.Жанр: ДрамаРежиссер: Сюдзи Тэраяма / Shuji TerayamaАктеры: Кантаро Суга / Kantarô Suga, Хироюки Такано / Hiroyuki Takano, Йошио Харада / Yoshio Harada, Масуми Харукава / Masumi HarukawaЯзык субтитров: РусскиеПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361336   (576963) от 10.07.2011
-
-Трон в крови / Kumonosu-jo (1957) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перемещение шекспировского Макбета в средневековую Японию. После грандиозной победы на поле брани, заблудившись в дремучем лесу, лорды Васидзу и Мики наталкиваются на загадочную вещую старуху, которая предсказывает великое будущее Васидзу, и еще более великое — потомкам Мики. Выбравшись из леса, они действительно получают вызов и почетные назначения от императора. Васидзу, подстрекаемый амбициозной женой, и задумывает пойти дальше предсказаний старой колдуньи, но судьба есть судьба…Жанр: Фэнтези, Боевик, ВоенныйРежиссер: Акира КуросаваАктеры: Тосиро Мифуне, Исудзу Ямада, Такаси Симура, Акира Кубо, Хироши Татикава, Минору Чиаки, Такамару Сасаки, Китидзиро Уэда, Эйко Миёси, Тиэко Нанива, Nakajiro Tomita, Ю Фудзики, Сатио Сакаи, Шин Отомо, Йошио Цучия, Сенкичи Омура, Ёсио Инаба, Takeo Obugawa, Акира Тани, Икио Савамура ...Перевод: Одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5CB5B330244A95A69BD389D18666EBED71A33E
 ```
 
 https://mybot314.ru/tekegram_catalog/

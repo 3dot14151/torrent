@@ -1,3 +1,29 @@
+###  Публикация: 1839696   (1046846) от 30.11.2025
+
+NG: Планета рептилий / Planet Reptile (2025) HDTVRip [H.264/720p-LQ] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 12 000 видов рептилий, которые скользят, плавают и даже планируют, обитают по всему миру. Крокодилы, черепахи, змеи и ящерицы имеют предков, таких же древних, как динозавры, и эволюция — их друг. Эти хладнокровные существа приспособились к жизни хитроумными и смертоносными способами: от бронированной кожи и ядовитого яда до рекордной силы укуса и даже кровоточащих (   Читать дальше...   )Производство: США | Wildstar FilmsЖанр: документальный, природаРежиссер: Энн ГаллахерПеревод: Одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B286C2C23A07D20992AB32D95B0DF41425EC11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839763   (1046779) от 30.11.2025
 
 NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (серии 1-2 из 2)
@@ -6,7 +32,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.265/2160p] [4K, SD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046779.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.264/1080p] (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046778.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG. Акулий рай / Shark Eden (2010) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046693.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043536.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ NG: Малика, королева львов / Malika: The Lion Queen (2022) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041850.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG: Самые страшные стихийные бедствия: Извер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040275.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ NG. Опасные встречи / Dangerous Encounters (2006-2011) DVDRip (24 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039091.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036125.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035824.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034739.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ NG: Свидетели катастроф / Witness to Disaster (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026201.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025357.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ NGW: Удивительные большероты / Incredible Gulpers (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024828.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ NG. Самые лучшие суперкары / Ultimate Supercar (2019) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022909.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022873.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016207.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ NG. Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011739.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ NGW. Змеи-убийцы / Killer snakes (2021) HDTV [H.264/1080i] [hand made 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010273.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ NGW: Самые смертоносные змеи в мире / World's deadlies
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010094.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ NG: Последствия: Когда Земля перестанет вращ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009071.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007239.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006852.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006717.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006465.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006244.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCEA9565B58524F7E272B200AACB19E3F22DB1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484475   (1006086) от 19.07.2021
-
-NG: Секреты гробницы Христа: специальный репортаж / Secrets of Christ's Tomb: Explorer Special (2017) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда всемирно известных экспертов пытается исследовать тайну захоронения Иисуса. Новые методы позволят нам провести детальный осмотр и ремонт на могиле Спасителя. Археологи впервые решили за 500 лет удалить мраморную плиту гробницы. Исследования показали, что фрагменты породы, приведенные ниже, датируются IV веком до нашей эры. Прорывное открытие - важный момент (   Читать дальше...   )Производство: Великобритания, Pioner Film and Television Productions for National GeographicЖанр: Документальный, научно-познавательный, история, археологияРежиссер: Роберт СтрэнджПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9BB02F0FCC17663586A37CF061422AC0C3E81B
 ```
 
 https://mybot314.ru/tekegram_catalog/

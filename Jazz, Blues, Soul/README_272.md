@@ -1,32 +1,3 @@
-###  Публикация: 1313690   (523031) от 10.07.2019
-
-Geof Bradfield - African Flowers (2010) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butare [5:23]
-02. Piano Solo [2:26]
-03. The Children's Room [5:49]
-04. Lubumbashi [7:18](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, African JazzПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EF4ECF3A8751E9797C070178CBFF4BB34F0AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 371931   (522938) от 05.08.2011
 
 Paul Anka - Rock Swings (2005) [MP3|320 kbps]<Swing>
@@ -35,7 +6,7 @@ Paul Anka - Rock Swings (2005) [MP3|320 kbps]<Swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522938.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Digging Roots - Zhawenim (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522773.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Avishai Cohen - Big Vicious (2020) [FLAC|Lossless|tracks + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522697.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ G. Love & Special Sauce - Philadelphia Mississippi (2022) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522661.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Supersonic Blues Machine - Voodoo Nation (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522660.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Supersonic Blues Machine - Voodoo Nation (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522652.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Janiva Magness - Hard to Kill (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522584.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Big Papa and the TCB - Go Big! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522582.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Matt Lomeo - When You Call (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522581.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Eric's Bluesband - Rolling Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522580.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Steve Smith & Vital Information - Fiafiaga (Celebration) (1988) /Columbia/ [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522575.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Gabriele Mirabassi, Nando Di Modugno, Pierluigi Balducci - Amori Sospesi (2015) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522574.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Peter Erskine - Peter Erskine (1982) /1988, Contemporary Records/ [FLAC|image+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522550.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Fortadelis - The New Batch (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522548.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - The Jazz Box Set (1996) 3CD [MP3|320 кб/с]<Jazz, Bop, Fusion>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522545.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Iain Mackenzie - Blow Your Horn (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522536.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Joan Chamorro & Andrea Motis - Feeling Good (2012) [FLAC|tracks+.cue]<Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522530.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Voices in Lounge, Vol. 1 (20 Top Songs with the Best Vocal Performances) (2
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522527.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ John McLean & Clark Sommers Band - Parts Unknown (2017) Origin Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522358.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Alexis French - The Cut (2014) Rattle [FLAC|Lossless|tracks + .cue] <Post-Bop, T
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522202.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Tommy Dorsey And His Orchestra Featuring Jimmy Dorsey - Three Classic Albums Plu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522174.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Willem Breuker Kollektief - Bob's Gallery (1988) /BV Haast Records/[FLAC|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521796.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Tommy Flanagan - Confirmation (1977/1978) /2005, Landy Star/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521707.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Orrin Evans And The Captain Black Big Band - Presence (2018) Smoke Sessions Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521432.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Queen Bee And The Honeylovers - Asheville (2019) Self-Released [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521429.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Queen Bee And The Honeylovers - Asheville (2019) Self-Released [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D53B1AB8893EA63EF699A683025F869B870B04DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241251   (521274) от 16.08.2018
+
+Andrew McCormack - First Light (2014) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prospect Park [4:11]
+02. Gotham Soul [7:26]
+03. Leap Of Faith [4:20]
+04. First Light [5:23](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC076B154FCC79EDA7D9982EFE8254334E9254C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1060365   (455467) от 07.10.2016
+
+VA - Green Breeze: Lounge Mix (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455467.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aaron Tesser - Nossa Alma Canta Rework
+002. South Froggies - Nu-Jazz Connection
+003. Tim Bluntson - Get Wit It
+004. Black Mighty Orchestra - Shibuya(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F9CB81B0C69F8E52E04098CFF9764F5BFAF375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060589   (455466) от 07.10.2016
+
+VA - Poolside Dubai (2016) [MP3|320 Kbps] <Electronic, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Knight - Yebisah (original mix) (08:23)
+02. Weiss (UK) - You're Sunshine (original mix) (06:02)
+03. NY's Finest - Do You Feel Me (City Soul Project Club mix) (07:14)
+04. Solution - Feels So Right (Friend Within remix) (06:30)(   Читать дальше...   )Жанр: Electronic, House, DanceПродолжительность: 05:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0007EE374FE21631ADD0123640264D58E802FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060373   (455464) от 07.10.2016
+
+VA - Angel Falls: Uplifting Trance (2016) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455464.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nifra - Rebel (Original Mix)
+002. Alan Morris & Elles De Graaf - calm the night (original mix)
+003. Denis Kenzo & Alexandra Badoi - More Time (Original Mix)
+004. Allen And Envy - Ulysses (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 13:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB4FB76D2A89F85E68AC6C4DBC1736DF662CDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060371   (455461) от 07.10.2016
+
+VA - Vocal Tech House: Party September (2016) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Level Groove - Vocachio (DJ Freespirit Remix)
+02. Styline - Rose (Extended Mix)
+03. Svet - Fresh Air (Original Mix)
+04. Ferreck Dawn And Rene Amesz - Lord (Extended Mix)(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 05:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA3A6813981FD99919EAF8258C94F89E1D2693B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060653   (455310) от 07.10.2016
+
+VA - Cigar Lounge Beats Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrhythmia - Too Soul
+02. Thesan Project - Setting Sunset
+03. Blue Side - Overseeing
+04. Awa - Relax(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C8075C17DB59F1EEEF51CB3814FEC71EDAAAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060363   (455306) от 07.10.2016
+
+VA - Electro Hipnotique: Dance Session (2016) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Galantis - Peanut Butter Jelly (Genairo Nvilla Remix)
+002. Alekseev Vs. Alexander Holsten - Hold Me (Artem Night Mash Up)
+003. Alex Versetta Feat. Dj Agios - Fortuna (Original Mix)
+004. Alan Walker - Faded(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2656848E27B67B18ED940BF9FA0E25864C8F8BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060588   (455304) от 07.10.2016
+
+VA - Toolroom Amsterdam (2016) [MP3|320 Kbps] <Electronic, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Beyer & Mark Reeve - Nine Of You (06:38)
+02. AFFKT - FlashCrash (feat Sutja Gutierrez - Dubspeeka remix) (08:22)
+03. Ninetoes - Nose (07:46)
+04. Emanuel Satie - Come As You Are (07:31)(   Читать дальше...   )Жанр: Electronic, Minimal, Tech HouseПродолжительность: 09:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233DD53D896238490893D24661A7DC706612CA08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408347   (455289) от 12.09.2020
+
+VA - EDM Candy: Non Stop Dance Generation (2020) [MP3|320 Kbps] <EDM, House, Dance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455289.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sami Wentz - Tribal Jam
+002. Icode - Our Night
+003. Droeloe - Oath
+004. Slow Nomaden - Concrete Desert(   Читать дальше...   )Жанр: EDM, House, Dance, TranceПродолжительность: 13:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1AA1A0E7081B759DAC05F0D2F227E00AB96F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060498   (455188) от 07.10.2016
 
 VA - Bass Killer 8 (2016) [MP3|320 Kbps] <Dubstep, Drum and Bass, Electro>
@@ -6,7 +238,7 @@ VA - Bass Killer 8 (2016) [MP3|320 Kbps] <Dubstep, Drum and Bass, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455188.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ VA - Kontor Top of the Clubs 2016.04 (2016) [MP3|320 Kbps] <House, Big Room, Han
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455178.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ VA - Just One Dance (Mixed By Deeper82) (2017) [MP3|320 Kbps] <Deep House, Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455126.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ VA - Hit Parade De Danse (2011) [MP3|320 кб/с]<dance, pop, trance, electro, d
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455073.jpg" />
 </div>
 
 
@@ -128,7 +360,7 @@ VA - Levitate: Chill Ambience Party (2017) [MP3|320 Kbps] <Chill Ambience, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454767.jpg" />
 </div>
 
 
@@ -157,7 +389,7 @@ VA - Big Workout & Fitness Music (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454641.jpg" />
 </div>
 
 
@@ -186,7 +418,7 @@ Galaxi - 2015 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454078.jpg" />
 </div>
 
 
@@ -215,7 +447,7 @@ Sexy Summer Cafe Ibiza - Summer Hits 2015 30 Lounge Chill Out Music and Songs of
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453913.jpg" />
 </div>
 
 
@@ -244,7 +476,7 @@ VA - Extra House (episode 6) (2015) [MP3|320 кб/с]<Deep House, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453906.jpg" />
 </div>
 
 
@@ -273,7 +505,7 @@ VA - Record Super Chart 653 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453775.jpg" />
 </div>
 
 
@@ -302,7 +534,7 @@ VA - Autumn Chillout Journey 2016, Relaxing Mix (2016) [MP3|320 Kbps] <Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453722.jpg" />
 </div>
 
 
@@ -331,7 +563,7 @@ VA - Hits of My Soul Vol. 13 (2016) [MP3|320 кб/с]<Dance, Electronica, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452950.jpg" />
 </div>
 
 
@@ -363,7 +595,7 @@ VA - Royal Summer Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452713.jpg" />
 </div>
 
 
@@ -392,7 +624,7 @@ VA - House Mania:Top 100 DJ (2017) [MP3|320 Kbps] <House, Electro House, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452697.jpg" />
 </div>
 
 
@@ -421,7 +653,7 @@ VA - Bass Generation (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452613.jpg" />
 </div>
 
 
@@ -450,7 +682,7 @@ VA - Absolutely Techhouse (2015) [MP3|320 кб/с]<Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451882.jpg" />
 </div>
 
 
@@ -479,7 +711,7 @@ VA - Trance Traveling 69 (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451767.jpg" />
 </div>
 
 
@@ -508,7 +740,7 @@ VA - Acoustic Lounge (2015) [MP3|320 кб/с]<Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451753.jpg" />
 </div>
 
 
@@ -522,250 +754,6 @@ VA - Acoustic Lounge (2015) [MP3|320 кб/с]<Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9838E4C7A2E880EF500F57401EFBB75BD67A7E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551452   (451693) от 25.09.2012
-
-VA - Sudden Def - Digital Volume 1 (2011) [MP3|320 кб/с]<Drum and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-Fiance - Fast Lane (Shock One Remix)
-02. DC Breaks - Hysteria
-03. Camo & Krooked - Nano (ft.Nina)
-04. Camo & Krooked - You Don't Know What Love Is
-05. DC Breaks - Circus
-06. Boneshaker - Watch The Skies (Heist Remix)
-07. Basher - Roc Ya Sole
-08. Camo & Krooked - Unseen
-09. D-Fiance - Falling From Earth
-10. Task Horizon - Monkey Mash (Xample Remix)Жанр: Продолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3730504FDDDAD7C986FF8D4DA535ABCE22D4FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408904   (451600) от 14.09.2020
-
-VA - TOP Non-Stop 2010-2019 - Lounge & Chillout (2020) [MP3|192-320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.U.C.A. - Echo 1 (2017) (2:31)
-02. DJ Pippi & Antonio M & Jemenez - Ibiza World Inspiration (2012) (5:13)
-03. Mr Raoul K - Sene Kela (Ron Trent remix, 2014) (10:10)
-04. Mr Raoul K - Le Karantkatrieme Peul (Prisme remix, 2011) (7:35)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 05:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BF53505A4FCF5606F980A054C526A1960C784E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408942   (451597) от 14.09.2020
-
-VA - Summer Time Relax Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451597.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taburet - Blue Fire
-002. Emancipator - Pollo Sneeps
-003. Marco Monteverde - Temporary Shop
-004. Nasser Shibani - Gift Of God(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 09:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B62816467F61F5D6A1F147E1E25C89EBB91ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551085   (451416) от 25.09.2012
-
-VA - The Chillout Lounge Mix (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uncommerce - Mystery
-02. Stj feat. Liba - She Believes (Aaron the Baron Chill Lounge Mix)
-03. Dablexx - Away
-04. Music Paradise - Variation
-05. Abendrot - Strandcafe am Abend
-06. J Sasz - Pippo la Casa
-07. Counting Clouds - Dream Lounge
-08. New World Lounge - Moods
-09. Gino Patricio - Lounge Deepin (Original)
-10. Taha - I Don't Know Myself (Max Wilhelm Remax)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 07:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E82C14D94CACF7E989DF854230EAFA03A866D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247565   (451382) от 16.09.2018
-
-VA - Papeete Weekend (2018) [MP3|320 Kbps] <Pop, House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris/Sam Smith/Jessie Reyez - Promises (with Sam Smith)
-02. The Chainsmokers/Emily Warren - Side Effects (feat. Emily Warren)
-03. Jude & Frank - La Vereda (Cada Vez)
-04. Burak Yeter/Cecilia Krull - My Life Is Going On (Burak Yeter Remix)(   Читать дальше...   )Жанр: Pop, House, TranceПродолжительность: 03:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA39BBDA4AB5FCB28E719E6C9AB61EFB7BC04320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061124   (451279) от 09.10.2016
-
-VA - Lullaby For The Sun (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Baleric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451279.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Rostej - Reverie  5:39
-002. Seven24 - The Magic  4:54
-003. New Beginning - Free Your Spirit  5:08
-004. La Caina - Le Vent M'a Dit  5:38(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, BalericПродолжительность: 07:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43841B6245261C2480FE72F9B08E8A511C987E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408317   (451138) от 14.09.2020
-
-VA - Hits of My Soul Vol. 59 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451138.jpg" />
-</div>
-
-
-###  Подробнее
-
-[07:12] 01. Cathy Burton - Heaven (DNS Project Original Mix)
-[05:51] 02. Gareth Emery feat. Christina Novelli - Save Me (Lanos Extended Remix)
-[06:56] 03. Bobina & Betsie Larkin - No Substitute For You (Andy Duguid Remix)
-[06:45] 04. Solid Stone & Jennifer Rene - Heart Call (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance •Продолжительность: 16:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4B97C72AE40A98370B67732ED9E311516FA6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061077   (450992) от 09.10.2016
-
-VA - 100% Hits! Forward Now Remixes (2016) [MP3|320 Kbps] <House, Future House, Funky и другие>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. FTampa - Make Some Noise (Original Mix)  4:45
-002. PH Electro - Back Home (Summer Festival Edit)  3:35
-003. Tera & Player N Skillz feat. Amanda Wilson & Pitbull - Scared (Michael Mind Project Mix)  5:06
-004. The Chainsmokers feat. sirenXX - Kanye (Riggi & Piros Remix  4:26(   Читать дальше...   )Жанр: House, Future House, Funky и другиеПродолжительность: 10:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C6E7A550806DADD5F4DEECD66CD51F3C2C7CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 987498   (926024) от 17.02.2016
+
+VA - A Tribute To Rancid: Hooligans United (2015) 2CD [MP3|320 кб/с]<Punk, Hardcore Punk, Skate & Street Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926024.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении более 20 последних лет Rancid является одной из главных движущих сил панк-рока во всем мире. Сформировавшись в Беркли, Калифорния в 1991 году, они довольно быстро завоевали славу благодаря своим удивительным концертам, новаторским альбомам и непрекращающимся гастролям, на которых они всегда выкладывались на полную. Не будет преувеличением сказать, что (   Читать дальше...   )Жанр: Punk, Hardcore Punk, Skate & Street PunkПродолжительность: 02:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A64E2C8321B757502F8D4D203D7060E082C3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095171   (926003) от 20.01.2017
 
 Starset - Vessels (2017) [MP3|320 Kbps] <Alt. Rock, Electronic, Symphonic>>
@@ -6,7 +32,7 @@ Starset - Vessels (2017) [MP3|320 Kbps] <Alt. Rock, Electronic, Symphonic>>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926003.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ I Am Empire - Kings (2011) [MP3|320 kbps]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923789.jpg" />
 </div>
 
 
@@ -70,7 +96,7 @@ Children Collide - The Long Now (2008) [MP3|320 кб/с] <Alternative Rock, Indi
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922794.jpg" />
 </div>
 
 
@@ -99,7 +125,7 @@ Betty Bonifassi - Lomax (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922779.jpg" />
 </div>
 
 
@@ -128,7 +154,7 @@ Simple Plan - Taking one for the team (2016) [MP3|320 кб/с] <Pop-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922576.jpg" />
 </div>
 
 
@@ -157,7 +183,7 @@ Feeling B - 4 albums (1989-2007) [MP3|128-320 Kbps] <Punk Rock, Folk, Electronic
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920838.jpg" />
 </div>
 
 
@@ -186,7 +212,7 @@ Code Orange - Underneath (2020) [MP3|320 Kbps] <Metalcore, Industrial Metal, Mal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915786.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Mono Inc. - 12 Альбомов (2007 - 2017) [MP3|320 кб/с]<Gothic Rock, Dar
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915129.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913018.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Red Eleven - Round II (2014) [MP3|320 кб/с] <Alternative, Metal, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912134.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ As Lions - Selfish Age (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910790.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Greywind - Afterthoughts (2017) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910623.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Evenline - In Tenebris (2017) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910615.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ Russkaja - 4 albums, 2 EP, 4 singles (2006-2015) [MP3|128-320 Kbps] <Ska Punk, F
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910431.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ Brazzaville - The Oceans Of Ganymede (2016) [MP3|320 кб/с] <Indie Rock, Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907798.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ All About A Bubble - This Atmosphere (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907322.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Placebo - Sleeping With Ghosts: B-Sides (2016) [MP3|320 кб/с] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905913.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Jesca Hoop - Undress (2014) [MP3|320 кб/с]<Alternative, Indie Rock, Indie Fol
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901887.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Brazzaville - Sheila's Dream (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898463.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ P.O.D. - Satellite (2001) Expanded Edition, 2021, Remaster [MP3|320 Kbps] <Rapco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897562.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Hacktivist - Outside The Box (2016) [MP3|320 кб/с] <Rap Metal, Progressive Me
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893669.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ Kill the Kong - 4 Albums, 2 Singles (2016-2021) [MP3|320 Kbps] <Nu-Metal, Metalc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892438.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ Afterlife - Vicious Cycle (2017) EP [MP3|320 Kbps] <Nu Metal, Metalcore, Rapcore
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891293.jpg" />
 </div>
 
 
@@ -679,7 +705,7 @@ Fight The Fight - Fight The Fight (2017) [MP3|320 Kbps] <Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891188.jpg" />
 </div>
 
 
@@ -708,7 +734,7 @@ Ty Segall - Segall Smeagol (2020) EP [MP3|320 Kbps] <Indie Rock, Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888707.jpg" />
 </div>
 
 
@@ -722,35 +748,6 @@ Ty Segall - Segall Smeagol (2020) EP [MP3|320 Kbps] <Indie Rock, Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37ABCF0E724DCF838128F51F9ED0BD4E9830CD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372139   (887280) от 02.04.2020
-
-Shallow Truths - Alive Again (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Grave (feat. Shayley Bourget) [00:04:17]
-02 Scarred [00:02:51]
-03 On Our Own [00:04:08]
-04 Alive Again [00:04:04](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6F5E65A81D9266BFF4AC2FCAF71737D593ED68
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1070399   (366418) от 07.11.2016
+
+Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о Коконоцу, который отнюдь не горит желанием наследовать конфетный магазин в глухой провинции, как того хочет его отец. Хотару, души не чающая в маленьких кондитерских, как-то объявляется в заведении Коконоцу и, узнав ситуацию, начинает регулярно наведываться с единственной целью — убедить парня изменить решение.Жанр: комедия, повседневностьРежиссер: Такаянаги Сигэхито / Takayanagi Shigehito / 高柳滋仁Продолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841205EF2F6D59E224BEF99B8684EB53BD5BA0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328198   (366022) от 29.09.2019
 
 Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [2019, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +32,7 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366022.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Miru Tights | Созерцая колготки [2019, Web, 12 эп. + 1 SP] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365545.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Aragne no Mushikago | Aragne: Sign of Vermilion | Клетка с насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365540.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365529.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Tengen Toppa Gurren Lagann / Heavenly Breakthrough Gurren Lagann / Гуррен-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364619.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Dance In The Vampire Bund | Танец на Вампирском берегу [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364127.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Jouran: The Princess of Snow and Blood | Смута. Принцесса снег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364038.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362655.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Toaru Kagaku no Accelerator / Некий научный Акселератор [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362654.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362653.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? II / Danmachi II / Мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362652.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Macross 7 Dynamite / Макросс 7 Динамит [1997,OVA,4] DVDRip Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361845.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Kingyou Chuuihou! / Goldfish Warning! / Осторожно! Золотая ры�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361708.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361463.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes. | Как госп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361032.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Kikou Kai Galient | Panzer World Galient | Галиент [ТВ] [1984, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361025.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360452.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Fruits Basket (2019) | Корзинка фруктов [ТВ-2] [2019, TV, 25] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360444.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Ladies versus Butlers! / Ladies vs. Butlers! / Леди против Дворе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359457.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Musashino! | Мусасино! [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359382.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358769.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358309.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Anju to Zushiou Maru / The Orphan Brother / Брат-сирота (Movie, 1961) 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357391.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Yurei Deco | Духи Деко [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356889.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Konoyo no Hate de Koi o Utau Shoujo Yu-No / Yu-No: A Girl Who Chants Love at the
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353803.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Konoyo no Hate de Koi o Utau Shoujo Yu-No / Yu-No: A Girl Who Chants Love at the
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67556F706E78B0088070635D2D4AE3DA876A1C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178623   (353002) от 29.10.2017
-
-Gekijouban Soushuuhen Overlord | Повелитель (компиляция ТВ-сериала) [2017, Movie, 2 эп.] BD-rip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бежать из тягостной повседневности, покорить дивный новый мир, стать неуязвимым и бессмертным суперменом – такова мечта пресловутого «офисного планктона». Типичный его представитель, сражавшийся в недалеком будущем в виртуальную РПГ «Иггдрасиль» под ником Момонга, не захотел покидать закрывающуюся игру. Зачем же уходить из обжитой иллюзии, если можно даром получить (   Читать дальше...   )Жанр: приключенияПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 фильма по ~95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B89322A68D9484A0B4F99819D169E25E65AF62E
 ```
 
 https://mybot314.ru/tekegram_catalog/

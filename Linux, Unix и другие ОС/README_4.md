@@ -1,3 +1,85 @@
+###  Публикация: 1362539   (947646) от 24.02.2020
+
+Parted Magic 2020.02.23 [i686/amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3987D9343DEC57615C1F0462D28081EC07396605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625833   (946976) от 03.03.2013
+
+Red Hat Enterprise Linux 6.4 [i386] (DVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Hat Enterprise Linux (RHEL) 6.4, корректирующий релиз корпоративного дистрибутива Linux от Red Hat, Inc., теперь содержит драйверы и userland-приложения, улучшающие производительность при работе в качестве гостевой системы на решениях для виртуализации Microsoft Hyper-V. Обновлённые драйверы также улучшили производительность при работе с VMware ESX. Red Hat улучшила KVM, интегрированную в RHEL систему виртуализации; гипервизор теперь поддерживает некоторую функциональность следующего поколения процессоров Intel, в том числе Advanced Vector Extensions 2 (AVX2), Hardware Lock Elision (HLE) и Restricted Transactional Memory (RTM).
+
+Полностью поддерживается драйвер virtio-scsi, обеспечивающий гостевой системе RHEL, среди прочего, исключительное использование отдельных устройств SCSI. Улучшена производительность файловой системы pNFS (parallel Network File System). Усовершенствования System Security Services Daemon (SSSD) имеют позитивное влияние на функциональную совместимость с Microsoft Active Directory. За (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625792   (946883) от 03.03.2013
+
+Red Hat Enterprise Linux 6.4 [x86-64] (DVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Hat Enterprise Linux (RHEL) 6.4, корректирующий релиз корпоративного дистрибутива Linux от Red Hat, Inc., теперь содержит драйверы и userland-приложения, улучшающие производительность при работе в качестве гостевой системы на решениях для виртуализации Microsoft Hyper-V. Обновлённые драйверы также улучшили производительность при работе с VMware ESX. Red Hat улучшила KVM, интегрированную в RHEL систему виртуализации; гипервизор теперь поддерживает некоторую функциональность следующего поколения процессоров Intel, в том числе Advanced Vector Extensions 2 (AVX2), Hardware Lock Elision (HLE) и Restricted Transactional Memory (RTM).
+
+Полностью поддерживается драйвер virtio-scsi, обеспечивающий гостевой системе RHEL, среди прочего, исключительное использование отдельных устройств SCSI. Улучшена производительность файловой системы pNFS (parallel Network File System). Усовершенствования System Security Services Daemon (SSSD) имеют позитивное влияние на функциональную совместимость с Microsoft Active Directory. За (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982766   (945011) от 05.02.2016
 
 Slackware 14.2 Beta2 [x32, x64] 2xDVD
@@ -6,7 +88,7 @@ Slackware 14.2 Beta2 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945011.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944870.jpg" />
 </div>
 
 
@@ -62,7 +144,7 @@ MKVToolNix v6.1.0 ('Old Devil') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942695.jpg" />
 </div>
 
 
@@ -88,7 +170,7 @@ SystemRescueCD 6.1.0 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939177.jpg" />
 </div>
 
 
@@ -114,7 +196,7 @@ CentOS 6.4 [i386] (2xDVD+2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937999.jpg" />
 </div>
 
 
@@ -142,7 +224,7 @@ CentOS 6.4 [x86-64] (2xDVD+2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937858.jpg" />
 </div>
 
 
@@ -170,7 +252,7 @@ Dynamic A-D Ports for Applications [Авторский релиз] 1.0 [x86, x64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932177.jpg" />
 </div>
 
 
@@ -198,7 +280,7 @@ Debian GNU/Linux 8.7.0 Jessie [x86-64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932114.jpg" />
 </div>
 
 
@@ -224,7 +306,7 @@ Ubuntu*Pack 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931647.jpg" />
 </div>
 
 
@@ -251,7 +333,7 @@ Debian GNU/Linux 8.7.0 Jessie Live (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930586.jpg" />
 </div>
 
 
@@ -277,7 +359,7 @@ Debian GNU/Linux 8.7.0 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930463.jpg" />
 </div>
 
 
@@ -303,7 +385,7 @@ Debian GNU/Linux 8.7.1 Jessie [x86-64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930235.jpg" />
 </div>
 
 
@@ -329,7 +411,7 @@ Ubuntu Gnome 15.04 Vivid Vervet Alpha II [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929739.jpg" />
 </div>
 
 
@@ -357,7 +439,7 @@ Kubuntu 15.04 Vivid Vervet Alpha II [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929733.jpg" />
 </div>
 
 
@@ -383,7 +465,7 @@ Lubuntu 15.04 Alpha II (легкий дистрибутив) [i386, amd64] 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929717.jpg" />
 </div>
 
 
@@ -411,7 +493,7 @@ Debian GNU/Linux 8.7.1 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929064.jpg" />
 </div>
 
 
@@ -437,7 +519,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928647.jpg" />
 </div>
 
 
@@ -463,7 +545,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [x86-64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928524.jpg" />
 </div>
 
 
@@ -489,7 +571,7 @@ Ubuntu*Pack GNOME Flashback 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925484.jpg" />
 </div>
 
 
@@ -516,7 +598,7 @@ Ubuntu*Pack GNOME Classic 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925404.jpg" />
 </div>
 
 
@@ -543,7 +625,7 @@ Ubuntu*Pack GNOME 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925399.jpg" />
 </div>
 
 
@@ -570,7 +652,7 @@ Ubuntu*Pack Budgie 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925391.jpg" />
 </div>
 
 
@@ -597,7 +679,7 @@ Ubuntu*Pack MATE 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925311.jpg" />
 </div>
 
 
@@ -609,86 +691,6 @@ Ubuntu*Pack MATE 18.04 (февраль 2020) [amd64, i386] 2xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:598EDF443F1083705D0807DDDA37D7CF65817936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366149   (925305) от 10.03.2020
-
-Ubuntu*Pack KDE (Kubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95105D22A79B5D0438D10C7976D4C12A90D5BABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489604   (925218) от 16.08.2021
-
-Debian Edu - Skolelinux 11.0.0 Bullseye + nonfree [Linux для школы] [i386, x86-64] 4xBD, 4xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEF118038A1D78F06C540197BA64759BB4B4DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366150   (925154) от 10.03.2020
-
-Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B136B9F78DF74607000D9EA6A3DBE603073ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

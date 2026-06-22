@@ -1,3 +1,83 @@
+###  Публикация: 1253627   (375092) от 13.10.2018
+
+Агата Горай | Память без срока давности (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375092.jpg" />
+</div>
+
+
+###  Подробнее
+
+С детства Лиза Кот была не такой, как все: её болезнь – гиперамнезия – делала девочку уникальной. Лиза отчетливо помнила каждый день своей жизни. Но вскоре эта способность стала проклятьем. Слишком много в голове Лизы ужасных воспоминаний, слишком много боли она пережила, слишком много видела зла. Но даже ее сверхмозг не может дать ответа, как все изменить…Жанр: Детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CE19757092CA72BEE1CC79C519CEE0D4169C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253932   (375091) от 13.10.2018
+
+Найо Марш | Однажды в Риме. Обманчивый блеск мишуры [сборник] (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Себастьян Мейлер, владелец туристического бюро, шантажист и тайный наркодилер, проводит экскурсию по базилике Сан-Томмазо. Группа подобралась весьма пестрая. И в ней оказывается Родерик Аллейн, прибывший в Италию в рамках расследования дела о транзите наркотиков. В разгар экскурсии Себастьян пропадает, а вскоре в базилике находят труп…
+* * *
+Представитель древнего (   Читать дальше...   )Жанр: ДетективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C0EDE32233F3858596D63553E5730C40C0802F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253787   (374836) от 13.10.2018
+
+Сергей Самаров | Зеленая кнопка (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время боевой операции на Кавказе офицер спецназа Сергей Жеребякин попадает в плен к эмиру Дадашеву. Бандит пытается склонить пленника на сторону моджахедов. Он шантажирует Сергея, грозя расправиться с его родственниками. Но спецназовец непреклонен. Улучив момент, Жеребякин ликвидирует охранников и захватывает эмира в заложники. Но что может сделать один безоружный (   Читать дальше...   )Жанр: БоевикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB59DBA56572310C6BF01AC713E69F0B83C3C2F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949917   (374747) от 24.10.2015
 
 Виктор Глебов | Нежилец (2015) [FB2]
@@ -6,7 +86,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374747.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374614.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374503.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374395.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374391.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374371.jpg" />
 </div>
 
 
@@ -173,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374210.jpg" />
 </div>
 
 
@@ -199,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373918.jpg" />
 </div>
 
 
@@ -226,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372891.jpg" />
 </div>
 
 
@@ -252,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372830.jpg" />
 </div>
 
 
@@ -279,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372429.jpg" />
 </div>
 
 
@@ -307,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372196.jpg" />
 </div>
 
 
@@ -335,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371910.jpg" />
 </div>
 
 
@@ -361,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370093.jpg" />
 </div>
 
 
@@ -387,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369635.jpg" />
 </div>
 
 
@@ -413,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369365.jpg" />
 </div>
 
 
@@ -439,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369315.jpg" />
 </div>
 
 
@@ -465,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368589.jpg" />
 </div>
 
 
@@ -492,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368579.jpg" />
 </div>
 
 
@@ -519,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368577.jpg" />
 </div>
 
 
@@ -548,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368200.jpg" />
 </div>
 
 
@@ -574,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368197.jpg" />
 </div>
 
 
@@ -600,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368162.jpg" />
 </div>
 
 
@@ -613,88 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686493B27E77D835698E41B8DB2729EB152C9BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327825   (368002) от 28.09.2019
-
-Алан Брэдли | Красавиц мертвых локоны златые (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Загадки Флавии де Люс #10.
-
-После череды трагических событий в семье де Люс наконец случилась радость. Да, старшая сестра Офелия выходит замуж, изрядно помотав нервы своему избраннику и окружающим. Флавия считает минуты до отъезда молодоженов и предвкушает, как в поместье Букшоу наступит относительный покой, а сама она с головой погрузится в работу детективного (   Читать дальше...   )Жанр: Детский детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE64C4F9264BA6D8F485D3CC2046A6316617EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254952   (367949) от 16.10.2018
-
-Майкл Крайтон, Ричард Престон | Микро (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Крайтон — автор многочисленных бестселлеров № 1 по версии «Нью-Йорк таймс», получивших всемирную известность. Его книги разошлись в мире тиражом более 200 миллионов экземпляров. Внезапная смерть помешала писателю завершить «Микро», и честь дописать роман выпала известнейшему популяризатору науки Ричарду Престону.
-
-Тройное самоубийство по предварительному сговору (   Читать дальше...   )Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C424BA27453332D37A85B1556A0C6B9A40850BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950879   (367892) от 27.10.2015
-
-Гилберт Честертон | Три орудия смерти [сборник] (2015) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гилберт Кит Честертон – английский писатель, поэт, журналист. Наибольшую популярность ему принес цикл новелл об отце Брауне – неприметном священнике-детективе, который способен распутать самые головоломные преступления. Отец Браун составляет нешуточную конкуренцию самому Шерлоку Холмсу, а рассказы о нем вошли в сокровищницу мирового детектива.Жанр: Классические детективы, Зарубежные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331971D3E1BA875F761A82B19A452B7D4568BAD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

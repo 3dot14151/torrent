@@ -1,3 +1,159 @@
+###  Публикация: 911668   (615929) от 23.06.2015
+
+В теме. Пентагон: Хотят ли русские войны?  (2015) SATRip
+
+>>След.
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Политолог Павел Садовников рассуждает о продлении западных санкций в отношении России, обсуждении в НАТО ядерного статуса РФ, а также о будущем Греции в еврозоне. Смотрите подробности в видеосюжете канала "Москва Доверие".Телекомпания: Москва ДоверияЖанр: ДокументальныйПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641BB780D641E4B8311B351746DFF2EF21981B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911644   (615928) от 23.06.2015
+
+Война без правил. Америка. Настоящая история (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка - мощная и великая страна. Но черные пятна ее истории не закрасит ни время, ни деньги. Ни одно государство не пролило столько крови и не проявило столько бессмысленной жестокости на том простом основании, что белые господа, знающие толк в хорошем виски и в хорошем бизнесе - это люди первого сорта. А миллионы индейцев и негров - люди второго сорта. Поэтому (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDABBBFB7E7DA44D5DB10D31C55FBBDE9685C3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911999   (614597) от 24.06.2015
+
+Петровка 38 (24.06.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежедневная телепрограмма, подготовленная телестудией ГУ МВД России по г.Москве. В программе даётся оперативная сводка происшествий в Москве и за ее пределами.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B1B5210DA819B6FB939DFCB765C5469DADB300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912128   (614596) от 24.06.2015
+
+Вести в 20-00. Большие Вести. Россия 1 (24.06.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614596.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C760D0807FB57EE00B059639D55430273FECD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912100   (614595) от 24.06.2015
+
+119 Непрожитых жизней (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1943 году еврейский юноша Флип Слиер был сожжён в крематории концлагеря Собибор. Пола Слиер, корреспондент канала RT, решила выяснить обстоятельства его жизни и смерти: её расследование началось в Голландии и завершилось в Польше, в бывшем концлагере Освенцим (Аушвиц). Журналистке удалось найти фотографии Флипа и его письма, встретиться с внуком коменданта Освенцима (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB1FB1E4392B42A4BBFA1281A0554576D6A999D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912095   (614591) от 24.06.2015
+
+Косовский исход (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614591.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Исход» – это слово часто используется для описания массовой эмиграции жителей Косова. Люди бегут из страны, за независимость которой тысячи косоваров заплатили жизнью. В новой миграционной волне преобладают косовские албанцы. Они покидают свои дома в поисках работы и достойной жизни, так и не дождавшись обещанной свободы и процветания на родине. Какая судьба ждет (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EB287D845C039E9DFDDD6229D0092EB7F82137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911953   (614242) от 24.06.2015
 
 Война без правил. Потерянный мир (2015) SATRip
@@ -6,7 +162,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614242.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612923.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612915.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612810.jpg" />
 </div>
 
 
@@ -114,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612809.jpg" />
 </div>
 
 
@@ -142,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612805.jpg" />
 </div>
 
 
@@ -170,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612803.jpg" />
 </div>
 
 
@@ -196,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612690.jpg" />
 </div>
 
 
@@ -222,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612676.jpg" />
 </div>
 
 
@@ -248,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612592.jpg" />
 </div>
 
 
@@ -276,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612427.jpg" />
 </div>
 
 
@@ -304,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612403.jpg" />
 </div>
 
 
@@ -330,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611520.jpg" />
 </div>
 
 
@@ -356,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610983.jpg" />
 </div>
 
 
@@ -382,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610978.jpg" />
 </div>
 
 
@@ -408,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610881.jpg" />
 </div>
 
 
@@ -434,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610763.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610624.jpg" />
 </div>
 
 
@@ -488,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610623.jpg" />
 </div>
 
 
@@ -514,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610557.jpg" />
 </div>
 
 
@@ -527,168 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3AD880BA373888E0B3AF5C8ECC4BE1648B3C7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912631   (609327) от 27.06.2015
-
-Человек и закон (26.06.2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как бывший участковый подселял в квартиры москвичей "своих людей". Зачем (за небольшой процент подселяются, например, в коммуналку молодые и дерзкие парни числом поболее, жизнь добропорядочных соседей очень быстро превращается в ад, и они продают свою долю в квартире первым встречным за "три копейки" ). И что из этого вышло (на прошлой неделе (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D1D8D47419EDD0E310ADDEF76C58140153BDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912898   (608828) от 27.06.2015
-
-Артек (2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артек - самый большой детский курорт в мире. На его территории могло бы поместиться княжество Монако со всеми своими казино, или, например, остров Тенерифе со всеми находящимися на нем пятизвездочными отелями.
-Но в СССР на этом месте построили единственный в своем роде город для детей, которому уже 90 лет и в котором мечтал оказаться каждый из живущих в нашей стране. (   Читать дальше...   )Телекомпания: 1 каналЖанр: ТелепередачаПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E0B883BCBDB9A731329C19C5A2F48E4E3702E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912735   (608688) от 27.06.2015
-
-Донецк глазами американца (2014) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие мировые СМИ утверждают, что в Донбассе воюет российская армия. Съёмочная группа RT отправилась туда, чтобы найти этому подтверждение. Не нашла. Но увидела страшные разрушения, кровь и горе, принесённые этой войной. И людей, защищающих свою землю.
-
-Так есть ли в Донбассе российская армия? Мигель Фрэнсис - автор фильма "Крым глазами американца" - отправился (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйРежиссер: Мигель ФренсисПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF13299802EEF1BCE664E00B4398FCA12D9AAAF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546254   (607988) от 23.04.2022
-
-Живая еда с Сергеем Малозёмовым (23.04.2022) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Секреты пасхальной красоты — удивительные куличи, яйца и не только! Как готовятся к празднику профессиональные кулинары?
-Что нам продают под видом томатной пасты? В чем польза и опасность этого продукта?
-Правда ли японский чай матча скрывает в себе суперпользу? И стоят ли своих денег его дорогие сорта?
-А также — заимствованная у кальмаров технология поможет кофе (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8080FFB66B7D2581867D016FEBEA90842214FAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913184   (607138) от 28.06.2015
-
-Чудо техники (2015.06.28) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607138.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21070AA89C7997B33A64AC8EE88D5EBBF5C0F01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913261   (607013) от 28.06.2015
-
-Теория заговора. Колбаса и сосиски (2015.06.28) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мясо - растительный продукт. Так нередко называют современную колбасу. Теперь мясо в колбасных изделиях официально разрешено заменять на другие ингредиенты.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2622680FAD9753E79B134435F21FEE9BD6E7C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

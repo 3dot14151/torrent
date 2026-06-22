@@ -1,3 +1,107 @@
+###  Публикация: 481227   (688061) от 05.03.2022
+
+Night Watcher / Ночной смотрящий (2008) [Ru] (1.0) License
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист Андрей Лузгин прибывает в город Посольск, чтобы отыскать своего пропавшего друга. По приезду он замечает, что в городе творится что-то странное: люди пропадают без вести, обнаруживаются трупы со страшными увечьями. Лузгин берётся за журналистское расследование, в ходе которого узнаёт много жутких подробностей об этом городе, где проводились секретные исследования (   Читать дальше...   )Тип издания: LicenseРазработчик: Litera LaboratoriesЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C931252474BF419356D6C911167417B94DFA8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221976   (686745) от 28.04.2018
+
+Loom (1990) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя много лет после ухода Второй Тени, когда сумеречным небом правили драконы, а звезды были многочисленны и ярки, наступила эпоха Великих Гильдий. Кузнецы. Пастухи. Клирики. И все стремятся сберечь от остальных свои секреты. Одной из Гильдий были Ткачи. Веками их интересы простирались куда дальше простого пошива одежды, пока, наконец, они не постигли тайны ткани (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasfilmЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D59A5A8DEAD20C8D1BF18128F6B29E9C9973C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113500   (686515) от 16.05.2017
+
+2064: Read Only Memories (2015) [En] (64.0.6c) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нео-Сан-Франциско, 2064 год н.э. Ваша унылая жизнь непризнанного журналиста заканчивается, когда появляется первая в мире осознающая себя машина, ПЗУ (полизадачный управляющий) по имени Тьюринг. Вы и этот чудаковатый робот встретитесь со множеством ярких местных обитателей и преодолеете множество испытаний, открывая городские тайны. Read Only Memories – новое приключение (   Читать дальше...   )Тип издания: LicenseРазработчик: MidBossЖанр: Приключение, Квест, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F88FCFBFFF66F806FA8217E53D9C02909A9551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535317   (686021) от 06.03.2022
+
+Re;Lord 2 ~The witch of Cologne and black cat~ (2021) [En] (1.00/dlc) License GOG [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра продолжает серию с приключениями Уилфрида и его группы, с которой придется путешествовать по фэнтезийному миру. Пользователи смогут узнать историю о сражениях со злобной ведьмой Руин Ирис, что держит в заключении Кельна и Грессена. Протагонист в Re;Lord, освободив регион Херфорт Вильфрид, вынужден отправляться на сражения с тремя колдуньями и поднимать восстание (   Читать дальше...   )Тип издания: LicenseРазработчик: Escu:de, ElementЖанр: Приключение, Визуальные новеллы, ФэнтезиЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D49C28C13B5A3BF2257AADDE4F67C5FB6FA347C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535418   (685860) от 06.03.2022
 
 ПАНЕЛЬКИ (2022) [Ru/En] (1.0.0) Repack Other s
@@ -6,7 +110,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685860.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Room 404 (2016) [En/Pt] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685780.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Breached (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685775.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Monster Prom (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684561.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684361.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Empathy: Path of Whispers (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684351.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ The Bad, the Ugly and the Sober / Злой, плохой и трезвый [Ru] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683823.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ Darkness Assault (2015) [Ru/En] (1.03 f1/dlc) Repack Other s [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681825.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680524.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679943.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679841.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678438.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ Know by Heart... / Помни... (2022) [Ru/En] (1.03) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678063.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ Tales of Monkey Island: Chapter 2 The Siege of Spinner Cay / Tales of Monkey Isl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678037.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676484.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676178.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675703.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Everybody's Gone to the Rapture / Хроники последних дней (20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671552.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671211.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Late Shift (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670525.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ Sound of Drop - fall into poison (2015) [Ru/Multi] (1.0) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670136.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ Awakened (2016) [En/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669907.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ Awakened – это инди-хоррор игра, в которой у Вас 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EA09A6FCDD31A5527FD0D4AEAC0048DBBC81066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031093   (669882) от 02.07.2016
-
-Awakened (2016) [En/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш персонаж – женщина, которую удерживают в приюте для душевнобольных преступников. Некоторые уровни Вы будете проходить в ее воображении, некоторые нет. По мере развития сюжета Вы узнаете, что случилось с главной героиней, и как она оказалась в психиатрической больнице.Тип издания: RepackРазработчик: Jesper Michael PetersenЖанр: Adventure (Horror), 3D, 1st Person, 3rd Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, ИспанскийЯзык интерфейса: Английский, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD61927484C8655C431882A7E76E7463B0964AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031142   (668424) от 03.07.2016
-
-Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дезире – это поэтичный черно-белый классический квест. Когда учительница спрашивает Дезире, почему он не нарисовал солнце, как все другие ученики, мальчик непринужденно отвечает: «В моей голове всегда ночь.»Тип издания: LicenseРазработчик: Sylvain SecciaЖанр: AdventureЯзык озвучки: ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C9411B387788429657B04E5E0AC953AF83FFDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224108   (667952) от 08.05.2018
-
-.T.E.S.T: Expected Behaviour — Sci-Fi 3D Puzzle Quest (2018) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667952.jpg" />
-</div>
-
-
-###  Подробнее
-
-.T.E.S.T: Expected Behaviour — трёхмерная головоломка от первого лица на научно-фантастическую тему. Решая загадки игры, вы сможете продемонстрировать логику, нестандартное мышление, быстроту действий и умение разбираться в незнакомой ситуации. В .T.E.S.T вы найдёте как новые, так и классические механики. Но все из них так глубоки, что до сих пор не раскрыты до конца. (   Читать дальше...   )Тип издания: RepackРазработчик: Veslo GamesЖанр: Action, Puzzle, Logic, 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9890D0F4ABF4BEAF96B5D42C4A492A03BE7F8B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129622   (667379) от 26.05.2017
-
-Full Throttle Remastered (2017) [Ru/En] (1.1.879806) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Full Throttle - это классическое приключение от легенды игровой индустрии - Тима Шефера, выпущенное компанией LucasArts в 1995 году. В игре рассказана история лидера банды байкеров "Хорьки" - Бена Фроттела (Ben Throttle). Он оказывается втянутым в разборки, убийства и интриги. Спустя 20 лет, Full Throttle переиздан обновленным: тщательно прорисованы 3D-изображения, (   Читать дальше...   )Тип издания: RepackРазработчик: Double Fine ProductionsЖанр: Приключение, Квест, ДетективЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0F1A746CD9BEC19B2AA3381A954C276E083DB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

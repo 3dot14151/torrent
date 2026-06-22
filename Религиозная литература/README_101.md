@@ -1,3 +1,108 @@
+###  Публикация: 1343035   (220259) от 05.12.2019
+
+Сибирская Благозвонница (изд.) | Тебе, Мати Бога нашего, хвалим. Богородичные сотницы (2014) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизреченна милость Господа к нам, грешным. И всё же, несмотря на великую любовь к людям, Иисус Христос — строгий Судия наших мыслей и дел. Иногда даже святые заступники не в силах умолить Его о помиловании согрешившей души. И лишь Пресвятая Богородица матерними молитвами может изменить решение Своего Божественного Сына. Она — наша Заступница, единая наша Надежда (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C29ECCB8DA4374338A01F924A0379F7D9857DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343069   (220213) от 05.12.2019
+
+Сибирская Благозвонница (изд.) | Земная жизнь Пресвятой Богородицы (2017) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220213.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Богоматерь явила всем неизреченную бездну любви Божией к людям. Благодаря Ей прекратилась наша долговечная вражда с Творцом. Благодаря Ей было устроено наше с Ним примирение, нам были дарованы мир и благодать, вместе с Ангелами ликуют люди, и мы, прежде осужденные, стали чадами Божиими. С Неё мы сорвали гроздь жизни; от Неё взяли отрасль нетления. Она стала посредницей (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828F18C7A61B394C53307A725D5329B262C9A361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514177   (219737) от 02.12.2021
+
+схиархимандрит Иоанн Маслов | Глинская пустынь (1992) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глинская пустынь... Эта обитель в течение столетий была для наших соотечественников олицетворением высшего христианского подвижничества и нравственного мужества. Одно лишь упоминание о Глинской пустыни пробуждало в сердцах людей духовную энергию, возжигало ревность ко спасению. Наряду с Киево-Печерской и Троице-Сергиевой Лаврами Глинская пустынь служила общему всенародному (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C1416E010A15C89F1605013B57D4AD07DF754D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966556   (218990) от 18.12.2015
+
+Илона Камад | Обрядовая сторона культов Древней Греции (2006) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мировоззрение человека древнего мира заключалось в восприятии жизни как единой последовательности всех происходящих процессов. С каждым новым периодом жизни древний грек восходил к духовному освящению, проходя религиозный церемониальный ритуал перехода – инициацию.
+В процессе прохождения инициации изживалось прежнее психологическое восприятие инициируемого с преломлением, (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C317E5A03F8DD0F00FEE806E0BDAD4EA9AA36C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652183   (218973) от 10.08.2023
 
 Святитель Григорий Двоеслов | Диалоги. Собеседования о жизни Италийских отцов и о бессмертии души (2012) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +111,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218973.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218967.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218875.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218827.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218733.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218062.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_217024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217024.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216990.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216949.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216835.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216693.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216633.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216518.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216241.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215732.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215624.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214198.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214002.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214000.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213789.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213653.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213588.jpg" />
 </div>
 
 
@@ -570,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B378447E233EAC864FEDC1F8A4C32AE7FC7DB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584227   (212042) от 18.10.2022
-
-О. Корытко | Религии мира. История духовных поисков человечества (2022) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Религия – это попытки человека «достучаться до небес». Человечество искало Бога на протяжении всей своей истории, и эти поиски были небесплодны: пришествие Христа в мир произошло в ответ на духовную жажду. Чтобы не оказаться чуждым сокровищу духовной культуры и не быть выброшенным на обочину духовной жизни, важно уметь разбираться в основных религиозных идеях, истории (   Читать дальше...   )Жанр: РелигиоведениеЯзык: РусскийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941A660939CF223A782F20318F04A294F0E698ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638410   (211961) от 08.06.2023
-
-Новая мысль | Доказательства существования жизни после смерти (2014) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какими бы удивительными ни показались читателю рассуждения и невероятными факты, изложенные в данной книге, мы надеемся, что именно их соединение в единое целое приведет всякого непредубежденного человека к внутреннему сознанию существования духовного мира, поможет ощутить реальность бессмертия души и задуматься о земной жизни, смыслом которой является переход души (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E6521B76B7408DFDD26D7AAB20DDE37CFEC292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638970   (211752) от 11.06.2023
-
-Святитель Филарет Московский | Катехизис (2013) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211752.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пространный христианский катехизис Православной Кафолической Восточной Церкви», составленный святителем Филаретом Московским, был рассмотрен и одобрен Святейшим Синодом и неоднократно переиздавался в качестве учебного пособия для преподавания в училищах и для употребления всех православных христиан». Святитель Филарет в своем «Катехизисе» в доступной форме разъясняет (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C649FC847BD323AAAD6408BF51BDF70F1649520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638969   (211706) от 11.06.2023
-
-Архимандрит Кирилл (Павлов) | О поминовении усопших, памяти смертной и общем воскресении (2018) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211706.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны проповеди недавно почившего всенародно любимого старца архимандрита Кирилла (Павлова) на тему, которая не может не интересовать любого человека – о поминовении наших дорогих усопших, о том, что со смертью наше общение с ними не прекращается, о необходимости за них молиться и творить милостыню. Но книга не только об этом, в ней батюшка говорит с нами (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27F91425BD27E02DA89AA5198D4650CAB8F07FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

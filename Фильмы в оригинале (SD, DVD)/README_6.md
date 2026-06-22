@@ -1,3 +1,29 @@
+###  Публикация: 539792   (505319) от 27.08.2012
+
+Что случилось с Вирджинией? / Virginia (2010) DVDRip [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505319.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета — любовная история неуравновешенной и психически ненормальной женщины по имени Виржиния, у которой единственная отрада в жизни — шестнадцатилетний сын Эммет.Жанр: ДрамаРежиссер: Дастин Лэнс БлэкАктеры: Дженнифер Коннелли, Эмма Робертс, Эд Харрис, Тоби Джонс, Кэрри ПрестонПеревод: ОтсутствуетПродолжительность: 01:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42B857C669C445C273208895F5212274445EAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934607   (502241) от 05.09.2015
 
 Девушка и синьор / Una chica y un senor (1974) VHSRip [IT]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502241.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502147.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501078.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501070.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501068.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495153.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491020.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487327.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484288.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480244.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478510.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475593.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471286.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463191.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460388.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454874.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453240.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451365.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450322.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448923.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444645.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433583.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432482.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431006.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429786.jpg" />
 </div>
 
 
@@ -643,33 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3CD15D68F63F21DCFCE0734637EA0DB54D0EC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166102   (428189) от 15.09.2017
-
-Справедливость отца / The Great Father (2017) WEBRip [HIN/Ru Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самуэль полицейскиq, расследующиq случаи жестокого обращения с детьми и их убийства. Однажды, он получает телефонный звонок от незнакомца, который называет себя «Джокером» и является маньяком. Самуэль отслеживает местоположение насильника, с целью его арестовать. Но не доехав до места, трагически погибает...
- Затем, история переходит к 10-летней девочке, по имени (   Читать дальше...   )Производство: ИндияЖанр: Детектив, Драма, ТриллерРежиссер: Ханиф АдениАктеры: Арья, Маммутти, Миа Джордж, Снеха, ШамПеревод: ОтсутствуетСубтитры: Русские,неотключаемыеПродолжительность: 02:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BAAA71C1A38068685A0AFD5C152EE62C1330C65
 ```
 
 https://mybot314.ru/tekegram_catalog/

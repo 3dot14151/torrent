@@ -6,7 +6,7 @@ Lucio Lasorte Show - Mascherata (1979) LP [MP3|320 Kbps] <Funk Soul, Disco, Chan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284583.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - NOW That’s What I Call A Party 2019 (2018) [MP3|320 Kbps] <Electropop, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284499.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Танцевальный рай: Only Hits (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284454.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ayala - This Year (2015) [OGG|469-523 кб/с]<Alternative Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283956.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Yello - Live In Berlin (2017) [MP3|320 Kbps] <Pop, Synth-pop, Future Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283898.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bebe Rexha - I Don't Wanna Grow Up (2015) EP [OGG|489-533 кб/с]<Power Pop, El
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283653.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Miss Li - A Woman's Guide to Survival (2017) [MP3|320 Kbps] <Indie Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282539.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Blue - Colours (2015) [OGG|455-528 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282421.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Train - Christmas In Tahoe (2015) [OGG|448-506 кб/с]<Pop, Traditional Christm
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282417.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Susan Boyle - Someone To Watch Over Me (Regular Edition) (2011) [MP3|320 kbps]<V
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_282261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_282261.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Time2Dance Best of '90s - '00s, (Vol. 1-2) 2CD (2018) [MP3|320 Kbps] <Europ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281158.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Eros Ramazzotti - Vita Ce N'è (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281088.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - The Pop Years 1980-1983 (2009) 4CD [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280451.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Hands up Party Dance Selection, Vol. 2 (2018) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279571.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Hot Party Winter 2019 (2018) [MP3|320 Kbps] <Dance, Lunapop, Indie, Neo Sou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279519.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ ZOE (Straub) - The Acoustic Sessions (2017) [MP3|320 Kbps] <Acoustic Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279516.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - NOW That's What I Call Music! 20th Anniversary, Vol. 1 (2018) [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279471.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ ZOE (Straub) - Debut Deluxe (2016) [MP3|320 Kbps] <French Pop, Gipsy-Swing, Elec
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279468.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Amy Macdonald - Woman Of The World (The Best Of 2007-2018) (2018) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279463.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Miss Li - Best of 061122‒071122 (2007) 2CD [MP3|320 Kbps] <Indie Pop, Jazz, Fu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278861.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - 100% Clubland EDM Bangers (2018) 3CD [MP3|320 Kbps] <Dance, Electro, Progre
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277774.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Massara C.A.S.T. - Volerai Volero (1982) 7 Inch [MP3|320 Kbps] <Electronic, Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277386.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Hits Dance 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277142.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ LP - Lost On You (2016) [MP3|320 Kbps] <Alternative Rock, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276747.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Bravo Hits Jesień (2018) 2CD [MP3|320 Kbps] <Pop  Latin, Reggaeton>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276580.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Robbie Williams - Under the Radar, Vol. 2 (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275977.jpg" />
 </div>
 
 

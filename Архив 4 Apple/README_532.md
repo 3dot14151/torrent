@@ -1,3 +1,56 @@
+###  Публикация: 1639235   (234951) от 12.06.2023
+
+Scrutiny 12.7.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.06.2023Разработчик: ©2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9EC4F9756F48BBD9EE52ABD9BCEF7D63C9C6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639263   (234918) от 12.06.2023
+
+Default Folder X 6.0 a6 Pre-Release [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.06.2023Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2B56B29118A56914E3E85D5D695A2730B5F73F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621060   (234892) от 23.03.2023
 
 Notebooks – Write and Organize 3.1.2 [En]
@@ -6,7 +59,7 @@ Notebooks – Write and Organize 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234892.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ CloudMounter 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234847.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Clipboard Manager 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234831.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Path Finder 2154 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234779.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ DropDMG 3.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234777.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Viper FTP 6.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234761.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ GraphicConverter for Mac 12.0.4 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234752.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Araxis Merge Pro Edition 2023.5915 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234749.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ Aiseesoft Mac FoneLab for Android 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234748.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ PCalc 4.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234747.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ AirMail Pro 5 v.5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234691.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ ImageRanger Pro Edition 1.9.2.1856 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234685.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ NetShred X 5.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234673.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Stats 2.8.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234667.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Mp3tag 1.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234630.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ FSNotes 6.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234606.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ Slidepad 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234595.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ PDF Expert 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234591.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Alfred PowerPack 5.1.2 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234588.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ Downie 4.6.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234572.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ ExactScan Pro / Enterprise 23.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234568.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ Rhinoceros 7 v.7.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234566.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ HitPaw Video Converter for Mac 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234542.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ Stats 2.8.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234541.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ Stats - это приложение с открытым исходным код�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B37A6F8083E2F35B1A42C72D174049FEA915D4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622186   (234519) от 27.03.2023
-
-iCompta 6.0.65 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234519.jpg" />
-</div>
-
-
-###  Подробнее
-
-iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 27.03.2023Разработчик: © 2006-2022 SAS LyricAppsПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5E5B9BB13B2C7B0FD28D3BA2CA1D69B19E1FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622078   (234467) от 27.03.2023
-
-iA Writer 6.0.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2023Разработчик: © 2010–2022 Information Architects GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE037B080F350F26826E0FD8C44961367E842A05
 ```
 
 https://mybot314.ru/tekegram_catalog/

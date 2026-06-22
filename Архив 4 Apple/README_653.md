@@ -1,3 +1,55 @@
+###  Публикация: 1678558   (143947) от 22.11.2023
+
+Native Instruments Kontakt 7.7.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2023Разработчик: © 2022 Native Instruments GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E38BA9803D4E9AF77184033500CFCFCC97C967B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520316   (143934) от 27.12.2021
+
+Stats 2.6.25 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 26.12.2021Разработчик: © 2021 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D90FD9C74018178030089E8DA820F48ED1CF155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520234   (143909) от 27.12.2021
 
 USBclean 3.6.4.1 [Multi]
@@ -6,7 +58,7 @@ USBclean 3.6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143909.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ eMail Address Extractor 3.5.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143903.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ PhotoBulk: watermark in batch 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143835.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ ProPresenter 7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143819.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143802.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ FonesGo iPhone Unlocker for Mac 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143795.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ MovieSherlock 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143791.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Allavsoft Video Downloader Converter 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143768.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ Folder-Factory 5.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143728.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ Outline 3.22.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143692.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ Steuererklärung 2.10.3 (build 144) [De]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143671.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ AnyMP4 Mac Blu-ray Ripper 8.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143547.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ DxO ViewPoint 3.1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143508.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ Nik Complete 4 Collection by DxO v4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143434.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ MarginNote 3 Pro v3.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143405.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ Wondershare Recoverit 7.4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143398.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ Dark Mode for Safari 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143385.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ Boom 2 v1.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143367.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ CleanMyMac X 4.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143352.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ Paragon NTFS v15.4.44 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143345.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ Native Instruments Traktor Pro 3 v3.5.2.299 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143313.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ Capture One Pro 9.0.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143255.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ Default Folder X 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143144.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ Keep It 2.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143139.jpg" />
 </div>
 
 
@@ -639,64 +691,6 @@ Keep It 2.3.4 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D50891683AC0BA5807428995AE7B9ED382F1D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087868   (143068) от 29.12.2016
-
-InstaBro | Browser for Instagram 4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете просмотреть, оставить комментарий и легко скачать Instagram фотографии
-InstaBro это простой инструмент для Mac, который позволяет загружать все фотографии и видео с любого аккаунта Instagram, хэштегом или локально.
-
-За основу взят дизайн стандартного приложения Image Capture для импорта фотографий и видео с внешних медиаустройств. Все просто — слева список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 августа 2016Разработчик: Boris KarulinПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3A4628D672D9DD69A5B2B7B76AD25CAA496386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272549   (143047) от 28.12.2018
-
-MediaHuman Youtube Downloader 3.9.9.10 (2712) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143047.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-Закачка нескольких файлов одновременно
-Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2018Разработчик: MediaHumanПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2BEDBF9E8B539864B2F61886601E0621F10514
 ```
 
 https://mybot314.ru/tekegram_catalog/

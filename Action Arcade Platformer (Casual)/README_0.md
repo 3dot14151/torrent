@@ -1,3 +1,29 @@
+###  Публикация: 1850708   (1054464) от 29.01.2026
+
+Terraria (2011) [Ru/Multi] (1.4.5.0) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Копайте, сражайтесь, исследуйте, стройте! Нет ничего невозможного в этой насыщенной событиями приключенческой игре. Весь мир - ваше полотно, а вся земля - ваши краски! Хватайте инструменты и вперед! Создавайте оружие, чтобы сражаться с различными врагами в разных биомах. Копайте глубже, чтобы найти драгоценности, деньги и кучу других полезных вещей.Тип издания: RepackРазработчик: Re-Logic, Engine SoftwareЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E374294D7C8C399B384EADF9CD6AB81FC31ABD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850248   (1054235) от 27.01.2026
 
 Sigi - A Fart for Melusina (2017) [Multi] (3.41) Repack Let'sРlay
@@ -6,7 +32,7 @@ Sigi - A Fart for Melusina (2017) [Multi] (3.41) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054235.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ The Last Faith (2023) [Ru/Multi] (2.0.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053401.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Terminator 2D: NO FATE (2025) [Ru/Multi] (Build 20805989) Repack Decepticon
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053098.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.2.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051457.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Braid (2024) [Ru/Multi] (0.444 revision 15517 M) Repack Let'sРlay [Anniversary 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050388.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Beacon of Neyda (2025) [Multi] (1.0.4b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050174.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ SANABI (2023) [Ru/Multi] (1.3.51/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049971.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ The Elephant Collection (2023) [En] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049658.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049048.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Toziuha Night: Order of the Alchemists (2024) [Multi] (1.0.5.0/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048840.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Winter Burrow (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048760.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Adrenaline Rampage (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048723.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Metal Mind (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048583.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Asterix & Obelix: Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack FitG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048571.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack HardwareMining [Deluxe 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048380.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048257.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack seleZen [Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048198.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack Let'sРlay [Deluxe Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047262.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ SANABI (2023) [Ru/Multi] (1.3.49/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046467.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Feist (2015) [Ru/Multi] (1.4.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040429.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Twin Cobra (2023) [Multi] (17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039472.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Truxton (2023) [Multi] (17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039225.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Zero Wing (2023) [Multi] (19) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039220.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Momodora: Reverie Under the Moonlight (2016) [Ru/Multi] (1.07) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037414.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Source of Madness (2022) [Ru/Multi] (1.1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035510.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Source of Madness - это мрачный экшн-roguelite сайд-скрол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4658BC711074AD5BA1FE9E921E5FD4AC90B39CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446323   (1032938) от 08.02.2021
-
-Bit.Trip Runner (2010) [En] (2.0.0.2) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032938.jpg" />
-</div>
-
-
-###  Подробнее
-
-BIT.TRIP RUNNER – это самый быстрый и веселый музыкальный платформер на ПК! Промчитесь по Луне, разбивая кристаллические стены и проскальзывая под чавкающими лунными слизнями! Проскочите через шахты роботов и сразитесь с мехом-рудокопом! Пронеситесь через Большой город в поисках друзей и одолейте последнего босса вместе с ними! RUNNER – это четвертая игра в серии (   Читать дальше...   )Тип издания: LicenseРазработчик: Choice ProvisionsЖанр: Action, RunnerЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B96B1EDC8662242E2AB38EF5D74FB03DB9EC2E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

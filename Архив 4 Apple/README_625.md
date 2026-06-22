@@ -1,3 +1,56 @@
+###  Публикация: 1517723   (162404) от 16.12.2021
+
+Scroll 2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162404.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью приложения Scroll исправьте чрезмерно чувствительную прокрутку в некоторых приложениях с помощью Magic Mouse или прокрутите только одним касанием трекпада. Ограничьте прокрутку Magic Mouse. Прокрутите одним касанием сенсорной панели. Поддерживает Magic Mouse и любой трекпад Apple.Тип издания: macOS SoftwareРелиз состоялся: 13.06.2021Разработчик: © 2021 Ryan HansonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0366D07DC34F62CE5352E0F8D49363FFCD6D229C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517683   (162394) от 16.12.2021
+
+Duplicate Finder and Cleaner for Mac 1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Finder and Cleaner - это суперсовременный инструмент для удаления дубликатов и похожих файлов даже в большом объеме хранилища на вашем Mac. Этот привлекательный инструмент работает с несколькими библиотеками фотографий, резервными копиями iPhone на Mac, а также с файлами с жестких дисков и внешних хранилищ.
+Duplicate Finder и Cleaner помогут вам избавиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2021Разработчик: © 2021 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF88B79557081CD34A484108B6A510321B164DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433069   (162392) от 19.12.2020
 
 TunesKit AceMovi Video Editor 2.0.0 [Multi]
@@ -6,7 +59,7 @@ TunesKit AceMovi Video Editor 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162392.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Secret Folder Pro 10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162388.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Application Wizard 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162383.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ HighTop 1.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162377.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Hyperkey 0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162376.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ MacPilot 12 v12.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162375.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Typinator 8 v8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162367.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ SignFlow - eSign PDF Editor for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162365.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ Postico 1.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162363.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ Pro Microphone: Audio Recorder 1.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162360.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Dropshare 5.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162359.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ NCH Debut Professional 6.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162339.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ Topaz Photo AI for Mac 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162331.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ Serial Box & SerialSeeker 11-2023 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162325.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ Prism 9 v9.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162315.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ WiFi Scanner 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162310.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ Easy Data Transform 1.23.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162303.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ Pixelmator Pro 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162299.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162241.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162209.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ iShot Pro-ScreenShot Recording 2.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162206.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ Rhinoceros 7 v7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162200.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ BusyContacts 2022.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162198.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ Stats 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162191.jpg" />
 </div>
 
 
@@ -632,60 +685,6 @@ Stats - это приложение с открытым исходным код�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA2983706CC90DB56C5937539D576D04C8854BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598699   (162184) от 20.12.2022
-
-Screegle - Clean Screen Sharing 2.1.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screegle позволяет вам поделиться любым окном, которое вы хотите, поверх чистого фонового изображения рабочего стола. Screegle - это совместное использование экрана для профессионалов. Ваши коллеги, команда, клиенты или студенты видят чистую, не загроможденную версию вашего рабочего стола, которая содержит только окна, какие вы явно выбрали, и ничего больше. Больше (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2022Разработчик: © 2022 © AppBlit LLCПоддерживаемая ОС: macOS 10.14.0+Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C3282C4EC84D56C6381C2844A3CF0E99142D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433025   (162180) от 19.12.2020
-
-ScreenFlow 9 v9.0.6 CR2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162180.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFlow - создаем свои скринкасты
-Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
-Простая, но крайне мощная утилита для захвата и записи видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2020Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768F4F327E667D57ABB805163B83CA1240BD27FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

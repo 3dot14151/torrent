@@ -1,3 +1,33 @@
+###  Публикация: 585615   (999204) от 06.01.2013
+
+Doom 3: BFG Edition [Ru/En] (RePack/1.1400.346456) 2012 | R.G. Games
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999204.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издание Doom 3 BFG Edition войдет обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории войны на марсианской станции поклонников Doom ждут совершенно новые эпизоды – семь уровней под общим заголовком The Lost Mission.
+С Doom 3 BFG Edition игроки смогут еще глубже погрузиться в атмосферу легендарного шутера. Оптимизация графики под современные платформы, улучшенные рендеринг и освещение, поддержка стереоскопического 3D и звука 5.1, новая система сохранения в контрольных точках, а также поддержка достижений Xbox LIVE и призов PlayStation Network – все это позволит игрокам насладиться Doom 3, как в первый раз.
+Наконец, в качестве особого бонуса для самых верных фанатов серии Doom 3 BFG Edition содержит также оригинальную дилогию Doom.
+
+(   Читать дальше...   )Тип издания: RePackРазработчик: id SoftwareЖанр: Action (Shooter) / 3D / 1st Person / CompilationЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600634   (998465) от 09.01.2013
 
 Homefront [Ru/En] (RePack/1.0.384501) 2011 | R.G. Revenants
@@ -6,7 +36,7 @@ Homefront [Ru/En] (RePack/1.0.384501) 2011 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998465.jpg" />
 </div>
 
 
@@ -33,7 +63,7 @@ Will Rock / Will Rock: Гибель богов (2003) [Ru/En] (1.2) RePack R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998184.jpg" />
 </div>
 
 
@@ -59,7 +89,7 @@ Brothers in Arms: Anthology [En/Ru] (Rip) 2005 - 2008| R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997085.jpg" />
 </div>
 
 
@@ -89,7 +119,7 @@ Painkiller. Hell & Damnation [Ru] (RePack/1.0.27204/3 DLC) 2012 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996582.jpg" />
 </div>
 
 
@@ -119,7 +149,7 @@ No One Lives Forever Антология / No One Lives Forever Anthology + OST [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996580.jpg" />
 </div>
 
 
@@ -145,7 +175,7 @@ Sniper: Ghost Warrior / Снайпер: Воин-призрак [Ru] (RePack/1.3
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996560.jpg" />
 </div>
 
 
@@ -172,7 +202,7 @@ Call of Juarez: Bound in Blood / Call of Juarez: Узы крови [Ru] (RePack/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994952.jpg" />
 </div>
 
 
@@ -200,7 +230,7 @@ Death To Spies Moment of Truth / Смерть шпионам: Момент ис�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994353.jpg" />
 </div>
 
 
@@ -231,7 +261,7 @@ Call Of Juarez: The Cartel: Limited Edition [Ru] (Rip/1.1.12) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993828.jpg" />
 </div>
 
 
@@ -261,7 +291,7 @@ Aliens: Colonial Marines (2013) [Ru] (1.0.210.751923/upd1.4.0/dlc) Repack Other 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992988.jpg" />
 </div>
 
 
@@ -287,7 +317,7 @@ Dusk-12 / Территория тьмы [Ru] (L/1.2) 2007
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991458.jpg" />
 </div>
 
 
@@ -313,7 +343,7 @@ Chivalry: Medieval Warfare [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988783.jpg" />
 </div>
 
 
@@ -339,7 +369,7 @@ Die Hard: Nakatomi Plaza (2002) [Ru/Multi] (1.04) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988165.jpg" />
 </div>
 
 
@@ -365,7 +395,7 @@ Command & Conquer: Renegade (2002) [Ru/En] (1.037) Lossless Repack R.G. Revenant
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988159.jpg" />
 </div>
 
 
@@ -391,7 +421,7 @@ Deadfall Adventures (2013) [Ru/En] (1.0/upd2/dlc) Repack Other s [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987612.jpg" />
 </div>
 
 
@@ -417,7 +447,7 @@ Submersed (2020) [Multi] (1.0.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985667.jpg" />
 </div>
 
 
@@ -443,7 +473,7 @@ Quake - Collection (1996-2014) [En] (20140513/dlc) Repack X-NET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985240.jpg" />
 </div>
 
 
@@ -469,7 +499,7 @@ Far Cry 3: Deluxe Edition [Ru/En/Multi11] (Steam-Rip/1.04/7 DLC) 2012 | R.G. Gam
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983541.jpg" />
 </div>
 
 
@@ -496,7 +526,7 @@ Find Me: Horror Game (2020) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983239.jpg" />
 </div>
 
 
@@ -522,7 +552,7 @@ The Kreed [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980791.jpg" />
 </div>
 
 
@@ -548,7 +578,7 @@ Onimusha: Warlords / Onimusha: Путь самурая [Ru/En/Jp] (Repack/1.2) 2
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978266.jpg" />
 </div>
 
 
@@ -574,7 +604,7 @@ Terra Incognita (2020) [En] (1.0) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977397.jpg" />
 </div>
 
 
@@ -600,7 +630,7 @@ Sanctum [Ru/En/Milti12] (L/1.5.22889/5 DLC) 2011 | PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977226.jpg" />
 </div>
 
 
@@ -628,7 +658,7 @@ Sanctum [Ru/En] (RePack/1.5.22889) 2011 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975779.jpg" />
 </div>
 
 
@@ -655,7 +685,7 @@ Another Dawn (2020) [Ru/Multi] (1.02) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975043.jpg" />
 </div>
 
 
@@ -666,32 +696,6 @@ Another Dawn (2020) [Ru/Multi] (1.02) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2882F6930807AD59E92D157871584B5677CEDCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655862   (969908) от 12.01.2014
-
-Sniper: Ghost Warrior 2 / Снайпер: Воин-призрак 2 (2013) [Ru/En] (1.09/5dlc) Repack R.G. Механики
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безжалостный боец-одиночка вновь выходит на тропу войны. Действие второй части популярного экшена, снискавшего признание игроков по всему миру, развернется среди непролазных джунглей, горных хребтов и городских развалин. Впечатляющая подборка самого современного снаряжения включает тепловизор и прибор ночного видения, которые значительно расширят ваши возможности (   Читать дальше...   )Тип издания: RepackРазработчик: City InteractiveЖанр: Action / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF84E83702DB7847911D398FC4CC5255FEC19F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

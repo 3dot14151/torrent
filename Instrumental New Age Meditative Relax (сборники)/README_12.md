@@ -1,3 +1,38 @@
+###  Публикация: 552821   (443603) от 28.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 85 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquistador - Granada
+02. В.Ковтун - Встреча
+03. Jackson - Say Say Say
+04. The Ventures - The House Of The Rising Sun
+05. D.Luca - Unchained Melody
+06. J.Last - Cracklin Rosie Rose Garden
+07. G.Marradi - Thoughts
+08. Karunesh - Call Of The Unknown
+09. Antonio De Lucena - Sotto La Luna
+10. J.Borelly - Toute La Pluie Tombe Sur Moi(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1935E32AA066A82CF3C9D1AF5E45AE493608B5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553267   (443598) от 28.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 кб/с]<Instrumental>
@@ -6,7 +41,7 @@ VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443598.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443534.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mel
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440231.jpg" />
 </div>
 
 
@@ -105,7 +140,7 @@ VA - Инструментальная музыка (2012) vol. № 91 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436348.jpg" />
 </div>
 
 
@@ -140,7 +175,7 @@ VA - Инструментальная музыка (2012) vol. № 90 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436311.jpg" />
 </div>
 
 
@@ -175,7 +210,7 @@ VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436310.jpg" />
 </div>
 
 
@@ -210,7 +245,7 @@ VA - Инструментальная музыка (2012) vol. № 93 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433656.jpg" />
 </div>
 
 
@@ -245,7 +280,7 @@ VA - The World of Enigmatic Melody (2017) [MP3|256-320 Kbps] <Enigmatic, New Age
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432327.jpg" />
 </div>
 
 
@@ -274,7 +309,7 @@ VA - New Age Style - Enigmatic 31 (2020) [MP3|320 Kbps] <Electronic, New age, En
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431433.jpg" />
 </div>
 
 
@@ -303,7 +338,7 @@ VA - Инструментальная музыка (2012) vol. № 95 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431351.jpg" />
 </div>
 
 
@@ -338,7 +373,7 @@ VA - Инструментальная музыка (2012) vol. № 96 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431337.jpg" />
 </div>
 
 
@@ -373,7 +408,7 @@ VA - Инструментальная музыка (2012) vol. № 97 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431149.jpg" />
 </div>
 
 
@@ -400,6 +435,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145249   (430969) от 11.10.2009
+
+VA - Instrumental Magic (2008) [MP3|256 кб/c]<Инструментальная, Сборники>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_430969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Инструментальная, Сборники
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 556095   (429279) от 04.10.2012
 
 VA - Инструментальная музыка (2012) vol. № 98 [MP3|320 кб/с]<Instrumental>
@@ -408,7 +469,7 @@ VA - Инструментальная музыка (2012) vol. № 98 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429279.jpg" />
 </div>
 
 
@@ -443,7 +504,7 @@ VA - Инструментальная музыка (2012) vol. № 99 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429033.jpg" />
 </div>
 
 
@@ -478,7 +539,7 @@ VA - Инструментальная музыка (2012) vol. № 101 [MP3|320 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428143.jpg" />
 </div>
 
 
@@ -513,7 +574,7 @@ VA - Лучшие мелодии на свете. Музыка для отдых
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_426904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_426904.jpg" />
 </div>
 
 
@@ -539,7 +600,7 @@ VA - Relax (2022) [MP3|320 Kbps] <Easy Listening, Neo Soul, Vocal, Ballad>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425401.jpg" />
 </div>
 
 
@@ -567,7 +628,7 @@ VA - Guitar Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417973.jpg" />
 </div>
 
 
@@ -596,7 +657,7 @@ VA - Relaxing Piano Nights (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417965.jpg" />
 </div>
 
 
@@ -625,7 +686,7 @@ VA - Instrumental Chill Out Relaxing Piano Bar Music Romantic Dinner Party Cool 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417868.jpg" />
 </div>
 
 
@@ -654,7 +715,7 @@ Enigma - Great Artists of My Heart Vol. 09 (2020) [MP3|320 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413140.jpg" />
 </div>
 
 
@@ -683,7 +744,7 @@ VA - The World of Enigmatic Melody vol. 2 (2017) [MP3|320 Kbps] <Enigmatic, New 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412464.jpg" />
 </div>
 
 
@@ -712,7 +773,7 @@ VA - Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411393.jpg" />
 </div>
 
 
@@ -741,7 +802,7 @@ VA - Spa Music (2022) CD, Compilation [MP3|320 Kbps] <Meditation, Relaxing, Spa 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410312.jpg" />
 </div>
 
 
@@ -755,76 +816,6 @@ VA - Spa Music (2022) CD, Compilation [MP3|320 Kbps] <Meditation, Relaxing, Spa 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E318265899D29E6040D440A244F56F1325CE73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562197   (405904) от 18.10.2012
-
-VA - Rhythm Balance & Harmony (2007) [MP3|320 кб/с]<Instrumental, Ethnic, Native american>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405904.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:14) 01. Dream The Relaxation
-(3:40) 02. Cumbia Andina
-(5:11) 03. Sanpriest Dance
-(4:50) 04. Mitayo
-(5:27) 05. Harmony
-(3:48) 06. Palomita
-(2:59) 07. Por Un Dolar
-(3:39) 08. Firedance
-(3:42) 09. Mistical Rhythm
-(4:58) 10. Celebration(   Читать дальше...   )Жанр: Instrumental, Ethnic, Native americanПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9F6400E31C672A2B4EBC5D3404086F2FD5A85E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560820   (404702) от 21.10.2012
-
-VA - This Merry Planet: Instrumental Disco Hits (2012) [MP3|320 кб/с]<Instrumental,Disco>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental,DiscoПродолжительность: 01:05:35
-
-01. The League Unlimited Orchestra - Hard Times
-02. The League Unlimited Orchestra - Love Action (I Believe In Love)
-03. The League Unlimited Orchestra - The Sound Of The Crowd
-04. The League Unlimited Orchestra - Do Or Die
-05. Love Unlimited Orchestra - Welcome Aboard
-06. The Love Unlimited Orchestra - Love's Theme
-07. Love Unlimited Orchestra - Night Life In The City
-08. Webster Lewis - Saturday Night Steppin' Out(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588A4C5041D2FB5A72A76A45713A7E5730E2F192
 ```
 
 https://mybot314.ru/tekegram_catalog/

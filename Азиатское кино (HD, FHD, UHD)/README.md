@@ -1,4 +1,160 @@
 https://t.me/izofen
+###  Публикация: 1877220   (1073811) от 
+
+Одержимость / Inganjungdok (2014) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073811.jpg" />
+</div>
+
+
+###  Подробнее
+
+1969 год. Война во Вьетнаме подходит к концу. Офицер и герой войны полковник Ким Джин-пхён готовится получить звание генерала. Успехи на службе, счастливый брак, красивая жена — всё это не может оставить равнодушным завистников. Но на самом деле его привязанность к жене ослабла, а из-за войны он страдает от посттравматического синдрома. Однажды Джин-пхён сталкивается (   Читать дальше...   )Производство: Южная Корея / Iron Package, Next Entertainment WorldЖанр: драма, мелодрамаРежиссер: Дэ У КимАктеры: Сын Хон Сон, Чжи Ён Им (I), Ё Чжон Чо, Чжу Ван Он, Хэ Чжин Ю, Сон У Пэ, Хёк Квон Пак, Хе Чжин Чон (I), Тхэ Гу ОмПеревод: любительский многоголосый (STEPonee), любительский двухголосый (GREEN TEA)Язык озвучки: русский, корейскийСубтитры: русские (ФСГ 'Палата 666'), английскиеПродолжительность: 02:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED6620C086F0C1C729DAA161B861E0E56FB0F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876855   (1073577) от 17.06.2026
+
+Разборка в Бронксе / Hong Faan Kui / Rumble in the Bronx (1995) UHD BDRemux [H.265/2160p] [4K, HDR10, DV 7.6, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кеунг, полицейский из Гонконга, приезжает к своему дяде в Америку на свадьбу. Дядя как раз продал свой супермаркет красивой китаянке, ни слова не сказав новой хозяйке о том, что на магазин имеют виды бандиты, и уехал. Кеунг, конечно же, заступается за симпатичную бизнес-леди и устраивает рэкетирам разборку. Но на этом подвиги азиатского полицейского в нью-йоркских (   Читать дальше...   )Производство: Гонконг / Golden Harvest Company, Golden Way Films Ltd., Maple Ridge FilmsЖанр: боевик, комедияРежиссер: Стэнли ТунАктеры: Джеки Чан, Анита Муи, Франсуаза Йип, Билл Тун, Марк Экерстрим, Гарвин Кросс, Морган Лам, Эйлен Сит, Мэн Чинг Чан, Фред АндруччиПеревод: Многоголосый (Премьер Видео Фильм, Вест-видео, AMC), Двухголосый (Premier Digital), Авторский (Лёша-Прапорщик, Яроцкий, Кашкин, Дольский, VHS)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D991A87292FD9243A52281DA76C5A8F2B5FF32BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876509   (1073525) от 
+
+Брак - сумасшедшая вещь / Gyeolhoneun, michin jisida (2002) BDRip [H.264/720p] [KOR / RU Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чон Ён - молодой профессор английской литературы и закоренелый холостяк. Но когда он знакомится с Ён Хи на свидании вслепую, его холостяцкая жизнь, похоже, подходит к концу. Однако из-за их взглядов на брак она выходит замуж за другого, а профессор встречается с ней только по выходным. Но даже в этих ограниченных отношениях возникают конфликты, которые приводят к (   Читать дальше...   )Производство: Южная Корея / CJ Entertainment, SidusЖанр: драма, мелодрамаРежиссер: Ю ХаАктеры: Кам У-сон, Ом Джон-хва, Пак Вон-сан, Кан Со-джон, Стивен Лосон, Лим Джон-ын, Рю Хён-гён, Юн Со-джон, Юн Е-ри, Пак Сон-гынПеревод: субтитрамиЯзык озвучки: корейскийСубтитры: русскиеПродолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEA165A5DAEC6ACB3A15C983767C634CA3E6AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876344   (1073183) от 
+
+Королевский страж / Wanggwa saneun namja / The King's Warden (2026) WEBRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чосон, 1455 год. Юный ван Танджон свергнут собственным дядей и отправлен в ссылку. Тем временем в уезде Йонволь староста бедной деревни Ом Хын-до прослышал, что если в поселение сошлют какого-нибудь вельможу, то вслед за ним последуют караваны с едой, и деревенские больше не будут голодать. Всеми силами Ом добивается признания своей деревеньки самой захолустной дырой, (   Читать дальше...   )Производство: Корея Южная / ShowboxЖанр: история, биография, драмаРежиссер: Чан Хан-джунАктеры: Ю Хэ-джин, Пак Чи-хун, Ю Джи-тхэ, Чон Ми-до, Ким Мин, Ли Джун-хёк, Ким Су-джин, О Даль-су, Пак Чи-хван, Ли Джун-хёкПеревод: Двуголосый любительский (Unicorn)Язык озвучки: Русский, корейскийСубтитры: ОтсутствуютПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC50D45BDD74E19A0EC075749358CECFA039914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876283   (1073160) от 
+
+Паранормальное явление. Сеул / Homkaem / Homecam (2025) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073160.jpg" />
+</div>
+
+
+###  Подробнее
+
+После развода Сонг-хи вместе с восьмилетней Джи-у переезжает в новую квартиру и пытается наладить жизнь с нуля. Ей приходится много работать, поэтому она нанимает помощницу и расставляет по дому камеры наблюдения. Сначала Сонг-хи тревожит странное поведение няни, но вскоре на записях появляются странные образы, а поведение дочери сильно меняется.Производство: Южная Корея, M Pictures, Studio Santa Claus EntertainmentЖанр: ужасыРежиссер: О Сэ-хоАктеры: Юн Сэ-а, Квон Хёк, Рима Тхань Ви, Юн Бёль-ха, Ким Со-мин, О Джи-хе, Хо Дон-вон, Чон Джи-су, Юн Гван-у, Мин Гён-окПеревод: Дублированный (КиноПоиск HD)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3E2BB43064A035B288A3754FC1E9748748D8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876167   (1073087) от 
+
+Дневник Рисы / Jurnal Risa by Risa Saraswati (2024) WEBRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о команде журналистов, занимающихся паранормальными явлениями. Во время одного из расследований девушка по имени Принса сталкивается с духом по имени Самек — существо, которое появляется, если произнести его имя. Команда пытается выяснить, что произошло, и оказывается в опасном месте, где происходят ещё более жуткие события. Сюжет основан на реальных (   Читать дальше...   )Производство: Индонезия / MD Pictures, Pichouse FilmsЖанр: ужасыРежиссер: Ризал МантованиАктеры: Риса Сарасвати, Prinsa Mandagie, Ranggana Purwana, Nicko Irham, Indy Ratna Pratiwi, Риана Ризки, Abimantu Bhakti, Sandy Pradana, Dimas Tri Adityo, Anaking Raga JanariПеревод: Одноголосый любительский (datynet)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE54908E0D302ADA66EA5F72CBACBA51D3920BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875356   (1072526) от 
 
 Проклятие матери. Одержимая / Menjelang Ajal / Nearing Death (2024) WEB-DLRip [H.264/1080p]
@@ -7,7 +163,7 @@ https://t.me/izofen
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072526.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072525.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072470.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072445.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072434.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072430.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072429.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072336.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072253.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072224.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072172.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072121.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071877.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071818.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071763.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071762.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071737.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071728.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071718.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071709.jpg" />
 </div>
 
 
@@ -512,163 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3215ED0B7A03D673CC7A572DCD311051F7B3F9DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874361   (1071708) от 01.06.2026
-
-Святая ночь: Охотник на демонов / Georukhan bam: demon heonteoseu / Holy Night: Demon Hunters (2025) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда охотников на демонов — боксёр, экзорцистка и фиксирующий процесс на видео оператор — берётся за новое дело. Их помощь требуется женщине-психиатру, в чью младшую сестру вселился злой дух.Производство: Корея Южная / Bigpunch Entertaiment, Nova Film, Lotte EntertainmentЖанр: ужасы, боевикРежиссер: Лим Дэ-хиАктеры: Ма Дон-сок, Сохён, Ли Дэвид, Кён Су-джин, Чон Джи-со, Чхве Гван-иль, Хан Ги-джун, Ли Да-иль, Сон Ё-сэп, Пак Ок-чхульПеревод: Дублированный (Невафильм)Язык озвучки: Русский, КорейскийСубтитры: Русские (Forced Full), АнглийскиеПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B17B48BD6B40BB9ECF04D9CDFC6E85C2B5E1C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874114   (1071554) от 31.05.2026
-
-Астрал. Школа кошмаров / The Tutor (2025) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы получить хорошие оценки на экзамене, школьники Белл, Гот и Пай решаются провести древний ритуал, но случайно пробуждает злого духа. Темные коридоры превращаются в смертельную ловушку, и теперь за ошибки учеников ждет жестокая расправа.Производство: Таиланд / Very Great CompanyЖанр: ужасыРежиссер: Бхандит ТхонгдиАктеры: Ничакун Хайорнборирак, Сорнрам Анеклап, Рата Фонгам, Срунгсуда Лаванпрасерт, Александра Арида Мате, Паринья Ангсанан, Тайгер Танават Худчалилаха, Интач Курамасуван, Чинь Ту ТрунгПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: русские (forced hardsub)Продолжительность: 01:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71104659BD6488F7159CA808B9B3E1640184EAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874028   (1071551) от 31.05.2026
-
-Омукадэ / Omukade (2025) WEBRip [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая мировая война, Таиланд. Японские солдаты заставляют военнопленных работать в шахте, но вскоре под землёй начинают происходить странные события. Рабочие бесследно исчезают один за другим, и все начинают понимать, что в темноте обитает нечто зловещее.
-Когда в шахте происходит обвал, солдаты и пленные оказываются отрезаны от внешнего мира. Чтобы выжить и пережить (   Читать дальше...   )Производство: ТайландЖанр: ужасы, военныйРежиссер: Чалит Крилеадмонгкон, Пакпхум ВонгйиндаАктеры: Ясака Чайсорн, Даунг, Нариля Гулмонгколпеч, Джеймс Лэвер, Хидэки Нагаяма, Рёта Оми, Оак Кирати, Со ТакэиПеревод: Одноголосый любительский (datynet)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E688FA0EDA05401718A78D0EACB3825041367B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874153   (1071550) от 31.05.2026
-
-Уиджа. Шепоты мертвых / Mary Cherry Chua (2023) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поклонницы страшных историй Карен и Эшли узнают, что в их колледже когда-то погибла ученица по имени Мэри Черри Чуа. Говорят, что с тех пор неупокоенный призрак Мэри бродит по классам и пугает учеников. Карен и Эшли начинают свое расследование. Чем больше девушки погружаются в разгадку убийства Мэри, тем быстрее начинают понимать, что школа совсем не настроена раскрывать (   Читать дальше...   )Производство: Филиппины /  Studio Viva, Viva FilmsЖанр: ужасыРежиссер: Roni BenaidАктеры: Эшли Диас, Хоко Диас, Кокой Де Сантос, Лика Гайранод, Криссна Виадже, Эбби Баутиста, Альма Морено, Элиа Илано, Роландо Иносенсио, Миго ВалидПеревод: Дублированный (КиноПоиск HD)Язык озвучки: РусскийСубтитры: Русские (вшитые, на надписи)Продолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7111C00A635389FDDE0979D4E52DFE64BB7923F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872384   (1070475) от 22.05.2026
-
-Метод исключения / Eojjeolsugaeopda / No Other Choice (2025) UHD BDRemux [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверть века проработав в бумажной промышленности, Ю Ман-су стал высококлассным специалистом. Он выкупил и отремонтировал принадлежавший отцу загородный дом и считает себя счастливым семьянином и состоявшимся человеком, поэтому сильным шоком для мужчины становится внезапное увольнение. Из-за кризиса в отрасли так и не найдя работу по специальности, через несколько (   Читать дальше...   )Производство: Южная Корея, Франция / CJ ENM Co., CJ Entertainment, Moho FilmЖанр: триллер, комедия, драма, криминалРежиссер: Пак Чхан-укАктеры: Ли Бён-хон, Сон Е-джин, Ли Сон-мин, Ём Хе-ран, Чха Сын-вон, Пак Хи-сун, Ким У-сын, Чхве Со-юль, О Даль-су, Ли Сок-хён, Ли Ён-нё, О Гван-нок, Ю Ён-сок, Нам Джин-бокПеревод: Дублированный (Lucky Production)Язык озвучки: Русский, КорейскийСубтитры: Русские (Forced, Full), Корейские (Forced, Full, SDH), Английские (Full, SDH)Продолжительность: 02:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B6CFF22D878DB081DA06A381F310B228182DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871778   (1069941) от 18.05.2026
-
-Проклятье 3D / Sadako 3D (2012) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В школе для девочек ходят слухи, что в интернете есть проклятый файл, в котором запечатлено самоубийство. Все, кто увидят это видео, убивают себя. Поначалу учительница не верит слухам, но когда одна из учениц кончает с собой, женщина решает разобраться. Отыскав в Интернете злополучный файл, она едва не погибает вместе со своим бойфрендом. Ей удается узнать, что файл (   Читать дальше...   )Производство: Япония / Kadokawa Pictures, Kansai Telecasting (KTV), Shizuoka Telecasting, Tohokushinsha Film Corporation, Tokai Television Broadcast CompanyЖанр: ужасы, триллерРежиссер: Цутому ХанабусаАктеры: Сатоми Исихара, Кодзи Сэто, Аи Хасимото, Цутому Такахаси, Сёта Сомэтани, Хикари Такара, Юсукэ Ямамото, Рёусэи Таяма, Ёко Кита, Юна ТаираПеревод: дублированный официальный (SoulPro)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25E5276736FCDB6AA0477ECACF3094330B71FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

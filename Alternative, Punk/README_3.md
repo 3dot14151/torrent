@@ -1,3 +1,32 @@
+###  Публикация: 979956   (957424) от 28.01.2016
+
+The Casualties - Under Attack (2006) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Under Attack
+02 - Without Warning
+03 - System Failed Us... Again
+04 - Social Outcast(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9968205414AA0E2635A2D8742DD6BAC93E5F2C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979947   (957420) от 28.01.2016
 
 The Casualties - We Are All We Have (2009) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
@@ -6,7 +35,7 @@ The Casualties - We Are All We Have (2009) [MP3|320 кб/с] <Rock, Punk, Punk R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957420.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Casualties -  For the Punx (1997) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957415.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Casualties - Die Hards (2001) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957402.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Casualties - Chaos Sound (2016) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957336.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Linkin Park - Underground 15 (2015) [MP3|320 кб/с] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957098.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Casualties - En La Linea Del Frente (2005) [MP3|320 кб/с] <Rock, Punk, Pu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956229.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Heymoonshaker - Noir (2015) [MP3|320 кб/с] <Alternative, Beatbox Blues, Acous
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956169.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Forever Still - Tied Down (2016) [MP3|320 кб/с] <Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956105.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Savages - Adore Life (2016) [MP3|320 кб/с] <Garage, Alternative Rock, Indie R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954591.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Rise Of The Northstar - Дискография  (2009 - 2018) 4 CD [MP3|320 Kbps
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954179.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ WaterColour Matchbox - Fragments, Artefacts & Ruins (2016) [MP3|320 Kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951936.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Saving Abel - Bringing Down The Giant (2012) Best Buy Exclusive Edition [MP3|320
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950076.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Blue Rising - Ghosts and Monsters (2017) [MP3|320 Kbps] <Alternative Rock, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949172.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Solice - Genesis (2017) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949078.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Dropkick Murphys - 11 Short Stories Of Pain & Glory (2017) [MP3|320 Kbps] <Folk 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948925.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [MP3|320 к
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948281.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Stone Broken - All In Time (2016) [MP3|320 кб/с] <Alternative Rock, Post Grun
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945478.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944707.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Gorillaz - Song Machine Episode 2 (2020) Single [MP3|320 Kbps] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940851.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Gorillaz - Gorillaz (2001) Collector's Edition, 2016 [MP3|320 кб/с] <Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939788.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Mono Inc. - Together Till The End (2017) [MP3|320 Kbps] <Gothic Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938633.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Iggy Pop - Post Pop Depression (2016) [MP3|320 кб/с] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935403.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Lacey Sturm (ex Flyleaf) - Life Screams (2016) [MP3|320 кб/с] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933940.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Saviour - Let Me Leave (2017) [MP3|320 Kbps] <Melodic Hardcore, Post-Hardcore, M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932430.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Code Orange - Forever (2017) [MP3|320 Kbps] <Hardcore Punk, Chaotic Hardcore, Sl
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932375.jpg" />
 </div>
 
 
@@ -712,32 +741,6 @@ Code Orange - Forever (2017) [MP3|320 Kbps] <Hardcore Punk, Chaotic Hardcore, Sl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA8ABA0D965F59B8C8F80499BF5921F18E5F52E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987498   (926024) от 17.02.2016
-
-VA - A Tribute To Rancid: Hooligans United (2015) 2CD [MP3|320 кб/с]<Punk, Hardcore Punk, Skate & Street Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926024.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении более 20 последних лет Rancid является одной из главных движущих сил панк-рока во всем мире. Сформировавшись в Беркли, Калифорния в 1991 году, они довольно быстро завоевали славу благодаря своим удивительным концертам, новаторским альбомам и непрекращающимся гастролям, на которых они всегда выкладывались на полную. Не будет преувеличением сказать, что (   Читать дальше...   )Жанр: Punk, Hardcore Punk, Skate & Street PunkПродолжительность: 02:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A64E2C8321B757502F8D4D203D7060E082C3DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

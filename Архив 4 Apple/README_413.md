@@ -1,3 +1,60 @@
+###  Публикация: 1327453   (373987) от 25.09.2019
+
+Adobe Illustrator CC 2019 v23.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Illustrator CC – это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях – цифровой графики, иллюстраций и печати – при разработке любых видов мультимедийных ресурсов: печатных материалов, интернет-содержимого, интерактивных средств, видеороликов и мобильных приложений.
+
+Представляем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9B87A947120819937138A26ED076F7ACE58E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069478   (373982) от 04.11.2016
+
+SnapNDrag Pro 4.1.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373982.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapNDrag - органайзер, нарезка скриншотов, редактирование, шаринг.
+SnapNDrag - Небольшая утилита для создания скриншотов. SnapNDrag позволяет делать снимок экрана всего одним нажатием кнопки, и сразу перетащить готовый результат в другое приложение для дальнейшей работы с ним.
+
+SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если на первом месте стоит качество, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2016Разработчик: Yellow Mug SoftwarПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2E7F221F67B37C97AF193EE1F6030A25BE9D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415880   (373910) от 13.10.2020
 
 PDF Expert 2.5.12 [Multi/Ru]
@@ -6,7 +63,7 @@ PDF Expert 2.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373910.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Contacts Journal CRM 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373868.jpg" />
 </div>
 
 
@@ -63,7 +120,7 @@ iMazing 2.12.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373784.jpg" />
 </div>
 
 
@@ -90,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373765.jpg" />
 </div>
 
 
@@ -116,7 +173,7 @@ Be Focused Pro (aka Pomodoro Time Pro) 1.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373764.jpg" />
 </div>
 
 
@@ -144,7 +201,7 @@ Waltr 2 v2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373675.jpg" />
 </div>
 
 
@@ -171,7 +228,7 @@ Magic Retouch Pro 4.2 - panel for Adobe Photoshop [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373581.jpg" />
 </div>
 
 
@@ -199,7 +256,7 @@ Moom 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373559.jpg" />
 </div>
 
 
@@ -226,7 +283,7 @@ iStat Menus 6 v6.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373521.jpg" />
 </div>
 
 
@@ -253,7 +310,7 @@ Data Guardian 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373327.jpg" />
 </div>
 
 
@@ -279,7 +336,7 @@ Killswitch Engage - Studio Albums (2000 - 2009) [ALAC|Lossless]<Metalcore>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372942.jpg" />
 </div>
 
 
@@ -314,7 +371,7 @@ Audiobook Builder 1.5.4fc3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372728.jpg" />
 </div>
 
 
@@ -342,7 +399,7 @@ Synalyze It! Pro 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372591.jpg" />
 </div>
 
 
@@ -371,7 +428,7 @@ JixiPix Chromatic Edges 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372569.jpg" />
 </div>
 
 
@@ -398,7 +455,7 @@ VMware Fusion 5.0.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372475.jpg" />
 </div>
 
 
@@ -425,7 +482,7 @@ Little Snitch 3.0 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_372350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372350.jpg" />
 </div>
 
 
@@ -453,7 +510,7 @@ ABBYY Lingvo Dictionary для Mac 1.9.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372321.jpg" />
 </div>
 
 
@@ -482,7 +539,7 @@ A Better Finder Attributes 6 v6.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372295.jpg" />
 </div>
 
 
@@ -508,7 +565,7 @@ PullTube 0.10.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372292.jpg" />
 </div>
 
 
@@ -537,7 +594,7 @@ MediaHuman YouTube Downloader 3.9.8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372175.jpg" />
 </div>
 
 
@@ -566,7 +623,7 @@ AudioFinder 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372139.jpg" />
 </div>
 
 
@@ -593,7 +650,7 @@ Iridient Developer 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372034.jpg" />
 </div>
 
 
@@ -620,7 +677,7 @@ MP3 Gain 4 v4.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372004.jpg" />
 </div>
 
 
@@ -646,7 +703,7 @@ Blocs 3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372003.jpg" />
 </div>
 
 
@@ -659,61 +716,6 @@ Blocs - простой способ создания красивых сайто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A499AC7C24788F8151D28319DAA590B391CD565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415894   (372002) от 14.10.2020
-
-Airy 3.19.305 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airy — YouTube загрузчик
-Если вам очень понравилось видео на YouTube и вы хотели бы, чтобы доступ к нему не зависил от вашего подключения к Интернет - вам поможет Airy. Airy - это YouTube загрузчик для Mac номер один, который с легкостью сохранит любое YouTube видео прямо на ваш компьютер. Полностью поддерживает Sierra.
-
-Простой и аккуратный Mac YouTube загрузчик (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB31B69F7742485FDE5BD82724E1BF6686F5C96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327587   (371983) от 26.09.2019
-
-Adobe Audition CC 2019 v12.1.4[Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9AB4CCB70833838E63C7B7B618DE7E404B4329
 ```
 
 https://mybot314.ru/tekegram_catalog/

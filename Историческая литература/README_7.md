@@ -1,3 +1,108 @@
+###  Публикация: 1456936   (1024744) от 24.03.2021
+
+Ренато де Антига | Венеция. Гавань Святых (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга профессора университета Падуи Ренато де Антига представляет собой уникальный труд об истории святых реликвий, или мощей, восточных святых первых веков христианства, сохранившихся в Венеции. Под одной обложкой публикуется перевод его книг «Венеция. Гавань святых» и «Путеводитель во византийской Венеции», которые, дополняя друг друга, позволяют создать наиболее (   Читать дальше...   )Жанр: Общая история, ХристианствоПеревод: О.Э. ЦырлинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A760D2BF9030FD647595F1CF038DFDB6FBC71582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456934   (1024736) от 24.03.2021
+
+Александр Занемонец | Византийский букварь. Введение в историю Византии (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024736.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Византийский букварь» – это краткое введение в историю Византийской империи от ее возникновения в IV в. до ее падения в XV в. В книге рассматривается формирование Византии как преемницы Римской империи, хранящей и развивающей традиции ее государственности, в условиях – в первую очередь – греческоязычной культуры и христианской веры. Существуя более тысячи лет, византийское (   Читать дальше...   )Жанр: История Средних веков, Общая историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42DB1474E0D81FF9EF652622923CC815BB0C9C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457308   (1024601) от 25.03.2021
+
+Сергей Нечаев | Альтернативная история Жанны д’Арк (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно, но вот уже почти шесть столетий не утихают споры вокруг национальной героини Франции. Дело в том, что в ее судьбе все далеко не так однозначно, как написано в сотнях похожих друг на друга как две капли воды «канонических» биографий.
+Прежде всего, оспаривается крестьянское происхождение Жанны д’Арк и утверждается, что она принадлежала к королевской династии, (   Читать дальше...   )Жанр: Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9804CCC9AC6181455DB1FFB21091BDBDD584858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457316   (1024595) от 25.03.2021
+
+Сергей Нечаев | Жизнь и приключения русского Джеймса Бонда (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой новой книги С. Нечаева вряд ли известен широкому кругу читателей, да и в учебниках истории о нем если и упоминается, то вскользь, а энциклопедические издания, особенно советской эпохи, и вовсе называют его «одним из главных виновников поражения русской армии в Крымской войне». Но между тем граф Александр Иванович Чернышев – военно-дипломатический агент русской (   Читать дальше...   )Жанр: Биографии и мемуары, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEFA1C8DBDA38DE3803D074FA1890F77AD76B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463161   (1024362) от 26.03.2021
 
 Алексадръ Гацискiй | Нижегородскiй летописецъ (1886) [PDF]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024362.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024018.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024009.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023811.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023678.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023275.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023054.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022560.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022057.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021516.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020246.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019126.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019092.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018060.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016396.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014355.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014196.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013663.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013658.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013359.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011582.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011445.jpg" />
 </div>
 
 
@@ -575,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C9605FBF8E583562E2964B1D81630830BD35D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477847   (1010770) от 16.06.2021
-
-Сергей Глезеров | Предатели в русской истории. 1000 лет коварства, ренегатства, хитрости, дезертирства, клятвопреступлений и государственных измен… (2021) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предательство страшно тем, что от него невозможно уберечься: оно исходит от самых близких людей, которых мы любим и которым мы доверяем. Недаром Данте в «Божественной комедии» поместил предателей в самый страшный круг ада… У предательства как исторического явления – невероятная гамма форм и оттенков. Что считать предательством, можно ли его оправдать или понять? (   Читать дальше...   )Жанр: Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7689577FC4AD3B1DA1CFCF04943E931D93B10F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478089   (1010645) от 17.06.2021
-
-Борис Соколов | Рейх. История германской империи (2021) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германская империя существовала с 1871 по 1945 г., хотя она и восходит к империи Карла Великого и Священной Римской империи. Созданная волей «железного канцлера» Бисмарка, она объединила разрозненные немецкие земли в сильное государство, которое разбило Францию, захватило ряд колоний. В дальнейшем Третий рейх под руководством Гитлера cмог подчинить себе почти всю (   Читать дальше...   )Жанр: Общая историяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D074C9C12A42B93AE08B197C1EE4AE4FC9AD46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481096   (1008564) от 01.07.2021
-
-Кэтрин Грей | Германия. Полная история страны (2021) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германия. Страна под этим названием появилась не так давно. Сто пятьдесят лет назад. До этого германские княжества, объединённые общим языком и культурой, заключали союзы, воевали, ссорились и мирились. Их правители перекраивали карту Европы и решали судьбы мира. История германского народа богата на события. В ней есть как величайшие взлеты, невероятные достижения, (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B098710853482A0E25AF97ACA5F1C21248E0388A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481469   (1008258) от 03.07.2021
-
-Том Биркетт | Скандинавские мифы и легенды. Жизнеописания богов и героев с иллюстрациями и подробными комментариями (2021) [FB2, EPUB, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скандинавские мифы – яркий пример живой мифологии: истории обрастают новыми сюжетными поворотами, образами и деталями и адаптируются с течением времени, сохраняясь в различных вариантах. Эти поэтические и прозаические произведения, первоначально бытовавшие в устной традиции, наполнены множеством аллюзий и чрезвычайно сложны для изучения как в оригинальном виде, так (   Читать дальше...   )Жанр: Мифы / легенды / эпосПеревод: Владислав ФедюшинФормат: FB2, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730258B37EC8FFCC391C389EDB2D5DFF39EC2F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

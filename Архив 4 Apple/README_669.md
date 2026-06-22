@@ -1,3 +1,56 @@
+###  Публикация: 1694347   (121084) от 24.01.2024
+
+doubleTake 2.6.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121084.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но какие мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Echo OneПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C930A17A3A5130B68911B72FD68BFF125FEBBEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694414   (120994) от 25.01.2024
+
+Pixelmator Pro 3.5.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2017-2024 Pixelmator TeamПоддерживаемая ОС: macOS 11.0Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D796C6DBA1BCA950FD4E979286AEB4B2645E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694418   (120973) от 25.01.2024
 
 TechTool Pro 18 v.18.1.3 [Multi]
@@ -6,7 +59,7 @@ TechTool Pro 18 v.18.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120973.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Easy Data Transform for Mac 1.46.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120966.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Lifespan 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120961.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Final Draft 13 v.13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120957.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120953.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ GarageSale 9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120943.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Keep It 2.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120940.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Musify for Mac 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120927.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ JetBrains DataGrip for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120864.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Wondershare PDFelement Pro OCR 10.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120819.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Ableton Live Suite 11 v.11.3.21 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120812.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ OmniGraffle Pro 7.22.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120803.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Tower Pro 10 v.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120801.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ Text Workflow 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120782.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ uDock 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120778.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ Fork 2.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120776.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ Notebooks – Write and Organize 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120762.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ Adobe Premiere Pro 2024 for Mac v.24.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120758.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120625.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120616.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ iA Writer 7.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120606.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ PDF Expert 3.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120501.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ AirMail Pro 5 v.5.6.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120450.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ Navicat for SQL Server on Mac 16.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120418.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ Navicat для SQL Server предоставляет вам полностью �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6897DE7AE95D7CEAF91F9E35161A672A27EDFF9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695298   (120413) от 28.01.2024
-
-Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для MongoDB предоставляет вам высокоэффективный графический интерфейс для управления, администрирования и разработки баз данных MongoDB. Подключайтесь к локальным/удаленным серверам MongoDB и совместим с MongoDB Atlas. Navicat для MongoDB предлагает замечательные функции для управления, мониторинга, запроса и визуализации ваших данных. Вы можете легко повысить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09426E03CD4EC641E92B791CDE5AE3C238EE6071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695296   (120407) от 28.01.2024
-
-Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для PostgreSQL — это мощный, но простой в использовании графический интерфейс PostgreSQL, предоставляющий обширные функциональные возможности для управления базой данных PostgreSQL и ее разработки. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7767B8161385AED810F423767792AB4C31362C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

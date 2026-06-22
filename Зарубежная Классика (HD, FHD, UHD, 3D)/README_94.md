@@ -1,3 +1,56 @@
+###  Публикация: 485983   (90462) от 24.04.2012
+
+Маленький магазинчик ужасов / The Little Shop of Horrors (1960) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Служащий цветочной лавочки встретил японца, который подарил ему диковинный цветок. Парень холил и лелеял его, пока однажды растение не заговорило с ним человеческим голосом! Цветок потребовал еды, да не простой еды, а свежей человеческой плоти! Скоро этот монстр вырос до невообразимых размеров и стал пожирать случайных посетителей!Жанр: Комедия, ужасыРежиссер: Роджер КорманАктеры: Джонатан Хэйз, Джеки Джозеф, Мэл Уэллс, Дик Миллер, Мертл Вэйл, Карин Купчинет, Тоби Майклс, Леола Вендорфф, Линн Стори, Уолли Кампо, Джек НиколсонПеревод: Многоголосый закадровыйПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12A327C6477A740C2DCD52099528B81499E94BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483471   (89494) от 19.04.2012
+
+Ромео и Джульетта / Romeo and Juliet (1968) HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепная, классическая экранизация одноименной трагедии Шекспира.
+Чудесная музыка Нино Рота.Жанр: ДрамаРежиссер: Франко ДзеффиреллиАктеры: Леонард Уайтинг, Оливия Хасси, Джон МакЭнери, Майло О'Ши, Пэт Хейвуд, Роберт Стивенс, Майкл Йорк, Брюс Робинсон, Пол Хардуик, Наташа Парри, Антонио Пьерфедеричи, Эсмеральда Русполи, Роберто Бисакко, Рой Холдер, Кит Скиннер, Дайсон Ловелл, Ричард Уорвик, Роберто Антонелли, Карло Палмуччи.Перевод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D401CF4B646561474550763FF58C570ADA698FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483185   (88684) от 15.04.2012
 
 Побег из Шоушенка / The Shawshank Redemption (1994) [1080p] BDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88684.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88670.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88622.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88179.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87893.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87362.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87325.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86796.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86324.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86011.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85164.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85053.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84997.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84758.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84611.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84541.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84540.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84481.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83973.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83774.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83520.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83331.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83079.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82285.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E40819FD339604A321351B8011F990F72EAAACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467227   (82245) от 15.03.2012
-
-Поймать вора / To Catch a Thief (1955) [1080p] Blu-ray
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Роби, был некогда непревзойдённым профессиональным вором, известным под кличкой «Кот». «Коту» повезло: он сумел вовремя «завязать» и красиво уйти. Скопив капиталец, Роби отправился «на пенсию» и элегантно прожигал жизнь на французской Ривьере.Но изысканной и спокойной жизни экс-преступника приходит конец после того, как кто-то начинает грабить богатеев, точь-в-точь в его стиле Роби. Так как подозрения резонным образом падают на Джона, то он решает во что бы то ни стало найти своего имитатора!Жанр: триллер, мелодрама, криминал, детективРежиссер: Альфред ХичкокАктеры: Кэри Грант, Грэйс Келли, Джесси Ройс Лэндис, Джон Уильямс, Шарль Ванель, Брижитт Обер, Жан Мартинелли, Жоржетт Анис, Джордж Адриан, Джон АлдерсонПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйПродолжительность: 01:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30D625FA57BF4DA13FDFAAAD9BE8D41A752CCD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466695   (81721) от 12.03.2012
-
-Красотка / Pretty Woman (1990) [H.264/720p-LQ] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: мелодрама, комедияАктеры: Джулия Робертс, Ричард Гир, Ральф Беллами, Джейсон Александр, Лора Сан Джакомо, Эктор ЭлисондоПеревод: Дублированный + одноголосый, закадровый (Субтитры: Русские, АнглийскиеПродолжительность: 01:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A463944B058E4E7814A2024ACFE3FCC362AA4328
 ```
 
 https://mybot314.ru/tekegram_catalog/

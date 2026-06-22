@@ -1,3 +1,112 @@
+###  Публикация: 1077081   (308729) от 27.11.2016
+
+Танцы (2016.11.26) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 18)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308729.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71865A7DBA18B3B15F6D271D0D167D8337461E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076645   (308718) от 27.11.2016
+
+Детский конкурс песни Евровидение 2016 / Junior Eurovision Song Contest 2016 (2016) HDTVRip [H.264/1080i] [EN]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детское Евровидение 2016 - 14-й по счету ежегодный конкурс юных вокалистов, который впервые прошел в 2003 году. Место проведения конкурса «Детское Евровидение 2016» †столица Мальты Валлетта, которая уже второй раз принимает конкурс. Впервые конкурс проходил здесь в 2014 году. На участие в конкурсе в 2016 году подтвердили свои заявки 17 стран. Конкурс песни «Детское (   Читать дальше...   )Телекомпания: PBSЖанр: ТелепередачаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F17C94756B66FC857EF81F5ABD2A2A381CC656A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422515   (308684) от 09.11.2020
+
+Ты супер! (08.11.2020) WEBRip [H.264/1080p-LQ] (сезон 4, выпуск 8)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308684.jpg" />
+</div>
+
+
+###  Подробнее
+
+На НТВ стартовал четвертый сезон международного вокального конкурса «Ты супер!» для детей, оставшихся без попечения родителей. Талантливые ребята со сложной судьбой выходят на большую сцену, чтобы проявить себя и заявить о себе на весь мир.
+Все участники проекта «Ты супер!» — уникальные, талантливые, яркие, красивые — настоящие маленькие звездочки, чьи истории трогают (   Читать дальше...   )00:00:00 «Ты супер!». Четвертый сезон. Третий полуфинал
+00:08:28 «Самая лучшая» — Арина Машарова, 11 лет, Удмуртия
+00:19:03 «Опера №2» — Антон Пирогов, 13 лет, г. Москва
+00:22:24 Участники прошлых сезонов «Ты супер!» Евгений Бойцов и Настя Субботина пришли поддержать Антона из Москвы(   Читать дальше...   )Производство: Россия | «НТВ»Жанр: Тв шоу, музыкаСубтитры: ОтсутствуютПродолжительность: 01:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE8EFF5DDDEE362F2013262986162917DBA9CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960565   (307831) от 28.11.2015
+
+Главная сцена. Сезон 2. Выпуск 10 (2015.11.28) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307831.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Главная сцена" – это крупнейшая музыкальная академия, цель которой – поиск современных талантливых артистов, способных стать новыми звездами российской эстрады.
+В новом сезоне задача для конкурсантов усложняется: участники проекта будут исполнять песни только на русском языке, с первого выхода они должны доказать, что готовы стать настоящей звездой российской (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97397EDA4FF20A1D6DF0DA7B2468532D051942C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333132   (307326) от 23.10.2019
 
 Щас спою (2019) HDTV [H.264/1080i] (сезон 1, выпуски 1-3 из ?) [обновляемая]
@@ -6,7 +115,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307326.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307234.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307105.jpg" />
 </div>
 
 
@@ -84,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305557.jpg" />
 </div>
 
 
@@ -110,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305293.jpg" />
 </div>
 
 
@@ -139,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305145.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303112.jpg" />
 </div>
 
 
@@ -191,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301168.jpg" />
 </div>
 
 
@@ -217,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301100.jpg" />
 </div>
 
 
@@ -243,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301072.jpg" />
 </div>
 
 
@@ -269,7 +378,7 @@ The Victoria's Secret Fashion Show (2012) HDTVRip [H.264/720p-LQ]
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300390.jpg" />
 </div>
 
 
@@ -295,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298572.jpg" />
 </div>
 
 
@@ -321,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298571.jpg" />
 </div>
 
 
@@ -347,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297800.jpg" />
 </div>
 
 
@@ -373,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297442.jpg" />
 </div>
 
 
@@ -399,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297431.jpg" />
 </div>
 
 
@@ -425,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297341.jpg" />
 </div>
 
 
@@ -451,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297303.jpg" />
 </div>
 
 
@@ -477,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297135.jpg" />
 </div>
 
 
@@ -503,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297134.jpg" />
 </div>
 
 
@@ -529,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295983.jpg" />
 </div>
 
 
@@ -555,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295895.jpg" />
 </div>
 
 
@@ -566,111 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19371ECB0A786A9A6376508FE313F767539B16E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079199   (295877) от 03.12.2016
-
-Голос. Специальный выпуск  (2016.12.03) SATRip (сезон 5, выпуск 14)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295877.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0658F651AB72B088D2A057B2D78030578F1640C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079313   (295465) от 03.12.2016
-
-Танцы (2016.12.03) SATRip (сезон 3, выпуск 19)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295465.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EABC43B818BB758CFC3E7CCA9CABA7C8FA3F52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079662   (294152) от 04.12.2016
-
-Точь-в-точь. Суперсезон (2016.12.04) SATRip (сезон 4, выпуск 10)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сезон одного из самых популярных в стране музыкально развлекательных телепроектов порадует поклонников невероятными сценическими перевоплощениями и самыми известными хитами! В этот раз за звание победителя поспорят те, кому однажды уже приходилось подниматься на сцену «Точь в Точь».
-Новый сезон «Точь в Точь», пожалуй, самый разноплановый – участники проекта (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AB1F87F0706D702C49FE94F5B745F1270EFDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079548   (294017) от 04.12.2016
-
-Танцы (2016.12.03) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 19)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294017.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DE7CBD30445A69F0CFE4BC7DC62E125AE9A631
 ```
 
 https://mybot314.ru/tekegram_catalog/

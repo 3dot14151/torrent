@@ -6,7 +6,7 @@ CG Fast Track | Основы анимации в Blender 2.82 / Blender Animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162741.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, 3D Tudor | Blender Beginner’s Bootcamp (2023) WEB-DL [AD] [EN, RU / EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162690.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162638.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Gumroad, Duard Mostert | AAA Game Assets with Fusion 360 Tutorial (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162488.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ XYZ School, Женя Пак | Hard Surface (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162477.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create the military Black Hornet d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162260.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Kalachevaschool, Виктория Акулова | Эмоциональная а
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162135.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Schoolism, Thomas Fluharty | Oil Painting (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162074.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ KkartSchool, Карина Кино | Создание книги (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162055.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Schoolism, Jonathan Hardesty | Essentials of Realism (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162044.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Schoolism, Jason Seiler | Realistic Portraits (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162037.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Schoolism, Djamila Knopf | Story-Driven Illustrations (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162030.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ New Masters Academy, Glenn Vilppu | Многофигурная композиц�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161964.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161956.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Schoolism, Craig Mullins | Painting Sci-Fi from Start to Finish (2020) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161950.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Learn Squared, Pablo Dominguez | Vehicle Concept Art (2020) PCRec [EN, ES]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161899.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Cubebrush, Marc Brunet | ULTIMATE Guide Drawing The Human Anatomy (2019) WEB-DLR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161800.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161750.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Study Kvo, Саня Кво | Марафон по UX UI дизайну мобил
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161747.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Yiihuu, Wingfox, Ji Yu | Creating a AAA Character from Scratch: A Nameless Samur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161658.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Skillbox, BangBang, Tagline, Илья Митрошин и др. | Скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161526.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Skillbox, Роман Цыганов и др. | Профессия 3D-джене�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161508.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161414.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161406.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Enterclass, Елена Куракина | Розы акрилом (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161252.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ ZartSchool, Павел Зубов, Татьяна Зубова | Море на �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161213.jpg" />
 </div>
 
 

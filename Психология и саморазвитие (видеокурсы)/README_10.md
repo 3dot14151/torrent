@@ -1,3 +1,83 @@
+###  Публикация: 1637176   (197559) от 02.06.2023
+
+Apeiron, Алексей Арестович | Семинар «Искусство задавать вопросы» (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если человека выжать, как лимон, то в сухом остатке из всех его возможностей и способностей останется только способность задавать вопросы. Вопрос - это единственное, что остаётся между человеком и миром, когда всё остальное исчезает. Вопрос - это единственная дорога к себе. Чтобы понять, почему и как Вы живёте, просто посчитайте количество вопросов, которые Вы задаёте (   Читать дальше...   )Производство: ApeironЖанр: психология, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 03:02:52Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F772AAA285F74B9A85EE5101E8B17F6E0389297A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637481   (197552) от 04.06.2023
+
+Высшая школа НЛП, Юрий Чекчурин и др. | Инструменты практической психотерапии (2023) CamRip [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный практический формат. Минимум теории, только практические инструменты для психотерапевтов, психологов, коучей и консультантов.
+Для профессионалов – знакомство с новыми методами и навыками (психиатрия, развивающиеся методы психотерапии), профессиональная поддержка (супервизия, интервизия), сообщество коллег.
+Для осваивающих профессию психологов-консультантов (   Читать дальше...   )Производство: Высшая школа НЛПЖанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 03:59:34Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3563B77A87DB7C1C1B4249429E02F7556DEECF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637925   (197383) от 06.06.2023
+
+Apeiron, Алексей Арестович | Семинар «Сила намерения» (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197383.jpg" />
+</div>
+
+
+###  Подробнее
+
+На семинаре мы будем изучать силу, которая позволяет избежать влияния Большого Социума, провести линию внутренней жизни от первичных желаний до постановки цели. Внутренняя культура человека начинается со способности различать в себе различные органические импульсы и сортировать их по происхождению. Именно понимание своих потребностей и желаний даёт стойкое намерение (   Читать дальше...   )Производство: ApeironЖанр: психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 03:46:41Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E4ED524388AC5A072AF28D8C8AA4A393F86C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638790   (197201) от 10.06.2023
 
 Apeiron, Алексей Арестович | Семинар «Безжалостность» (2022) WEB-DL [AD] [RU]
@@ -6,7 +86,7 @@ Apeiron, Алексей Арестович | Семинар «Безжалост
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197201.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197012.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ Apeiron, Алексей Арестович | Семинар «Картина м�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196941.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196610.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196608.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196469.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196365.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196341.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196327.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196044.jpg" />
 </div>
 
 
@@ -278,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195900.jpg" />
 </div>
 
 
@@ -304,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195504.jpg" />
 </div>
 
 
@@ -330,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194153.jpg" />
 </div>
 
 
@@ -357,7 +437,7 @@ IndigoGo, Денис Швец | Онлайн-курс по развитию ва
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194049.jpg" />
 </div>
 
 
@@ -385,7 +465,7 @@ Proprofiling, Алексей Филатов | Энциклопедия мани�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191377.jpg" />
 </div>
 
 
@@ -414,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186708.jpg" />
 </div>
 
 
@@ -440,7 +520,7 @@ Udemy, Brad Merrill | Modern Productivity — Superhuman Focus In A Distracted W
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186195.jpg" />
 </div>
 
 
@@ -467,7 +547,7 @@ Udemy, Максим Дорофеев | Джедайские техники (а �
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178674.jpg" />
 </div>
 
 
@@ -495,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177287.jpg" />
 </div>
 
 
@@ -523,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_175621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_175621.jpg" />
 </div>
 
 
@@ -552,7 +632,7 @@ Skillbox, Наталья Кисельникова | Кто я и чего хоч
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_174934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_174934.jpg" />
 </div>
 
 
@@ -581,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_173605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_173605.jpg" />
 </div>
 
 
@@ -608,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173279.jpg" />
 </div>
 
 
@@ -619,85 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF08C3C72E3D778072E4B076BDEC06A0C3975AEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199735   (173099) от 14.10.2023
-
-Игорь Пелинский | Жизнь прекрасна! Или как избавиться от депрессии [2010] DVD [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173099.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 советов опытного психолога! Депрессия - это не просто плохое настроение! Она давит и душит все живое в нашей жизни: нет сил общаться, не хочется ничего делать. Жизнь становится пустой, серой, бессмысленной. Человек уходит в свой мир, причиняя боль не только себе, но и близким. Депрессия может развиваться как реакция на психотравмирующую ситуацию. А может и на (   Читать дальше...   )Жанр: Обучающая видеопрограммаЯзык: RUПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0E82AA1F76789078E3D0DA7A478B17B6E38086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312173   (173083) от 14.10.2023
-
-Игорь Пелинский | От интуиции к ясновидению. Упражнения, тренировки, практики. (2010) DVDRip
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто из нас не мечтал о том, чтобы заглянуть в свое будущее. Попытки познать невидимое и неведомое, снять оковы временных ограничений в получении знаний и информации, человечество предпринимало всегда. Так было в прошлом, так происходит в настоящем и, наверняка, так же все будет в грядущем. Мир называет эти попытки приоткрыть завесу таинственности и прорывы - интуицией. (   Читать дальше...   )Производство: Россия / Sova FilmЖанр: Эзотерика, Магия, ЭкстрасенсорикаРежиссер: Игорь ПелинскийПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FDB4251661DFE3E0B7356AD5190A0F9D7A0477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671087   (171484) от 23.10.2023
-
-Синхронизация, Виталия Вдовенко, Екатерина Осаволюк, Татьяна Крысанова | Психология отношений (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отношениям не учат в школе. Нам не объясняют, как найти своего человека, как отличить любовь от влюблённости, распознать абьюз и газлайтинг. В итоге мы сталкиваемся с проблемами:
-На курсе вы получите базовые знания о психологии и узнаете, что разрушает отношения, а что помогает их строить.Производство: СинхронизацияЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 40:33:00 (включая аудиоформат)Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EFB0EB95F9A0E4BF3AB20C7449105F55185B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

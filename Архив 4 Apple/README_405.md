@@ -1,3 +1,57 @@
+###  Публикация: 1326076   (387557) от 19.09.2019
+
+Translatium 9 v9.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Translatium - мощное приложение для перевода для macOS.Тип издания: macOS SoftwareРелиз состоялся: 16.09.2019Разработчик: Quang LamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337BB40428E25C59986487A25F2C2543CBFDA198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174024   (387535) от 14.10.2017
+
+Tap Forms Organizer 5.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте Tap Forms Organizer для отслеживания вашего инвентаря на работе и управляйте предметами домашнего обихода в домашних условиях. Отлично подходит для страховых и бухгалтерских целей! Это даже отлично подходит для управления списками подарков к праздникам или отслеживания всех ваших расходов и списков дел.
+
+Вы любитель кино, но у вас есть слишком много фильмов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2017Разработчик: Tap Zapp Software Inc.Поддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AE9B4AF294345480948992329E6ABE0C7ADF51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174070   (387525) от 14.10.2017
 
 Sidify Apple Music Converter 1.3.3 [En]
@@ -6,7 +60,7 @@ Sidify Apple Music Converter 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387525.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Elmedia Player Pro 6.13 (1435) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387471.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Twitterrific 5 v5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387449.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ WebToLayers 1.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387447.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Grids for Instagram 5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387445.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ SnapMotion 4.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387443.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ MetaImage 1.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387441.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ RightFont 5 v5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387437.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ Bumpr 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387429.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ ExactScan Pro 19.9.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387427.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ Synalyze It! Pro 1.23.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387425.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ iFinance 4 v 4.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387423.jpg" />
 </div>
 
 
@@ -334,7 +388,7 @@ Postbox 7 v7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387422.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ SQLEditor 3 v3.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387419.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ AnyTrans 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387361.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ KCNcrew Pack 09-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387314.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ Allegorithmic Substance Painter 2019.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387307.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ Movavi PDF Editor 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387302.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ Paintstorm Studio 2.42 (build 170919) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387173.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ SteerMouse 5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387122.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ Movavi Slideshow Maker 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386948.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ CleanMyMac X 4.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386891.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ Coda 2.5.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386864.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ Capture One Pro 7.0 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_386781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386781.jpg" />
 </div>
 
 
@@ -636,59 +690,6 @@ Capture One Pro один из самых мощных профессиональ
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067659   (386487) от 29.10.2016
-
-Waltr 2 v2.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386487.jpg" />
-</div>
-
-
-###  Подробнее
-
-WALTR 2 — революционный способ передачи файлов в любых форматах на iPhone, iPad и iPod
-Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 октября 2016Разработчик: Softorno Inc .Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA601D2047331BC36E4784336FC7C718AE8714E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174643   (385572) от 15.10.2017
-
-QuartzCode 1.62.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385572.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuartzCode — это быстрый, легкий и мощный инструмент, который превращает векторную графику и анимации в код Objective C и Swift. Создание анимаций для вашего iOS или OS X проекта теперь проще некуда. Просто изменяйте любые параметры и смотрите на изменения в реальном времени. Используя QuartzCode вы можете создать любую анимацию за считанные секунды и тут же посмотреть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2017Разработчик: WAN LUTFI WAN MD HATTAПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBE6BB325EAD9C8B785515799C4D706708DDAE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

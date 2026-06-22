@@ -6,7 +6,7 @@ Half-Life HD+ADDONS+MODS [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651870.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650705.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Life Is Strange Anthology [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648270.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647308.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641367.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Angry Birds Seasons 5.2.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641108.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633325.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Angry Birds 5.1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629462.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ World of Goo 1.2.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629212.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629140.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Major GUN v 3.5.6 Mod [Infinite Coins] [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626232.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Call Of ModernWar: Warfare Duty 1.1.1 Mod [Money] [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626084.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Swamp Attack 2.1.2 Mod [Money] [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626074.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619488.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618450.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Lost Bubble 2.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610394.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Sky Force 2014 1.38  [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606440.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Pokemon GO 0.29.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605916.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604030.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601540.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Prince of Persia Classic 2.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595671.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Isoland v2.0.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594940.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Chess Fusion 2.2 [En/Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594412.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Overkill 3 1.3.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592234.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591291.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Wood Block Puzzle v2.7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589698.jpg" />
 </div>
 
 

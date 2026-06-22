@@ -1,3 +1,107 @@
+###  Публикация: 1683068   (129953) от 09.12.2023
+
+Вандализм (2023) WEBRip [VP9/2160p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129953.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вандализм" - это короткометражное кино про граффити.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Никита СычёвАктеры: Илья Грешилов, Галя Голенкова, Иван Кузьмин, Михаил ВинокуровСубтитры: русскиеПродолжительность: 00:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE81B4041DBEAD049E5D4770348F0DD12857F7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525456   (129901) от 20.01.2022
+
+Этерна: Часть первая (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Законный наследник престола в изгнании и сын убитого мятежника — что между ними общего? У каждого своя цель: один мечтает занять трон и вернуть своей семье былую славу, другой — отомстить убийце своего отца, который служит узурпаторам. Юноши вступают в масштабную борьбу за власть и честь, в которой те, что казались друзьями, могут предать, а былые враги — превратиться (   Читать дальше...   )Производство: Россия, Black princeЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Евгений НевскийАктеры: Анар Халилов, Павел Крайнов, Юрий Чурсин, Денис Нурулин, Валентина Ляпина, Сергей Горошко, Сергей Гилев, Вениамин Смехов, Юлия Хлынина, Кирилл ЗайцевПеревод: Не требуется (Русский)Субтитры: Русские (Full)Продолжительность: 01:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4D6F6179805C52555EFA41FCEBA43AC0124544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683255   (129683) от 10.12.2023
+
+Чувства Анны (2023) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна - сотрудница кондитерской фабрики, которая внезапно начинает слышать голоса внеземных цивилизаций. С помощью Анны инопланетяне передают важную для землян информацию.Производство: Россия / ID ProductionЖанр: фантастика, драмаРежиссер: Анна МеликянАктеры: Анна Михалкова, Тимофей Трибунцев, Олег Ягодин, Екатерина Андреева, Екатерина Новокрещенова, Полина Васильева, Мария Бердинских, Елена Фомина, Юлия Полынская, Федор БутинПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 02:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FF1971B444E37513A16A8F157B966731E4D3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525454   (129656) от 20.01.2022
+
+Помнишь (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песня «Помнишь» - заглавная композиция нового одноимённого EP Гарика Сукачёва. Это классический блюз с узнаваемыми гитарными партиями Дмитрия Варшавчика и с лирикой, которая отзовётся в сердце каждого человека и покажется созвучной его собственным переживаниям.Производство: РоссияЖанр: Короткометражный, драма, музыкаРежиссер: Гарик СукачёвАктеры: Александр Ляшенко, Борис Ефремов, Денис БарковскийСубтитры: английские (хардсаб)Продолжительность: 00:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C22E0952E852949B722BE78D95B51EC5662C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525606   (129447) от 21.01.2022
 
 Этерна: Часть первая (2021) WEBRip [H.265/2160p] [4K, HDR10, 10-bit]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129447.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129411.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129080.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129037.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129031.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129026.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128903.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128612.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128343.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128316.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128190.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128073.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127925.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127900.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127885.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127860.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127300.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127147.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127121.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126824.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126798.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126708.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0023DAC3696299E9F961C4BD16370929239A2D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686464   (126566) от 23.12.2023
-
-Кибердеревня. Новый Год (2023) WEBRip [H.264/1080p] (Новогодний спецэпизод)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126566.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 декабря 2099 года по всей Солнечной системе накрывают столы и наряжают киберёлки, а марсианский фермер Николай ждёт к себе в гости с Земли жену и двух дочерей. Но что делать, если из-за аномальной солнечной активности отменяют все межпланетные перелёты? Новый год — праздник семейный, и Николай решает во что бы то ни стало добраться до родных. Помогут ему в этом (   Читать дальше...   )Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Ольга Жевакина, Влада Лукина, Маргарита СилаеваСубтитры: Русские (full, SDH)Продолжительность: 00:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BC9EE28396B46CE7278EAD2DC3456998EB5049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686029   (126558) от 23.12.2023
-
-Баба Мороз и тайна Нового года (2023) WEBRip [H.264/1080p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказывается, у Деда Мороза есть жена, и она исполняет желания взрослых. Но те перестали верить в чудеса, и волшебница превратилась в обычную домохозяйку. Однако в этом году все изменится.Производство: Россия, Красный квадратЖанр: комедия, семейный, приключенияРежиссер: Андрей БогатыревАктеры: Юлия Александрова, Татьяна Орлова, Иван Стебунов, Максим Лагашкин, Полина Айнутдинова, Виктор Бычков, Ольга Сташкевич, Денис Кузнецов, Михаил Богдасаров, Марина ЯковлеваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2371612F8A0DD0045242249CEA863CDC61C7B7AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686436   (126525) от 23.12.2023
-
-Кибердеревня. Новый Год (2023) WEBRip [H.265/2160p] [4K, SDR, 8-bit] (Новогодний спецэпизод)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126525.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 декабря 2099 года по всей Солнечной системе накрывают столы и наряжают киберёлки, а марсианский фермер Николай ждёт к себе в гости с Земли жену и двух дочерей. Но что делать, если из-за аномальной солнечной активности отменяют все межпланетные перелёты? Новый год — праздник семейный, и Николай решает во что бы то ни стало добраться до родных. Помогут ему в этом (   Читать дальше...   )Производство: Россия / Место силы, Плюс СтудияЖанр: Фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Ольга Жевакина, Влада Лукина, Маргарита СилаеваСубтитры: Русские (full, SDH)Продолжительность: 00:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A2E8347DE1142C5F3823C20AD39CDE8415FE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686512   (126524) от 23.12.2023
-
-Кибердеревня. Новый Год (2023) WEBRip [H.265/2160p] [4K, HDR10] (Новогодний спецэпизод)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126524.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 декабря 2099 года по всей Солнечной системе накрывают столы и наряжают киберёлки, а марсианский фермер Николай ждёт к себе в гости с Земли жену и двух дочерей. Но что делать, если из-за аномальной солнечной активности отменяют все межпланетные перелёты? Новый год — праздник семейный, и Николай решает во что бы то ни стало добраться до родных. Помогут ему в этом (   Читать дальше...   )Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Ольга Жевакина, Влада Лукина, Маргарита СилаеваСубтитры: Русские (full, SDH)Продолжительность: 00:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108B5704014F76B58A47C8B09E860CE4F147D4AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

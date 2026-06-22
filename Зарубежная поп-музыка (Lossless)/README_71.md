@@ -1,3 +1,90 @@
+###  Публикация: 1266865   (268425) от 04.12.2018
+
+Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Bring Me to Life
+02 – Flames
+03 – Life Is a Rollercoaster
+04 – Don’t Stop Believin’(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECABDFB9202A43A7B27779A51FB923254332245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267048   (268373) от 04.12.2018
+
+VA - 50 Hits Winter 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kygo & Imagine Dragons - Born to Be Yours
+02. Shawn Mendes - In My Blood
+03. Tiesto, Dzeko, Preme & Post Malone - Jackie Chan
+04. Cecilia Krull & Gavin Moss - My Life Is Going on(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAE301E774F3651A8021980CCCDEA982840B717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339018   (268216) от 17.11.2019
+
+The Christians - Colour (2019) (Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man Don't Cry
+02. I Found Out
+03. Greenbank Drive
+04. All Talk(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B06E06D1AB075DE2FFA0669E0B92E7EC6D6ADB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339057   (268066) от 17.11.2019
 
 VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
@@ -6,7 +93,7 @@ VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268066.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Mariah Carey - The Essential Mariah Carey (2019) 2CD, Compilation [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268052.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Top 40 Latino Caliente (The Ultimate Top 40 Collection) (2019) [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267055.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Dido - Still On My Mind (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265335.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Raf - Numeri (2011) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264708.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Raf - Sono Io (2015) Universal Music [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264707.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Raf - Le Ragioni Del Cuore (2012) Columbia Records [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264705.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ St. Vincent - Masseduction (2017) Japanese Edition [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264473.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - BBC Radio 2: The Piano Room (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264472.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Robbie Williams - Under The Radar Vol. 2 (2017) Deluxe Edition [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264449.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Bananarama - Megarama: The Mixes (2015) 3CD, Compilation [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264377.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Celine Dion - Courage (2019) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264264.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - 100 Greatest 2019 Songs (Best Songs of the Year) (2019) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264242.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Francesca Michielin - 2640 (2018) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Ita
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264012.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Micro együttes - Olasz slágerek – magyarul No.1 (2005) [FLAC|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264010.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Alexandra Savior - Belladonna Of Sadness (2017) [FLAC|Lossless|tracks + .cue] <A
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263855.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Absolute Music 82 (2017) [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, H
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263804.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263775.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263715.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Francesca Michielin - di20are (2016) RCA Records [FLAC|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263613.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Thegiornalisti - LOVE (2018) Carosello Records [FLAC|Lossless|WEB-DL|tracks] <It
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263591.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - 100 Greatest Acoustic & Chill Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263577.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - The Best Disco Album In The World... Ever! (2019) 3CD, Box Set [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263573.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D633368D4ECE2121558CD9534F53F2CE7ACED14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192767   (262759) от 18.12.2017
-
-Bananarama - True Confessions (1986) Reissue, 1988, London Records [FLAC|Lossless|image + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Confessions (5:20)
- 02. Ready Or Not (3:55)
- 03. A Trick Of The Night (4:41)
- 04. Dance With A Stranger (4:32)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EBAFF9DC894844221B3A715B62F648249EF9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341155   (262582) от 27.11.2019
-
-Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks] <Synthpop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Heavy I Fell Through the Earth (Art Mix) (06:08)
-02. Darkseid (ft. 潘PAN) (3:44)
-03. Delete Forever (03:57)
-04. Violence (ft. i_o) (03:40)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476B759E690C53AED5E2372F8E3EA15ECE179B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341526   (262344) от 28.11.2019
-
-Harlem Voices - Singing (1996) [FLAC|Lossless|image + .cue] <Funk / Soul, Gospel, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for love (4:44)
-02. Back for good (4:00)
-03. You've got a friend (4:29)
-04. '74-75 (3:48)(   Читать дальше...   )Жанр: Funk/Soul, Gospel, CoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
 ```
 
 https://mybot314.ru/tekegram_catalog/

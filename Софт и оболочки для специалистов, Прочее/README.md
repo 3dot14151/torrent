@@ -1,4 +1,212 @@
 https://t.me/izofen
+###  Публикация: 1876623   (1073444) от 
+
+Microsoft .Net Packages AIO 09.06.26 RePack by xetrin [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073444.jpg" />
+</div>
+
+
+###  Подробнее
+
+.NET Framework - платформа для разработки, развертывания и запуска Web-сервисов и приложений. Она предоставляет высокопроизводительную, основанную на стандартах, многоязыковую среду, которая позволяет интегрировать существующие приложения с приложениями и сервисами следующего поколения, а также решать задачи развертывания и использования интернет-приложений.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AA33CBA437EE2AB1F0CAEA34878E85BE2415B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876795   (1073323) от 16.06.2026
+
+NVIDIA GeForce Desktop Studio 610.62 WHQL + DCH [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073323.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EF2832EF4DDE6A907878BA8EE794587DDDCCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876798   (1073319) от 16.06.2026
+
+VirtualBox 7.2.10 Build 174163 + Extension Pack [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oracle VM VirtualBox является многофункциональным инструментом для создания изолированных виртуальных машин, предлагает высокую производительность, а также является единственным профессиональным решением, которое находится в свободном доступе с открытым исходным кодом на условиях GNU General Public License (GPL) v.2Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9197CFC3372A96B56D21FE9C1DBF0F76BC340055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876009   (1072981) от 18.06.2026
+
+Microsoft Visual C++ 2026 Redistributable 14.51.36247.0 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable — это набор системных библиотек (runtime components), необходимых для запуска программ и игр, разработанных в среде Microsoft Visual Studio с использованием языков C и C++. Многие современные приложения не содержат этих библиотек в составе установочного пакета и требуют их наличия в системе отдельно.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DCA33EB745AF74334877377EA1F43C0AA90B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876034   (1072967) от 
+
+Microsoft Visual Studio 2022 Enterprise 17.14.34 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода, а затем развертывания приложения. Visual Studio включает компиляторы, средства завершения кода, управление (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433D75D0051330D29CF15B159B22A288B0E45776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876038   (1072965) от 
+
+Microsoft Visual Studio 2026 Enterprise 18.7.0 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDAC2E14BD3669F11AD8A54821FAFAB7ACF3551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876055   (1072956) от 
+
+Microsoft Visual Studio 2026 Professional 18.7.0 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37003BF238F4A1C1B6C61DEC6D65CA75FEF2DD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875997   (1072904) от 
+
+Microsoft  Visual C++ Runtimes AIO v0.105.0 x86-x64 Repack by abbodi1406 [Multi/Ru
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E673A7D9C66FCC1CDE09A332DD3881DEE472D4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875860   (1072832) от 11.06.2026
 
 Microsoft .NET 8.0.28 Runtime [Ru/En]
@@ -7,7 +215,7 @@ Microsoft .NET 8.0.28 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072832.jpg" />
 </div>
 
 
@@ -34,7 +242,7 @@ Microsoft .NET 9.0.17 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072831.jpg" />
 </div>
 
 
@@ -61,7 +269,7 @@ Microsoft .NET 10.0.9 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072830.jpg" />
 </div>
 
 
@@ -88,7 +296,7 @@ Allround Automations Plyxon 2.0.0.910 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072469.jpg" />
 </div>
 
 
@@ -116,7 +324,7 @@ GstarBIM 2027 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072077.jpg" />
 </div>
 
 
@@ -143,7 +351,7 @@ GstarCAD 2027 (build 260429) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072072.jpg" />
 </div>
 
 
@@ -169,7 +377,7 @@ WinToHDD Free / Pro / Enterprise 7.0.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071980.jpg" />
 </div>
 
 
@@ -195,7 +403,7 @@ Ultimaker Cura 5.13 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071952.jpg" />
 </div>
 
 
@@ -221,7 +429,7 @@ RisohEditor 6.0.1 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071883.jpg" />
 </div>
 
 
@@ -250,7 +458,7 @@ MInstAll v.28.05.2026 by KAMOL Lite (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071691.jpg" />
 </div>
 
 
@@ -276,7 +484,7 @@ f.lux 4.141 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071475.jpg" />
 </div>
 
 
@@ -302,7 +510,7 @@ Microsoft Visual Studio 2026 Enterprise 18.6.2 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071428.jpg" />
 </div>
 
 
@@ -328,7 +536,7 @@ Minstall by KAMOL (ISO) v19.05.2026 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071011.jpg" />
 </div>
 
 
@@ -354,7 +562,7 @@ NVIDIA GeForce Desktop Studio 610.47 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070941.jpg" />
 </div>
 
 
@@ -380,7 +588,7 @@ KiCad 10.0.3 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070812.jpg" />
 </div>
 
 
@@ -398,6 +606,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872691   (1070800) от 24.05.2026
+
+Maplesoft Maple 2026.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1070800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система Maple предоставляет пользователям мощные инструменты для решения математических задач любой сложности. В ее арсенале более 5000 встроенных функций, охватывающих широкий спектр разделов математики: математический анализ, линейную алгебру, дифференциальные уравнения, статистику, геометрию и многое другое. Maple сочетает в себе символьные, численные и гибридные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA0DB914530A108DF2F2BAA9321ADD871785370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873094   (1070618) от 26.05.2026
 
 JetBrains CLion 2026.1.2 Repack by IDE`a [En]
@@ -406,7 +640,7 @@ JetBrains CLion 2026.1.2 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070618.jpg" />
 </div>
 
 
@@ -432,7 +666,7 @@ JetBrains GoLand 2026.1.2 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070615.jpg" />
 </div>
 
 
@@ -445,247 +679,6 @@ IDE GoLand предлагает широкий спектр инструмент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:794BB9F661F814D9B3B9E086E780C28BACDE3910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873098   (1070614) от 26.05.2026
-
-JetBrains DataSpell 2026.1.2 Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070614.jpg" />
-</div>
-
-
-###  Подробнее
-
-DataSpell — IDE для Data Science. DataSpell создан специально для тех, кто занимается разведочным анализом данных, и прототипированием моделей машинного обучения. Это эргономичная среда разработки, объединяющая в себе интерактивные возможности Jupyter-ноутбуков и умный редактор PyCharm для работы с Python и R.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1DD7B9132761251F2646582B516A8032218AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873099   (1070613) от 26.05.2026
-
-JetBrains PhpStorm 2026.1.2 Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070613.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
-поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1, 8.2, 8.3, 8.4 и 8.5 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB926D75B7F196683064A85BB73F66C1E338B87A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873101   (1070612) от 26.05.2026
-
-JetBrains Rider 2026.1.2 Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rider — это кросс-платформенная интегрированная среда разработки (IDE), созданная специально для .NET-разработчиков. Основанная на мощной платформе IntelliJ и технологиях ReSharper, Rider предлагает уникальное сочетание передовых инструментов и функций, обеспечивающих высокую производительность и эффективность при создании различных типов приложений. Эта современная (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF0D8A8CADA5CD44C30BB6E295CAAE392F151B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873102   (1070611) от 26.05.2026
-
-JetBrains RubyMine 2026.1.2 Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070611.jpg" />
-</div>
-
-
-###  Подробнее
-
-RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
-Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9F5D5FC2465969103D317DAF46CCDCE8CCADA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873103   (1070606) от 26.05.2026
-
-JetBrains RustRover 2026.1.2 Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070606.jpg" />
-</div>
-
-
-###  Подробнее
-
-RustRover - это мощная и удобная среда разработки, которая значительно упрощает процесс создания программ на Rust. Благодаря широкому набору функций и интуитивно понятному интерфейсу, RustRover помогает разработчикам всех уровней повысить продуктивность и качество кода. Если вы планируете изучать Rust или уже работаете с этим языком, RustRover может стать отличным (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FA18429BD01E3B05014DAF4448CA386D3B1AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873100   (1070605) от 26.05.2026
-
-JetBrains PyCharm Professional 2026.1.2 Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070605.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668D1E4A17BE871D21E93BDBAC0D40A4E381A6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873105   (1070603) от 26.05.2026
-
-Jetbrains WebStorm 2026.1.2 Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070603.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B369F2EE1329AEB08F83860E606088A92B2CA33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873133   (1070588) от 26.05.2026
-
-Real Cut 1D 11.14 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Real Cut 1D — это компьютерная программа, предназначенная для получения оптимальных схем раскроя одномерных заготовок, углы на концах которых могут отличаться от 90 градусов.
-
-Real Cut 1D можно использовать для раскроя линейных заготовок, таких как прутки, трубы, балки, стальные стержни, профили для кровли, балюстрады, ограждения, деревянные каркасы, алюминиевые (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE59BEE3B75FA514539128884F2DF430C28C36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872316   (1070520) от 21.05.2026
-
-RisohEditor 6.0.0 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070520.jpg" />
-</div>
-
-
-###  Подробнее
-
-RisohEditor — это бесплатная программа для добавления, редактирования, извлечения и удаления данных ресурсов из DLL/EXE-файлов.
-
-С её помощью вы можете легко редактировать ресурсы Windows (диалоги, меню, значки, курсоры, таблицы строк, таблицы сообщений и т. д.) — Risoh в переводе с японского означает «идеальный».
-(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98EAE8280A2EA10A248138089A5B80463EA19892
 ```
 
 https://mybot314.ru/tekegram_catalog/

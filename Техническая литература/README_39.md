@@ -1,3 +1,56 @@
+###  Публикация: 1766311   (33911) от 17.12.2024
+
+Я. Шкержик | Рецептурный справочник для электротехника. Издание третье (1989) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит рецептуру и описание способов приготовления различных средств для очистки металлов, стекла, фарфора и других материалов, обработки их поверхности (термической обработки, полирования, травления, окрашивания, гальванических и химических покрытий), пайки и сварки, клеев и шпатлевок, составов для сушки и охлаждения.
+Для работников электротехнической (   Читать дальше...   )Жанр: справочник, электротехника, учебное пособиеИздательство: ЭнергоатомиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D71C7C9FBA308CF6E2B3B7F77ECD61032FFE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766495   (33775) от 18.12.2024
+
+Р. Тиль | Электрические измерения неэлектрических величин (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основное внимание в книге уделено собственно измерениям неэлектрических величин: методам измерений, схемным вопросам, касающимся процесса измерений, начиная от получения измерительной информации, необходимых преобразований измерительных сигналов, погрешностям измерений, помехам и др. В книге нашли отражение современные технические средства, применяемые для измерений. (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C75CC562804504992E239928FEAF3FC923CC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767148   (33373) от 22.12.2024
 
 Б.С. Гершунский | Расчет основных электронных и полупроводниковых схем в примерах (1968) [DJVU]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33373.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33368.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33341.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33337.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31156.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31012.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Issa Batarseh, Ahmad Harb | Power Electronics: Circuit Analysis and Design (2017
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30885.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Muhammad H. Rashid (ed.) | Power Electronics Handbook (2006) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30851.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30549.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30356.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28559.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26865.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24476.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23641.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23333.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23229.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22776.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22414.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22357.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20572.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20548.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14641.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14214.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10887.jpg" />
 </div>
 
 
@@ -625,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46E73911C2A182BEDB2C4C03D53D1630A628CECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810195   (9408) от 03.08.2025
-
-А.Д. Князев | Как работает радиостанция (1958) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга дает возможность читателю, не имеющему специальной подготовки, ознакомиться с устройством и принципом действия передвижных (переносных и перевозимых) радиостанций.
-Книга рассчитана на начинающих связистов-радистов, членов ДОСААФ, молодежь, а также на тех, кому приходится пользоваться передвижными радиостанциями, хотя их основная специальность и не имеет непосредственного (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ВоениздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EDB066B67158147030E1DB91D8632C6509C964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811198   (8910) от 08.08.2025
-
-А.В. Потишко, Д.П. Крушевская | Справочник по инженерной графике (1983) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8910.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике приведены сведения по теории и практике геометрических и проекционных построений и графических расчетов, их механизации и автоматизации, а также правила, нормы и практические рекомендации по выполнению технических чертежей, схем и составлению других конструкторских документов в соответствии с государственными стандартами СССР ЕСКД. Справочник предназначен (   Читать дальше...   )Жанр: Технические наукиИздательство: БудiвельникФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87F831F8A7BA6BE1551490CF684716D279BD4F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1845143   (1050685) от 31.12.2025
+
+Анджела Акерман, Бекка Пульизи | Тезаурус положительных качеств персонажа. Руководство для писателей и сценаристов (2025) [MP3, Екатерина Осоченко]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создать достоверного, убедительного в поступках персонажа – нетривиальная и важнейшая задача для писателя и сценариста: только мощные, глубокие персонажи способны вызвать эмоциональный отклик у читателя и зрителя. Анджела Акерман и Бекка Пульизи, признанные эксперты по писательскому мастерству, решили обобщить свой опыт и предлагают авторам практическое руководство (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 13:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0269AF178318CD8235E9F2877C1749AEBE7C7211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844973   (1050373) от 29.12.2025
+
+Эдуард Сирота, Екатерина Хортова | Импрессионизм. Для тех, кто хочет все успеть (2025) [MP3, Яна Смирнова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Век импрессионизма был чрезвычайно недолог – всего двенадцать лет. Но и за столь короткий период импрессионистам удалось совершить революцию в живописи, изменив взгляд человечества на окружающий мир. Клод Моне, Огюст Ренуара, Эдгар Дега, Камиль Писсарро, Фредерик Базиль и другие представители направления сумели сделать невозможное: запечатлеть ускользающий миг бытия, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: ЭксмоПродолжительность: 03:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B50733BA8C51D8487E2572C8C50B0BE099B0108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844784   (1050205) от 28.12.2025
+
+Николай Бердяев | Смысл истории. Новое средневековье (2025) [MP3, Игорь Демидов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050205.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Смысл истории» составлен на основе знаменитого курса лекций, посвященных движущим мотивам всемирного исторического процесса.
+Написанное в 1924 году «Новое средневековье» принесло автору европейскую известность – в этой работе Бердяев утверждает, что в XX веке во многих направлениях западная цивилизация вернулась в средневековье.
+Бердяев Николай Александрович (1874 (   Читать дальше...   )Жанр: Философская прозаИздательство: АСТПродолжительность: 10:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90276A8464A18AA5C62E519B5B0AF0ECCC2651C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844778   (1050203) от 28.12.2025
+
+Джонатан Лосос | От саванны до дивана. Эволюционная история кошек (2025) [MP3, Александр Лутошкин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мяукают ли львы и тигры и если нет, то почему? Где и как кошки совершили эволюционный рывок, покинув африканскую саванну? Зачем кошка оставляет мертвую мышь у вас в ногах, а то и на подушке? Так ли уж плохо держать дома оцелота? И что значили кошки в египетской иероглифике? Эволюционный биолог Джонатан Лосос расшифровывает сложные научные и исторические загадки, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 16:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB04D70D342B05B8FE8EC7230983AFE611E3321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844221   (1050011) от 25.12.2025
 
 Стивен Вайнберг | Первые три минуты. Современный взгляд на происхождение Вселенной (2025) [MP3, Игорь Куклинов]
@@ -6,7 +112,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050011.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049960.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049912.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049770.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049678.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049449.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049250.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048948.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048927.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048794.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048739.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048554.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048424.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047975.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047775.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047762.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047751.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047748.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047458.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047103.jpg" />
 </div>
 
 
@@ -543,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047078.jpg" />
 </div>
 
 
@@ -569,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047076.jpg" />
 </div>
 
 
@@ -581,111 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B3B4032B2C4469E4664EF88E96D8810500E6EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839970   (1047048) от 02.12.2025
-
-Эдуард Сирота | Английский язык. Для тех, кто хочет все успеть (2025) [MP3, Эмилия Казанцева]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский язык – язык международного общения. Политика, торговля, туризм, искусство, интернет, технологии – нет такой сферы жизни, где не пригодилось бы знание английского языка. Многое, что сложно объяснить с точки зрения современности, объясняет история языка. Почему читаем не так, как пишем? Почему англичанину будет сложно понять американца? Почему «Алису в Стране (   Читать дальше...   )Жанр: Английская грамматика, Английский для начинающих, Английский языкИздательство: БОМБОРА, Правообладатель ЭксмоПродолжительность: 03:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFD0D6D02A059142F517D3B632AD007F9AA0A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839663   (1046828) от 30.11.2025
-
-Рашид Мухаев | Политология (2025) [MP3, Аркадий Пучков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник содержит анализ концепций, ключевых понятий и проблемных комплексов, с помощью которых описывается сложный и противоречивый мир политики, выявляется логика его развития, определяется место и роль политики в жизни человека. Отличительная черта данного издания состоит в том, что в нем теоретическая интерпретация политики органично дополняется эмпирическим анализом (   Читать дальше...   )Жанр: Учебник для вузовИздательство: Нигде не купишьПродолжительность: 17:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F05AC91F16F1DD4C42DDE11359075DEEF15DBC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839666   (1046768) от 30.11.2025
-
-Ричард Докинз | Наука души. Избранные заметки страстного рационалиста (2025) [MP3, Константин Корольков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046768.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сборнике Докинз предстает не только как блестящий полемист, но и как вдохновенный проповедник научного мировоззрения.
-«Наука души» – это сборник статей и речей блестящего биолога и популяризатора науки Ричарда Докинза, в которых он рассуждает о науке как таковой, о ее роли в обществе, о научных ценностях. Краткие колкие заметки перемежаются развернутыми эссе, (   Читать дальше...   )Жанр: Научное знание, Научное мировоззрение, Научные бестселлерыИздательство: CorpusПродолжительность: 15:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D0B0F3380073A4C8E7510019F74EF6795F7889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839828   (1046749) от 01.12.2025
-
-Мор Томас | Золотая книга, столь же полезная, как забавная, о наилучшем устройстве государства и о новом острове Утопии (2010) [MP3, Юрий Рудник]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046749.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Диалог <<Утопия>> (1516, рус. пер. 1789), принесший наибольшую известность Томасу Мору, содержащий описание идеального строя фантастического острова Утопия (греческий, буквально -- <<Нигдения>>, место, которого нет; это придуманное Мором слово стало впоследствии нарицательным). Мор впервые в истории человечества изобразил общество, где (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 05:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA95A1D9C160CEAE4EBDECA7A2E5E7F75ED3D7DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

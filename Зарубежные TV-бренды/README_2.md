@@ -1,3 +1,29 @@
+###  Публикация: 1442511   (1036474) от 25.01.2021
+
+Близкие контакты пятой степени / Close Encounters of the Fifth Kind (2020) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Стивен Грир, основатель Центра по изучению внеземного разума, рассказывает о том, почему правительствам выгодно скрывать правду о контактах с пришельцами и даёт несколько простых советов начинающим контактёрам.Производство: США / 1091 Media, Star ContactЖанр: документальныйРежиссер: Майкл МаццолаАктеры: Стивен М. Грир, Linda A'Roraha, Wendy Boast, Jan Harzan, Филлип Джеймс, Jeremy Cloake, Adam Michael Curry, Valeria Efimova, Marian Kramer и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские, Английские (SDH)Продолжительность: 02:00:00 серияРеклама: Нет.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6EDDB14BB87478FD0D8F56E6443661E5966D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616538   (1036125) от 03.03.2023
 
 Акулотрас / Sharkatraz (2016) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036125.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035910.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035824.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035637.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035539.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034739.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC. Тело на продажу: как живут секс-работницы
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034094.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033866.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030858.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030320.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029866.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029552.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029149.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028982.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028634.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027646.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026846.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026688.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026682.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ NG: Свидетели катастроф / Witness to Disaster (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026201.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025889.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025357.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025201.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025192.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ NGW: Удивительные большероты / Incredible Gulpers (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024828.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ NGW: Удивительные большероты / Incredible Gulpers (2016) H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797663697A40DB1D9670BB4C9FE9B4C5A797BEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443709   (1024478) от 25.03.2021
-
-History Channel: Древние пришельцы / Ancient Aliens (2020) WEBRip  [H.264/720p-LQ] [VO] (сезон 16, серии 1-3 из 6) (Обновляемая)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно ли, что разумные формы жизни посетили Землю тысячи лет назад, принеся с собой технологии кардинально повлиявшие на ход истории и развития человечества? Теория "древних пришельцев", опубликованная в 1968 году в бестселлере Эриха фон Деникена "Колесницы богов", пошатнула представления людей об общеизвестном прогрессе человечества. Древние (   Читать дальше...   )Производство: США, Prometheus Entertainment, A&E Television Networks, LLC., History ChannelЖанр: Документальный, научно-популярный, уфологияРежиссер: Кевин Барнс, Дэвид СильверПеревод: Одноголосый закадровый, любительский (FilmPlay)Субтитры: Английские (только 2-я серия), русскиеПродолжительность: серии x ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F04F7BD2C44015BC4670EAA42C181118F98BBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

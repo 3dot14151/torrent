@@ -1,3 +1,90 @@
+###  Публикация: 1375754   (863885) от 15.04.2020
+
+VA - Pool Party Techno (2020) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Norbeev - Glitch
+002. Tidal Lock - Heavenly Bodies
+003. Oxven - Warm
+004. Dшу - Spaces (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 13:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250EE5AEAC3FF350446056C23E7D9AE0D789434D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375761   (863874) от 15.04.2020
+
+VA - Happy Time: House Spring Edition (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jazzy X - Bandie Bandie
+002. Benjamin Philippe Zulauf - A Degree Of Disorder
+003. Hannes Bruniic - Seks
+004. Congatronic - Markauasy(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 13:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A259D3B1A0DCE5A6CBC0AE82011E57C62EFEA47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999920   (862307) от 23.03.2016
+
+VA - California Dreamin: Progressive House (2016) [MP3|320 кб/с] <Progressive House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862307.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Stone & Daser - Freak (And You Know It) (Edit) 03:14
+002. Ticli And Gas feat Malcolm - Summer Love (Radio Version) 03:46
+003. DVBBS - Never Leave (Radio Edit) 03:07
+004. Matisse & Sadko - Lock 'N' Load (Extended Mix) 03:55(   Читать дальше...   )Жанр: Progressive House, ElectroПродолжительность: 12:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6731200F532751B578CB813D13B996FF8654204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108944   (860999) от 26.02.2017
 
 VA - Music For Everyone - Deep House & Nu Disco Vol.5 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
@@ -6,7 +93,7 @@ VA - Music For Everyone - Deep House & Nu Disco Vol.5 (2017) [MP3|320 Kbps] <Dee
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860999.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Diamond Rain: Original Uplifting Trance Mix (2016) [MP3|320 кб/с] <Uplif
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860873.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Ordinary Life: Spring Chillout Party (2020) [MP3|320 Kbps] <Chillout, Ambie
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860626.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Lounge At The Seashore 7 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860550.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Beatport Vocal House: Sound Pack #66 (2020) [MP3|320 Kbps] <Vocal House, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860483.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Beatport Electro House: Sound Pack #63 (2020) [MP3|320 Kbps] <House, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860371.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Drum And Bass Tropical Cocktails (2021) [MP3|320 Kbps] <D&B, Jungle, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859783.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Clubbing Electro House (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859656.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - EDM Party: Samsara Heat (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859651.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Synthwave Dream Collection (2021) [MP3|320 Kbps] <Synthwave, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859645.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Sailing Out Lounge (2016) [MP3|320 кб/с] <Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859336.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - West Coast Night Club Fantasies (2016) [MP3|260-320 кб/с] <Bass Music, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859322.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Euro House Flowers Melody (2016) [MP3|264-320 кб/с] <House, Tribal, Bigr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859317.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Record Super Chart #476 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859017.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Beatport Trance: Electro Sound Pack #60 (2020) [MP3|320 Kbps] <Trance, Upli
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858806.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Beatport Techno: Electro Sound Pack #61 (2020) [MP3|320 Kbps] <Techno, Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858801.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Fabulous Night: Electro House Mixtape (2021) [MP3|320 Kbps] <Electro House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857922.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Blow The Speakers: EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Club Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857912.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Try The Better World (2021) [MP3|320 Kbps] <Ambient, Meditation, Relax, New
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857807.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Trance Desire Volume 64 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857562.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Super Dance Party Vol.5 (2016) [MP3|320 кб/с] <Hands Up, Pop, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857523.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Energy 15 Trance Best (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857462.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Новая Жажда Скорости Без Тормозов vol.3 (2016)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857427.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Новая Жажда Скорости Без Тормозов vol.3 (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC1921B0880E53162664DF9991C46D55C8286E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376834   (856903) от 19.04.2020
-
-VA - Beatport Progressive House: Sound Pack #64 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856903.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rauschhaus - Moonbeam (Original Mix)
-002. Cyril Ryaz - Treadstone (Extended Mix)
-003. Enertia-Sound - After Life
-004. Jigante - Prismatic(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D321D9FAC7B55A2E14CB29D0FD37D4CC589F674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001016   (855938) от 27.03.2016
-
-VA - Miami Tech Drums Language (2016) [MP3|263-320 кб/с] <Bigroom, Tropical, Stadium Trance, UK Garade, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Club House
-01. Robbie Rivera & Stonebridge - A World Without You (Benny Benassi Mix) 04:40
-02. Some Little Things - Absolute Sadness 08:01
-03. Disfunktion & Aerreo Feat. Jannika - Alpha (Original Mix) 06:07(   Читать дальше...   )Жанр: Bigroom, Tropical, Stadium Trance, UK Garade, Future HouseПродолжительность: 11:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED06B0E3CE424E040BF3F39148C43AAFF0DAA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109936   (855756) от 01.03.2017
-
-VA - Finding Around Blessing (Energy Tech Trance) 002 (2017) [MP3|320 Kbps] <Trance, Stadium Trance, Melodic, Energy, Tech-Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Abstract Vision & Iwan Lee - Proton (Original Mix)  4:23
-02.  X-Cite - Sapphire (Extended Mix)  4:39
-03.  Dreamlife - Magic Ocean (Original Mix)  6:57
-04.  Andy Elliass & ARCZI - Sky Touch (Original Mix)  6:57(   Читать дальше...   )Жанр: Trance, Stadium Trance, Melodic, Energy, Tech-TranceПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146CA2B7A9B7043A1E224804EE3525765AEA4B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

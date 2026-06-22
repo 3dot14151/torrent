@@ -1,3 +1,133 @@
+###  Публикация: 1148264   (604170) от 05.07.2017
+
+Remember Me (2013) [Ru/Multi] (1.0.2056.0/dlc) SteamRip Let'sPlay
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый Париж, 2084 год. Воспоминания перестали быть личными, их можно оцифровать, купить или продать. Под напором социальных сетей, стремительному развитию которых положил начало XXI век, понятия «частная жизнь» и «личное дело» превратились в пережиток былой эпохи. Люди добровольно пожертвовали сокровенным в обмен на удобства, которые обеспечили им технологии.Тип издания: SteamRipРазработчик: DONTNOD EntertainmentЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BAE61503F591156AAC5073947D8707D0D3B362B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911126   (604160) от 05.07.2017
+
+Sniper Elite V2 (2012) [Ru/En] (1.13/dlc) Repack =nemos=
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во мраке последних дней Второй мировой войны, посреди руин Берлина одна-единственная пуля может изменить ход истории... Sniper Elite V2 — это долгожданное продолжение получившей признание игры Sniper Elite, которое даёт игрокам возможность по-настоящему почувствовать себя снайпером времен Второй мировой войны. Вы — элитный американский снайпер Карл Фэйрбёрн. После (   Читать дальше...   )Тип издания: RepackРазработчик: RebellionЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCA7F62667B1C4CB1225E7D97FEB8445B335B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297374   (603997) от 22.04.2019
+
+Assassin's Creed (2008) [Ru/Multi] (1.02v2) License GOG [Director's Cut Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assassin’s Creed® – игра, определившая новые стандарты жанра приключенческого боевика. Фотореалистичная графика, усовершенствованная физическая модель, фанатичное внимание к деталям... этому проекту удалось открыть новую главу в истории игр! При этом, техническое совершенство – только одна из двух составляющих, принесших игре такую популярность, вторая – сюжет. Теоретически, (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft MontrealЖанр: Экшн, Приключение, ИсторическаяЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83870ED82A8133922DB269FC36D2E3BF481454E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088129   (603996) от 22.04.2019
+
+Prince of Persia: The Sands of Time / Принц Персии: Пески времени (2003) [Ru/Multi] (1.0.0.181) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди выжженных песков Персии появилась древняя легенда. Она рассказывает о временах, когда проливалась кровь и правил обман. Ведомый темными силами магического кинжала, юный Принц выпустил смертельное зло на прекрасное королевство. Благодаря коварству очаровательной принцессы и абсолютным силам Песков Времени, Принц пускается в трудный путь, чтобы вернуть проклятые (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft MontrealЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FC28D539C83F694F59903A7534FF6B6A033616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148458   (603747) от 06.07.2017
+
+Prince of Persia: The Forgotten Sands / Принц Персии: Забытые Пески (2010) [Ru] (1.00/dlc) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много песка утекло со времени нашего первого знакомства с Принцем Персии, и вот он вернулся. На этот раз он расскажет нам историю о давно забытом прошлом, почти утерянном в круговороте времени. После получения невероятной силы - возможности управлять Песками Времени - Принц отправился в королевство своего брата Малика, но там встретил лишь смерть и разрушение. Чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E2185C17F9FC7EC0DACA7AF205C8FA106DFB14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297524   (603517) от 23.04.2019
 
 Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
@@ -6,7 +136,7 @@ Prince of Persia / Принц Персии (2008) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603517.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Prince of Persia: The Two Thrones / Принц Персии: Два трона (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603509.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603023.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.04) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602072.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Dark Sector (2009) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600670.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Watch_Dogs 2 / Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack R.G. Cata
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599460.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/En] (1.0.0.1/upd1/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598992.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Deadly Dozen Reloaded (2022) [Multi] (1.03) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597372.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Rune Classic / Руна (2001) [Ru/Multi] (1.11/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596023.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/upd2/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595486.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Sniper Elite Anthology / Sniper Elite Антология  (2005-2017) [Ru/En] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593719.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0 hotfix 3b) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587951.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Spider-Man: Friend or Foe [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587744.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ Aragami (2016) [Ru/Multi] (01.09) License GOG [Collector`s Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585915.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ How To Survive Third Person Standalone (2015) [Ru/Multi] (1.0) SteamRip Let'sРl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585574.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ Dead Space (2008) [Ru] (1.0.0.222) Portable PortGamPС
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582164.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2712) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582054.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/En] (1.0.0.1upd1/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581716.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ Shadwen (2016) [En/Multi] (1356/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581183.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ Eisenhorn: XENOS (2016) [En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581178.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0.2025/hf5) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581074.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ Fade to Silence — это симулятор выживания в постап
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CE5E882E9BEF18D01AA7026DA98D025D61BA27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042179   (580280) от 11.08.2016
-
-Shadwen (2016) [En/Multi] (1.0.0/build 1356/dlc) License SKIDROW
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина-убийца получает задание уничтожить короля-тирана, узурпировавшего власть в небольшом государстве. По пути во дворец тирана Шадвен встречает девочку, оставшуюся без родителей. И теперь им придется вместе продолжить опасное путешествие. Шадвен должна пробираться, как можно тише, так как она рискует теперь не только своей жизнью, но и жизнью сироты. Да и убийство (   Читать дальше...   )Тип издания: LicenseРазработчик: FrozenbyteЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3867800519DDC75DB17C66B56025F5EC8476F9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920495   (579621) от 22.07.2015
-
-Yasai Ninja (2015) [En/Esp] (1.0) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yasai Ninja — игра жанра hack`and`slash, и своеобразная пародия на культ ниндзя в Японии. Главными героями здесь являются два простых овоща, а именно лук Каору и брокколи Джо. Вместе двоим друзьям предстоит пройти через серию разнообразных испытаний и приключений, попутно буквально разбивая, разрезая и разрубая всех своих врагов.Тип издания: ЛицензияРазработчик: Recotechnology S.L.Жанр: Action-RPG (Hack&Slash) / 3D / 3rd PersonЯзык озвучки: -/-Язык субтитров: Английский, испанскийЯзык интерфейса: Английский, испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EFA6FAB0E937F6D9742EAE91C565B858FF2BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042316   (579188) от 12.08.2016
-
-SNIPER BLACKLIST (2016) [En] (1.0) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра в жанре экшен от студии jago138. Игрок берет на себя роль снайпера. Для достижение своей цени вам требуется использовать анемометр чтобы знать скорость ветра, контролировать дыхание и корректировать снайперскую наводку в зависимости от расстояния. Исследуйте свой путь в тылу противника в различных условиях, таких как: пустыня, джунгли и острова.Тип издания: LicenseРазработчик: jago138Жанр: Action, 3rd Person, 1st personЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5406CF2713C424320DA2186CB70B6050AE8B8940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042297   (579122) от 12.08.2016
-
-CASE: Animatronics (2016) [Ru/Multi] (1.0/u1) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в полицейский участок, где работа до поздна может свести вас в могилу. Вы - детектив Джон Бишоп, который задержался в полицейском участке до глубокой ночи. От очередного кошмарного сна вас пробуждает странный звонок от старого знакомого, который переворачивает все с ног на голову.Тип издания: LicenseРазработчик: Case HorrorЖанр: Action (Survival horror), 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F19B592FC47E866C632FFE1C7DFFD115D3C023E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042494   (579059) от 12.08.2016
-
-Eisenhorn: XENOS (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eisenhorn: XENOS – приключенческий экшен, основанный на первой книге трилогии «Эйзенхорн» Дэна Абнетта. События игры разворачиваются в мрачной темной вселенной Warhammer 40,000 и рассказывают историю инквизитора Грегора Эйзенхорна, который призван защищать жителей Империи от всяческих угроз. В Eisenhorn: XENOS вас ждут сражения в реальном времени в группе с другими (   Читать дальше...   )Тип издания: RepackРазработчик: Pixel Hero GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49E3FF17FBE7330B274E1971B8105F4C1C1D61E
 ```
 
 https://mybot314.ru/tekegram_catalog/

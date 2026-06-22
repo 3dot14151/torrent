@@ -1,73 +1,3 @@
-###  Публикация: 469953   (82899) от 18.03.2012
-
-VA - Вокально-Инструментальные Ансамбли СССР (2012) [MP3|320 kbps]<Pop | Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виа Ялла - Канатоходцы
-02. Виа Ариэль - Тишина
-03. Эдита Пьеха - Семейный Альбом
-04. Тынис Мяги - Детектив
-05. Виа Поющие Гитары - Люди Встречаются
-06. Виа Цветы - Честно Говоря
-07. Виа Ариэль - На Острове Буяне
-08. Виа Земляне - Трава У Дома
-09. Виа Песняры - Вологда
-10. Виа Пламя - Краснотал(   Читать дальше...   )2012Жанр: Pop | РетроПродолжительность: 04:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A7594A5B37755FA64F8271D0B8EA93C1B77919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469356   (82752) от 17.03.2012
-
-VA - Русская Дискотека 80-90х (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82752.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1Жанр: Pop, DanceПродолжительность: 04:17:38
-
-01. А.Айвазов - Бабочка-Луна
-02. Браво - Дорога в облака
-03. М.Леонидов - Видение
-04. Високосный Год - Лучшая песня о любви
-05. С.Владимирская - Ты скажешь мне
-06. М.Насыров - Мальчик хочет в Тамбов
-07. Академия - Хочешь, но молчишь
-08. Е.Осин - Плачет девушка в автомате(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467724   (82022) от 14.03.2012
 
 VA - Московские окна: Песни на все времена (1995) [MP3|320 кб/с]<Pop< Retro>
@@ -76,7 +6,7 @@ VA - Московские окна: Песни на все времена (1995)
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82022.jpg" />
 </div>
 
 
@@ -111,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66123.jpg" />
 </div>
 
 
@@ -140,7 +70,7 @@ Marc De Loutchek - Chansons russes et Tsiganes russes. Vol 2 (2007) [MP3|320 Kbp
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65474.jpg" />
 </div>
 
 
@@ -169,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65198.jpg" />
 </div>
 
 
@@ -190,35 +120,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746273   (45158) от 30.08.2024
-
-Поющие гитары - Поющие гитары (2024) Live [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_45158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не ломай черёмухи (Live)
-2. Из-за острова на стрежень (Live)
-3. Смуглянка (Live)
-4. Мотокросс (Live)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1B7FEA984BD8C422C105AB3B11B5F0292CBE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758642   (38407) от 03.11.2024
 
 Владимир Трошин - Лучшие песни (2024) [MP3|320 Kbps] <Советская песня, Ретро>
@@ -227,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38407.jpg" />
 </div>
 
 
@@ -248,91 +149,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760671   (37198) от 15.11.2024
-
-Алиса Фрейндлих - Избранное, Часть 1 (2024) [MP3|320 Kbps] <Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_37198.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Посвящение (Из спектакля "Люди и страсти")
-2. Вопросы (Из спектакля "Люди и страсти")
-3. Мария-Антуанетта (Из спектакля "Люди и страсти")
-4. Ход жизни (Из спектакля "Люди и страсти")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D7F0ABB443936C1452E79D8BD44B00250CFA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761692   (36584) от 21.11.2024
-
-VA - Пахмутова: Любовь моя – спорт (1980) [MP3|320 Kbps] <Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_36584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лев Лещенко/Вокальный ансамбль «Панорама» п/у Михаила Ганеева/Стас Намин и группа «Цветы»/Sergey Skripka/Российский Государственный Симфонический Оркестр Кинематографии - Город нашей славы
-2. София Ротару/Вокальный ансамбль «Панорама» п/у Михаила Ганеева/Стас Намин и группа «Цветы»/Sergey Skripka/Российский Государственный Симфонический Оркестр Кинематографии (   Читать дальше...   )Жанр: RetroПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763559   (35510) от 01.12.2024
-
-Алиса Фрейндлих - Избранное, Часть 2 (2024) [MP3|320 Kbps] <Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_35510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. У природы нет плохой погоды (Из к/ф "Служебный роман")
-2. Обрываются речи влюблённых (Из к/ф "Служебный роман")
-3. Моей душе покоя нет (Из к/ф "Служебный роман")
-4. Песня Гелены (Из спектакля "Варшавская мелодия")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DC42CEE3DAABF1E3F5AA0ABDB6845013366BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801199   (15163) от 09.06.2025
 
 Лев Лещенко - Только в любви (2025) [MP3|320 Kbps] <Pop>
@@ -341,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15163.jpg" />
 </div>
 
 
@@ -370,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12640.jpg" />
 </div>
 
 
@@ -399,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11824.jpg" />
 </div>
 
 
@@ -428,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10787.jpg" />
 </div>
 
 
@@ -457,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9838.jpg" />
 </div>
 
 
@@ -486,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9750.jpg" />
 </div>
 
 
@@ -515,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4824.jpg" />
 </div>
 
 
@@ -544,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4116.jpg" />
 </div>
 
 
@@ -573,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2791.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Toni Braxton - Secrets (1997) [FLAC|tracks+.cue]<RnB/Swing, Soul-Jazz, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282226.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Laurence Jones - What's It Gonna Be (2015) [FLAC|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280914.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Carl Verheyen Band - Trading 8s (2009) [APE|Lossless|image + .cue] <Blues Rock, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278845.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ghalia & Mama's Boys - Let The Demons Out (2017) [FLAC|Lossless|tracks] <Harmoni
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278724.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Darrell Mansfield - I Am Not Alone (2014) [FLAC|Lossless|tracks + .cue] <Christi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277487.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jimmy And The Poor Boys - Cinco Songo's (2017) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274754.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sade - Rare Adventure (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274065.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gin House Blues Band - Gin House Blues Band (1991) [APE|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273599.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Zed Mitchell - Summer in L.A. (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273511.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gary Moore - Legacy (2CD) (2012)  (Compilation) [APE|Lossless]<Rock, Hard Rock, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272898.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Coen Wolters Band - Broken Glass (2004) [FLAC|Lossless|image + .cue] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272645.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stan Webb's Chicken Shack - That's The Way We Are (1978) [FLAC|Lossless|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272600.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - The Musical Mojo Of Dr. John Celebrating Mac And His Music (2016) [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272598.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jay Gordon Band - White Heaven Powdered Black (2000) [FLAC|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271461.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kim Simmonds And Savoy Brown - Goin' To The Delta (2014) [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271384.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jay Gordon's Blues Venom - Woodchoppers Ball (2015) [FLAC|Lossless|image + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271381.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Billy Paul - Ebony Woman (1970) 2012, Neptune Records/Sony Music/Big Break Recor
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271350.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Heather Newman - Burn Me Alive (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271210.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Samuel Eddy - 2 Albums (1991 - 1995) Discography, Full-lenght albums [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270399.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Van Morrison - Versatile (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268769.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Otis Taylor - Fantasizing About Being Black (2017) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265076.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Cory Wong - Cory Wong and the Green Screen Band (2017) [FLAC|Lossless|tracks + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263815.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Bill Blue - The Other Side Of Paradise (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260840.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Blues For Comfort - Blekingesalen - Scenkanalen - Musik i Blekinge (2025) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260838.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Chasing Stars - Southbound (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260836.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Cotton Pickers - Pickin' Out Strong (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260831.jpg" />
 </div>
 
 

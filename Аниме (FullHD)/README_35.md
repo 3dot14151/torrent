@@ -6,7 +6,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431647.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431638.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431544.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429619.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Shaman King | Шаман Кинг [2001, TV, 64 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429394.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ TV Yarou Nanana: Kaibutsu Kraken o Oe! | Wacky TV Nanana: Hunt the Legendary Kra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429209.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Little Witch Academia: Mahou Shikake no Parade | Little Witch Academia: The Ench
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428821.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sankarea | Санка Рэа [2012, TV 12 эп. + 1 SP + OVA 2 эп.] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428094.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Fushigi no Umi no Nadia / Nadia Secret of Blue Water / Надя с загадо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427796.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Go!Go!575 | Давай-давай! 5-7-5 [2014, TV, 4 + 1] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426088.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Zetsuen no Tempest: The Civilization Blaster | Буря Потерь [2012, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423651.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Rifle is Beautiful | Chidori RSC | Винтовка прекрасна [2019, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420448.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Saint Seiya: The Lost Canvas - Meiou Shinwa | Рыцари Зодиака: Ут�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420224.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420223.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420078.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Owari no Seraph | Seraph of the End | Последний Серафим [2015, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420047.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Mitsuwano [2014, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420040.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Shikioriori | Flavors of Youth | Ароматы юности [2018, Movie] WEB-D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420038.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, MV, 4] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419858.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 14 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419702.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Kono Oto Tomare! 2 | Stop This Sound! 2 | Задержите этот звук! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418207.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Kono Oto Tomare! | Stop This Sound! | Задержите этот звук! [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418203.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Fate/Kaleid Liner Prisma Illya: Prisma Phantasm | Судьба: Девочка-�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418189.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + 1 из 1] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417830.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders | JoJo`s Bizarre Adventure: Stardus
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417541.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Arslan Senki: Fuujin Ranbu | The Heroic Legend of Arslan: Dust Storm Dance | С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415893.jpg" />
 </div>
 
 

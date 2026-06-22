@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239567.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239473.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SideFX, Arise.Works | Houdini Clouds with VOPs (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239290.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ The Gnomon Workshop, Patrick Przybyla | Creating a Combat Finishing Takedown Wit
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239018.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Udemy, Jose Moreno | Substance Designer 2020: Stylized Material Creation PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238902.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238640.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 3 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238634.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ ArtStation, Tyler Smith | UE4 VFX Ocean Material Tutorial (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238618.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ CGcircuit, Steven Knipping | Applied Houdini Rigids II version 2.0 (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238607.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Gumroad, Lance Wilkinson | Keyshot Passes and Photoshop Composite (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238515.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238497.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238462.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ FlippedNormals, Chunck Trafagander | UV Mapping for Games (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238461.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Alessandro Zamboni | Discover The Secrets To Creating Bestselling Sticker Design
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238378.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238352.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Gumroad, Henrique Campanha | Painting a Realistic Skin Texture using Mari (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238141.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Pluralsight, Dan Cox | Realistic Texturing of Modular Structures in Substance Pa
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238063.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Motiondesign.school, Markus Magnusson | Science of Character Animation (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237902.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ CGcircuit, Steven Knipping | Applied Houdini Volumes I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237796.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Michael Pavlovich | Substance Designer Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237772.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Skillshare, Neil Bettison | Blender 3 - The Beginners Ultimate Stylized Scene Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237689.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Michael Pavlovich | Substance Painter Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237645.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Gumroad, Daniel Thiger | Tree Bark Creation (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237447.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Skillshare, Aniket Rawat | Creating a Kitchen Environment in Unreal Engine 5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237097.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237007.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Lynda, Brenda Romero | Game Design Foundations: 1 Ideas, Core Loops, and Goals (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236840.jpg" />
 </div>
 
 

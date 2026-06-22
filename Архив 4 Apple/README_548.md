@@ -1,3 +1,55 @@
+###  Публикация: 1268527   (226409) от 11.12.2018
+
+Wondershare Filmora 9.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3C8DDB57EB5C4900B1E8784E0A7ED6DF6F7058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424897   (226252) от 18.11.2020
+
+MacCleanse 9.0.2 Pre-Release [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита для комплексной очистки кэша, удаления лог-файлов и очистки системы от мусора. MacCleanse в считанные минуты проделает все операции, на которые бы потребовалось несколько часов ручной работы. Она умеет удалять приложения и неиспользуемые языковые пакеты, очищать кэш, удалять лог файлы и cookies, стирать историю посещенных веб-страниц, находить и удалять старые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43E2FE53EC889AC86B5B96D9E56D1E78965EF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424893   (226235) от 18.11.2020
 
 Kiwi for Gmail 2.0.37 [En]
@@ -6,7 +58,7 @@ Kiwi for Gmail 2.0.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226235.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Magic Number 2.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226233.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ DiskCatalogMaker 6.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226222.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Clipboard Manager 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226221.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ Soulver 2.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226184.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ Elmedia Player Pro v7.0 (1618) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226181.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ mirethMusic 4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226178.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ GlueMotion 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226175.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ MacPilot 12.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226169.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ Find Any File (FAF) 2.3.2 b10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226167.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ Valentina Studio Pro 9.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226165.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ GarageSale 9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226155.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ eMail Address Extractor 3.5.8 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226152.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ RAW Power 3.4.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226132.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ GarageSale 8 v8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226127.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ DoubleTake 2.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226118.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Airtool 2 v2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226117.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ WiFiSpoof 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226116.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ Iridient Developer 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226112.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ MediaInfo 0.7.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226109.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ ShowKeyPro 1.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226106.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Timemator 2 v2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226091.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ aText 2.35.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226090.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ PhotosRevive 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226084.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ PhotosRevive автоматически раскрашивает ваши ста
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB366F00AC2A76DC1A74065C768A87B14F0BC86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342285   (226073) от 01.12.2019
-
-SQLPro Studio 2019.63 (build 110616) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226073.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2019Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8F0EA406F9C7686B6484DD4B6D5D887A0120FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513351   (226059) от 28.11.2021
-
-Project Office Pro 9.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с вашим личным экспертом по диаграммам Ганта. Project Office - это полнофункциональное приложение для управления проектами, которое поможет вам управлять как простыми, так и сложными проектами на устройствах macOS.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: © 2021 DK ConsultingПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1050C0514EBE9D34528FE961EA5B205D2D3FB1E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

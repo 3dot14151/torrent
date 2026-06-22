@@ -1,3 +1,57 @@
+###  Публикация: 1196028   (817581) от 06.01.2018
+
+Н. С. Гордиенко (общ. ред.) | Православие: Словарь атеиста (1988) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот словарь призван познакомить пропагандистов атеизма с тер минами и понятиями, встречающимися в практике воспитательной рабо ты с последователями православия. Читатели найдут в нем сведения о  вероучении, социальной доктрине, культе, формах и методах деятельно сти церковных организаций этого религиозного направления.
+
+Адресуется пропагандистам, (   Читать дальше...   )Жанр: История, политология, религиоведение, словарьФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2EA62E465BA72947269876DED84F982DFC6D889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196827   (817575) от 06.01.2018
+
+М. Брикнер | Страдающий бог в религиях древнего мира (1923) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817575.jpg" />
+</div>
+
+
+###  Подробнее
+
+В интересной книге М. Брикнера собраны краткие сведения об умирающем и воскресающем спасителе в восточных религиях (Вавилон, Финикия, М. Азия, Греция, Египет, Персия). Брикнер выясняет отношение восточных религий к христианству, проводит аналогии между древними религиями и христианством. Из данных взятых им из истории религий, Брикнер делает соответствующие выводы, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AF60A74D1F78A038FF085DCADEC0D189244844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196032   (817433) от 06.01.2018
 
 Л. Н. Великович (общ. ред.) | Католицизм: Словарь атеиста (1991) [DJVU, PDF]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817433.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817192.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817191.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817188.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817180.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816908.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815704.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815576.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815193.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814920.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814076.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813923.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813916.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813779.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813752.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813494.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813493.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813309.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813037.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812184.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812178.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812173.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812169.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812168.jpg" />
 </div>
 
 
@@ -629,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1727BC770639B0A017DE27737FC5405D26ECBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504089   (812107) от 23.10.2021
-
-День (изд.) | Молитвы о помощи в житейских нуждах (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит молитвы о помощи в житейских нуждах ко Господу, Пресвятой Богородице, Святым Угодникам Божиим.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831BA4951F7902FB071B888331E7D24FAE4FB3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383350   (811849) от 15.05.2020
-
-Святитель Афанасий Великий | Жизнь и наставления преподобной Синклитикии Александрийской (2000) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блаженная Синклитикия родилась в Александрии. Семейство, к которому она принадлежала, вело свой род из Македонии, было уважаемо и богато. Услышав об особом благочестии александрийцев, предки преподобной оставили Македонию и переехали в Александрию, где нашли искреннюю веру и истинную любовь к Богу.
-
-В родительском доме святая получала всё, что только может именоваться (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2CC6F398A02AF1589A00508FE58A74A91D296D
 ```
 
 https://mybot314.ru/tekegram_catalog/

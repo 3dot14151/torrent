@@ -1,3 +1,81 @@
+###  Публикация: 1339021   (268207) от 17.11.2019
+
+Толомуш Океев (1985) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-портрет о творческой судьбе кинорежиссёра Толомуша Океева, и его размышления о жизни и творчестве.Телекомпания: СССР, КиргизфильмЖанр: Документальный, БиографияСубтитры: отсутствуютПродолжительность: 00:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87376D966A8FA7DB10F47557916B01B9E4A6AB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339625   (265196) от 20.11.2019
+
+INTO_нация Большой Одессы (2018) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все герои этого фильма в каком-то смысле сироты. Потому что они лишились своей родины — своего города, в котором родились. Они разъехались по всему миру и говорят на разных языках со своими детьми. И далеко не все их дети понимают специфический язык и юмор, который наши герои увезли с собой. Почему наши герои вспоминают свой город? Хотели бы они туда вернуться и (   Читать дальше...   )Производство: Россия, УкраинаЖанр: Документальный, биографияРежиссер: Александр БруньковскийСубтитры: ОтсутствуютПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A40450B021499AA169C6C7BB06F1FA37B006F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341500   (262282) от 28.11.2019
+
+Уитни: Могу я быть собой? / Whitney: Can I Be Me (2017) BDRemux [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые режиссеры Ник Брумфилд и Руди Долезал представляют новый документальный фильм об одной из величайших певиц всех времен и народов. Уитни Хьюстон была подлинным воплощением суперзвезды, «американской принцессой» и одной из самых титулованных артисток. Несмотря на заработанные миллионы, хиты, возглавлявшие чарты большее количество недель, чем песни "Битлз", (   Читать дальше...   )Производство: Великобритания, США, Lafayette Films, Passion Pictures, Showtime NetworksЖанр: Документальный, музыка, биографияРежиссер: Ник Брумфилд, Руди ДолезалПеревод: Многоголосый закадровый, профессиональный (1 канал)Субтитры: АнглийскиеПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C94A4C236439560A1EAFE3B0E5FC11A22F5AF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502298   (258897) от 27.05.2012
 
 История произведений искусства  [22 выпуска] / Enquete D'art (2007-2010) SATRip
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258897.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258857.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257793.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257769.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256343.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256234.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255304.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254882.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254817.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ NHK: Лувр: Самый большой музей мира [13 из 13] / Le P
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254056.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252562.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251967.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250299.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ Machine Gun Kelly - Жизнь в розовом цвете / Machine Gun Kelly'
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250154.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249624.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247711.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246924.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246065.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246054.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246012.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245901.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245443.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245396.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86E0137D8720F060D09E6988C6BAC3BC46EC4D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449516   (245385) от 21.02.2021
-
-История джаз-клуба Ронни Скотта / Ronnie's (2020) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм рассказывает увлекательную историю этого поистине легендарного места, в котором пересекались, и до сих пор пересекаются, пути звезд и новичков, только начинающих свое восхождение по крутой и скользкой лестнице славы и признания… 30 октября 1959 года в подвале на улице Джеррард, 39 в лондонском районе Сохо открылся клуб, навсегда изменивший музыкальную (   Читать дальше...   )Производство: Великобритания, Goldfinch, Orofena Films, Thirty Seven ProductionsЖанр: Документальный, история, музыка, джазРежиссер: Оливер МюррейПеревод: Двуголосый закадровый, профессиональный (Эй Би Видео)Субтитры: отсутствуютПродолжительность: 01:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE9810449359C4A80A490CA8F30C095E46B3A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624054   (245357) от 04.04.2023
-
-Я - Альфред Хичкок / I Am Alfred Hitchcock (2021) IPTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о короле саспенса — сэре Альфреде Джозефе Хичкоке, ставшем поистине выдающейся фигурой в мировом кинематографе и создавшим фильмы, многие из которых вошли в золотой фонд кино. При этом Американская киноакадемия так и не удостоила его заслуженной золотой статуэтки: Хичкок пять раз номинировался на «Оскар» как "Лучший режиссёр". «Вечно (   Читать дальше...   )Производство: Великобритания, США, Канада, Network EntertainmentЖанр: документальный, биография, кинематографРежиссер: Джоэл Аштон МаккартиПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB1E81EDFD646002BC9C7CC483B80560BC56F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621792   (244880) от 26.03.2023
-
-Dead Girls Rock: Оглядываясь назад на «Мертвых девочек» / Dead Girls Rock: Looking Back at Dead Girls (2022) BDRip [H.264/720p] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный проект с участием актеров и съемочной группы фильма ««Мертвые девчонки» 1990 года.Производство: СШАЖанр: документальныйПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA100606234DD7F6DB567F837625830B7AA03C57
 ```
 
 https://mybot314.ru/tekegram_catalog/

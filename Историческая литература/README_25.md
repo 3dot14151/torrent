@@ -1,3 +1,108 @@
+###  Публикация: 212117   (824198) от 08.05.2020
+
+Дженет Лоу | Говорит Билл Гейтс (2004) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его богатство колоссально. Его влияние огромно. Ему хотели бы подражать миллионы… Билл Гейтс. Богатейший человек мира, чье личное состояние больше, чем бюджет нескольких небольших государств. Хотите знать о нем больше? Читайте книгу Дженет Лоу "Говорит Билл Гейтс". Если вы хотите узнать, чему и кому обязан своим успехом Билл Гейтс - эта книга для вас!Жанр: Биография, мемуарыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C137F70FD9218FF7EE8024B23FB2FC81A2D0CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196358   (824011) от 02.01.2018
+
+Н. Ленин и др. | Памяти Карла Маркса [К сорокалетию со дня его смерти. 14 марта 1883 - 14 марта 1923] (1923) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник составлен из статей, появлявшихся в печати раньше в разное время. В основе его лежит сборник „Памяти Карла Маркса", выпущенный в 1918 г. под редакцией Г. Зиновьева. Из статей того сборника не напечатана здесь лишь глава из книги Меринга „Карл Маркс — история его жизни", в виду того, что в настоящее время эта книга целиком появилась в русском (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AC7402527BDB568E1764A2189D66B20F2E7E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007216   (823397) от 14.04.2016
+
+Шапи Казиев | Наложницы. Тайная жизнь восточного гарема (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раньше гаремы называли «дарюсааде» – «дом счастья». Оказавшись здесь, девушки получали новое имя, обучались религиозному почитанию и абсолютному подчинению. Эзотерический символизм суфиев в соединении с явной эротической направленностью ритуалов скрывал религиозное служение.
+Автор Шапи Казиев воссоздал экзотический мир гарема, устройство и иерархию этой «академии (   Читать дальше...   )Жанр: История, Культурология, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D0D56053FFD06E28A321CAFECBEA47A044AA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007247   (823306) от 14.04.2016
+
+Цзюн Чан | Императрица Цыси. Наложница, изменившая судьбу Китая. 1835—1908 (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Императрица Цыси, одна из величайших женщин-правительниц в истории, в течение 47 лет удерживала в своих руках верховную власть в качестве регента трех императоров Поднебесной. В период ее правления «из-за ширмы» было положено начало многим отраслям промышленности, появились первые железные дороги и телеграфное сообщение. Именно Цыси отменила мучительные телесные (   Читать дальше...   )Жанр: История, этнографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A64B4399B1D0BF230E39945D1BB2E0FF3FC88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007128   (823304) от 14.04.2016
 
 Анатолий Максимов | Большая ложь [1000-летняя попытка Запада ликвидировать Российскую Государственность] (2014) [FB2]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823304.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823229.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823224.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820874.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819243.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818805.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815917.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815913.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815911.jpg" />
 </div>
 
 
@@ -248,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815909.jpg" />
 </div>
 
 
@@ -276,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815856.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815690.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813797.jpg" />
 </div>
 
 
@@ -357,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813603.jpg" />
 </div>
 
 
@@ -383,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813579.jpg" />
 </div>
 
 
@@ -409,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813455.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812024.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812016.jpg" />
 </div>
 
 
@@ -487,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812014.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812012.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812011.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811931.jpg" />
 </div>
 
 
@@ -576,113 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9BE1F3300A201E14AEE2E74C0EBC13C5A94FF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197890   (811892) от 09.01.2018
-
-Д. Р. Киркпатрик | Война... ради чего? (1920) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга написана для того, чтобы помочь научить и пробудить рабочий класс. И если эта беспритязательная книга хотя бы в самой ничтожной степени принесет с собою луч света уму моих младших братьев на борту громадных стальных боевых кораблей и в голых пасмурных казармах, зажжет свет в умах моих обездоленных и обманутых братьев и сестер на заводах, на копях и на фермах (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860EEC7F1BFF74737BD83DF8F779C857C566676D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383684   (809966) от 16.05.2020
-
-Валерий Даниленко | Картина мира в мифах древнего Китая (2019) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мифическая картина мира того или иного народа по-своему отражает мировидение этого народа. У каждого народа оно своеобразно. Цель этой книги – наметить путь к воссозданию картины мира в древнекитайских мифах.
-Книга предназначена для тех, кто ценит народную мудрость.Жанр: Древневосточная литература, Мифы, легенды, эпосФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399D1B407881DE744EE2CF9C857CC1874876886E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383687   (809963) от 16.05.2020
-
-Лафкадио Хирн | Призраки и чудеса в старинных японских сказаниях (2017) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония – удивительная, завораживающая страна с богатейшей историей – бережно сохраняет наследие своих предков. Один из образцов такого наследия – кайданы – диковинные легенды и рассказы о призраках, необычных суевериях, жутких и сверхъестественных событиях. Почти все они заимствованы из старинных японских книг, таких как «Ясо-кидан», «Буккё-хаякка-дзэнсё», «Кокон-тёмонсю», (   Читать дальше...   )Жанр: Древневосточная литература, Мифы, легенды, эпосПеревод: Ольга ПавловскаяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495DDE4FB99BD89457EC39A665B5100D23819FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383483   (809825) от 16.05.2020
-
-Вячеслав Клыков | Союз Русского Народа в борьбе за Россию (2005) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представленная книга написана знаменитым, к сожалению рано ушедшим из жизни человеком.
-В конце 90-х и начале 2000-х годов из-за определённых националистических фобий, книга в продажу не поступала и её тираж не известен. В интернете можно найти только отдельные её фрагменты.
-В книге изложена точка зрения Вячесла́ва Миха́йловича, с позиций сегодняшнего времени (   Читать дальше...   )Жанр: историческийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD1832C5AF05F0FD48BE917FBD0537DD35DFCCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

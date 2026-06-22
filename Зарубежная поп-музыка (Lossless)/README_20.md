@@ -1,3 +1,119 @@
+###  Публикация: 997203   (875729) от 16.03.2016
+
+Two Of Us - Twice As Nice (1985) 1986, CBS/Sony (Japan) [FLAC|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом популярного немецкого дуэта тех лет!01. Generation Swing
+02. Two Of Us
+03. I Can Feel You Burn
+04. Hollywood Boulevard(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644A33546C1F71171BD932A9F3A23ADD1EE7FB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373984   (875089) от 09.04.2020
+
+EL Кравчук - На облаках (2012) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На облаках
+02. Города
+03. Моя надежда
+04. Лети на свет ( feat. Верка Сердючка )(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236B4E79781B1C15F2FC199B5F3EFCBF63292FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105438   (875048) от 18.02.2017
+
+Duran Duran - Notorious (1986) Unofficial Release [APE|Lossless|image + .cue] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious
+02. American Science
+03. Skin Trade
+04. A Matter Of Feeling(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A18AEFA91BAE3FCF295B1340ADBE657FC7BB016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105617   (874815) от 18.02.2017
+
+VA - BRAVO Hits 96 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Paul feat. Dua Lipa - No Lie (3:43)
+02. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye (4:10)
+03. Alan Walker - Alone (2:39)
+04. Nevada feat. Mark Morrison & Fetty Wap - The Mack (2:46)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AD1AD45936FE439BCDC0196C4CB0514F9DBA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374353   (874724) от 09.04.2020
 
 Francisca Valenzuela - Tajo Abierto (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop>
@@ -6,7 +122,7 @@ Francisca Valenzuela - Tajo Abierto (2014) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874724.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dino Sauro-Rex - Walk The Dino Dance (1993) [FLAC|Lossless|image + .cue] <Pop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874723.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Hound Dog & The Megamixers - The Greatest Ever Junior Party Megamix (1990) [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874717.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874650.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874581.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873894.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_873640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_873640.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873556.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Supermax - 25 Years Of Magic Dance Music 1977-2002 (2002) Limited Edition, 6CD B
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872877.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Radio 538: Hitzone 68 (2014) 2CD [FLAC|Lossless]<Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872671.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Gwen Stefani - This Is What The Truth Feels Like (2016) International Deluxe Edi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871872.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Number 1's: The Ultimate Collection (2014) Box Set, 5CD [FLAC|Lossless|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871754.jpg" />
 </div>
 
 
@@ -356,7 +472,7 @@ Falco - Falco 60 (2017) Limited Premium Edition [FLAC|Lossless|tracks + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871065.jpg" />
 </div>
 
 
@@ -385,7 +501,7 @@ The Weeknd ‎ - After Hours (2020) [FLAC|Lossless|tracks + .cue] <R'n'B, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870597.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ She Is We (ex. He Is We) - War (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870319.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ Annie Lennox - Cold + (1992) 3CD Box set, Singles, Japanese Edition, 1993, BMG V
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870279.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ Arabesque - Grand Collection (2004) [FLAC|Lossless|tracks + .cue] <Europop, Disc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867792.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ VA - Dance Your Ass Off (Salsoul Remixes) (2013) Remixes+Continuous Mix [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867119.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ Meghan Trainor - Treat Myself (2020) Target Exclusive [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865619.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ Middle Of The Road - The Best Of (2002) [FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865571.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ Infernal - 3 альбома (2007, 2008, 2010) [FLAC|Lossless]<Dance, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865560.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ Demis Roussos - Souvenirs (1975) Remastered, 2016, UMC [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864410.jpg" />
 </div>
 
 
@@ -634,122 +750,6 @@ Demis Roussos - Souvenirs (1975) Remastered, 2016, UMC [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2B7A4E66CB33FA27DD53831CF05CDB8B7358F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999596   (863043) от 23.03.2016
-
-HorrorPops - Bring It On! (2005) [FLAC|Lossless|tracks] <Pop-Rock, Alternative, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freaks In Uniforms   02:45
-02. Hit 'N' Run   03:34
-03. Bring It On!   02:17
-04. It's Been So Long   03:27(   Читать дальше...   )Жанр: Pop-Rock, Alternative, Indie RockПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A3B4C82ED5070ADB72D4620B150B48E59EF994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497932   (861365) от 24.09.2021
-
-Adolescent's Orquestra - Millenium Hits (1999) [FLAC|Lossless|image + .cue] <Salsa>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anhelo
-02. Hoy Aprendi
-03. Persona Ideal
-04. Arrepentida(   Читать дальше...   )Жанр: SalsaПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1717408DC43C8DF257310AF68812DDD227BC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497783   (861177) от 24.09.2021
-
-Natalie Imbruglia - Firebird (2021) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Build It Better (03:24)
- 02. Nothing Missing (03:14)
- 03. What It Feels Like(03:54)
- 04. On My Way (03:37)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A96CFFD8C5AF402711F997ADEE1BA795D4058BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109094   (860750) от 26.02.2017
-
-Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima (6:52)
- 02. ( Life may be ) A big insanity (4:30)
- 03. Johnny wanna live (4:29)
- 04. Lovelight in your eyes (5:29)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

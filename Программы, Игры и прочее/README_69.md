@@ -1,213 +1,3 @@
-###  Публикация: 1316279   (507680) от 24.07.2019
-
-Streets Of Rage 2x Remake 1.4 Beta [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Streets Of Rage Remake 2x - Неофициальное издание всеми любимой в прошлом игры "Bare Knuckle". Игра была создана фанатами для узкого круга лиц (не для массового распространения), и только поэтому оставалась все это время в тени. Теперь данный проект мы решили запустить в массы, надеемся игра найдет своих поклонников, и быть может будет востребована.Тип издания: НеофициальныйРелиз состоялся: 09.07.2017Разработчик: KratusПоддерживаемая ОС: Android 2.3 и вышеЖанр: Arcade, Fighting, Beat em upЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3AE0FB01CCD1CF555AC348ACD19CCB4916A834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562985   (507047) от 11.07.2022
-
-Termux 0.118 Mod by Идите Лесом + Plugins [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Termux - представляет собой полноценный эмулятор терминала Linux со всеми его возможностями. С Termux вы можете почувствовать себя владельцем самого настоящего карманного компьютера на Linux.  Среди основных функций приложения: оболочки bash и zsh, редактирование файлов через nano и vim, полноценный доступ и управление серверами через ssh, компилирование кода с помощью (   Читать дальше...   )Тип издания: Оригинал + МодификацииРелиз состоялся: 12.01.2022Разработчик: Fredrik FornwallПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583348517EED380830CC40C27689F40B21FD752E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562973   (507043) от 11.07.2022
-
-Parallel Space - Multi Accounts 4.0.9177 Mod by derrin, KirIif', GuanYinLite [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallel Space - является приложением, которое может запустить несколько копий одного приложения в одно и то же время на разных аккаунтах. Нажмите на "+" в интерфейсе и выберите приложение, которое вам требуется клонировать. Второй аккаунт не будет влиять на основной аккаунт.Тип издания: Pro + Pro-Lite + ModРелиз состоялся: 31.03.2022Разработчик: LBE TechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C81C6504C938971FC8052B4AE3A0E26C8B341A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562919   (507037) от 11.07.2022
-
-NetShare Pro 1.99 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507037.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetShare Pro - Позволит превратить ваше Android устройство, в точку доступа WiFi. Поделитесь своим подключением к интернету (моб. данные или WiFi) с другими устройствами с помощью WiFi Direct. После подключения устройства к точке доступа, откройте приложение и активируйте разрешение VPN.Тип издания: Premium + Mod (RUS)Релиз состоялся: 24.01.2022Разработчик: NetShare SoftwaresПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E34529AF2FA8E4998542A214710A8E03F8F553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563162   (506212) от 12.07.2022
-
-Lite RSS Pro 2.5.2 Mod by solokot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lite RSS - это простая, быстрая и легкая программа чтения / чтения RSS. Читайте все ваши новости rss / feed в одном месте. Вход не требуется, просто добавьте ваши RSS-каналы. Вы также можете добавить веб-сайты для быстрого доступа к ним.Тип издания: ProРелиз состоялся: 27.05.2022Разработчик: Greenstream AppsЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80198979ECAE2A8FBEE17BDE22E0ED14E50610AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563144   (506211) от 12.07.2022
-
-AppSales: Скидки и распродажи приложений 12.0 Mod by KirIif' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506211.jpg" />
-</div>
-
-
-###  Подробнее
-
-AppSales: Скидки и распродажи приложений - ещё одно отличное приложение предназначенное помогать пользователям совершать самые выгодные и удачные покупки программ с различных площадок. AppSales важен регион пребывания человека, ведь она так же отслеживает снижения цен и прочие предложения для определённых территорий. Так что лучше не полениться и заполнить всю необходимую (   Читать дальше...   )Тип издания: Premium (Mod)Релиз состоялся: 02.05.2022Разработчик: ts-appsЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FB8E5F2E567C3DB5B403929ED288757A82A63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933380   (505120) от 02.09.2015
-
-Disney Color and Play v1.4 [En]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Color and Play — это мир творчества и захватывающих приключений в компании любимых героев: доктора Плюшевой, друзей из Клуба Микки Мауса, персонажей анимационных фильмов «Холодное сердце», «Город героев», «Головоломка» и «Королевские питомцы».
-
-Создавайте и раскрашивайте собственные миры Disney — и смотрите, как картинки оживают у вас на глазах, превращаясь (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 20 апреля 2015Разработчик: Disney Publishing WorldwideПоддерживаемая ОС: Android 4.1+Жанр: Детские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C0EC0E64D6D0F49E65EFB1F42A663AD9E70A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914374   (505059) от 02.09.2015
-
-Волшебная ферма v2.7.4 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебная ферма / Fairy Farm - Великолепная ферма на анроид, которая пришла к нам из социальных сетей из Одноклассников и Вконтакте. Главное преимущество игры – она не требует интернет. И это, пожалуй, очень сильно выделяет игру среди всех подобных. В игре собрано 150 различных растений для посадки, и около ста милых зверушек для выращивания. Также из различных трав (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28 августа 2015 г.Разработчик: Game Garden™Поддерживаемая ОС: Android 2.3.3+Жанр: ДетскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E7DCE736FEC608B5811C8CA1F2FD739F5E5F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933394   (505001) от 02.09.2015
 
 Женские приложения на Андроид
@@ -216,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505001.jpg" />
 </div>
 
 
@@ -243,7 +33,7 @@ Opera GX: Браузер для геймеров 1.5.9 Mod by The_Sem100Dan4ik [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504462.jpg" />
 </div>
 
 
@@ -269,7 +59,7 @@ CastItAll Premium 3.2.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504364.jpg" />
 </div>
 
 
@@ -295,7 +85,7 @@ CamCard - Business Card Reader 7.52.7.20220714 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503512.jpg" />
 </div>
 
 
@@ -321,7 +111,7 @@ Phone Master - Защита приложений 5.3.2.00001 Mod by artemscine [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503431.jpg" />
 </div>
 
 
@@ -347,7 +137,7 @@ Battery Guru: Battery Health 1.9.29.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503423.jpg" />
 </div>
 
 
@@ -373,7 +163,7 @@ Call Master v5.4.0.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503086.jpg" />
 </div>
 
 
@@ -399,7 +189,7 @@ uTorrent Pro 3.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503044.jpg" />
 </div>
 
 
@@ -425,7 +215,7 @@ Genius Scan Plus - PDF сканер 7.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502479.jpg" />
 </div>
 
 
@@ -451,7 +241,7 @@ The Weather Channel 10.54.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501456.jpg" />
 </div>
 
 
@@ -477,7 +267,7 @@ Garmin: City Navigator Singapore & Malaysia 2022.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500584.jpg" />
 </div>
 
 
@@ -503,7 +293,7 @@ GnaCAD 2.11.55 Mod by IWIITI [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500505.jpg" />
 </div>
 
 
@@ -529,7 +319,7 @@ Image Converter / Конвертер изображений 9.0.25 Mod by Rahul 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500501.jpg" />
 </div>
 
 
@@ -555,7 +345,7 @@ Garmin: TopoActive South America 2020.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499591.jpg" />
 </div>
 
 
@@ -581,7 +371,7 @@ GIF Maker and Editor v1.6.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498374.jpg" />
 </div>
 
 
@@ -610,7 +400,7 @@ ZArchiver Pro 0.8.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498299.jpg" />
 </div>
 
 
@@ -636,7 +426,7 @@ Warplanes: WW2 Dogfight v1.6 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497458.jpg" />
 </div>
 
 
@@ -662,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497357.jpg" />
 </div>
 
 
@@ -673,6 +463,225 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5370BE0EF6FA9F0B4B76F1B638983A507E613E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 887936   (493447) от 12.09.2015
+
+Gangstar Vegas v2.0.1b [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой боец соглашается сдать бой за солидное вознаграждение, но его оппонент оказывается слабее, чем он думал. Отправив противника в нокаут, главный герой спутывает планы Фрэнка Велиано, босса местной мафии. Стоит ли говорить, что главного героя ждут нелегкие времена?
+Город грехов и пороков. Город ярких огней и темных подворотен. Город, в котором в одночасье становятся (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 16 июня 2015 гРазработчик: GameloftПоддерживаемая ОС: Android 2.3 +Жанр: ActionЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80808336D12BCB3CFC3FB1DD8861A44D41257729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054265   (492143) от 20.09.2016
+
+АвтоДилер Pro v1.010 [Ru] - Помощник в покупке автомобиля
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не трать время на поиск лучших предложений авторынка! Предложения сами найдут тебя! Работает для любого города России. Миллионы людей каждый день продают и покупают автомобили, но лучшие варианты достаются только самым быстрым соискателям. Именно это приложение сделает вас “самой быстрой рукой на Диком Западе”. АвтоДилер возьмет на себя всю заботу о поиске автомобиля (   Читать дальше...   )Тип издания: Пиратка (Pro и Free без рекламы)Релиз состоялся: 17.09.2016Разработчик: MOTWПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E969B761E3AFD59562993AE40D6DE90993D03C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054935   (492040) от 20.09.2016
+
+Звуки Животных v1.54 Premium [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучающая игра для детей от 1 года до 5 лет, предназначенная для обучения звукам животных, без какой-либо отвлекающей от развлечения рекламы. Это ПОЛНАЯ игра, которую полюбите вы и ваш ребенок, и самое важное — она учит по-веселому! Играть очень легко. Просто дотрагиваясь до экрана, вы услышите звуки животных, их названия и характеристики. Даже ребенок сможет играть (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked)Релиз состоялся: 09.09.2016Разработчик: PapumbaПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2350A02C28CA3D6363479C33353E5EAC16BFB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054881   (491782) от 20.09.2016
+
+Spy Video Recorder Camera / Шпионская видео камера v3.0.0 Pro [Ru/Мульти]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шпионская видео камера — незаменимая программа, когда надо вывести на чистую воду очередного чиновника или блюстителя порядка, требующего взятку. На самом деле спектр применения этого приложения широк ровно настолько, насколько широка фантазия пользователя. Интерфейс программы состоит из единственного окна с доступом ко всем настройкам: переключение передней и задней (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 05.02.2015Разработчик: form follows function appsПоддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D720815F75DAD647ED7138E9B1484A07D55986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544840   (486555) от 09.09.2012
+
+[Книга] (Android 1.6+) Омар Хайям - Рубаи
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это жемчужина восточной поэзии. В ней глубокие философские мысли облачены в невесомую вуаль утонченного слога.
+О поэзии Омара Хайяма замечательно сказал С.Я.Маршак:
+
+Четыре строчки источают яд,
+Когда живет в них злая эпиграмма,
+Но раны сердца лечат "Рубайат" -
+Четверостишья старого Хайяма.
+
+Для удобства чтения в книгах реализовано листание страниц как в бумажных изданиях. С помощью простого меню каждый читатель может настроить отображение книги под характеристики своего устройства.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319085   (486326) от 10.08.2019
+
+Карты для iGo 2019.Q2 HERE (NQ, NavTeq) Европа [25.07.2019]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486326.jpg" />
+</div>
+
+
+###  Подробнее
+
+iGO R3 Here (NavTeq) Европа 2019.Q2 (.fbl, .fda, fds, .fjw, .fjv (Russia), .fpa, .fsp, .ftr, .hnr, .poi, .3dl, .3dc, .ph, .dem, .spc)Релиз состоялся: 29.04.2019Разработчик: HEREПоддерживаемая ОС: iGO8/Primo/MyWay/Amigo (Android, WinCE, WM)Язык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99D1BAB8E9D1F44578208DDE31D960D094918C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565918   (486286) от 27.07.2022
+
+Скороговорки «Ехалгрека» – Russian Tongue Twisters v1.3.8 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Each tongue twister is accompanied by voice acting and the ability to record and listen to the pronunciation of your voice.
+Work on your pronunciation. Try to articulate each word clearly, slowly, and with consistency. Do this regularly and try to pronounce the sentence by heart.
+It is important to say the tongue twister out loud. Try to memorize the text by heart, (   Читать дальше...   )Тип издания: FullРазработчик: Igor KusovПоддерживаемая ОС: Android 5.0+ (arm-universal)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398513   (484699) от 29.08.2020
+
+Smart YouTube TV v6.17.720 Stable [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484699.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube клиент для медиа-боксов и ТВ на базе Android. В настоящее время множество девайсов имеют проблемы с YouTube. Цель приложения - исправить этот недостаток. Стабильный релиз ориентирован на большинство пользователей. Начните с нее. Она содержит четыре лаунчера: Pro Main, Pro Alt, Lite Main и Lite Alt. В обоих Pro есть поддержка АФР и 60фпс. В Lite этого нет, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 24.08.2020Разработчик: Yuriy LyskovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5AB7F7CDCC07D22EE68749DD3E0818C84C5471
 ```
 
 https://mybot314.ru/tekegram_catalog/

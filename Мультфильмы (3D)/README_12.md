@@ -1,3 +1,107 @@
+###  Публикация: 1247367   (452421) от 15.09.2018
+
+Пчёлка Майя и Кубок мёда / Maya the Bee: The Honey Games (2018) Blu-ray 3D/2D [H.264/1080p] [Custom]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пчёлка Майя с нетерпением ждёт начала спортивных соревнований между ульями за Кубок мёда. Однако Императрица не только не допускает её улей до игр, но и требует, чтобы они отдали половину своего урожая мёда для питания других спортсменов. Такое положение дел не устраивает пчёлку, и она летит к Императрице, чтобы добиться включения её команды в список участников.Производство: Германия, Австралия / Studio 100 Media, Studio B AnimationЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Ноэль Клири, Серджо Делфино, Алекс СтадерманнАктеры: Коко Джек Гиллис, Бенсон Джек Энтони, Ричард Роксбург, Джастин Кларк, Марни МакКуин, Линда Нго, Кэм Ральф, Джордан Хэа, Сэм Хафт, Питер МакАллумПеревод: Дублированный (iTunes)Субтитры: НемецкиеПродолжительность: 01:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886D2F14125E235017D5A0ED8F1D933D19013A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827141   (448672) от 02.10.2014
+
+Букашки. Приключение в Долине муравьев / Minuscule - La vallee des fourmis perdues (2013) Blu-ray 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активные и любознательные черные муравьишки обнаруживают брошенную после пикника коробку с сахаром. Дружный отряд муравьишек вместе с Божьей коровкой решают переправить лакомство в муравейник. Но сладкая коробка уже успела нарушить спокойствие во всей долине, и свои планы на лакомство появились у других обитателей леса, в частности — у злобных красных муравьев-захватчиков. (   Читать дальше...   )Производство: Франция, Бельгия, Futurikon, Entre Chien et Loup, Futurikon Production IIЖанр: Мультфильм, Семейный, ПриключенияРежиссер: Хелен Жиро, Томас ЗабоПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FA43B188FEE8B7DDF18F89029E2FE73C703500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827116   (448668) от 02.10.2014
+
+Букашки. Приключение в Долине муравьев / Minuscule - La vallée des fourmis perdues (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активные и любознательные черные муравьишки обнаруживают брошенную после пикника коробку с сахаром. Дружный отряд муравьишек вместе с Божьей коровкой решают переправить лакомство в муравейник. Но сладкая коробка уже успела нарушить спокойствие во всей долине, и свои планы на лакомство появились у других обитателей леса, в частности — у злобных красных муравьев-захватчиков. (   Читать дальше...   )Производство: Франция | Futurikon, Entre Chien et Loup, Futurikon Production IIЖанр: Мультфильм, Семейный, ПриключенияРежиссер: Хелен Жиро, Томас ЗабоПеревод: Не требуетсяПродолжительность: 01:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D582F1E172AFFDB7DED731743E17BA576F8EEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164781   (438775) от 10.09.2017
+
+Граница пустоты: Сад грешников (фильм первый) / Gekijo ban Kara no kyokai: Dai issho - Fukan fukei (2007) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сики Рёги — странная девушка из древнего и влиятельного рода. В любую погоду она ходит в кимоно, не любит общаться с посторонними, а из развлечений предпочитает прогулки по самым темным уголкам ночного Токио. Более-менее понимают ее только двое — циничная волшебница Токо Аодзаки и скромный гений оперативной работы Микия Кокуто. Вот такая веселая троица под чутким (   Читать дальше...   )Производство: Япония / Aniplex, Notes, UfotableЖанр: аниме, мультфильм, ужасы, триллерРежиссер: Эи АокиПерсонажи: Маая Сакамото, Кэнъити Судзумура, Такако Хонда, Аюми Фудзимура, Риэ Танака, Эри Накао, Сюдзо НакамураПеревод: Двуголосый закадровый, любительскийОзвучка: AnilibriaСубтитры: Русские - Полные (Вшитые отключаемые, отдельным файлом)Продолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFE63A86DF1023EF452E6CF7911DE03095F57EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555254   (432997) от 02.10.2012
 
 Замбезия / Zambezia (2012) [1080p] Blu-ray 3D  [3D/2D]
@@ -6,7 +110,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432997.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418212.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415766.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415763.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415653.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412005.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411848.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411827.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411101.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409705.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409103.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409048.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404711.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403813.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402300.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401293.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400307.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399744.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399741.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399644.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399331.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398735.jpg" />
 </div>
 
 
@@ -568,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36EB8600AEF52F90DE47E813AC77AEFAC23EF0C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566599   (398661) от 27.10.2012
-
-В поисках Немо / Finding Nemo (2003) [1080p] BDRip [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди прекрасных тропических морских стихий, в районе Большого барьерного рифа в уединении живет рыба-клоун по имени Марлин. Он растит своего единственного сыночка Немо. Океан и существующие в нем опасности очень страшат Марлина, и он как может ограждает сына от них, но молодой Немо, страдающий излишним любопытством, очень хочет разузнать побольше о таинственном (   Читать дальше...   )Производство: Disney Enterprises Inc. / Pixar Animation Studios / Walt Disney PicturesЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Эндрю Стэнтон, Ли АнкричАктеры: Альберт Брукс, Эллен ДеДженерес, Александр Гулд, Уиллем Дефо, Брэд Гэррет, Эллисон Дженни, Остин Пендлтон, Стивен Рут, Викки Льюис, Джо РэнфтПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F37FBE179E91C6BA4498DD20750AD39211384CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567283   (396578) от 29.10.2012
-
-В поисках Немо / Finding Nemo (2003) [1080p] Blu-ray 3D  [3D/2D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди прекрасных тропических морских стихий, в районе Большого барьерного рифа в уединении живет рыба-клоун по имени Марлин. Он растит своего единственного сыночка Немо. Океан и существующие в нем опасности очень страшат Марлина, и он как может ограждает сына от них, но молодой Немо, страдающий излишним любопытством, очень хочет разузнать побольше о таинственном (   Читать дальше...   )Производство: США, АвстралияЖанр: Мультфильм, Комедия, Приключения, СемейныйПеревод: Дубляж, закадровый многоголосыйСубтитры: (PGS, 3D): Английский, РусскийПродолжительность: 01:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E33472376149EC16FA1F945C16C7C29E1C0294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716086   (394343) от 28.10.2013
-
-Гадкий я 2 / Despicable Me 2 (2013) BDRip [1080p] [Вертикальная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394343.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как Грю, бывший суперзлодей, приспосабливается к семейной жизни и пытается честным трудом зарабатывать в сфере бизнеса, тайные лаборатории Арктики оказываются украденными. Анти-Злодейская лига решает, что она нуждается в помощи Грю и его новобранцев в расследовании.Жанр: Мультфильм, Фантастика, Комедия, Криминал, Приключения, СемейныйРежиссер: Пьер Соффин, Крис РеноПерсонажи: Стив Карелл, Кристен Уиг, Бенджамин Брэтт, Миранда Косгров, Расселл Брэнд, Кен Жонг, Стив Куган, Элси Фишер, Дэна Гайер, Мойзес АриасПеревод: ДублированныйПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4CE7F2C78701D6782E443A37F2ACEE13E6C183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716398   (393555) от 29.10.2013
-
-Тачки / Cars (2006) BDRip [1080p] [Вертикальная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неукротимый в своем желании всегда и во всем побеждать гоночный автомобиль «Молния» Маккуин вдруг обнаруживает, что сбился с пути и застрял в маленьком захолустном городке Радиатор-Спрингс, что находится где-то на трассе 66 в Калифорнии.
-Участвуя в гонках на Кубок Поршня, где ему противостояли два очень опытных соперника, Маккуин совершенно не ожидал, что отныне (   Читать дальше...   )Жанр: Мультфильм, Комедия, Приключения, Семейный, СпортРежиссер: Джон Лассетер, Джо РэнфтПерсонажи: Оуэн Уилсон, Пол Ньюман, Бонни Хант, Ларри Кейбл, Гай Чич, Марин Тони Шэлуб, Гуидо Куарони, Дженифер Льюис, Пол Дули, Майкл УоллисПеревод: ДублированныйПродолжительность: 01:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1527BEEC781294A4669E314C7F04E32C0472FEBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

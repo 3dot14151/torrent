@@ -7,7 +7,7 @@ Magical Drop VI (6) (2023) [Multi] (2.4.9) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049657.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Season Match / Времена года (2007) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934861.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Season Match 2 / Времена года 2 (2008) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933314.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Green Valley: Fun on the Farm / Ферма Зеленая Долина (2008) [R
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909860.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Winter Magic: Factory / Зимняя магия: Фабрика (2017) [Ru/Multi
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847936.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Quest of the Sorceress / Квест Чародейки (2014) [Ru] (1.0) Unoffic
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729498.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Boulder Dash Deluxe (2022) [Ru/Multi] (1.0.5) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714205.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The Voice from Heaven / Голос Небес (2017) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646192.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Season Match 4 / Времена Года 4 (2017) [Ru/En] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630944.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Wood Land Arcanoid [En] (L) 2012
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566234.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Cursed House 5 / Проклятый дом 5 (2018) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538291.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Paradise Quest [Ru] (P) 2009
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473599.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ War Tanks 3D / Война Танков 3D: Вне Времени [Ru] (P) 2012
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468680.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Planets Under Attack [Ru/Multi8] (P) 2012 l THETA
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415724.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Atlantis Sky Patrol [En] (P) 2006
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395666.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Aqua Pearls / Приключения Акватика (P) [Ru] (2006)
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_382107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_382107.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Duskless: The Clockwork Army / Бессумеречный город: Механ
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322854.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Storm Chasers: Tornado Islands / Охотники за штормом: Остр�
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318123.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ MadCaps [En] (P) 2004
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309399.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Caribbean Pirate Quest (P) [En] 2008
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256147.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Treasures of Hotei (P) [En] 2012
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252989.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Cursed House 11 / Проклятый дом 11 (2022) [Ru] (1.0) Unofficial
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207443.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kits (2023) [En] (1.0) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199613.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Zuma Star Wars / Зума: Звездные войны (2007) [En] (1.0) Unoffic
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141101.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Hidden Object Chronicles: Poisoned Truth (2024) [En] (1.0) Unofficial [Collector
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119994.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Cats Love Boxes (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62786.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Stand Up (2023.11.17) SATRip (сезон 11, выпуск 9)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150637.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150599.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150212.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150178.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150046.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148341.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147811.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147176.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147138.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146812.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146480.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145843.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145734.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145608.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144457.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144213.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142523.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140413.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139978.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139969.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139966.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139909.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139874.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Stand Up (2023.11.24) SATRip (сезон 11, выпуск 10)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139377.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138901.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Stand Up / Павел Воля. Большой Stand-Up (2018.12.30) SATRip
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138675.jpg" />
 </div>
 
 

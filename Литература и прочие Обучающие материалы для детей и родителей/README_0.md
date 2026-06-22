@@ -1,3 +1,83 @@
+###  Публикация: 1871358   (1069751) от 17.05.2026
+
+Л.Э. Генденштейн, А.Б. Кайдалов | Физика. Учебник для 9 класса (в 2 частях, часть 1) (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный учебник является третьим в линии учебников физики для основной школы, созданных одним коллективом авторов. Последовательность изложения материала в линии: 7-й класс — первые сведения о механических явлениях, давление в жидкостях и газах, работа и простые механизмы; 8-й класс — тепловые, электромагнитные, оптические явления; 9-й класс — механические, квантовые (   Читать дальше...   )Жанр: УчебникИздательство: МнемозинаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31547D31B3285EBC291F75B6895E1B627E7E442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871113   (1069311) от 15.05.2026
+
+Л.Э. Генденштейн, А.Б. Кайдалов | Физика. Учебник для 7 класса (в 2 частях, часть 1) (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный учебник является первым в линии учебников физики для основной школы, созданных одним коллективом авторов. Последовательность изложения материала в линии: 7-й класс — первые сведения о механических явлениях, давление в жидкостях и газах, работа и простые механизмы; 8-й класс — тепловые, электромагнитные, оптические явления; 9-й класс — механические, квантовые (   Читать дальше...   )Жанр: УчебникИздательство: МнемозинаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FF6C01A87C7E347659701E2E29800510DB00D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871115   (1069310) от 15.05.2026
+
+Л.Э. Генденштейн, Л.А. Кирик, И.М. Гельфгат | Физика. Сборник задач для 7 класса (в 2 частях, часть 2) (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть учебника содержит качественные, расчётные и экспериментальные задания, сгруппированные по темам, изучаемым в 7-м классе в соответствии с действующей программой по физике. В каждый раздел включено достаточное количество задач трёх уровней сложности. К расчётным задачам в конце книги приведены ответы, к некоторым даны указания или решения.
+
+Первая часть (   Читать дальше...   )Жанр: Учебное пособиеИздательство: МнемозинаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC942C9E428881E0204BFA187500118A919EE4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871119   (1069308) от 15.05.2026
 
 Л.Э. Генденштейн, А.Б. Кайдалов | Физика. Учебник для 8 класса (в 2 частях, часть 1) (2017) [PDF]
@@ -6,7 +86,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069308.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069307.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068923.jpg" />
 </div>
 
 
@@ -90,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068351.jpg" />
 </div>
 
 
@@ -116,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068349.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067895.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067482.jpg" />
 </div>
 
 
@@ -198,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067453.jpg" />
 </div>
 
 
@@ -226,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067076.jpg" />
 </div>
 
 
@@ -252,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067048.jpg" />
 </div>
 
 
@@ -270,6 +350,59 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867117   (1066576) от 
+
+Егор Колесников, Елена Филимонова | Пешкой без Спешки: Основные дебюты и приёмы (2026) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник «Пешкой без спешки» — это уникальное введение в мир шахмат для начинающих. Вместо сухой теории авторы предлагают увлекательное путешествие по основным дебютам (Испанская партия, Ферзевый гамбит, Сицилианская защита и другие), где фигуры «оживают» и сами объясняют свои роли. Каждый урок закрепляется разбором ключевых тактических приёмов: двойной удар, связка, (   Читать дальше...   )Жанр: Занимательная литература. Учебное пособие.Издательство: СамиздатФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD248413DD083C04FC3B3626EDC744D2BAF5B5A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866709   (1066278) от 21.04.2026
+
+Александр Рыбников | Серия книг Планета ребусов [13 книг] (2022, 2023) [PDF] [RU, EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие ребусы разгадывать всегда интересно. На страницах с необычными картинками можно найти простые примеры загадок, где достаточно убрать две или три последние буквы, чтобы получился искомый ответ. Но есть и более сложные варианты, когда загадка состоит из нескольких изображений и необходимо найти между ними взаимосвязь.
+В настоящем релизе родителям и педагогам (   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураЯзык: Русский, английскийИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364ADC4158993938005E2165169E5D5ED338DB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866537   (1066057) от 20.04.2026
 
 Нисон Ходза | Сказки народов Азии (2025) [PDF]
@@ -278,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066057.jpg" />
 </div>
 
 
@@ -304,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065930.jpg" />
 </div>
 
 
@@ -330,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065790.jpg" />
 </div>
 
 
@@ -356,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065153.jpg" />
 </div>
 
 
@@ -382,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065152.jpg" />
 </div>
 
 
@@ -408,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065151.jpg" />
 </div>
 
 
@@ -434,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065131.jpg" />
 </div>
 
 
@@ -460,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065130.jpg" />
 </div>
 
 
@@ -486,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064641.jpg" />
 </div>
 
 
@@ -513,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064640.jpg" />
 </div>
 
 
@@ -541,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064638.jpg" />
 </div>
 
 
@@ -553,136 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A7BED2B904EAC41D6BA299B852411FB07563C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864279   (1064618) от 
-
-А.П. Ершова, В.В. Голобородько | Геометрия. 7 класс (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник для 7 класса общеобразовательных учебных заведений с обучением на русском языке.Жанр: МатематикаИздательство: РанокФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3C447ACA1B5A14BB4186066307B354B1EE14B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864283   (1064617) от 
-
-А.П. Ершова, В.В. Голобородько | Геометрия. 8 класс (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник для 8 класса общеобразовательных учебных заведений с обучением на русском языке.Жанр: МатематикаИздательство: РанокФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21DF8D784643F853ECCB54FE4112087E80AA1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864285   (1064616) от 
-
-А.П. Ершова, В.В. Голобородько | Геометрия. 9 класс (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник для 9 класса общеобразовательных учебных заведений с обучением на русском языке.Жанр: МатематикаИздательство: РанокФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0046CC370CAE793975745FD2A8E3F988DC78A8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864292   (1064609) от 
-
-В.В. Казаков | Геометрия. 9 класс (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие для 9 класса учреждений общего среднего образования с русским языком обучения.Жанр: МатематикаИздательство: Народная асветаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A174D35BBEB68816FEDEBD728B3C20FE9388E1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864289   (1064608) от 
-
-В.В. Казаков | Геометрия. 7 класс (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие для 7 класса учреждений общего среднего образования с русским языком обучения.Жанр: МатематикаИздательство: Народная асветаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748B122B189A1F96D7B439C24C3702A69807866E
 ```
 
 https://mybot314.ru/tekegram_catalog/

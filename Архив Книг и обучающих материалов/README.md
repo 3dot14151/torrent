@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057595.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Knower School, Дмитрий Смирнов | Курс игровой граф�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045706.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045566.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045258.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043584.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042547.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041852.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040642.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040449.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Udemy, Dr. Angela Yu | The Complete 2020 Flutter Development Bootcamp with Dart 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040218.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039654.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ CodeWithMosh, Mosh Hamedani  | The Ultimate HTML/CSS Mastery Series: Part 1-3 (2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038425.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036215.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034925.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033825.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033398.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide [2021 Edi
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033133.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032559.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032527.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Udemy, Михаил Непомнящий | React с нуля для начина
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032374.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Udemy, Visualpath IT, Imran Teli | DevOps Projects | 20 Real Time DevOps Project
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030821.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029528.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029332.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028734.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028694.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Udemy, Konstantin Kokorin | Изучаем Flutter (2020) PCRec
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027628.jpg" />
 </div>
 
 

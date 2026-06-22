@@ -1,3 +1,57 @@
+###  Публикация: 222905   (43511) от 15.09.2024
+
+Соломон Шолом-Алейхем | Злоключения Менахем-Менделя, Пестрые рассказы (2007) [MP3, Максим Пинскер]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43511.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1859 году в Полтавской губернии в небогатой патриархальной еврейской семье Рабинович родился мальчик, получивший имя Соломон. В дальнейшем именно ему суждено было стать замечательным еврейским писателем, известным всему миру как Шолом-Алейхем. За исключением нескольких рассказов и публикаций все произведения Шолом-Алейхем написаны на идиш. Мировую известность писателю (   Читать дальше...   )Жанр: Повесть, рассказИздательство: СоюзПродолжительность: 03:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376148A273E77F554A658767F2749F536319B06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384942   (42992) от 20.09.2024
+
+Август Стриндберг | На круги своя (2005) [MP3, Александр Балакирев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XIX век. Зарубежная проза.
+Август Юхан Стриндберг (1849–1912) – классик шведской литературы, прозаик и драматург, творчество которого оказало большое влияние на всю европейскую культуру начала XX века.
+Повесть «На круги своя» – яркая фантастическая история любви и смерти, веры и безверия: «Завистливые боги, вы завязываете людям глаза и выталкиваете в (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF4ACA97E5A4C125C2371AF3DFDB18CF3BEE4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 401490   (42771) от 22.09.2024
 
 Сергей Есенин | Стихотворения и поэма (2007) [MP3, Алексей Консовский и др.]
@@ -6,7 +60,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42771.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42473.jpg" />
 </div>
 
 
@@ -63,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42461.jpg" />
 </div>
 
 
@@ -91,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42412.jpg" />
 </div>
 
 
@@ -118,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42364.jpg" />
 </div>
 
 
@@ -145,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41860.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41838.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41773.jpg" />
 </div>
 
 
@@ -227,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41768.jpg" />
 </div>
 
 
@@ -254,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41521.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41362.jpg" />
 </div>
 
 
@@ -309,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41047.jpg" />
 </div>
 
 
@@ -335,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40430.jpg" />
 </div>
 
 
@@ -363,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40424.jpg" />
 </div>
 
 
@@ -391,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40390.jpg" />
 </div>
 
 
@@ -420,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40387.jpg" />
 </div>
 
 
@@ -449,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40355.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40353.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40349.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40264.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40263.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40262.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40260.jpg" />
 </div>
 
 
@@ -646,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40115.jpg" />
 </div>
 
 
@@ -658,60 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE52F505D21A4EF1C32934C36A42879DEB33381C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 355685   (40114) от 17.10.2024
-
-Александр Амфитеатров | Княжна (2007) [MP3, Галина Самойлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Валентинович Амфитеатров (1862–1938) – русский писатель, журналист. Начал печататься с 1882 в юмористических журналах «Будильник» и «Осколки».
-Знаменитый дворянин князь Радунский после скандала в полку вынужден выйти в отставку и поселиться в родовом поместье. За буйный нрав и развратную жизнь в окружении крепостных наложниц он получил прозвище «Чертушка». (   Читать дальше...   )Жанр: Русская литература, классика, роман-хроникаИздательство: Вира-М (аудио)Продолжительность: 07:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5462A19A20C80999D80105520AFC4BBF83E99C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 355684   (40104) от 17.10.2024
-
-Александр Амфитеатров | Бабы и дамы или межсословные пары (2007) [MP3, Галина Самойлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Валентинович Амфитеатров (1862–1938) – русский писатель, журналист. Начал печататься с 1882 в юмористических журналах «Будильник» и «Осколки».
-Цикл рассказов «Бабы и дамы» о быте предреволюционной России. Чиновник сошелся с кухаркой и в ответ получил страстную любовь, от которой ему нет спасения; светская дама неожиданно родила от малознакомого мужчины (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 07:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2F1311D628AF2F836089D1F12758492E526585
 ```
 
 https://mybot314.ru/tekegram_catalog/

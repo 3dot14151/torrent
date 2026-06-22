@@ -6,7 +6,7 @@ Magic Cutter - MP3 Editor for Mac 1.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134602.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TechSmith Camtasia 2022 Studio 2022.6.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134285.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Trimma for Mac 1.6.884 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133823.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kiosc 1.15.13 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133545.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Motion 5.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133332.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Compressor 4.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133303.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Logic Pro X 10.8.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133266.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Final Cut Pro X 10.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133211.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Sound Grinder Pro 3.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130334.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VideoSolo Screen Recorder For Mac 2.0.50 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130324.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Library Monkey Pro 3.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130288.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ TunesKit Video Cutter 2.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130055.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PerfectTUNES for Mac 3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129977.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sound Studio 4 v4.10.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129257.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Cockos REAPER for Mac v6.46 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129217.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Tagr 5.6.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122896.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Yandex Music Unofficial for Mac 1.8.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122801.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ MP3 Encoder 2.18.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122731.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ HitPaw Video Enhancer for Mac 3.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122541.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ NCH Express Scribe Pro for Mac 13.00 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122169.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ MetaVideo for Mac 1.1.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122135.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ n-Track Studio Suite 10.0.0 ARM [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121827.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ n-Track Studio Suite 10.0.0 Intel [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121825.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Steinberg WaveLab Pro for Mac12.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120975.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120933.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Tipard Screen Capture 1.1.26 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120773.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1328876   (358384) от 02.10.2019
+
+Js Stuff - jBridge 1.74 RePack by unknown author [En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358384.jpg" />
+</div>
+
+
+###  Подробнее
+
+jBridge - приложение использует межпроцессные способы передачи информации, и позволяет запускать 32 битные плагины в 64 битном хосте или 64 битные плагины в 32 битном хосте, или запускать 32 битные плагины в 32 битных хостах, минуя ограничение по объему памяти 32 битного процесса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE97F005C276DC6D4AA3B59E9DB4819D2255494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955460   (333345) от 11.11.2015
+
+TuneBlade 1.4.1.0 [En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333345.jpg" />
+</div>
+
+
+###  Подробнее
+
+TuneBlade это простое приложение, которое позволяет Вам транслировать системный аудио поток на устройства AirPort Express, Apple TV, а так же на беспроводные динамики с поддержкой AirPlay и приложения позволяющие принимать AirPlay аудио поток, такие как: ShairPort, XBMC/Kodi и TuneAero.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F70A0DA5623C72DB51B586BB586450340C79FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255729   (286912) от 02.11.2019
 
 Tau Analyzer 1.2 [En]
@@ -6,7 +58,7 @@ Tau Analyzer 1.2 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286912.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Sam Broadcaster PRO 2016.10 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285430.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tag&Rename 3.9.11 Final RePack (& Portable) by Trovel [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279798.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ eJay Dance 6 Reloaded [De]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276070.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258411.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Crescendo Music Notation Editor 9.62 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208308.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ Everyone Piano 2.5.9.4 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190871.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ IVONA voices 2 v.1.6.76 + Speech2Go v.1.128 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147892.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ StemRoller 2.0.3 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122220.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Fakin The Funk 5.4.0.158 (х64) Portable by Spirit Summer [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120520.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ RadioBOSS Advanced 7.0.2.0 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60379.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ NonVisual Desktop Access (NVDA) 2024.2 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51298.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ Fakin The Funk 6.0.0.162 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47763.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ MediaMonkey Gold 5.0.5.2695 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35584.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ Nucleer Coffee - My Music Collection 2.3.14.156 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28716.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ TagScanner 6.1.20 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10658.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ Neuratron Photoscore Ultimate 6.1.0 Retail [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10128.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ MuseScore 4.5.2 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6468.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Music Collection 3.9.3.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6026.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Louis Armstrong - Mack the Knife (2001) [FLAC|Lossless|tracks + .cue] <Dixieland
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038518.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nat King Cole - St. Louis Blues (1958) 2011, Analogue Productions [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038460.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Freddie Hubbard - The Complete Freddie Hubbard Blue Note & Impulse '60s Studio S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038376.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Larry Ochs & Aram Shelton Quartet - Continental Drift (2020) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038292.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Oliver Nelson - Screamin' The Blues (1960) 2018, Analogue Productions [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038214.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Freddie Hubbard - Sky Dive (1972) 1988, CBS [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038129.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Herbie Nichols - The Complete Blue Note Recordings Herbie Nichols (1955, 1956) 3
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038127.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Arnett Cobb - Party Time (1959) 2018, Analogue Productions [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038093.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Terje Gewelt - Selected Works (2011) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038067.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Hot Sardines - Shanghai'd (2011) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038049.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Junior Mance - Straight Ahead! (1964) 2011, EMI [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037821.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Freddie Hubbard & The New Jazz Composers Octet - On The Real Side (2008) Four Qu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037598.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Freddie Hubbard - Times Are Changing (1989) Blue Note [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037594.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jesse van Ruller - Circles (2002) Criss Cross Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037593.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ George Howard - Love And Understanding (1991) [FLAC|Lossless|tracks + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037588.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Alan Gorrie - Sleepless Night (2020) [FLAC|Lossless|tracks + .cue] <Funk, Soul, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037516.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Buddy Rich - Time Out (1977, 1978) 2007, Lightyear [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037300.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sophie Milman - Her Very Best... So Far (2013) Linus Entertainment [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037292.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Chilly Intimate Love Smooth Playlist for You & Me (2023) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037288.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Freddie Hubbard - The Artist Selects (1960 - 1966) 2005, EMI [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036991.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Joe Zawinul Trio - To You With Love (1959) 2005, Fresh Sound Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036986.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ian Hendrickson-Smith - The Lowdown (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036964.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Wayne Alpern - Standard Deviation (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036948.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ John Medeski - A Different Time (2013) Okeh [FLAC|Lossless|tracks + .cue] <Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036743.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Dinah Washington - The Fats Waller Songbook (1957) 1992, EmArcy [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036741.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Sun Ra And His Arkestra - Greatest Hits: Easy Listening For Intergalactic Travel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036738.jpg" />
 </div>
 
 

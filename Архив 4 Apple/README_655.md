@@ -1,3 +1,57 @@
+###  Публикация: 1195465   (142313) от 29.12.2017
+
+Permute 2.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Старт", все остальное программа сделает автоматически.
+
+Список пресетов для конвертирования в поддерживаемые форматы довольно внушительный: (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529CFED6551C52424207190FAF54B5FC10E5E5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435910   (142300) от 29.12.2020
+
+Irvue 2.7.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 03.10.2020Разработчик: Igor SavelevПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E1EA7D7394A6DCF7829DBBB83604792548E1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520465   (142292) от 28.12.2021
 
 WonderPen 2.0.4 [Multi]
@@ -6,7 +60,7 @@ WonderPen 2.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142292.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ TaskPaper 3.8.16 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142270.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Soulver 3 v3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142257.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Privatus 6 v6.3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142248.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Cookie 6.6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142239.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Tower Pro 10 v.10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142231.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ Duplicate File Finder Pro 6.12.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142210.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142203.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ MacCleaner 2 PRO 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142175.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ Wondershare Recoverit for Mac 12.0.19.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142165.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ WiFiSpoof 3.8.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142136.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ XCap 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142105.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ SiteSucker Pro 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142094.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ iMazing 2.5.3 (8307) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142073.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142057.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ Prism 9 v9.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142054.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ Lunar Pro for Mac 6.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142053.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ TextMate 2 v2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142031.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ Video Converter Movavi 19 v19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142026.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142003.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ Unclutter 2.1.24d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141964.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ ScreenFlow 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141945.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ iCompta 6 v6.0.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141935.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ Rhinoceros 8 v.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141905.jpg" />
 </div>
 
 
@@ -632,62 +686,6 @@ Rhinoceros 8 v.8.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:339C897070FB541618CE174F454E13BF303AE8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348825   (141894) от 29.12.2019
-
-Stay 1.2.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы привередливы и стараетесь держать свои окна в порядке, это приложение для вас. Будьте уверены, что ваши окна находятся там, где вы хотите, даже когда вы подключаете и отключаете дисплеи.
-Как это работает?
-Переместите ваши окна туда, где вы хотите их видеть, затем сохраните их. После сохранения окна могут быть возвращены в их первоначальное состояние в любое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2019Разработчик: Cordless DogПоддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8965C8E52B5929EE87D2EA4D4026B8375C313B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348899   (141859) от 29.12.2019
-
-Movist Pro 2.2.14 (build 136) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0413B7F098A55A9AF45423B2F235802740EE7437
 ```
 
 https://mybot314.ru/tekegram_catalog/

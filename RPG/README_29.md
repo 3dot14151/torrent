@@ -1,3 +1,107 @@
+###  Публикация: 1162141   (458741) от 01.09.2017
+
+Wizards and Warriors (2000) [En] (1.0) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пусть сюжет Wizards & Warriors не делает каких-то неожиданных поворотов, пусть каждое слово и каждый мотив вселенских злодеев уже выучены назубок, эта RPG готова удивлять и радовать даже самых матёрых поклонников жанра.Тип издания: LicenseРазработчик: Heuristic ParkЖанр: RPG, 3D, 1st PersonЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825D4D3FAA4A3BDE5F86FC6BDF06C7FDFCB14255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321449   (458644) от 24.08.2019
+
+Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиквел первой части, вышедший спустя восемь лет. События игры происходят в стране Farr, где три брата под вашим управлением отправляются на борьбу со Злом. Как и в первой части фэнтезийный мир страны Farr впечатляет своими масштабами. Огромное множество городов и деревень, в каждом из которых найдется занятие для трех братьев. Остается лишь добавить, что перспектива (   Читать дальше...   )Тип издания: LicenseРазработчик: The Dreamers GuildЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CBBDD1AA5FCB9F47860D37CAA02BD0DA8AE4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247095   (456406) от 13.09.2018
+
+Torchlight (2009) [Ru/En] (1.15(a)) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торчлайт. Процветающий шахтерский городок, выросший рядом с богатейшими залежами эмбера, редкой руды, способной зачаровать – или погубить – все, чего она касается. Эмбер – невероятно могущественная субстанция, а могущество, как знают все, развращает. Вам предстоит отправиться в горы неподалеку от города и спуститься в шахты, чтобы узнать, какое влияние эмбер оказал (   Читать дальше...   )Тип издания: LicenseРазработчик: Runic Games Inc.Жанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6911179B6AEA97E049DB289406DC4B5EF61C4D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135324   (456243) от 02.09.2017
+
+Regalia: Of Men and Monarchs (2017) [En/Ge/Pl] (1.0.7.0) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Regalia: Of Men And Monarchs  - ролевая игра, полная увлекательных битв и захватывающих приключений. Соберите отряд из запоминающихся персонажей и за дело! Впереди у вас много работы — ведь вам предстоит возродить целое королевство. Насладитесь нарисованной от руки графикой, порадуйтесь оригинальной оркестровой музыке, сочиненной Game Audio Factory (авторам музыкального (   Читать дальше...   )Тип издания: LicenseРазработчик: Pixelated MilkЖанр: Role-playing, Strategy, FantasyЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ПольскийЯзык интерфейса: Английский, Немецкий, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A4581F2F6D38C1D4FB009E8D9D650EB143E852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306152   (454214) от 26.08.2019
 
 Warhammer: Chaosbane (2019) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst
@@ -6,7 +110,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454214.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Lords of Xulima (2014) [Ru/Multi] (2.1.1/dlc) License PROPHET [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450127.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447437.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445897.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Steam-Rip CHRONOS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444807.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444489.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Avernum: Escape From the Pit (2012) [Ru/En] (1.0.1S) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443468.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-100601) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441300.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437555.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Arcania: Gothic 4 / Готика 4: Аркания [Multi5-] (L) 2010 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434109.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ Hades (2020) [Ru/En] (1.36032) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431248.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430372.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ Realms of Arkania: Blade of Destiny (2013) [En/Ge] (1.36/dlc) License PROPHET [C
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429684.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429210.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ Desktop Dungeons (2013) [En] (1.56/dlc) Repack R.G. Механики [Enhanced E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428626.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0/dlc) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427171.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ Wasteland 2 (2014) [Ru/En] (1.0 u6/dlc) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426493.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425816.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425107.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ OCTOPATH TRAVELER (2019) [Multi] (1.0) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424982.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423253.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_422717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422717.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ Heroes of Might and Magic V: Повелители Орды - завершающ�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251026   (421849) от 29.09.2018
-
-Tower of Time (2018) [Ru/Multi] (1.2.4.2476) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower of Time — удивительная игра со множеством приключений, в которую входит около 50 часов игрового времени. Все уровни в игре созданы вручную, а увлекательный сюжет раскрывается через видеовставки.Тип издания: RepackРазработчик: Event HorizonЖанр: Strategy, RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90ACF622A10E41B4122876499D321AA426D33D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191869   (421714) от 29.09.2018
-
-Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) License PLAZA [Fleet Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diluvion — трехмерная игра о странствиях в морских глубинах. Она пронизана духом книг Жюля Верна, содержит элементы ролевой игры и захватывающие бои субмарин. Станьте капитаном собственного корабля!Тип издания: LicenseРазработчик: Arachnid GamesЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B5946829E3D7299C8AAB4D8814BA9C52582F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572606   (420564) от 27.08.2022
-
-King's Bounty II (2021) [Ru/Multi] (1.7/dlc) License GOG [Duke's Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Над Нострией сгущается тьма. Заговоры, диверсии, чернокнижничество – поводов для тревоги несть числа. Но, быть может, спаситель – последняя надежда королевства – уже среди нас, и он сумеет дать отпор силам зла! King’s Bounty II – долгожданное продолжение легендарной серии King’s Bounty, которая славится как один из лучших представителей жанра ролевых игр с пошаговыми (   Читать дальше...   )Тип издания: LicenseРазработчик: Fulqrum GamesЖанр: Ролевая игра, ПриключениеЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C96B1F24A4826D5F2DDA5C8EBFFB140E3EBFA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159293   (416314) от 20.09.2017
-
-Darkwood (2017) [Ru/En] (1.1 Hotfix 4) Repack Covfefe
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkwood - это игра о выживании, исследовании и страхе, действие которой происходит в таинственных лесах где-то на территории Советского блока. С видом сверху, со свободой перемещения, этот сюрреалистический хоррор-опыт ждёт вас в мире, который каждый раз генерируется заново. Беря пример с классических игр, где часто нужно было разобраться самостоятельно, и впитав (   Читать дальше...   )Тип издания: RepackРазработчик: Acid Wizard StudioЖанр: Action (Survival horror), RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B17E964479BC3647B4F0EF6F5D4237CDB7D1B6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

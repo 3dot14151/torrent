@@ -6,7 +6,7 @@ Move or Die (2016) [Ru/Multi] (4.0.5) Repack Vse-Top
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607781.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alpha Protocol [Ru] (RePack/1.1) 2010 | R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606993.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Trine Diolgy / Дилогия Trine (Repack) [Ru/En] 2009-2011 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605331.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Alan Wake + Alan Wake's American Nightmare [Ru/En] (Repack) 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605047.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Alan Wake's American Nightmare (RePack/1.03.17.1781) [Ru] 2012 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605036.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MLB 14 The Show (2014) [PS3] [USA] 4.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604705.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Foundation (2019) [Ru/Multi] (1.1.9.0419) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603505.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Inversion (2012) [Ru] (5.48) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603022.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0/upd4) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602568.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ POSTAL 4: No Regerts (2022) [En] (1.0.2) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601928.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Tales From The Borderlands Episodes 1-3 (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600868.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Rodea the Sky Soldier (Tenkuu no Kishi Rodea) (2015) [Wii] [NTSC-J]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599680.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Deputy Dangle (2016) [En] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599285.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Terraria (2011) [Multi] (1.3.0.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599249.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Hard Reset: Extended Edition [Ru] (Repack/1.51) 2011 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598797.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Counter-Strike v.1.6 Professional Edition [Ru] 2009 | CS-REDEMAX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598284.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Race On [Ru/En] (RePack) 2009 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_597354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597354.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ CheMax 12.3 [Ru] / 13.5 [En] / CheMax FC 3.1 [Ru/Multi]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_597232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597232.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597202.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Shank - Дилогия (RePack/1.03/1.0dc120305) [Ru/En] 2010-2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597069.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.3) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596875.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Jagged Alliance: Back in Action / Jagged Alliance: Снова в деле + 6 DL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596711.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wolfenstein (RePack/1.2) [Ru/En] 2009 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596706.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Universe Sandbox (2015) [Ru/Multi] (30.0.1) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595870.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Warlock: Master of the Arcane [Ru] (RePack/1.2.1.42) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595345.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595332.jpg" />
 </div>
 
 

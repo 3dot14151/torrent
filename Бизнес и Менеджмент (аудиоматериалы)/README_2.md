@@ -1,3 +1,55 @@
+###  Публикация: 1844068   (1049913) от 24.12.2025
+
+Татьяна Демидова | Финансовый навигатор. От хаоса к системе что нужно знать, чтобы бизнес работал и зарабатывал (2025) [MP3, Нона Трояновская]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у вас есть деньги в бизнесе, но нет прибыли, эта книга поможет вам навести порядок в финансовых делах, превращая хаос в управляемую и прибыльную систему. Скучные отчёты больше не будут вас утомлять. "Финансовый навигатор: от хаоса к системе" предлагает осмысленный подход без занудства, с реальными примерами и здравым смыслом. Экономист и бизнес-ментор (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 09:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68186609B9B3B7A7EBF24B3E0CBA47C8C2C1D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843809   (1049780) от 23.12.2025
+
+Максим Котин | И ботаники делают бизнес (2018) [MP3, Сергей Казаков]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то предпринимателями в России становились авантюристы и бюрократы, если не просто бандиты. Теперь в бизнес идут обыкновенные люди, менеджеры среднего звена и интеллигенты, которых предшественники назвали бы, наверное, мечтателями и «ботаниками». Каждый из них ищет ответ на вопрос: а что будет со мной, если я в условиях современной России, которой правят олигархи, (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 09:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976D0CEFBB6D25703B9B16D864EC66D4F7310328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843958   (1049769) от 24.12.2025
 
 Джош Берсин | Непревзойденные. Семь принципов менеджмента, которые выведут компанию на запредельно высокий уровень (2025) [MP3, Пётр Каледин]
@@ -6,7 +58,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049769.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049497.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049252.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048557.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048426.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048073.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047973.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047900.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047766.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047516.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046988.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046751.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046469.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045827.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045192.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044520.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044132.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044046.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043845.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043830.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043806.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043686.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041323.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041127.jpg" />
 </div>
 
 
@@ -632,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE31946EF890843A110B0BD31CEB51D55257EF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615000   (1037858) от 25.02.2023
-
-Константин Борисов | Командос. Как достигать больших целей вместе (2019) [MP3, Илья Волков]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037858.jpg" />
-</div>
-
-
-###  Подробнее
-
-80% проблем бизнеса – проблемы с людьми: недостаток компетенции, слабая мотивация и лояльность, плохая организация работ в команде. Но часто причины кроются в лидере – в установках, ценностях и подходах к людям. Руководителю мало уметь находить «звёзд» в команду: нужно научить их работать вместе. Методика Командо©, представленная в книге, поможет построить команду (   Читать дальше...   )Жанр: лидерство, организационный менеджмент, российская практика, управление персоналомПродолжительность: 03:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A07987E5AEB1BCE274C7F43B7447046FDDE7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614988   (1037849) от 25.02.2023
-
-Мэрилин Аткинсон, Рае Т. Чойс | Мастерство жизни. Внутренняя динамика развития (2018) [MP3, Элнара Салимова]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэрилин Аткинсон в соавторстве с Рае Т. Чойс являются последователями всемирно известного Милтона Эриксона. В книге «Мастерство жизни» (первой из трилогии «Трансформационный коучинг: Наука и искусство») авторы делают акцент на собственном «Я» человека. В книге описаны научные исследования в данном направлении, а также открытия в области человеческого мозга, сделанные (   Читать дальше...   )Жанр: зарубежная деловая литература, коучинг, личная эффективность, менеджмент и кадры, просто о бизнесе, саморазвитие / личностный ростПеревод: Международный Эриксоновский Университет КоучингаПродолжительность: 05:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2407CA531CD11A09BE1829A31CBFD268C2B4179C
 ```
 
 https://mybot314.ru/tekegram_catalog/

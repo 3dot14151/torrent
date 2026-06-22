@@ -1,3 +1,55 @@
+###  Публикация: 1524989   (130318) от 18.01.2022
+
+PDF Reader Pro Edition 2.8.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130318.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2014-2022 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524952   (130306) от 18.01.2022
+
+ProFind 1.9.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524991   (130304) от 18.01.2022
 
 Transfer 2.0.2 [En]
@@ -6,7 +58,7 @@ Transfer 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130304.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Music Tag Editor Pro 5.10.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130300.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ SnapMotion Unlimited 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130296.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ SideNotes 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130294.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ MacClean360 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130290.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Feeder 4 v4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130286.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ TunesKit Video Cutter 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130284.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Downie 4 v4.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130280.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ FSNotes 5.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130275.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ Adobe Lightroom Classic for Mac v11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130239.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Smart Disk Image Utilities 3.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130128.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130097.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ Sketch 82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130091.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Aiseesoft Mac Video Enhancer 9.2.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130053.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ DoYourData Start Menu Pro 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130042.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ Nova 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130038.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ iStatistica Pro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130024.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Donemax DMmenu 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130012.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ SnippetsLab 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129987.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129984.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Dropzone 4 Pro v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129960.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ MarkMyWords 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129957.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129956.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ One Switch 1.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129954.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ One Switch - это крошечное приложение, разработа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AB55DAAA4646CDCC57B7FCF67BC98B95607CF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525110   (129951) от 19.01.2022
-
-Smooze Pro 2.0.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B180825CA065B413FCDF45D2F615293424E4AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525137   (129949) от 19.01.2022
-
-Artstudio Pro 4.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8219111BBA925F7597354F42AF98A358D026FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

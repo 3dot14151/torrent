@@ -1,3 +1,217 @@
+###  Публикация: 1785279   (24586) от 15.03.2025
+
+Обои - Eternal Mix Wallpapers Part 40 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52AE0ADFED9693D5FBD7F74F3D1A1D233703CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785551   (24483) от 16.03.2025
+
+Обои - Eternal Mix Wallpapers Part 41 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB16FAAA3F31FD1F4A3D34A3A26F79EAE9B664D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785892   (24288) от 18.03.2025
+
+Обои - Eternal Mix Wallpapers Part 42 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 43 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C35315FA896BBB108A6B9019C4A7B3ABE8A7C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786462   (24096) от 20.03.2025
+
+Обои - Eternal Mix Wallpapers Part 43 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8940D8CE9EDD0E1F34D4C87CE522C5076C83668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786694   (23980) от 21.03.2025
+
+Обои - Eternal Mix Wallpapers Part 44 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C58DA620814A8E62B93364B25594A37240BB792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786908   (23872) от 22.03.2025
+
+Обои - Eternal Mix Wallpapers Part 45 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97819BFA69E78FD2D1DE57B49A74DCBEB2027D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786896   (23862) от 22.03.2025
+
+Книжная иллюстрация - Le Petit Journal - Illustrations From History [JPG]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрации из французской газеты Le Petit Journal.Формат: JPGРазрешение файлов: 3413x1563 - 3069x4382
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC25D8AFF0FBF8BC384CE359B5BBD1C83249123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786819   (23858) от 22.03.2025
+
+Картинки - Medieval European Sculptors Part 3 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографии средневековых европейских скульптур с авторами, биографиями (на английском и частично на русском) и датами.Формат: JPGРазрешение файлов: Разное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E517286A0B325A9C39088480AA79B3E443340CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786988   (23739) от 23.03.2025
 
 Картинки - Dutch Automotive History - NCAD, 159 Producers - 9710 HQ Scans [JPG]
@@ -6,7 +220,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23739.jpg" />
 </div>
 
 
@@ -33,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23662.jpg" />
 </div>
 
 
@@ -60,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23621.jpg" />
 </div>
 
 
@@ -86,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23250.jpg" />
 </div>
 
 
@@ -113,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23148.jpg" />
 </div>
 
 
@@ -139,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23117.jpg" />
 </div>
 
 
@@ -166,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23037.jpg" />
 </div>
 
 
@@ -193,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23015.jpg" />
 </div>
 
 
@@ -221,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23009.jpg" />
 </div>
 
 
@@ -248,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22798.jpg" />
 </div>
 
 
@@ -275,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22725.jpg" />
 </div>
 
 
@@ -301,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22711.jpg" />
 </div>
 
 
@@ -327,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22698.jpg" />
 </div>
 
 
@@ -354,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22614.jpg" />
 </div>
 
 
@@ -381,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22532.jpg" />
 </div>
 
 
@@ -407,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22382.jpg" />
 </div>
 
 
@@ -434,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22327.jpg" />
 </div>
 
 
@@ -461,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22197.jpg" />
 </div>
 
 
@@ -473,216 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009CEBAAA80BAF8F1B84CA4330691E17A1FD5B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790400   (22116) от 08.04.2025
-
-Обои - Eternal Mix Wallpapers Part 57 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F2478CD4E4657CE2A2B0F5D4478F00BD8B5255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790590   (22006) от 09.04.2025
-
-Обои - Eternal Mix Wallpapers Part 58 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D219CC6952D6BBE2242DD0385FDBC2BBEC6D77D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792826   (20718) от 21.04.2025
-
-Книжная иллюстрация - Creative Fabrica - 30 Unique Mandala Coloring Page Bundle for KDP Interior [JPG, PNG, SVG, PDF, AI]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 30 уникальных раскрасок с мандалами для интерьера KDP.Формат: JPG, PNG, SVG, PDF, AIРазрешение файлов: 612 x 792
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA0CCF78DCBB28C0A666D58EEF201DDD80E5FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792827   (20707) от 21.04.2025
-
-Картинки - Fayne - Creative Fabrica - Mandala Adult Coloring Pages Pack 12 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20707.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 картинок с мандалой в двух разрешениях.Формат: JPGРазрешение файлов: 2550 x 2550 - 2550 x 3300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9218475D60C3CA1BC332EE834002A9DFE1F3AAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798622   (17126) от 24.05.2025
-
-Картинки - jaceyadrian - Creative Fabrica - Deep Purple Mandala Inspired Wallpaper [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изображения в стиле тёмно-фиолетовой мандалы.Формат: JPGРазрешение файлов: 11783 x 11783
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E3A8CC1DF99E3C8DCB2F667C1A5787AB2269FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799284   (16673) от 27.05.2025
-
-Книжная иллюстрация - PLAY ZONE - Creative Fabrica - Valentine’s Day Stained Glass Coloring Pages For Adults [EPS, JPG, PDF, PNG, SVG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраски с витражами на тему Дня святого Валентина для взрослых.Формат: EPS, JPG, PDF, PNG, SVGРазрешение файлов: 960 x 1248 - 2550 x 3300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6755B60B61455BA306B5E156527ACB6BF75D5129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799287   (16663) от 27.05.2025
-
-Книжная иллюстрация - E A G L E - Creative Fabrica - 190 Deer Mandala Coloring Pages - KDP [JPG, PNG, PDF]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраски с оленями в стиле мандалы.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E9CE6245BAA610FC8BB1C40A3FF67056C99A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799281   (16657) от 27.05.2025
-
-Книжная иллюстрация - CockPit - Creative Fabrica - Bold and Easy Animal Coloring Pages V-09 [JPG, PDF, PNG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраски с животными.Формат: JPG, PDF, PNGРазрешение файлов: 1792 x 2688
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48EBF05D3288C604B9FE999AD49D898DA775AF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

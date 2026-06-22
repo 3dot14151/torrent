@@ -1,3 +1,83 @@
+###  Публикация: 1849067   (1053425) от 21.01.2026
+
+Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуйста, оденьтесь, Такаминэ [2025, TV, 12 из 12 эп. BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таканэ Такаминэ — звезда школы, она получает хорошие оценки, занимается спортом и даже становится президентом студенческого совета в первый год обучения в старшей школе. Но у Такаминэ есть секрет — она обладает способностью «Вечная дорога девственницы». Способность позволяет ей переделывать совершённые действия и добиваться иного результата. Чтобы активировать способность, (   Читать дальше...   )Производство: Liden FilmsЖанр: комeдия, ромaнтика, этҭиРежиссер: Макино ТомоэЯзык озвучки: Японский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E65916BB22EE67EC3036436629F4C572BDB757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848978   (1053178) от 20.01.2026
+
+Звёздное дитя [ТВ-3] | Ребёнок идола [ТВ-3] | Oshi no Ko 3 [2026, TV, 1 из 11] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053178.jpg" />
+</div>
+
+
+###  Подробнее
+
+После роковой поездки в Миядзаки, открывшей правду об убийстве шестнадцатилетней давности, прошло полгода.
+Группа B-Komachi благодаря усилиям Руби, Каны и Мем-Чо активно набирает популярность: вместе наши айдолы успели выпустить уже несколько новых песен. Аканэ всё так же блистает на театральной сцене, а Аква стал ведущим ТВ-шоу.
+Но несмотря на успех группы, Руби (   Читать дальше...   )Производство: Япония / Студия Doga KoboЖанр: драма, повседневностьРежиссер: Хирамаки ДайсукэЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 11 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B5F500C6CDBBBB9AD47F4B6012FE829F51014E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848866   (1053032) от 20.01.2026
+
+Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 из 12 эп.] BDRip 1080p 10-bit raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ничто не нарушало мирных будней Ёсикадзу Мияно: он учился, помогал с работой в ученическом комитете, украдкой от одноклассников наслаждался чтением манги, посвященной любви между мужчинами, временами беспокоился из-за того, что у него девичье лицо, — в общем вёл обычную жизнь обычного старшеклассника, пока судьба не свела его с учащимся на год старше Сюмэем Сасаки. (   Читать дальше...   )Производство: Studio DeenЖанр: сёнэн-aй, повседневнoсть, ромaнтикаРежиссер: Исихира СиндзиЯзык озвучки: Японский, Английский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B7FF514693DC86596763E9D0D2D3CBF5495FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848914   (1053007) от 19.01.2026
 
 Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Сасаки и Мияно: Выпускной [2023, Movie] BDRip 1080p 10-bit raw+rus
@@ -6,7 +86,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053007.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052970.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052911.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052909.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Hime-sama "Goumon" no Jikan Desu TV-2 | Время пытки, принцесс�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052898.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052760.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052625.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052568.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052490.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слуш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052435.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ Papa no Iukoto o Kikinasai! OVA-1 | Слушайтесь папу! OVA-1 [2013, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052434.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052320.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052288.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [202
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052178.jpg" />
 </div>
 
 
@@ -372,7 +452,7 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052065.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда дем�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051962.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели т
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051939.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051854.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ Maou no Musume wa Yasashi Sugiru!! | The Demon King`s Daughter Is Too Kind! | Ma
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051836.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051815.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ Outbreak Company | Операция - Вторжение | Мятежная ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051793.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051698.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ Kodomo no Jikan | Детское время [2007, TV, 12 эп. + спэшл] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051527.jpg" />
 </div>
 
 
@@ -596,84 +676,6 @@ Kodomo no Jikan | Детское время [2007, TV, 12 эп. + спэшл] DV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00AA0A64D924D2A3F5FA607453913AA715849D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846512   (1051526) от 07.01.2026
-
-Kodomo no Jikan: Ni Gakki | Детское время: Второй семестр [2009, OVA, 3 эп. + спэшл] DVDRip 576p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рин, Куро и Мими стали на год старше и теперь учатся в четвертом классе. Рин по-прежнему хочет, чтобы Аоки стал ее парнем и делает это извращенными способами. Куро считает Шираи-сенсея своим кумиром, а Мими по-прежнему не уверена в себе.Производство: Япония, DiomedéaЖанр: комедия, драма, эттиРежиссер: Суганума ЭйдзиЯзык озвучки: Русский закадровый (SHIZA Project - Лизавета, Dancel)Продолжительность: 4 серии по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607F05CD5B4D9DECE06A0D3C04E6FEB833137229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846513   (1051525) от 07.01.2026
-
-Kodomo no Natsu Jikan | Летнее время для детей [2011, OAD] DVDRip 576p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайсуке, Кёко, Рин, Куро и Мими отправляются в родной город Дайсуке, где знакомятся с его семьей, включая его младшую сестру Чику. Когда девушки идут на пляж, Рин вспоминает, как она ходила на пляж с Аки и Рейджи. Позже той ночью Рин пытается подкатить к Дайсуке, пока он спит, но отступает, когда считает, что он «немного больше» для неё. Тем временем Кёко, которая (   Читать дальше...   )Производство: Япония, DiomedéaЖанр: комедия, драма, эттиРежиссер: Суганума ЭйдзиЯзык озвучки: Русский закадровый (SHIZA Project - Лизавета, Dancel)Продолжительность: 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FF112C65790C50836D5752F684F5E0EF7DDA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846372   (1051524) от 07.01.2026
-
-Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убийственный ангел Докуро [2005, OVA, 4 эп.] DVDRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный школьник Сакура-кун даже не подозревает, что в будущем ему суждено изобрести революционную технологию вечной молодости, которая будет прекращать взросление девочек после того, как им исполнилось двенадцать лет (хотя, делая это открытие, он будет преследовать совсем иные цели...). Тем не менее это изобретение даст людям невиданные доселе возможности, что не (   Читать дальше...   )Производство: Япония, HAL Film MakerЖанр: треш-комедия, фэнтези, эттиРежиссер: Мидзусима ЦутомуЯзык озвучки: Русский закадровый (SHIZA Project - Daelit, Dancel, Kitsune, flower, Paragon, Absentia)Продолжительность: 4 серии по 26 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A338016583C073896D6AB5871962734B830E3FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

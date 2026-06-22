@@ -1,23 +1,101 @@
-###  Публикация: 1224551   (666055) от 10.05.2018
+###  Публикация: 1031081   (670090) от 02.07.2016
 
-Текстуры - Creative Market - 33 Marble Textures - 100% Vector - 2039711 [AI, EPS, JPG]
+Экшены - GraphicRiver - Draw in Sand Photoshop Action [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Draw in Sand - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F4049279CA767AD803E4293F92CE4148E92A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031111   (670048) от 02.07.2016
+
+Экшены - GraphicRiver - Feather Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Feather - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F28B65642016E2FCC27D225EB312249ED6C784E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031109   (669990) от 02.07.2016
+
+Экшены - GraphicRiver - Rainstorm Photoshop Action CS3+ [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rainstorm - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E120DCFB096AE7DA9C490307871CA766BEF1A65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223697   (669771) от 07.05.2018
+
+Текстуры - Creative Market - The AWSM Marble Textures Collection - 1437631 [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мраморные текстуры в векторе и не только.
-Автор: Blue Lela Design.Формат: AI, EPS, JPGРазрешение файлов: 5000 x 5000
+Мраморные текстуры.
+Автор: this is awsm.Формат: JPGРазрешение файлов: 5000 x 5000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5E005EB486B7D683B6E9C3CF4A69CA8087AED28
+magnet:?xt=urn:btih:F59A725EFE0B8C646080CB83E85E8E1E2385DEA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +103,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224383   (665934) от 10.05.2018
+###  Публикация: 1223738   (669767) от 07.05.2018
 
-Фоны и наложения - Creative Market - Realistic Rain Overlays - 2378051 [JPG]
+Текстуры - Creative Market - Cool Marble - 673703 [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наложение дождя на фотографии.Формат: JPG, PNG, PSDРазрешение файлов: 5000 x 5000
+Мраморные текстуры.
+Автор: Evlogiev CreativeФормат: JPGРазрешение файлов: 4500 x 3000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:956BB9B41C6DCB55AD4A4933267625C850CF4912
+magnet:?xt=urn:btih:7AEC9700BD0CC66E1A63977D3A368302C90DCBA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,26 +130,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224561   (665893) от 10.05.2018
+###  Публикация: 1223807   (669624) от 07.05.2018
 
-3D модели - Daz 3D - Mika 8 Pro Bundle - 49833 [DUF]
+Текстуры - Creative Market - Marble Textures - 716111 [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплект Mika 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
+Мраморные текстуры.
+Автор: Julia Dreams.Формат: JPGРазрешение файлов: 4559 x 6763 - 4917 x 6912
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A82374500C3BF4383B4F015A8C360A2A29ADD140
+magnet:?xt=urn:btih:D1D1F0EA87B5B2637F3A8B82B81827215B5E0D27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224375   (665891) от 10.05.2018
+###  Публикация: 1223718   (669619) от 07.05.2018
 
-Рамки - 4 Puzzle Photo Frames Bundle [PSD]
+Текстуры - Dribbble - Deluxe Marble Textures - 4063404 [JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669619.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шаблон-фоторамка в виде пазла для наложения на изображения. С инструкциями.Формат: PSDРазрешение файлов: 3000 x 2000
+Мраморные текстуры.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB2C1E543F90682B103A0B0ADC9CEF11F14625DD
+magnet:?xt=urn:btih:08530B29EDFB2FB4BDD49F75640591D93F767DCB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +183,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224417   (665884) от 10.05.2018
+###  Публикация: 1223641   (669618) от 07.05.2018
 
-3D модели - Daz 3D - Сборник 3D моделей #11 [DUF]
+Текстуры - Creative Market - Marble paint textures set - 1642971 [JPG, PDF]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Набор 3d моделей для DAZ 3D - из 100шт, категории Clothing, People, Animation, Jewelry.Формат: DUF
+Мраморные текстуры в формате JPG + бонус - еженедельник в мраморной обработке в формате JPG и PDF.
+Автор: AlexTroi.Формат: JPG, PDFРазрешение файлов: 2480 x 3508  - 10000 x 7000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C01E40B357A7A75EB6B07C484B8301DF0ACE0EB
+magnet:?xt=urn:btih:4929808BFC6CA4D37B7EF791309282CCB820E3CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,561 +210,472 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138162   (665044) от 28.05.2017
+###  Публикация: 1223870   (669616) от 07.05.2018
 
-Футажи - VideoHive - Energy Light Streaks With Particles [MOV]
+Текстуры - Creative Market - Liquid Marble Textures - 1199509 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры.
+Автор: DIGITAL INFUSIONФормат: JPGРазрешение файлов: 6000 x 3368 - 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167EA6BEC7EFC54184EE3A95940824C4004A7C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223658   (669615) от 07.05.2018
+
+Фоны - Envato Elements - Colorful Marble Ink Backgrounds 3 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6466E11B1D06C105CB730D732343E2CE5D8538C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223656   (669614) от 07.05.2018
+
+Фоны - Envato Elements - Colorful Marble Ink Backgrounds 2 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F56722CEC5E1ABE6F2C5E1A574CFC2D363CC577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223660   (669613) от 07.05.2018
+
+Фоны - Envato Elements - Colorful Marble Ink Backgrounds 4 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA6A7B28E3C2826B18A8143D2F1E8FB6A19A186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223790   (669612) от 07.05.2018
+
+Текстуры - Creative Market - Set Marble Vector Textures. - 1198577 [AI, EPS, JPG, PDF]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры в векторе и не только + дополнительные материалы.
+Автор: Mila Di ArtФормат: AI, EPS, JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3713A20DC27A4579D8D7C6F52185850578D34C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223891   (669609) от 07.05.2018
+
+Растровый клипарт - Marble Cave in Chile 9x JPEG [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморная пещера в Чили.Формат: JPGРазрешение файлов: 4288 x 2848 - 5264 x 3514
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9CF0D9C999708E12495C93524FBD509922AB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223655   (669545) от 07.05.2018
+
+Фоны - Envato Elements - Colorful Marble Ink Backgrounds 1 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3175049BF0328A1402B1540E6EEBB22D468B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223665   (669544) от 07.05.2018
+
+Фоны - Envato Elements - Colorful Marble Ink Backgrounds 5 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2DFA7C3703894FFC265F719163B24DF19D167C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223669   (669528) от 07.05.2018
+
+Фоны - Envato Elements - Colorful Marble Ink Backgrounds 7 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные фоны.Формат: JPGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF245FB4900F9A77A6F98AEB8981EC7F6B3CC47B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137286   (668704) от 25.05.2017
+
+Шрифты - Шрифты OTF 80000+ / Fonts OTF 80000+ [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифты OTF: более 80000 шт. Файлы не сортированы по папкам. Названия файлам присвоены с учетом оригинальных названий шрифтов для облегчения выявления повторов.
+Присутствуют: Roman; Swiss; Modern; Script; Decorative; Don’t Know и т.д.
+
+Коллекция помещена в архив zip ( 82824 шт )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1985B86EB73F13C0634A76A053617247347647EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291573   (668588) от 25.03.2019
+
+Стили - GraphicRiver - Mad Metal Effects - 21831547 [PSD, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ представить свой текст, форму или логотип в классном стиле металлического гранж.Формат: PSD, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5F1A3BE8FCAC93C27AAF4D5F8DD7CF9A7A67EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291579   (668579) от 25.03.2019
+
+Стили - GraphicRiver - Mobile Game Text Effects vol.1 - 23376785 [PSD, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор из 10 совершенно разных логотипов, которые подходят для игр разных жанров. Зомби, защита башни, космические приключения, подводные игры, три в ряд, столкновения, страшилки.Формат: PSD, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40624FC372FB2F831C2633017F341F2E447C57B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291581   (668570) от 25.03.2019
+
+Стили - GraphicRiver - Mobile Game Text Effects vol.2 - 23439241 [PSD, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор из 10 совершенно разных логотипов, которые подходят для игр разных жанров. Ледяные короли, эра желе, торт мания, всплеск сахара, волшебный магазин, счастливый лес, покерные монстры, битвы на арене, крушение, космические приключения, подводные игры, три в ряд, столкновения.Формат: PSD, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F37260164BCD107A4BC69D7437BBDE007EDAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291570   (668569) от 25.03.2019
+
+Стили - GraphicRiver - Cartoon Text Effects - 21365269 [PSD, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский мультяшный стиль текста для оформления ваших проектов.Формат: PSD, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2484DF3915EB40FBF67F1DA1076862BA23ACA232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291648   (668566) от 25.03.2019
+
+Стили - GraphicRiver - Fruit Text Effects х7 - 23363564 [PSD, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фруктовые текстовые стили для ваших проектов.Формат: PSD, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F271CD1FD9B3FC36632DCE4DEB9CC82F780164F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291642   (668507) от 25.03.2019
+
+Стили - Best 5 Photoshop Text Effects [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668507.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 текстовых стилей в кинематографическом стиле для ваших проектов.Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5E3D14AEF7D341EB449E7119CA9A22EE5D8CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031225   (668439) от 03.07.2016
+
+Экшены - GraphicRiver - Splash Art Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splash Art - Прекрасный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDBE782B0F473D137CC98D6B946FC21A2588B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291526   (668418) от 25.03.2019
+
+Футажи - Коллекция видеофутажей 7 [MP4]
 
 >>Материалы для мультимедиа и дизайна
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Элегантные и красивые летающие футуристические линии неона. Футажи хорошо подходят для движения графики с энергией, светящиеся полосы, технологии, энергетические волны, промежуток времени наложения огней и т. Д. Просто добавьте эти элементы поверх ваших кадров, чтобы создать волшебный легкий след.Формат: MOVРазрешение файлов: 1920x1080
+Седьмая часть личной коллекции из 100 видеофутажей на природную тематику...Формат: MP4Разрешение файлов: 1280х720
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52BF21D463CAF2CC877E8B6F62BD71611E95FA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224415   (664777) от 11.05.2018
-
-Текстуры - Creative Market - Real Marble Backgrounds & Styles - 909321 [JPG, ASL, AI]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Real Marble Backgrounds & Styles - набор удивительных безшовных стильных текстур для пост обработки вашего фотоматериала.
-Данная коллекция вышла от автора в нескольких форматах (все присутствуют в данной раздаче), это стили текстур дляФормат: JPG, ASL, AIРазрешение файлов: 4500x3000 pixels / 72-300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38529C1B76C026B572D69FD37E32685BBB6DB35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340860   (663451) от 23.05.2011
-
-Растровый клипарт - Мебель [JPG, PNG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предметы мебели - диваны, стулья, кресла, столики, сундуки и др. В составе релиза -  Азиатская мебель, арабская, старая кожаная, стилизованная под морские мотивы, плетеная и др.Формат: JPG, PNG, PSDРазрешение файлов: 201x311 - 7800x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB4B250D71A98B4DB61681BC4559F14FE72A635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224906   (662877) от 13.05.2018
-
-Текстуры - Creative Market - The Marble Lab Vol. 2 - 1922468 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры.
-Автор: The Dusty Inklab.Формат: JPGРазрешение файлов: 4961 x 7016
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50A86E4AEF21B6D608D049E123FE5319ED8F61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224931   (662832) от 13.05.2018
-
-Текстуры - Creative Market - Marble. Design paper texture - 1770508 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры.
-Автор: Yuliya DerbishevaФормат: JPGРазрешение файлов: 4656 x 6971 - 7156 x 4718
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70762F84668EB1A51F6898256CE9EF9DD351F892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224986   (662818) от 13.05.2018
-
-Текстуры - 369 Marble Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры.Формат: JPGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B835D282E51B36F74BBB00F49AA45C127D4795B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224994   (662760) от 13.05.2018
-
-Текстуры - Creative Market - The Luxury Glam Texture Bundle - 2165592 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскошные блестящие гламурные текстуры.
-Автор: Pretty Bloom Designs.Формат: JPGРазрешение файлов: 3000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FA993D2A25DA75D9B70BCF76BE8D31F99ED270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224900   (662699) от 13.05.2018
-
-Растровый клипарт - Creative Market - Marble logo effects mock + textures 1902085 [JPG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные логотипы и текстуры.
-Автор: printpixel.Формат: JPG, PSDРазрешение файлов: 3508 x 2480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4039F384DD7B10B8B57A3DE00862EF1A7F38BC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538626   (662017) от 21.03.2022
-
-Звуковые библиотеки - Cinema Mastery - JSR Extended Sound Design Effects [WAV, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивный набор звуков от Cinema Mastery, который вы сможете использовать практически в любом программном обеспечении.Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF8DBF41BB565557DCDFC7B6D3131CFF9E2FF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225021   (661822) от 14.05.2018
-
-Текстуры - Creative Market - The BIGGEST Marbled Paper Collection - 2338019 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры.
-Автор: ilonittaФормат: JPGРазрешение файлов: 6000 x 3993
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DF002B47A74BEF67815B075199AC432AD07653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225156   (661820) от 14.05.2018
-
-Текстуры - Creative Market - Art Textures: Marbled Minor Key - 2266472 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры - узоры.
-Автор: SHP Digital Design.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262F7F48F8D3C1A8A3D91DF9B1F3D0F691C3723C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225029   (661806) от 14.05.2018
-
-Текстуры - Creative Market - Christmas Marble. 40+ Textures Pack - 2042522 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные блестящие текстуры с дополнениями.
-Автор: le-genda.Формат: JPGРазрешение файлов: 600 x 857 - 3360 x 4800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B98138AE1D46439BD51DB2E7968239D343712D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225161   (661804) от 14.05.2018
-
-Текстуры - Creative Market - Art Textures: Marbled Waltz Series - 2266466 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры - узоры.
-Автор: SHP Digital Design.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25A71234B1D5658A3C74F2EF8A5A3DE856BA32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225158   (661786) от 14.05.2018
-
-Текстуры - Creative Market  - Set of 30 marbled vector textures - 1742142 [AI, EPS, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры в векторе и не только, с прозрачным фоном.
-Автор:  MiksKS.Формат: AI, EPS, PNGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC532ACDE09F0142097E43654A42F642F608D08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225210   (661783) от 14.05.2018
-
-Текстуры - Creative Market - Burgundy foil and glitter - 2337885 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры - бордовая фольга и блеск.
-Автор: Paper FarmsФормат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3DB8FC7394D2D58029FB1BF4E9C70543BFC99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225163   (661782) от 14.05.2018
-
-Текстуры - Photo Libraries - Marble Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные текстуры.Формат: JPGРазрешение файлов: 2048 x 3072
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87035BBC48361F4908C0FB8F6BE3E0CB0C95D9A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225141   (661777) от 14.05.2018
-
-Фоны - Creative Market - Marble & More Collection - 696830 [JPG, PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные фоны с дополнениями.
-Автор: Feather & Sage Design.Формат: JPG, PSD, PNGРазрешение файлов: 3852 x 2592 - 1660 x 5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C29E97EDCC05AC329494994243E8670429A0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225106   (661774) от 14.05.2018
-
-Текстуры - Creative Market -  Marble Halftone Pack + Bonus! - 649035 [PNG, AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные полутоны -это текстурный пакет, наполненный широким разнообразием текстур полутонов, тщательно изготовленных вручную из мраморных изображений высокого разрешения с дополнениями и официальной документацией.
-Автор: 52NINE GRAPHICSФормат: PNG, AI, EPSРазрешение файлов: 7016 x  9933
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57928CEDDBD87F6F03F5895C0EC3E5C8B9E0B713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225099   (661772) от 14.05.2018
-
-Текстуры - Creative Market - Luxury Marble & Gold Textures - 2037495 [JPG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные и золотые текстуры.
-Автор: Kristina&Co.Формат: JPG, PSDРазрешение файлов: 3000 X 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEA9BEFB099034294EE8BF3AEE5F0AF8021E610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225076   (661743) от 14.05.2018
-
-Текстуры - Creative Market - White gold marble texture background - 1289045 [JPG, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мраморные белые золотые текстуры.
-Автор: Skyla Design.Формат: JPG, ASLРазрешение файлов: 3500 x 2334
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36B1289474A83271A8A83FF22DE45A3168A9F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225214   (661740) от 14.05.2018
-
-Текстуры - Creative Market - 20 Soft Grunge Pastel Textures - 15701 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры в стиле гранж.
-Автор: Dirk's Texture Pit.Формат: JPGРазрешение файлов: 3600 x 3600 - 5000 x 5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7A9DAB246FECE9F45FFFD7417E9A7C583F117B
+magnet:?xt=urn:btih:4240B5AB07322E25B3341941F302A3DC8338AC06
 ```
 
 https://mybot314.ru/tekegram_catalog/

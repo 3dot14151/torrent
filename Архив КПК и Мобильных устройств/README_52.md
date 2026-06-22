@@ -6,7 +6,7 @@ Anti Spy Mobile 1.9.5.5 Free / 1.9.10.8 Pro [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596282.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ HERCULES: THE OFFICIAL GAME 1.0.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596280.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Smart Launcher Pro 3 3.07.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596199.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Hola Launcher 1.8.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596108.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Lost Within 1.00 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596104.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ MIUI Weather 7 1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596101.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596093.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ PhotoSuite 4 Photo Editor v4.3.688 [Ru/En] - мобильная фотостуд
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595777.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Paper Artist v2.1.0 [Ru/Multi]  - применение всевозможных 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595768.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ GameKiller 3.11 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595674.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ LEGO® Marvel Super Heroes / Герои Marvel в мире LEGO 1.11.14 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595670.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Google Фото 1.1.1.96635208 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595046.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ LG Nexus 4 - Прошивка MIUI (OS 4.4.4)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594496.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Alcatel One Touch Idol X 6040 - Прошивка MIUI
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594257.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Adguard Premium 2.9.135 Final [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593803.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592260.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Monument Valley 2.3.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592251.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ BlackBerry Messenger 2.9.0.45 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591855.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591845.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Garmin: City Navigator Southern Africa NT 2016.20 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591839.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Trimaginator 1.6.9 [En] - Обработка фотографии с помощ�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591831.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591813.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Maxthon  v4.4.7.2000 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591792.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ LG Nexus 5 - Прошивка MIUI V5/V6 (OS 4.4.x)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591787.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ OpenSignal 3G 4G WiFi карты 3.49 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591743.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Checkers Premium 1.42 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591376.jpg" />
 </div>
 
 

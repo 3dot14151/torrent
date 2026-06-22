@@ -1,3 +1,55 @@
+###  Публикация: 464644   (439970) от 19.09.2020
+
+Школа волшебства (2010) TVRip (Сезон 1, серии 1-26 из 26)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внимание-внимание! Объяляется набор мальчиков и девочек в "Школу волшебства"! Нет, чтобы научиться творить чудеса, не нужно бежать на занятия в классы. Достаточно включить телевизор, когда там идёт программа, в которой волшебник Илья Ларионов даёт уроки всем желающим! Хочешь всех поразить весёлыми фокусами и невероятными трюками? Тогда не пропускай занятия (   Читать дальше...   )Производство: Россия, ВГТРК / Карусель (Бибигон)Жанр: Обучающий, детский, развлеченияРежиссер: Юлия КоролеваСубтитры: ОтсутствуютПродолжительность: ~ 00:12:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1156F3BC228D901EB5982E0634FFC31F0C23A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392215   (439271) от 25.09.2011
+
+Говорим без ошибок (20-41 серии) (2007-2008) SATRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куда доведёт тебя твой язык? Что такое "райские кущи"? Километр с "гаком" - это сколько? Что такое "с гуся вода", и вообще - с "гусЯ" или с "гУся"? С этими и многими другими трудностями русского языка школьникам помогут разобраться самые настоящие филологи.Куда доведёт тебя твой язык. Со многими трудностями русского (   Читать дальше...   )Производство: РоссияЖанр: Детский, Видеоуроки, ОбучающийРежиссер: Родион СоловьёвПеревод: Не требуетсяПродолжительность: 21 x ~00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3464B0131B13BFC6CBF9EDB5B7C26016A30983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 392670   (437023) от 26.09.2011
 
 Говорим без ошибок (42-62 серии) (2007-2008) SATRip
@@ -6,7 +58,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437023.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434911.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434748.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430339.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427858.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427856.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425648.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424553.jpg" />
 </div>
 
 
@@ -206,6 +258,58 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 248731   (414825) от 22.10.2010
+
+Клуб Микки Мауса: Укротители цифр - Mickey Mouse Clubhouse: Numbers Rounup + Бонус (2010) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_414825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, ковбои! Пришло время надеть свои ковбойские шляпы, вооружиться лассо и помочь всем друзьям Клуба Микки загнать стадо диких цифр в Загон. Выберите нужные маус-струменты, чтобы поймать непослушные цифры: счет от 10 до 1 может стать по-настоящему веселой игрой. Вас также ждут поиски потерянной овечки Дейзи-растеряшки, рашифровка секретных сообщений и разгадывание занимательных загадок. Укротители цифр не дадут вам заскучать - от рассвета до заката вас ждут веселые сюрпризы и непрекращающееся веселье!Жанр: МультфильмРежиссер: Шери ПоллакВ ролях: Микки Маус, Минни, Дональд Дак и др….Перевод: ДублированныйПродолжительность: 5 х 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031F312D18EF2A54B4E230EEF9E033512068780A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 248502   (414801) от 22.10.2010
+
+Клуб Микки Мауса: Невероятные приключения - Mickey Mouse Clubhouse: Super Silly Adventures + Бонус (2010) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_414801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйся на встречу незабываемым приключениям вместе с Микки Маусом и его друзьями! Плуто нечаянно попадает мячом в Сюрпризный Рычаг, и он ломается! Микки вдруг обнаруживает, что может говорить только стихами, а Плуто мычит как корова, резиновые утята плавают по воздуху, а Помощники выгоняют из Клуба всех до одного! Помоги друзьям починить Сюрпризный Рычаг и вернуть все на свои места! В анимационном фильме "Клуб Микки Мауса: Невероятные приключения" веселые сюрпризы ждут тебя на каждом шагу!Жанр: МультфильмРежиссер: Шери ПоллакВ ролях: Микки Маус, Минни, Дональд Дак и др….Перевод: ДублированныйПродолжительность: 3 х 00:23:00 / 1 х 00:12:14 (Бонус)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BE9676178271576DE584F4462377B08F0738BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 397764   (404464) от 08.10.2011
 
 Есть такая профессия (25-48 серии из 48) (2007-2008) TVRip
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404464.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ InternetUrok | Чтение 1-4 класс (2011-2013) WEB-DLRip [H.264]
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404153.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ InternetUrok | Основы Безопасности Жизнедеятельн�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404150.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ InternetUrok | Окружающий мир 1-4 класс (2011-2013) WEB-DLRip 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404135.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ InternetUrok | Природоведение 5 класс (2011-2013) WEB-DLRip [
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403233.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ InternetUrok | Литература 5-11 классы (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403218.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ InternetUrok | Обществознание 6-11 классы (2011-2013) WEB-DL
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403215.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ InternetUrok | География 6-10 классы (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403199.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ InternetUrok | Химия 8-11 класс (2011-2013) WEB-DLRip [H.263/H.264]
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403163.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ InternetUrok | Биология 6-11 классы (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403162.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ InternetUrok | Информатика 5-11 класс (2011-2013) WEB-DLRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403158.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ InternetUrok | Математика для начальных и средних 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403136.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ InternetUrok | Русский язык 1-9, 11 классы (2011-2013) WEB-DLRi
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403134.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ InternetUrok | Английский язык 2-11 классы (2011-2013) WEB-D
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403119.jpg" />
 </div>
 
 
@@ -576,113 +680,6 @@ InternetUrok | Английский язык 2-11 классы (2011-2013) WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5DA8639280BE82F593B16C1AEFF53C53B537EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711690   (403089) от 19.10.2013
-
-InternetUrok | Физика 7-11 класс (2011-2013) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоуроки по Физике для 7-11 класс классов от сайта interneturok.ru
-Видеоуроки по школьной программе от опытных учителей Санкт-Петербурга и Москвы.Жанр: ВидеоурокиРежиссер: InternetUrokПродолжительность: 21:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7752EA3EF84F696613282A65694D893F7689E461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711698   (402251) от 20.10.2013
-
-InternetUrok | История 5-11 классы (2011-2013) WEB-DLRip [H.263/H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоуроки по Истории 5-11 классов от сайта interneturok.ru
-Видеоуроки по школьной программе от опытных учителей Санкт-Петербурга и Москвы.Жанр: ВидеоурокиРежиссер: InternetUrokПродолжительность: 01:01:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604D535A7D16246D21D762896C5BC05D00678A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711692   (401207) от 21.10.2013
-
-InternetUrok | Алгебра и Геометрия 7-11 класс (2011-2013) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоуроки по Алгебре и Геометрии для 7-11 классов от сайта interneturok.ru
-Видеоуроки по школьной программе от опытных учителей Санкт-Петербурга и Москвы.Жанр: ВидеоурокиРежиссер: InternetUrokПродолжительность: 01:05:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E6E61D1FBF4F5CCE4CE13A5C27716529D8CD46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570310   (388954) от 06.11.2012
-
-Саакянц. БЕРГ САУНД | Учимся рисовать (2009) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное видео поможет Вашему ребёнку учиться рисовать самостоятельно. Герои мультфильма обучают детишек рисовать с азов.Производство: РоссияЖанр: Видеоруководство, Обучающий, РазвивающийРежиссер: Роберт СаакянцУчастники: Мультяшные персонажиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BCBAF7823CE62587356852ACA0F793D236B9E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

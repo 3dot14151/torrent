@@ -1,3 +1,29 @@
+###  Публикация: 1224388   (665946) от 10.05.2018
+
+BBC. Восхождение животных: Триумф позвоночных / Rise of Animals: Triumph of the Vertebrates (2013) BDRip [H.264/1080p] (Серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Аттенборо отправляется в эпическое путешествие длиной 500 миллионов лет и исследует невероятный скачок в развитии позвоночных, породивший самых крупных, быстрых и умных существ, когда-либо живших на планете. Сначала он отправляется в Китай, страну, в которой он давно мечтал побывать, чтобы больше узнать о животных древности. Именно они считаются ключевыми недостающими (   Читать дальше...   )Производство: Великобритания, BBC, Atlantic ProductionsЖанр: Документальный, научно-познавательный, палеонтологияРежиссер: Дэвид ЛиПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 2 x ~00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6917ED7BC907A4164406326C062D99A055303A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512113   (664785) от 18.06.2012
 
 BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of the Gods (2010) BDRemux [H.264/1080p]
@@ -6,7 +32,7 @@ BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664785.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Horizon. Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664064.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Тайная жизнь птиц / BBC. Secret Life of Birds (2010) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663761.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Первобытные поселенцы Америки / Traking the Firs
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660110.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Viasat Nature: BBC: Экспедиция в Новую Гвинею / Expedition
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657915.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC. Как построить ядерную электростанцию / How
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656036.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC. В краю муссонов: В ожидании дождя / Wonders of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653088.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC: Horizon. Самая экстремальная погода во Вселе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651958.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC. Horizon. Наблюдая звёзды / Horizon. Seeing Stars (2011) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649419.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC. Horizon. Можно ли верить своим глазам? / Horizon. I
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649206.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC: Магия грибов (Тайная жизнь грибов) / The Magic 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647014.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ BBC. Заснеженный птенец или История одного пи
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646631.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ BBC: Viasat History. Бразды правления. Балет на лошад
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644709.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ BBC: Солнечные бури: угроза планете Земля? / Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643462.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641033.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ BBC: В краю муссонов / Wonders of the Monsoon (2014) [BDRip/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634977.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ BBC: Код / The Code (2011) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633346.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC: Большие птицы с Дэвидом Аттенборо / BBC Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631694.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631106.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629324.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625365.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ BBC: Жизнь с холодной кровью / Life in Cold Blood (2006) DVD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625294.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ BBC: Полет Земли. (Земля с птичьего полёта). Се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624679.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ BBC: Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624338.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ BBC: Третья мировая война: взгляд из командно�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624161.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ BBC: Третья мировая война: взгляд из командно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6158599647C89E3CC91217546801CC9C7A80B462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144900   (623774) от 24.06.2017
-
-BBC: Веллингтон - железный герцог без маски / Wellington: The Iron Duke Unmasked (2015) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герцог Веллингтон был самым известным британцем в первой половине 19-го века. Его победа над Наполеоном при Ватерлоо в 1815 году изменила ход истории. Стальной взгляд, худощавое лицо, для следующих поколений он стал олицетворять саму суть Британии. Генерал, политик, любовник, аутсайдер - в этой программе мы узнаем, что герой Ватерлоо был гораздо более сложным человеком, (   Читать дальше...   )Производство: Великобритания, Blakeway Production for BBCЖанр: Документальный, история, биографическийРежиссер: Ричард СандерсПеревод: Двуголосый закадровый, профессиональныйСубтитры: английскиеПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1615C537417DAAD627A4AFCECCB3F8AED3517FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

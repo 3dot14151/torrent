@@ -1,3 +1,55 @@
+###  Публикация: 1340762   (263178) от 25.11.2019
+
+Однажды в… Голливуде / Once Upon a Time ... in Hollywood (2019) WEB-DL [720p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». По сюжету, известный ТВ актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Брэд Питт, Леонардо ДиКаприо, Марго Робби, Майя Хоук, Остин Роберт Батлер, Сидни Свини, Маргарет Куэлли, Дакота Фэннинг, Тимоти Олифант, Аль ПачиноПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английскиеПродолжительность: 02:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB7731331B454F8F948D0071274A8980214A44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340760   (263133) от 25.11.2019
+
+Однажды в… Голливуде / Once Upon a Time ... in Hollywood (2019) WEB-DL [1080p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». По сюжету, известный ТВ актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Брэд Питт, Леонардо ДиКаприо, Марго Робби, Майя Хоук, Остин Роберт Батлер, Сидни Свини, Маргарет Куэлли, Дакота Фэннинг, Тимоти Олифант, Аль ПачиноПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английскиеПродолжительность: 02:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD930819112BB7A6FEC3AFBADAA6E7E7BA873FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340913   (263090) от 25.11.2019
 
 Adobe Premier Pro 2020 14.0.0.572  [Multi/Ru]
@@ -6,7 +58,7 @@ Adobe Premier Pro 2020 14.0.0.572  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263090.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ PullTube 1.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262946.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Antivirus Zap Pro 3.8.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262945.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ DrawOutX 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262943.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ ExpanDrive 7 v7.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262942.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Alfred 4 Powerpack 4.0.7 (build 1129) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262940.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ WiFiSpoof 3.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262939.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Exposure Software Snap Art 4 v4.1.3.270 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262937.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Posterino 3 v3.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262936.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ QLab Pro 4 v4.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262929.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Adguard 2.2.3 661 release (CL - 1.5.130) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262926.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Movavi Screen Recorder 11.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262901.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ TechSmith Camtasia Studio 2019.0.6 (build 109577)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262894.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Hands Off! 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262752.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262745.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ EtreCheck Pro 6.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262637.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ SuperDuper! 3.3 (v120) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262634.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Lyn 1.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262497.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Grids for Instagram 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262452.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ Live Home 3D St 3.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262437.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ Scrutiny 9 v9.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262357.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ Downie 3 v3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262355.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ Deckset 2.0.13 (build 2551) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262354.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ Notability 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262343.jpg" />
 </div>
 
 
@@ -642,61 +694,6 @@ Notability – мощное средство для ведение замето�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC8C31C500DE4877B103C17F3B321C598E6EFFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341260   (262335) от 28.11.2019
-
-ScreenFlow 9 v9.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262335.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFlow - создаем свои скринкасты
-Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его свежекупленном маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
-
-Простая, но крайне мощная программа для захвата и записи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACACB29F3528A55B0BAEF779A90B901427093FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341387   (262330) от 28.11.2019
-
-Wondershare Filmora 9 v9.2.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99018F6C7D0FE7E02B113F6A6B317D083C9B1A52
 ```
 
 https://mybot314.ru/tekegram_catalog/

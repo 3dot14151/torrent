@@ -1,3 +1,138 @@
+###  Публикация: 548541   (342025) от 25.11.2012
+
+The Dark Eye. Chains Of Satinav [Ru/En] (Repack/1.1) 2012 | Fenixx
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342025.jpg" />
+</div>
+
+
+###  Подробнее
+
+История The Dark Eye: Chains of Satinav развивается вдалеке от Авентурии. Главный герой, молодой зверолов Герон, живет в небольшом королевстве на северо-западе, именуемом Андергаст. Жители этого отдаленного региона очень суеверны – приметы есть практически на любое событие.
+Когда король ждет посла с соседнего королевства, чтобы положить конец многовековой вражде, жителей мучают нападения агрессивной стаи странных воронов. Жертвы нападений также утверждают, что птицы приносят ночные кошмары.
+Правителю не хочется, чтобы эта «незначительная» проблема помешала переговорам, так что нанимает опытного охотника, чтобы тот разобрался с проблемой. Герон, всю жизнь преследуемый неудачами, видит в этом шанс изменить свою судьбу, так что отправляется к королю, дабы предложить свою кандидатуру на столь важное задание. Только вот миссия оказалась намного тяжелее, чем казалось с самого начала, а ее выполнение даже заставляет парня покинуть земли Андергаста.
+Геймплей The Dark Eye: Chains of Satinav выполнен в лучших традициях point-and-click квестов – детально прорисованные локации, масса головоломок, обширный инвентарь и множество колоритных персонажей.(   Читать дальше...   )Тип издания: RepackЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01147959D29CF6D14627ABC4EBEB36C37C366824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180116   (341957) от 03.11.2017
+
+Among the Sleep (2014) [Ru/Multi] (3.0.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аmong the Sleep – хоррор от первого лица, в котором вы выступаете в роли двухлетнего ребенка. Оставшись ночью в своей кроватке, малыш начинает замечать странные вещи, происходящие в доме. Оказавшись на грани между вымышленным и реальностью, ему предстоит пережить мистические события и столкнуться с сюрреалистичными созданиями.Тип издания: LicenseРазработчик: Krillbite StudioЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908E17DE37C819297CD67C2A52FC2B9C18B6D7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578928   (340649) от 25.09.2022
+
+Turnip Boy Commits Tax Evasion (2021) [Ru/Multi] (1.1.3f1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте: Вы славный малыш-репка, которого объявили врагом общества и выселили из родного дома за неуплату налогов! Чтобы вернуть немалый долг, Вам придётся побыть на побегушках у мэра Лукаса. Выращивайте инструменты. Решайте головоломки. Знакомьтесь с нетепличными персонажами. И сражайтесь с жуткими тварями - большими и маленькими. Отыщите корень зла и узнайте, (   Читать дальше...   )Тип издания: LicenseРазработчик: Snoozy KazooЖанр: Экшны, Приключeние, ГоловоломкаЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62175C5BB69FCDCC2AC839FF43B70DE2FDFBAAE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581203   (339500) от 26.11.2012
+
+The Lost Chronicles of Zerzura [En] (L) 2012 | SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339500.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роли молодого изобретателя Феодора геймеры решают разнообразные загадки и головоломки с помощью творческого мышления, при этом они путешествуют по разным странам и набираются опыта, изучая разные культуры. Все начинается с того, что Феодор и его брат Рамон строят самолет в своем рабочем цехе, в Барселоне. Но незадолго до завершения работ Рамона похищает инквизиция…Тип издания: ЛицензияЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD842E1C7DCCF1F2DB6F84655402CC0604A4273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580641   (339483) от 26.11.2012
+
+Black Mirror Anthology | Антология. Чёрное зеркало [Ru/En] (Repack) 2003 - 2011 | от R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Mirror III завершит историю ужасных событий семьи Гордонов, наполненную чередой загадочных убийств, связанных с ними и с проклятием замка "Чёрное Зеркало". Действие этой части начинается через несколько минут после окончания Black Mirror II. Замок горит, и Эдриан пытается скрыться в лесу. Но его, как главного подозреваемого, арестовывает полиция...
+Находясь под стражей, парень страдает от непонятных кошмаров, которые не дают ему спать по ночам и преследуют днем. За отсутствием улик преступления Эдриана отпускают на свободу. Его гложет множество вопросов, на которых нет ответа, и страхи. Вскоре главный герой начинает подозревать, что его прошлое связано со злом.
+В игре вас ждут 6 частей, на протяжении которых вы побываете в Уиллоу-Крик и районах, расположенных вблизи замка "Чёрное Зеркало", а также во множестве новых локаций. Кроме этого в игре вы повстречаете 50 новых персонажей. (   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF98EA6E3626809819642C0239517BDAEA5A31F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 839729   (339290) от 10.11.2014
 
 Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) License PROPHET
@@ -6,7 +141,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339290.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ Transient (2020) [Ru/Multi] (0.119) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336924.jpg" />
 </div>
 
 
@@ -59,7 +194,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335887.jpg" />
 </div>
 
 
@@ -85,7 +220,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.1/dlc) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335257.jpg" />
 </div>
 
 
@@ -111,7 +246,7 @@ Alwa's Legacy (2020) [Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334722.jpg" />
 </div>
 
 
@@ -137,7 +272,7 @@ Kena: Bridge of Spirits (2021) [Ru/Multi] (2.02/dlc) Repack Other s [Digital Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332752.jpg" />
 </div>
 
 
@@ -163,7 +298,7 @@ Game of Thrones: A Telltale Games Series (2014-2015) [En] (1.0.0.1) License CODE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326303.jpg" />
 </div>
 
 
@@ -189,7 +324,7 @@ Leisure Suit Larry - Wet Dreams Dry Twice (2020) [Ru/Multi] (1.0.1.54) License G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323686.jpg" />
 </div>
 
 
@@ -215,7 +350,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322440.jpg" />
 </div>
 
 
@@ -241,7 +376,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320896.jpg" />
 </div>
 
 
@@ -267,7 +402,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License RELOADED [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320616.jpg" />
 </div>
 
 
@@ -293,7 +428,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320214.jpg" />
 </div>
 
 
@@ -319,7 +454,7 @@ Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320186.jpg" />
 </div>
 
 
@@ -345,7 +480,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320042.jpg" />
 </div>
 
 
@@ -371,7 +506,7 @@ Sherlock Holmes: Crimes and Punishments (2014) [Ru] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319870.jpg" />
 </div>
 
 
@@ -397,7 +532,7 @@ Asterix & Obelix XXL: Romastered (2020) [Multi] (1.0.29) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319182.jpg" />
 </div>
 
 
@@ -423,7 +558,7 @@ Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318798.jpg" />
 </div>
 
 
@@ -449,7 +584,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318449.jpg" />
 </div>
 
 
@@ -475,7 +610,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317906.jpg" />
 </div>
 
 
@@ -501,7 +636,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316369.jpg" />
 </div>
 
 
@@ -527,7 +662,7 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315612.jpg" />
 </div>
 
 
@@ -538,136 +673,6 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E2D50833B36E32DA190398FE29CD6343C2EFFB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583037   (314601) от 01.12.2012
-
-Miasmata [En] (L) 2012
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miasmata - игра в жанре приключения/выживания от первого лица. Играя за Роберта, пораженного смертельным заболеванием, вы должны исследовать отдаленный остров - это его единственный шанс найти лекарство. На острове Роберт надеется встретить своих бывших коллег, но вместо этого он вскоре обнаружит ужасные последствия неизвестных событий, а также таинственное существо с очень чутким нюхом... (   Читать дальше...   )Тип издания: ЛицензияЖанр: Survival horror / Adventure / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B19A694DD428BA7BA0A61A0BC7046F823CF927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110141   (313740) от 11.11.2017
-
-Stories Untold (2017) [En] (1.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stories Untold - это текстовая приключенческая игра от студии No Code в стиле сериалов 80-х годов и популярного шоу Stranger Things от Netflix. Игра Stories Untold создана на основе одноименного сериала, который был отменен так и не выйдя в эфир. Сюжет перескажет события первых четырех эпизодов и ремастера пилотной серии “The House Abandon”. Перед нами классическое (   Читать дальше...   )Тип издания: LicenseРазработчик: No CodeЖанр: Приключение, Симулятор, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F602575E21456A25448CBEE022B55CF8A29ECCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128430   (313736) от 11.11.2017
-
-Syberia 3 / Сибирь 3 (2017) [Ru/En] (3.0/dlc) Repack xatab
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безграничное воображение Бенуа Сокаля воплотилось в нечто абсолютно новое — захватывающее приключение «Сибирь 3». Повествование игры стартует там же, где закончилась предыдущая часть: Кейт Уокер, отправившись на поиски таинственной Сибирии, едва не погибает на дрейфующей лодке, но небольшой караван добрых юколов успевает спасти её от верной смерти.Тип издания: RepackРазработчик: Anuman Interactive, MicroidsЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CCD092CDBDC2D27D47B64C02A7D0CAB5B3372E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128710   (313730) от 11.11.2017
-
-Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313730.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сибирь 3» — истинный представитель следующего поколения приключенческих игр, который перенесет вас в таинственный волшебный мир в формате 3D, наполненный множеством интересных персонажей и различными загадками. Оказавшись там, вы получите незабываемые впечатления от поразительной сказки, сотворенной Бенуа Сокалем. Оказавшись в небольшом городке Вальсемборе, Кейт (   Читать дальше...   )Тип издания: RepackРазработчик: MicroidsЖанр: Adventure, 3D, 3rd Person, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705EB9B8214F8ADC0CBEEB2E2172F83B18DAF820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076500   (313104) от 25.11.2016
-
-Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1) License PROPHET
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк, 2011 год. Кому есть дело до погибших бездомных? Неужели, никому, даже если их убивают какие-то психи? Никому. Кроме Генри Уайта, интеллигентного юноши, наследника одного из самых крупных состояний в Америке. Однажды, помогая нищим, прозябающим на заброшенной станции метро, молодой человек попал в серьезный переплет и угодил в плен к бродягам, одержимым (   Читать дальше...   )Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115C4597CA81EE32D93E2D9053F579F9AA4804D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

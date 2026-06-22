@@ -1,3 +1,55 @@
+###  Публикация: 929092   (508929) от 29.08.2015
+
+Можешь не стучать / Don't Bother to Knock (1952) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йоркский отель. Родители приглашают молодую особу Нэлл Форбс (Мэрилин Монро) посидеть с их дочерью, пока они будут на банкете. Им невдомек, что у миловидной девушки серьезные проблемы с психикой. Встретив в этом же отеле летчика Джеда Тауэрса, напомнившего ей погибшего жениха, Нелл приглашает его в номер. Ребенок начинает ей мешать…Производство: США, Twentieth Century Fox Film CorporationЖанр: Триллер, ДрамаРежиссер: Рой Уорд БейкерАктеры: Мэрилин Монро, Ричард Уидмарк, Энн Бэнкрофт, Донна Коркоран, Джинн Кэгни, Лурин Татл, Элиша Кук мл., Джим Бэкус, Верна Фелтон, Уиллис Бучей, Дон БеддоПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE1C80217D5F01D8F6CBBA5229590DAAE54F9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929177   (507963) от 30.08.2015
+
+Давай сделаем это легально / Let's Make It Legal (1951) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_507963.jpg" />
+</div>
+
+
+###  Подробнее
+
+После 20 лет супружеской жизни Мириам (Клодетт Колбер) и Хью Халсоуорт (МакДоналд Кэри) решают поставить жирную точку на их браке. Окончательно развод должен вступить в силу в полночь. Но как раз днем, накануне этого знаменательного события, в городе появляется Виктор МакФэрланд (Зэкэри Скотт), бывший ухажер Мириам, готовый вновь вступить в бой за сердце давней возлюбленной…Производство: США, 20th Century FoxЖанр: КомедияРежиссер: Ричард СейлАктеры: Клодетт Колбер, МакДоналд Кэри, Зэкэри Скотт, Барбара Бэйтс, Роберт Вагнер, Мэрилин МонроПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D15E92B2EA6CEAD718CBCFAEC4D4E58F567E2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791821   (507811) от 30.08.2015
 
 Мотылек / Papillon (1973) BDRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507811.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507643.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507396.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507198.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506813.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505998.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505058.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503889.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503518.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503267.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503150.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503080.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501217.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500278.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500184.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499025.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498494.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498392.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498273.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496273.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495540.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494840.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494570.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493106.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD129BD691DE6DC4D31D18DD674A3E6BB085C9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404493   (493042) от 25.08.2020
-
-Продавец четырех времен года / The Merchant of Four Seasons / Handler der vier Jahreszeiten (1971) BDRip [H.264/720p] [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагедия одиночки, оказавшегося лишним в обществе «всеобщего благоденствия» Эпохи Экономического чуда. Ханс Эпп несколько лет провел вдали от родины в иностранном легионе, и вот вернулся назад. «Уж лучше бы тебе не возвращаться!» — злобно шипит мать, встречая сына на пороге дома. И Ханс уходит, устраивается на работу в полицию, обзаводится семьей, потом становится (   Читать дальше...   )Производство: Германия (ФРГ) / Janus Films, Tango FilmЖанр: ДрамаРежиссер: Райнер Вернер ФассбиндерАктеры: Ганс Хиршмюллер, Ирм Херманн, Ханна Шигулла, Клаус Лёвич, Карл Шейдт, Андреа Шобер, Густи Крайссль, Ингрид Кавен, Курт Рааб, Хайде СимонПеревод: Профессиональный (двухголосый, закадровый), любительский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96940B5AD1D67F84A2500A1C9006B819200E054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382532   (490994) от 02.09.2011
-
-Грязная дюжина / The Dirty Dozen (1967) [720p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майор Райзман (Ли Марвин), числящийся у начальства на не очень хорошем счету из-за строптивости характера, получает возможность реабилитировать себя благодаря исключительно опасной миссии. Ему в подчинение выделяют двенадцать солдат, приговорённых трибуналом к смертной казни или отбыванию длительного срока на каторге. Флегматичный сын шахтёра Джозеф Владислав , бывший (   Читать дальше...   )Жанр: Военный, Боевик, ДрамаРежиссер: Роберт ОлдричАктеры: Ли Марвин, Эрнест Боргнайн, Чарльз Бронсон, Джим Браун, Джон Кассаветис, Ричард Джэкел, Джордж Кеннеди, Трини Лопес, Ральф Микер, Роберт Райан, Телли Савалас, Дональд Сазерленд, Клинт Уокер, Роберт Уэббер, Том Басби, Бен Кэрразерс, Стюарт Купер, Роберт Филлипс, Колин Мейтленд, Аль Манчини, Джордж Рубисек, Зик Уилсон, Дора Рейсье, Герард Хайнц, Джон Холлис, Хильдегард (   Читать дальше...   )Перевод: Многоголосый профессиональный закадровыйЯзык субтитров: Русские / АнглийскиеПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

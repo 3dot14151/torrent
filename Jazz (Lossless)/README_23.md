@@ -6,7 +6,7 @@ Vainoras and the altar of the drill - Life,Love,Doomjazz. (2019) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984977.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stanley Cowell - Travellin' Man (1969) 1992, Black Lion[FLAC|tracks+.cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984785.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ronnie Foster - The Racer (1986) Remaster, 2014, King Record[FLAC|tracks+.cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984782.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Coltrane & Johnny Hartman - John Coltrane and Johnny Hartman (1963) 2008, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984778.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bobby Hutcherson - Four Seasons (1983) Remaster, 2015, Timeless Records[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984773.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Umi Yushida - The Way We Were (2002) AGU Prodactions[FLAC|image+.cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984771.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Zoot Sims - Waiting Game (1966) Remaster, 2015, Universal[FLAC|tracks+.cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984769.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stefano Battaglia Trio - In The Morning: Music of Alec Wilder (2015) ECM[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984695.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Harry Allen - For George, Cole and Duke (2014) Blue Heron Records[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984692.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sam Levine - Sax for the Spirit (2000) [FLAC|Lossless|image + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984543.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Charles Mingus - Astral Weeks 1964 (1990) Moon Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983630.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Charles Mingus - The Complete Town Hall Concert 1962 (1994) Capitol [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983625.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Sam Levine - Hi Fi Sax (2005) [FLAC|Lossless|image + .cue] <Smooth Jazz, New Age
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983205.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ John Pizzarelli - 5 альбомов (1995-2010) [FLAC|Lossless]<Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982794.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Erroll Garner - Nightconcert 1964 (2018) Mack Avenue Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982360.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Clark Terry - Four Classic Albums 1955 - 1961 (2013) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982358.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Vainoras and the altar of the drill - Maim that tune slowly...soothe the savage 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982355.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ David Benoit - David Benoit And Friends (2019) Shanachie [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982297.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Freddie Hubbard - Super Blue (1978) Remaster, 2007, Sony[FLAC|tracks+.cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982171.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Grant Green - Grantstand (1961) 2003, Blue Note[FLAC|tracks+.cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982169.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Broadcaster presents Weekend Jazz (2002) Tamura Shigeru[FLAC|image+.cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982080.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Sonny Stitt & Don Patterson - Brothers-4 (1969) Remaster, 2001, Prestige[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982079.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Sonny Fortune - Serengeti Minstrel (1977) Remaster, 2013, Warner[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982077.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Ike Quebec - Heavy Soul (1961) 1995, Planet[FLAC|tracks+.cue] <Mainstream Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982066.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981835.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Various Artists - The Art Of The Ballad (The Best of Mapleshade) (1999) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981677.jpg" />
 </div>
 
 

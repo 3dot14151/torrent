@@ -1,3 +1,55 @@
+###  Публикация: 1079182   (216137) от 26.10.2022
+
+LIMBO (2011) [Ru/Multi] (3.0.0.1a) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216137.jpg" />
+</div>
+
+
+###  Подробнее
+
+По трагическому стечению обстоятельств маленький мальчик оказывается на краю загробного мира – в лимбе, где также блуждает его сестра. Чтобы найти сестренку, ему придется набраться храбрости и проделать нелегкий путь по жутковатому черно-белому миру, наполненному чудовищными тварями, коварными механизмами и сложными головоломками.Тип издания: LicenseРазработчик: Playdead и Double ElevenЖанр: Arcade (Platform), LogicЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF151CB551ABBE5A89A70254088707A854F39DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566658   (211545) от 30.07.2022
+
+The Tarnishing of Juxtia (2022) [Multi] (1.01) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211545.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Tarnishing of Juxtia сочетает мрачные фэнтезийные визуальные эффекты и навязчиво красивый саундтрек с захватывающим геймплеем 2D-RPG, вдохновленным Souls, и зловещим повествованием. Инновационная и полезная боевая система, ошеломляющее разнообразие снаряжения и способностей, высокодетализированная пиксельная среда и ужасно потускневшие боссы вместе делают The (   Читать дальше...   )Тип издания: LicenseРазработчик: Actual NerdsЖанр: Экшны, Ролевая игра, ПлатформерЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D82C4CC81EF45A11F1BC8420B9DD1E112EA1CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571110   (210167) от 20.08.2022
 
 Cursed to Golf (2022) [Ru/Multi] (1.0.1) License GOG
@@ -6,7 +58,7 @@ Cursed to Golf (2022) [Ru/Multi] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210167.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Islets (2022) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209513.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ghost 1.0 (2016) [Ru/Multi] (1.1.8b3/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207520.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Full Moon Rush (2023) [Multi] (1.0.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207062.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Probo Rush (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206963.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ ViruZ (2021) [Ru/En] (1.01) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206517.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.45) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204761.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ B.I.O.T.A. (2022) [Ru/Multi] (59744/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204662.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ There Is No Light (2022) [Ru/Multi] (1.1.7.1 ) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203989.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Antivine (2022) [Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203872.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202840.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dealer's Life 2 (2022) [Ru/Multi] (W75/1.26) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202783.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Out Zone (2023) [Multi] (23) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202589.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Secret Agent HD (2021) [En] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202573.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ One Hand Clapping (2021) [Ru/Multi] (1.0.41 Release.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202439.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Adventure of Samsara (2025) [Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202234.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Flying Shark (2023) [En] (7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201884.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Have a Nice Death (2023) [Ru/Multi] (1.0.0.53022) Scene DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200703.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199744.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Switchball HD (2021) [Ru/Multi] (370) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199506.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ DIG - Deep In Galaxies (2023) [Ru/Multi] (1.0.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198538.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Elypse (2023) [Multi] (1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197847.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ HAAK (2022) [Ru/Multi] (1.3.1.17223) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197796.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Panzer Knights (2021) [Ru/Multi] (1.1.7/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197717.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Panzer Knights (2021) [Ru/Multi] (1.1.7/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7D0ECCEFDD26113A90CC7F5382A12B2D8F5D2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636520   (197695) от 30.05.2023
-
-Death or Treat (2023) [Ru/Multi] (1.0.4) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Death or Treat рассказывает историю, в которой Хэллоуин в опасности, и только вы можете помочь Скари спасти его. Это двухмерный экшен с элементами рогалика, который погрузит вас в увлекательный мир сделанный руками талантливых иллюстраторов и аниматоров. Вас ждут захватывающие бои с ордами врагов, которые не дадут вам спокойно исследовать мир Хэллоутина. Вам предстоит (   Читать дальше...   )Тип издания: SceneРазработчик: Saona StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95828814305F5CEBD3C3FBE8DD0169A7AA9005D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636957   (197600) от 01.06.2023
-
-DOOMBLADE (2023) [Ru/Multi] (0.9) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоко под землей Мракса находит разумный бесовский меч, который стремится вырваться после многих столетий в цепях. В этом 2D-экшене жанра «метроидвания» команде «Мракобесы» предстоит объединиться, обрести мощь и уничтожить Повелителей Ужаса. 2D слешер, хотя и выглядит как платформер, но когда доберетесь до первой же драки, поймете, что это прежде всего слешер. (   Читать дальше...   )Тип издания: LicenseРазработчик: Muro StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824B5C418050A2C5D4B46565498F62C7CDBD69F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

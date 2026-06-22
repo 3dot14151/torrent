@@ -1,3 +1,148 @@
+###  Публикация: 155554   (349107) от 29.11.2009
+
+Максим Дунаевский - Д'Артаньян и три мушкетёра (2002) [MP3|320 Kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_349107.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песня о Гасконии (Бургундия, Нормандия)
+2. Марш гвардейцев кардинала
+3. Куплеты Миледи (Песня Рошфора и Миледи)
+4. Баллада де Тревиля (Кровопролитие)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058943   (348804) от 24.10.2020
+
+Fernando Velazquez - A Monster Call / Голос монстра (2016) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tear Up This Town (Keane)
+02. Conor Wakes Up / Main Title
+03. Drawing
+04. The Monster Wakes Up(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23AA3D45AA5185F7912AD98490C8713A11D85C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073045   (347394) от 15.11.2016
+
+Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Soundtrack from the Netflix Original Series) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crown Main Title (01:24)
+02. Duck Shoot (04:07)
+03. Sagana (04:32)
+04. Government (04:07)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0CB3F8BC99C50ACD27AC90A91B1C3D457ADFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179212   (346575) от 01.11.2017
+
+Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные дела 2 (A Netflix Original Series Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn On the Lights (01:44)
+02. Sick of Cow (04:03)
+03. Power Maintenance (01:31)
+04. Roars From the Lab (02:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EB9CC09C2071991A6AF0ABF16EC259C9F3B2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330007   (345612) от 08.10.2019
+
+Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Soundtrack) (2004) [MP3|320 Kbps] <Classical, Baroque>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения между Людовиком XIV, Люлли и Мольером, лежащие в основе фильма "Король танцует", несомненно, уникальны в истории искусств. Если летописцы, историки и романисты много вышивали вокруг этой встречи, то факты еще интереснее, чем легенда. Ибо речь идет не только о встрече мецената, музыканта и драматурга. Благожелательная случайность сделала все лучше, (   Читать дальше...   )01. Te Deum Motet a deux choeurs (02:16)
+02. La Bocanne primitive (01:43)
+03. La Bocanne compliquee (01:06)
+      .....Опера Фаэтон(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578062   (345384) от 23.09.2022
 
 VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Picture, OST [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Hard Rock>
@@ -6,7 +151,7 @@ VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Pictur
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345384.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Atom Music Audio - Underworld (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343133.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Jack Wall & Trent Reznor - Call of Duty: Black Ops II (2012) [MP3|320 кб/с]<S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342465.jpg" />
 </div>
 
 
@@ -99,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342036.jpg" />
 </div>
 
 
@@ -125,7 +270,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340434.jpg" />
 </div>
 
 
@@ -154,7 +299,7 @@ Hudson Mohawke - Ded Sec - Watch Dogs 2 (Original Game Soundtrack) (2016) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340224.jpg" />
 </div>
 
 
@@ -183,7 +328,7 @@ David Wise - Tengami (2014) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340095.jpg" />
 </div>
 
 
@@ -212,7 +357,7 @@ VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340094.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340083.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338521.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338514.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338188.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337011.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335938.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ VA - Stranger Things / Очень странные дела (Music from the Netf
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335072.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ Various Artists - The Pianist OST (2002) [MP3|320 kbps]<Classical>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334385.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333706.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ Lorne Balfe & Jesper Kyd - Assassin's Creed Revelations (2011) [MP3|320 kbps]<OS
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332675.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ John Powell & Lily Allen - Pan | Пэн: Путешествие в Нетлан�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332526.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Идеальный голос / Pitch Perfect OST (2012) [MP3|320 Kbps] <So
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332481.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330580.jpg" />
 </div>
 
 
@@ -606,157 +751,6 @@ OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6843319372380D85D329F561A502996DCE3BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957318   (327544) от 17.11.2015
-
-VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kid Ink, Tyga, Wale, YG & Rich Homie Quan - Ride Out    [03:31]
-02. T.I. & Young Thug - Off-Set                             [03:14]
-03. Sevyn Streeter - How Bad Do You Want It (Oh Yeah)       [03:44]
-04. Dillon Francis & DJ Snake - Get Low                     [03:33](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A863EA48A44C489A5708203C493A2A99433A46CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842166   (327302) от 19.11.2014
-
-Trevor Morris - Dragon Age: Inquisition (2014) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragon Age Inquisition Theme [00:02:52]
-02. Escape From The Fade [00:01:14]
-03. The Wrath Of Heaven [00:05:27]
-04. Calling The Inquisition [00:01:59]
-05. Champions Of The Just [00:03:56]
-06. Lord Seeker [00:02:08]
-07. In Hushed Whispers [00:04:49]
-08. Sacrifice [00:01:01]
-09. Alexius [00:02:35]
-10. In Your Heart Shall Burn [00:01:34](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BBD32BB9E2F8577CC546E751A680FE02EFE8FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958042   (324962) от 20.11.2015
-
-Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450 kbps]<Score / Modern Classical, Ambient>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Salt of the Earth (02:41)
-02. Papu's Song (03:36)
-03. Serra Pelada (02:50)
-04. Wrangel Island (03:56)(   Читать дальше...   )Жанр: Score / Modern Classical, AmbientПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDC668234A9C972CE5ABD6BA5A576B0FB9FD118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074988   (323446) от 21.11.2016
-
-VA - Скалолазка и Последний из Седьмой колыбели (2007) [MP3|128 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ёлка - Три пути
-02. Мурат Насыров - Алена (Восточная мелодия)
-03. Bond
-04. Военная(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473264FAC93E1C2400FCC231A32DF5D6CF73BABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075567   (320990) от 22.11.2016
-
-Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) + (Orchestral Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowden Symphonic (03:30)
-02. Burden Of Truth (02:05)
-03. Opening - Secret Downloading (01:40)
-04. Troops March (01:58)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:39:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

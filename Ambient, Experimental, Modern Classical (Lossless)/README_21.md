@@ -6,7 +6,7 @@ Slow Dancing Society - Discography 25 Releases (2006-2018) [FLAC|Lossless|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157056.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Co
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156476.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Stanislav Vdovin | Unit 21 | Initial Run - Collection 11 Releases (2007-2017) Oc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152406.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - The Hues of Infinity (2015) Projekt [FLAC|Lossless|tracks+.cue] <Ambient, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152382.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ CoH - CoHgs (2017) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152377.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Dub Tractor - Hello Ambient Wash (2017) Music For Dreams [FLAC|Lossless|tracks] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152369.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Snufmumriko - Discography 10 Releases (2012-2019) Spiritech, Lagerstätte, Drona
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148562.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Pauline Anna Strom - Echoes, Spaces, Lines (2023) 4 x CD, Compilation [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141928.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Thore Pfeiffer - Umland (2019) Savvy [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137960.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Hiholl - Illusion Of Life.Lost Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133839.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Te
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129335.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ The Woodleigh Research Facility - Phonox Nights (2023) [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128697.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Eguana - Echo (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125049.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Eguana - Connect (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124907.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Eguana, Qeight - Call Of The Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124906.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Public Memory - Elegiac Beat (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Left
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124776.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Eguana - Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ambient Chil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119349.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Boris Blank(Yello) - Resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, El
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117078.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Hollan Holmes - Sacred Places (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Spa
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114516.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Chicane - Far From The Maddening Crowds (1997) 2024 Symphonic Rehearsals [FLAC|L
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114507.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Alphaxone - Interdimensional (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113911.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ The Future Sound Of London - ISDN (30th Anniversary Edition) (2024) [FLAC 16/44.
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110323.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Two Lone Swordsmen - Still My World (2024) [FLAC|Lossless|WEB-DL|tracks] <nar ne
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109582.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Sonic Tribe - 2 Albums (2000-2002) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tranc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106310.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Banco De Gaia - Altered Realities, Vol. 1-2 (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104644.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Kira Lao - Тревожный опыт (2019) [FLAC|Lossless|tracks] <Experiment
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71841.jpg" />
 </div>
 
 

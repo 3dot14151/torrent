@@ -1,3 +1,161 @@
+###  Публикация: 1571722   (427198) от 24.08.2022
+
+Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть криминальной саги Mafia - 30-е годы, Лост-Хэвен, Иллинойс. Ремейк культовой игры, воссозданной с нуля. Постройте карьеру мафиози во времена сухого закона. После случайной встречи с мафией таксист Томми Анджело попадает в мир организованной преступности. Сначала он настороженно относится к семье Сальери, но большие деньги меняют его отношение.Тип издания: LicenseРазработчик: Hangar 13Жанр: Экшны, Приключение, Open WorldЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FF2D0870A7BE41BD66972381C5A878CC6EC3D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246578   (425695) от 17.10.2010
+
+Devil May Cry 3: Dantes Awakening Special Edition /  Devil May Cry 3: Dantes Awakening Специальное издание [Ru/En] (Repack) 2006 | R.G. ReCoding
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_425695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения полудемона Данте, облаченного в алый плащ, до последнего времени были доступны лишь обладателям игровых приставок. Специальное издание игры Devil May Cry 3 Dante’s Awakening уравнивает права всех игроков. Легендарный консольный экшен наконец-то выходит на PC-платформе.
+Постепенно Данте развивает свои боевые навыки, используя с каждым разом все более изощренные комбинации акробатики, холодного и огнестрельного оружия. Напряженные поединки перемежаются различными головоломками, а великолепные ролики в стиле аниме постепенно раскрывают секреты захватывающего сюжета.
+В специальном издании игры скрыта масса сюрпризов: дополнительные видеовставки и анимация, альтернативные костюмы главного героя, 5 игровых персонажей и многое другое. У игроков появится уникальная возможность сыграть за Вергилия, брата Данте, а также скрестить мечи со зловещим Джестером, боссом, присутствующим только в специальном издании игры.Тип издания: RePackРазработчик: Capcom и SourcenextЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135090   (421708) от 29.09.2018
+
+The Surge (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421708.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Surge - это хардкорная ролевая игра в лучших традициях серии Dark Souls. Действия игры развиваются в мире будущего и вас ждет инновационная боевая механика, и система прокачки, основанная на использовании добытых в тяжелых битвах с людьми или роботами модульных улучшений.Тип издания: RepackРазработчик: Deck13Жанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F10F206EA5C57B306A4F83B8533DE05217E2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572592   (420567) от 27.08.2022
+
+Midnight Fight Express (2022) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420567.jpg" />
+</div>
+
+
+###  Подробнее
+
+В темнейшую ночь в городе появляется неожиданный герой. Вы — Малой, бывший член преступной группировки, и вас заманил в прежнюю жизнь загадочный дрон с ИИ. Ваши, казалось бы, невыполнимые задачи: Пробиться через город до рассвета и не дать преступникам захватить весь город. Принять участие в брутальном гиперкинетическом боевом балете, используя все предметы окружения (   Читать дальше...   )Тип издания: RepackРазработчик: Jacob DzwinelЖанр: ActionЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB8C4D2D913CE15BDAD896C2BBA41A13A30B994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065261   (420464) от 22.10.2016
+
+Sky Break (2016) [Ru/Multi] (1.0) License HI2U
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечеству грозит опасность. Смертоносный вирус распространяется быстро. Растительность планеты Аркания - бывшего форпоста космической экспансии - может помочь создать лекарство. Но планета заброшена с тех пор, как строительные дроны взбунтовались против людей. На Арканию отправилась группа ученых, чтобы найти решение. Я - один из них. Но после высадки на планету (   Читать дальше...   )Тип издания: LicenseРазработчик: Farsky InteractiveЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE187BC25BC25D362204A53F281DBE29E2A0382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065113   (420356) от 22.10.2016
+
+Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack R.G. Catalyst
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орда кровожадных Орков вторглась на планету-кузницу, где производятся боевые машины для Империума Человечества. Космодесантник, закаленный в боях ветеран Ордена Ультрамаринов, капитан Тит должен со своим отрядом удерживать оборону до прихода ударных сил Имперского флота. На стороне врага – огромный перевес в численности, на стороне людей – лучшие бойцы и мощнейшее (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Action (Shooter, Slasher), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C1FF896115B02504155073D05448FADDFCC33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320742   (420300) от 11.09.2019
 
 RAD (2019) [Ru/Multi] (1.0/upd1/dlc) License CODEX
@@ -6,7 +164,7 @@ RAD (2019) [Ru/Multi] (1.0/upd1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420300.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Transformers: Fall of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419085.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Agents of Mayhem (2017) [Ru/En] (1.03) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418708.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4376604/dlc) License FAIRLIGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418345.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ ECHO (2017) [En/Ge/Fr] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416448.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416434.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415906.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ Sky Break (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415645.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414063.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ Saints Row Дилогия [En/Ru] (Repack) 2009-2011 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413397.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ Resident Evil 3 (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413318.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ The Deadly Tower of Monsters (2016) [Ru/Multi] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413304.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ HellGate: London (2007) [Ru/Multi] (1.2) License ViTALiTY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413299.jpg" />
 </div>
 
 
@@ -347,7 +505,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.668.1/dlc) SteamRip Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413292.jpg" />
 </div>
 
 
@@ -373,7 +531,7 @@ Max Payne Трилогия [En/Ru] (RePack) 2001-2012 | Martin (Audioslave)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_413208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413208.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ Assassin's Creed: Liberation HD (2014) [Ru/En] (1.0/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412918.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ Rogue Trooper (2006) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409070.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ Daymare: 1998 (2019) [Ru/Multi] (9731) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408312.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ Daymare: 1998 (2019) [Ru/Multi] (9731) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408310.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ Devil's Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407279.jpg" />
 </div>
 
 
@@ -516,167 +674,6 @@ Devil's Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0981EF42B9152FBCF38DC0D24C0ECFEBE4EE0D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302196   (407271) от 18.09.2019
-
-Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797/upd4) Rip =nemos=
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — элитный снайпер США, Карл Фейрберн, заброшенный в Берлин, где находится последняя линия обороны немцев. Ваше задание — не дать попасть в руки красной армии секретной технологии нацистов, ракете «Фау-2». Вы должны помочь главным ученым, которые склонны переметнуться на сторону США, и устранить всех, кто стоит у вас на пути. Скрытность — ваше всё, потому что вы (   Читать дальше...   )Тип издания: RipРазработчик: RebellionЖанр: Action (Shooter), Stealth, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABB6D583832DEE99D5AB6AAC7DB5DE9D0D3D4F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560690   (406457) от 15.10.2012
-
-Star Wars: The Force Unleashed Dilogy [Ru/En] (Repack) 2009 - 2010 | R.G. Shift
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории о Старкиллере, ученике Дарта Вейдера, обманутом и предательски убитом в финале первой части игры. Благодаря технологиям клонирования Старкиллер возвращается к жизни, однако он лишен памяти. Теперь он отправляется в новое путешествие с единственной целью — вспомнить все!
-
-Однако на пути к утерянным воспоминаниям Старкиллера ждет множество опасностей и, конечно, встреча со своим учителем, который так и не оставил надежды создать идеального воина-ситха. (   Читать дальше...   )Тип издания: RePackЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADDF7B8F07CF3FCAEE52A360C4D22927A3AC401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561153   (406005) от 17.10.2012
-
-Wanted: Weapons of Fate / Особо опасен: Орудие судьбы [Ru/En] (Repack) 2009 l R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wanted: Weapons of Fate — это боевик от третьего лица в котором перестрелки будут чередоваться с драками. В игре будут реализованы все инновационные моменты, представленные в оригинальном голливудском боевике «Особо опасен» — стрельба по изогнутой траектории и, конечно же, замедление времени во время перестрелок и драк. Для этого используется сложнейшее физическое ядро, которое будет просчитывать сразу несколько уровней различных действий и происходящих на экране событий. Действие в игре начинается там, где заканчивается фильм. Уэсли ждут новые приключения — он вынужден играть роль творца правосудия. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23E68DFE8EC077F39A5CD1D9E2750FBA4FB7787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561830   (405676) от 18.10.2012
-
-Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (RePack) 2005 | R.G. Механики
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405676.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Psi Ops: Врата разума» резко выделяется из череды экшенов от третьего лица своей экстраординарностью. Основной акцент в игре сделан на уникальных способностях, которыми обладают герои. Телекинез, пирокинез, управление разумом, просмотр ауры, удаленное видение, опустошение разума – вкупе с обычным оружием эти навыки дадут вам массу новых возможностей при сражении с противниками.
-
-Умело комбинируя свои псионические навыки с классическим набором специального агента, главный герой сможет убивать своих врагов самыми изощренными способами, ведь единственное ограничение в игре – это предел воображения! (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A3C320C2A01D302C74C83CDC31D262FB6AA56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562656   (405412) от 19.10.2012
-
-Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | Fenixx
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Викинги, беспощадные и яростные воины, всю свою жизнь посвящали сражениям. Умереть на поле боя — высшая честь для скандинавского воина, ведь павших храбрецов ждет вечная жизнь в Валгалле, где они будут готовиться к новым подвигам, но уже в битвах богов! Близится роковое противостояние высших существ. Реки наполнятся кровью, небесное царство Асгард превратится в руины, а мир погрузится в лютый холод и тьму — грядет Рагнарек.
-  Скандинавы оставили после себя богатую мифологию, и благодаря новому проекту от создателей серии Total War вы лично можете принять участие в противостоянии древних богов. Ареной для сражений станет мир простых смертных, беззащитных перед жерновами всесокрушающей войны. Остановить «апокалипсис» способен только Скарин — выдающийся бесстрашный герой. Именно ему предстоит отправиться в опасное путешествие, собрать войско для последней битвы и лицом к лицу столкнуться с опасным врагом. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7F3FC8BEE28C32B4201190332756ACEF51D0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562255   (405391) от 19.10.2012
-
-Second Sight [Ru/En] (RePack) 2005 | R.G. Механики
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_405391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он очнулся в исследовательской лаборатории и теперь не может вспомнить ничего, кроме собственного имени. Все, кого он встречает на своем пути, бояться его или хотят убить. Таинственная организация охотится за ним, как за опасным зверем, желая заполучить живым или мертвым. Но Джон Ваттик, искалеченный и лишенный памяти, не так беззащитен, как может показаться на первый взгляд. Чудовищные эксперименты превратили Джона в могущественного телепата, возможности которого позволяют контролировать как неодушевленные предметы, так и живых людей! С таким оружием Джон становится грозным противником для любого, кто попытается встать у него на пути, а желание узнать правду и наказать виновных делает его еще опаснее.  (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D814AA575BF54797FCB377889ECE7D3B213CFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

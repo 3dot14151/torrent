@@ -1,3 +1,29 @@
+###  Публикация: 1772645   (28285) от 08.02.2025
+
+Заколдованный доллар / Az elvarazsolt dollar (1985) DVDRip [H.264/1080p] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пародийный приключенческий фильм с драками и погонями, в котором венгерская милиция ловит и обезвреживает преступников, изготовляющих фальшивые доллары. Девчонка-сорванец случайно нашла фальшивый доллар и отдала его детективу Капельке. Операцию возглавляет майор Кардош. Теперь им предстоит заняться этим делом, найти и обезвредить фальшивомонетчиков.Производство: Венгрия, Киностудия «Будапешт»Жанр: комедия, криминалРежиссер: Иштван БуйторАктеры: Иштван Буйтор, Андраш Керн, Иштван Авар, Золтан Башилидеш, Ференц Зенте, Янош Держи, Эдит ФрайтПеревод: Дублированный (к/ст им. М. Горького)Язык озвучки: Русский, ВенгерскийСубтитры: нетПродолжительность: 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34F92290357E00CC8D0350CF1E0D8DEC9909208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778010   (28279) от 08.02.2025
 
 Остров сокровищ / Treasure Island (1990) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28279.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28274.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28267.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28260.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28241.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28239.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28237.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28234.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28186.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28173.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28165.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28160.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28159.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28156.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28149.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28145.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28078.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28055.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28031.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27996.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27896.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27891.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27885.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27871.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27855.jpg" />
 </div>
 
 
@@ -654,34 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05FF8AB09D93EEC426C4C915A23359E53820FF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779353   (27843) от 12.02.2025
-
-Море любви / Sea of Love (1989) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27843.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Нью-Йорке орудует серийный убийца. Его жертвы - мужчины средних лет, любители интимных знакомств по объявлениям в газете. Но, к несчастью, свидания заканчиваются для романтиков плачевно: их обнаженные трупы находят с пулей в голове, в одной и той же позе...
-
-Отыскать убийцу поручено опытным детективам Фрэнку Кэллеру и его напарнику Шерману. Полицейским приходит (   Читать дальше...   )Производство: США, Канада / Bregman/Baer ProductionsЖанр: триллер, драма, мелодрама, криминалРежиссер: Харольд БеккерАктеры: Аль Пачино, Эллен Баркин, Джон Гудман, Майкл Рукер, Уильям Хикки, Ричард Дженкинс, Пол Кальдерон, Джин Кэнфилд, Ларри Джошуа, Джон СпенсерПеревод: Многоголосый профессиональный (R5, 1 Канал)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9A85951EFA1544C120B626C5DCB4A4B65F6078
 ```
 
 https://mybot314.ru/tekegram_catalog/

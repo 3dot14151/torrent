@@ -1,3 +1,29 @@
+###  Публикация: 1499493   (847829) от 02.10.2021
+
+Марокко с высоты птичьего полета / Le Maroc vu du ciel (2017) DVB] [FR/RU Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я хочу рассказать вам историю одного путешествия. Меня зовут Али Бадду. Я родился и вырос во Франции, но в детстве впитал в себя музыку арабского языка, яркие краски и ласковое солнце страны моих предков - Марокко. Я бродил по этой стране. Путешествовал по ней. С ней связаны мои радости и печали. Я был в ней счастлив и влюблен. Марокко не перестает изумлять меня, (   Читать дальше...   )Производство: Франция, Hope Production, CALT Productions, France Télévisions, 2M, Moroccan National Tourist OfficeЖанр: Документальный, путешествияРежиссер: Янн Артюс-Бертран, Мишель ПитиПеревод: отсутствуетЯзык озвучки: французский/арабскийСубтитры: русские (перевод Е.Маньен, ECLAIR), английские, французские, немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F54EC7F8E01D031F578BCCE8E1F9DC0FD05C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002848   (846593) от 01.04.2016
 
 Верю - не верю. Куба. (01.04.2016) SATRip
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846593.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846039.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844747.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844430.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843501.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843190.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843131.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843015.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841797.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839761.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839638.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839634.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836708.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836706.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836603.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836567.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836547.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836473.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836464.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836459.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ NG. Япония: между небом и землей / Japan: Between Earth A
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836404.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836110.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836106.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834441.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831600.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADDFB40FF2DA99AB54F9621495DADDAC410B50DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331187   (830760) от 04.05.2020
-
-Под стук колёс / Des Trains Pas Comme Les Autres (2011-2019) HDTV [H.264/1080i-LQ] (сезоны 1-9, серии 54 из 54)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый путешественник Филипп Гугле отправляется в железнодорожный вояж. Поезд всегда был его излюбленным способом путешествий по новым странам. Впереди его ждут тысячи километров ярких впечатлений и авантюрные приключения под стук колёс. Оказавшись в вагоне, Филипп обожает заводить новые знакомства со случайными попутчиками и познавать удивительный и необъятный (   Читать дальше...   )Производство: Франция, Step by Step Productions, De Planete+ThalassaЖанр: Документальный, познавательный, путешествияРежиссер: Николя Боеро, Филипп ГуглеПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0C9D52C2C8B3B299121F86A4CC1A4AB72EB393
 ```
 
 https://mybot314.ru/tekegram_catalog/

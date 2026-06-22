@@ -1,3 +1,56 @@
+###  Публикация: 1346942   (155922) от 21.12.2019
+
+Scherlokk - Files finder 4 v4.1.6 (build 41602) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scherlokk является утилитой для быстрого поиска одного файла для точного и надежного поиска каждого файла, который соответствует критериям поиска. Музыка, изображения, закладки, документы и т.д., можно найти быстро и легко. Поиск может быть сделано в любой папке и на любом диске в том числе на съёмных носителях (pendrives, карты памяти, USB-диски), сетевой диск (AFP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E29825B95F3F0E34F71EC0FEA020CC2EEBB328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518323   (155916) от 19.12.2021
+
+FxFactory Pro 7.2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155916.jpg" />
+</div>
+
+
+###  Подробнее
+
+FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
+Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2021Разработчик: © 2021 Noise Industries, LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B24B458AF838D87FC66EC5AAEF4B72EB867213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347019   (155898) от 21.12.2019
 
 UltraEdit 20.00.0.8 [Multi]
@@ -6,7 +59,7 @@ UltraEdit 20.00.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155898.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Zoc Terminal 7.25.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155888.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155887.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Athentech Perfectly Clear Complete 3 v3.9.0.1711 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155878.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Alfred 4 Powerpack 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155868.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Optimage 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155863.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Frammer X 1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155859.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Translatium 10.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155850.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ FonePaw Android Data Recovery 5.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155841.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155792.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Wondershare AllMyMusic 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155775.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Audio Hijack 3.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155771.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Movavi Photo Manager 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155762.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ Wondershare Recoverit 8 v8.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155754.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Sync Folders Pro 4.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155740.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ ON1 Photo RAW 2022.1 v16.1.0.11631 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155708.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ ToothFairy 2.6 (49)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155674.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ TechSmith Snagit 2020.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155659.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ PDF to Excel Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155622.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ Audio Hijack 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155603.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ Red Giant Trapcode Suite 13.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155534.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ KeyKey 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155518.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ DjVu Reader Pro 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155498.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ Red Giant Magic Bullet Suite 12.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155443.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ Magic Bullet Suite представляет собой набор из вось�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:013C6EFB75E7210D27BCE3C3759E9B5B40CEC6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346879   (155391) от 21.12.2019
-
-Path Finder 9.0.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CocoatechПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FF76EB11AE2B2A6DC09AEC8C850C065A718279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518307   (155388) от 19.12.2021
-
-iZotope - RX 9 Audio Editor Advanced v9.2.0 STANDALONE, VST, VST3, AAX [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155388.jpg" />
-</div>
-
-
-###  Подробнее
-
-RX уже давно является популярным пакетом для ремонта и полировки звука для фильмов, телевидения, музыки, подкастов, видеоигр, библиотек сэмплов и многого другого. В RX мы создали новые инструменты и улучшили любимые модули, чтобы помочь вам достичь большего за меньшее время, чем когда-либо.
-В версии 8 мы добавили новые функции в линейку продуктов, чтобы ускорить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2021Разработчик: © 2021 iZotope, Inc.Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BDFE5CB1265AE42AA58B7708B56E19E4486BB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

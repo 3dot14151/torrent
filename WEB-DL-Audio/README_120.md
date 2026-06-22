@@ -6,7 +6,7 @@ Find Me - Nightbound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43357.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jhene Aiko - Chilombo (2020) Deluxe, 2020, Def Jam Recordings [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43254.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Julian Smith - Being with You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43253.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hannah Kerr - As I Am (2024) [FLAC 16,24/44.1.48,96|Lossless|WEB-DL|tracks] <Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43149.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Michael Schenker Group - My Years with UFO (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43126.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cher - Forever Fan (2024) Remaster, 2024, Warner Records [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43039.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nightwish - Yesterwynde (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43035.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Katy Perry - 143 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42832.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Purple Disco Machine - Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42725.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Calliope Calliopeia Band - Long Distance You and Me (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42620.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Hurricanes - Back to the Basement (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42619.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Babbba - Hypnotic Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Swing, Smo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42617.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jamie xx - In Waves (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42613.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Manu Chao - Viva Tu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Rock, Regg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42602.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Little Quirks - Little Quirks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42515.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cold Contrast - Last Honest Words (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42512.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Legacy of Light - Fragments of Major Arcana (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42511.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ruth Moody - The Wanderer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42417.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mylene Farmer - RemiXXL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42393.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Luna Sol - Vita Mors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42312.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Crimson Veil - Hex (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42311.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Patti LuPone - A Life in Notes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42310.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Steve Louw - Between Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42309.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The Delta Blues Collective - My Town Was Memphis in 1973 (2024) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42307.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Ivy Lab - Infinite Falling Ground Pt.2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42305.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Lady Gaga - Harlequin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42220.jpg" />
 </div>
 
 

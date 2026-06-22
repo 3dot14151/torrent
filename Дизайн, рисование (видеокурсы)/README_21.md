@@ -6,7 +6,7 @@ ArtStation, Bailey Facer | Violent Seduction – Tempeste Set Creation (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888913.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Domestika, Karmen Loh | Lighting and Color for Digital Portraits in Photoshop (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888720.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ CG Cookie | Создание процедурных песчаных дюн в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888149.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ CG Cookie | Риггинг трансформирующейся винтовки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888107.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ CG Cookie | Анимация оружия персонажей от первог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888092.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Unreal Engine, Jerome Platteaux | Lighting with Unreal Engine Masterclass (2017)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887383.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Udemy, Michael Ricks | Learn How To Do Amazing Cloth Animation In Unreal Engine 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887331.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Epic Games, Mathew Wadstein | UE4 Projects and File Structure (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885923.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Packt Publishing, Jonathan A. Daley | Building an Unreal RTS Game: Adding Killer
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885919.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Udemy, Cubo Class и др. | Unreal Engine 4 Class. Blueprints Part 1-4 (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885353.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ CG Cookie | Создание зацикленного коридора в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885168.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CG Cookie | Создание мини-танка для мобильных иг�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884949.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CG Cookie | Создание анимации с ригом в Grease Pencil в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884800.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ CG Cookie | Основы моделирования 3D-меша в Blender 2.8 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884773.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ FXPHD, Jeronimo Maggi | Advanced VEX & Python for Houdini TDs (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880377.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Chris Orwig | [Lynda.com]Photoshop Blend Modes for Photography [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878679.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ j-design.pro, Сергей Привалов | 3D моделирование в Z
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878611.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ kondratiki | Абсолютный ZBrush курс ZBrush-1 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878596.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Viscorbel, Austris | Classic Furniture VOL2 ORNAMENT (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877251.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Udemy, Steve Lord | Sculpting Animals (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877230.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Digital Tutors, Alex Jerjomin | Importing and Rendering a Stylized Environment i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877120.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Digital Tutors, Alex Jerjomin | Texturing a Stylized Game Environment in Photosh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877119.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Digital Tutors, Justin Marshall | Cloth Workflows in ZBrush (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877112.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Digital Tutors, Alex Jerjomin | Sculpting a Stylized Game Environment in ZBrush 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876981.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876961.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874675.jpg" />
 </div>
 
 

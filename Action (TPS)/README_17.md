@@ -1,3 +1,135 @@
+###  Публикация: 1025212   (711196) от 11.06.2016
+
+Senran Kagura: Shinovi Versus (2016) [Jp/En] (1.0) Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Senran Kagura начала своё существование в качестве классического бит-эм-апа для портативной системы Nintendo 3DS, вышедшего в Европе под названием Senran Kagura Burst и объединившего в себе сразу две игры. Именно эти проекты, а также находящаяся в разработке Senran Kagura 2: Deep Crimson, по версии продюсера серии являются ключевыми, что, впрочем, не помешало (   Читать дальше...   )Тип издания: RepackРазработчик: Marvelous AQLЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Японский, АнглийскийЯзык интерфейса: Японский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6AA5C3958A75464E4B5862CD5EFD7DAED448AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025234   (711065) от 11.06.2016
+
+Onechanbara Z2: Chaos (2016) [Jp/En] (1.0) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальность Onechanbara Z2: Chaos заключается в том, что вы не просто управляете каждой из прекрасных девушек, но и можете переключаться между ними прямо по ходу боя, создавая сильные цепочки ударов. Например, подбросив противника в воздух Кагурой, вы можете использовать бензопилу и разрезать монстра на две части, выбрав Сайю. Во время насыщенных боев с множеством (   Читать дальше...   )Тип издания: LicenseРазработчик: TamsoftЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Японский, АнглийскийЯзык субтитров: Японский, АнглийскийЯзык интерфейса: Японский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A437F02FAA50539B590DE27888C1E9D8455313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131187   (710278) от 04.05.2017
+
+Aragami (2016) [Ru/Multi] (01.08/dlc) SteamRip Let'sPlay
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aragami, игра в жанре "стелс", посвященная тайному перемещению с использованием сверхъестественных способностей. То, что вы беззвучно двигаетесь и избегаете источников света, еще не значит, что вы сливаетесь с тенью. Танцуйте с ней, живите в ней, пусть она проходит сквозь вас так же, как вы проходите сквозь нее.Тип издания: SteamRipРазработчик: Lince WorksЖанр: Action, 3D, 3rd Person, StealthЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DEFA3F455C499375847769BDC1B97BC970308E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792558   (707691) от 03.06.2014
+
+Silent Hill: Homecoming (2009) [Ru/En] (1.0) RePack Audioslave
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странные, тревожащие сны начали мучить Алекса Шепарда еще вдали от дома. А когда профессиональный военный, наконец, вернулся в родной городок Шепардс Глен, то обнаружил, что кошмар обернулся явью. В подворотнях сгустился мрак, улицы опустели, а дом самого Алекса превратился в обитель страха и отчаяния. Младший брат пропал, отправившийся на его поиски отец не вернулся, а мама замкнулась в себе и отрешилась от окружающего мира.
+Silent Hill: Homecoming — это достойное продолжение знаменитой серии, каждый эпизод которой натягивает нервы и леденит кровь не хуже первоклассных психологических триллеров и фильмов ужасов. В роли Алекса Шепарда вам вновь предстоит посетить утопающий в вязком тумане городок Сайлент Хилл, где за белесой пеленой скрываются порождения худших ночных кошмаров. Что произошло, пока Алекс отсутствовал и как его брат, еще подросток, связан с царящим вокруг безумием? Найти ответы на эти вопросы можете только вы.(   Читать дальше...   )Тип издания: RePackРазработчик: Double Helix GamesЖанр: Action (Survival horror) / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA141ECFFEC9A9F64C6805CB25AF92EF9C088D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 330020   (707227) от 30.04.2011
+
+The Swarm / Симбионт [Ru] (RePack) 2008 | Apple
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707227.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2008 году человечество столкнулось с угрозой извне огромные корабли пришельцев вошли в атмосферу Земли и атаковали крупнейшие города. Инопланетная раса, позже названная Роем, за тысячелетия миграций по Вселенной впитала в себя сотни видов. Она оказалась практически неуязвима для человеческого оружия. Правительства Земли ответили тактическими ядерными ударами по местам высадки чужаков, однако Рой не понес больших потерь. Человечество же потеряло последнюю надежду на выживание.
+Спасаясь от радиационного кошмара, захватчиков и воцарившегося хаоса, люди ушли под землю. Метро, канализация и подвалы дали убежище побежденному человечеству. Спустя два года после Вторжения, люди уподобились крысам, прячущимся по темным углам подземелий, в то время как на поверхности Земли инопланетяне движутся к ведомой лишь им цели. Однако не все выжившие потеряли надежду, некоторые еще верят, что будущее планеты в руках человечества.Тип издания: RepackЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794EF463974E942E7F409D198318F60CA5DDE759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220211   (705883) от 18.04.2018
 
 The Surge (2017) [Ru/Multi] (1.0.40559/dlc) License RELOADED [Complete Edition]
@@ -6,7 +138,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) License RELOADED [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705883.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704696.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ Eternity: The Last Unicorn (2019) [Ru/Multi] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704692.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ SIFU (2022) [Ru/Multi] (1.5.3.369/dlc) Repack Other s [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704643.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) Repack =nemos= [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703977.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ Eternity: The Last Unicorn (2019) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702943.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702843.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ Bayonetta (2017) [Ru/Multi] (1.0) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700231.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ Deadly Tropics (2018) [En] (1.00) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694813.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693410.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/upd10/dlc) Repack Other s [Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692773.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1) SteamRip R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691136.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ Bullet Witch (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690951.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ One Piece: World Seeker (2019) [Ru/Multi] (1.0.1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687723.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ Tomb Raider (2013) [Ru/Multi13] (1.01.748.0/16 DLC) RePack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685739.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684993.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (1.0) Rip R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683496.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680563.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680551.jpg" />
 </div>
 
 
@@ -504,7 +636,7 @@ Vanquish (2017) [Ru/Multi] (1.05) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678706.jpg" />
 </div>
 
 
@@ -530,7 +662,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677877.jpg" />
 </div>
 
 
@@ -541,139 +673,6 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE26ECB1AA1EDDEFB21669801E17AA6D7CFE85BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509183   (676210) от 11.06.2012
-
-Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (RePack) 2003 | R.G. Механики
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676210.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как продажи игр серии Tomb Raider превысили отметку в 30 миллионов копий, Лара Крофт стала обладательницей титула «Самая известная героиня видеоигр среди людей» и попала в Книгу рекордов Гиннесса. Каждое ее приключение – долгожданный подарок для миллионов игроков. «Ангел тьмы» раскроет одну из самых загадочных и мрачных страниц из жизни Лары Крофт. После очередной экспедиции мисс Крофт будто подменили. Она заперлась в своем имении и, казалось, забыла о приключениях. Только приглашение старого друга и наставника профессора Фон Кроя заставило Лару перешагнуть через порог дома. Однако, когда героиня приехала в назначенное место, оказалось, что ее наставник убит. Подозрения полиции пали на юную красавицу, обнаруженную на месте преступления. Ларе Крофт приходится бежать.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9FF964AB6C84D79787F1623CDB9979FD8B4598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026966   (675778) от 29.06.2016
-
-Action Legion (2016) [En] (1.2.1) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Action Legion - это аркадный шутер с видом сверху, отсылающий игроков в классике вроде Cannon Fodder. Игрокам предстоит прорубаться через волны противников, используя разнообразное оружие, уничтожая строения и боссов на своем пути.Тип издания: RepackРазработчик: Aeonic EntertainmentЖанр: Action (Top-Down), Arcade, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4BB6BFEA2CE1FBCE1BA781EFDC80DBE37836F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008900   (675700) от 29.06.2016
-
-Action Legion (2016) [En] (1.2.1) License CODEX
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Action Legion - это аркадный шутер с видом сверху, отсылающий игроков в классике вроде Cannon Fodder. Игрокам предстоит прорубаться через волны противников, используя разнообразное оружие, уничтожая строения и боссов на своем пути.Тип издания: LicenseРазработчик: Aeonic EntertainmentЖанр: ActionЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06240BDD925961374923449F2D6683FBA61DA63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030098   (675639) от 29.06.2016
-
-Resident Evil 0 / BioHazard 0 HD Remaster (2016) [Ru/En] (1.0/dlc) Repack R.G. Механики
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil 0 рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных мониторов.Тип издания: RepackРазработчик: CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F0388B4A770B9BB8A687F4B99F3D48DCEBD307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797638   (674865) от 19.06.2014
-
-Conflict: Anthology / Конфликт: Антология (2002-2008) [Ru]  Repack Fenixx
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концепция игры основана на чрезвычайно популярном совместном прохождении одиночной кампании, при этом игроки могут меняться местами, переключаясь с одного на другого персонажа.
-Двум агентам ЦРУ (при отсутствии реального напарника за него будет играть компьютер) предстоит объехать земной шар, чтобы на мировой политической арене воцарился закон и порядок. Бескомпромиссным борцам за демократию придется найти и обезвредить ядерное оружие, которое новое правительство Венесуэлы сложными путями приобрело у африканского алмазного короля, чтобы грозить Объединенным нациям. Затем они отправятся в Руанду, чтобы найти поставщика и напасть на след производителя урана, который является сумасшедшим профессором, состоящим на службе у влиятельного босса русской мафии.
-При всей внешней простоте сюжета действие игры разворачивается стремительно и непредсказуемо. Детальность воспроизведения множества разнообразных локаций, большая часть которых соответствует реальным географическим объектам, а также фантазия создателей игры, уделивших особое внимание визуальным и графическим эффектам, а также разработке искусственного интеллекта, удивят даже искушенных.
-(   Читать дальше...   )Тип издания: RepackРазработчик: Pivotal GamesЖанр: Action (Tactical / Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4561D5119A1A1977132B5206E0B508B3B2C70492
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - I Love Tocata 80s (2012) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70068.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mancol - First Look (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69426.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Rewind - 29 Italo Disco Classics (1997) 2CD [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69414.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - I Love ZYX Italo Disco Collection 3 (2005) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68870.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - I Love ZYX Italo Disco Collection 4 (2006) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68794.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - I Love ZYX Italo Disco Collection 5 (2006) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68754.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68662.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68661.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - I Love ZYX Italo Disco Collection 9 (2009) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68659.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - I Love ZYX Italo Disco Collection 15 (2013) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68597.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ancient Silence - The 1st Album (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68594.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Covered in Hits - A Tribute to Modern Talking (2010) [MP3|320 Kbps] <Euro-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68588.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - I Love ZYX Italo Disco Collection 14 (2012) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68566.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Flashback Anthology Vol. 2 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68555.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Flashback Anthology Vol. 1 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68547.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Flashback Anthology Vol. 3 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68504.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Best Of Italo Disco - Unreleased Tracks (2008) 2 CD [OGG Vorbis|480 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68125.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lobo - The Caribbean Disco Show (1981) LP [MP3|320 Kbps] <Disco, Reggae, Funk-So
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61911.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Arabesque - 40th Anniversary Best (2017) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59700.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ A La Carte - 6 Albums (1982-2016) Remastered, 2024, Coconut Music [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59698.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Radiorama - 17 Albums +1 Bootleg+ 12  Compilations + 38 Singles (68 CD)  (1985 -
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57571.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mr. Moscow - 9 Albums (2021-2024) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56866.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Danny & Armi - Danny & Armi (1978) LP [MP3|320 Kbps] <Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56763.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Danny & Armi - Toinen (1979) LP [MP3|320 Kbps] <Pop Rock, Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56760.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Zig Zag - Zig Zag (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53315.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Venise - The Body Trip (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52990.jpg" />
 </div>
 
 

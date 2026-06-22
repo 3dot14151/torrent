@@ -1,3 +1,134 @@
+###  Публикация: 978713   (961862) от 24.01.2016
+
+Западная религия / Western Religion (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитые игроки собираются опуститься в город шахт в Аризоне, где проходит ежегодный чемпионат по играм. Но игры не простые, теперь герои должны бороться за первое место в карточной игре – покер. На что способны игроки и чем все закончиться. Ведь обычно жульничать не принято, но ведь никто не может устоять против большой суммы денег.Производство: СШАЖанр: ВестернРежиссер: Джеймс О’БрайэнАктеры: Питер Шинкода, Майлз Санто, Мерик Тадрос, Холлидей Хэдли, Вивиан Ламоли, Питер Шерайко, Джонатан Айли, Ардешир Радпур, Стиг Элдред, Ясмин Канли.Перевод: Любительский двухголосый (Parovoz Production)Субтитры: Отсутствуют.Продолжительность: 01:45:09Реклама: Отсутствует.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B56464D19BD8E735FEDA3E84CF5CE24F05673FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978556   (961838) от 24.01.2016
+
+Банда грабителей / Band of Robbers (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелкий уголовник Гекльберри Финн выходит из заключения и хочет начать новую жизнь с чистого листа. Его планы нарушает друг детства, горе-полицейский, Том Сойер, до сих пор не отказавшийся от детской мечты — найти сокровища.Производство: США / Blacklist Digital, Lola's Productions, Tilted Windmill Productions, Torn Sky Entertainment, Whitewater FilmsЖанр: Триллер, Комедия, Криминал, ПриключенияРежиссер: Аарон Ни, Адам НиАктеры: Кайл Галлнер, Адам Ни, Мэттью Грей Гублер, Хэннибал Бёресс, Мелисса Бенойст, Дэниэл Эдвард Мора, Стивен Лэнг, Эрик Кристиан Олсен, Джонни Пембертон, Бет ГрантПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Parovoz ProductionПродолжительность: 01:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44BA696D63EC12138C08B2732FCF899F08F1793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978583   (961835) от 24.01.2016
+
+Уже скучаю по тебе / Miss You Already (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мили и Джес большую часть жизни, были лучшими подругами, они всегда были вместе, невзирая ни на что. Но когда у Мили обнаружилась опухоль, а Джес в это время впервые забеременела и не хотела расстраивать подругу и не сообщила ей свою радостную новость, они стали отдаляться друг от друга, хотя им обоим не хватало друг друга. Однако настоящая дружба всё перенесёт...Производство: ВеликобританияЖанр: Мелодрама, КомедияРежиссер: Кэтрин ХардвикАктеры: Дрю Бэрримор, Тони Коллетт, Жаклин Биссет, Доминик Купер, Пэдди Консидайн, Тайсон Риттер, Мем Ферда, Ной Хантли, Дженис Аккуа, Шарлотта УббенПеревод: Двуголосый закадровый, любительский (Parovoz Production)Продолжительность: 01:52:12Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052BF3127FE31C0019A688F73BBD741C9F9248CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978617   (961822) от 24.01.2016
+
+Марсианин / The Martian (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
+Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, Великобритания / 20th Century Fox Film Corporation, Genre Films, International TradersЖанр: фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 02:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE666E37D637C00401F433B9C43C139DF91B8007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359936   (961805) от 14.02.2020
+
+Страх / La peur / The Fear (2015) DVDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961805.jpg" />
+</div>
+
+
+###  Подробнее
+
+1914 год. Габриель, молодой призывник, отправляется на фронт. Ему предстоит пережить царящий в траншеях ад полный страха, ярости и боли, и открыть свою собственную человечность…Производство: Франция, Канада / JPG Films, Tu Vas Voir Productions, Les Productions de la Peur (14-18)Жанр: Драма, ВоенныйРежиссер: Дамьен ОдульАктеры: Nino Rocher, Pierre Martial Gaillard, Théo Chazal, Элиотт Маргерон, Frédéric Buffaras, Jonathan Jimeno Romera, Charles Josse, Aniouta Maïdel, Миро Лакасс, Патрик Де ВалеттПеревод: Одноголосый любительскийСубтитры: РусскиеПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A23F5A977274C1ECEA44F0DDA9E064EF6597031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359832   (961799) от 14.02.2020
 
 Адамовы яблоки / Adams æbler (2005) HDRip [MVO]
@@ -6,7 +137,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961799.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961797.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961783.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.265] [10-bit]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961763.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961760.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961757.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.265] [10-bit]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961755.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.264]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961719.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961708.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961706.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961667.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961648.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961637.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961203.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961084.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961075.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960899.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960890.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960881.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960866.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960813.jpg" />
 </div>
 
 
@@ -539,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0D0B1CBB535A8BA16C8C6208E35788CEB2400E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979174   (960810) от 25.01.2016
-
-Ралука / Raluca (2014) DVDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Послужной список Филипа Маролда в полиции подпорчен, и теперь он перебивается частным сыском, выслеживая неверных мужей и жен. Во время очередного (на первый взгляд ординарного) дела, он встречает в баре красивую румынку. Слишком большой любитель женщин, чтобы даже задуматься над случайностью такой встречи, он очертя голову бросается в новую интрижку. Даже не подозревая (   Читать дальше...   )Производство: Чехия / Screenplay ByЖанр: Триллер, Драма, Криминал, ЭротикаРежиссер: Зденек ВиктораАктеры: Ян Долански, Мальвина Пахлова, Давид Новотный, Гелена Дворжакова, Станислав Майер, Кристина Фрейова, Дана Сислова, Радим Шваб, Клара Седлачкова-Олтова, Петр Конаш, Зденек Виктора...Перевод: Одноголосый закадровыйПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFDC9AFC7CAD0848846F2CFE34A2FD0418168ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979140   (960804) от 25.01.2016
-
-Я буду другой / Ich bin die Andere (2006) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный молодой инженер Роберт проводит в отеле незабываемую ночь с таинственной леди в красном. На следующий день они встречаются в юридической фирме, где Каролин работает над контрактом Роберта, но она, кажется, ничего не помнит об их прошлой встрече. Чем больше Роберт проникает в болезненный мир Каролин и темные секреты ее семьи, тем более опасной становится (   Читать дальше...   )Производство: ГерманияЖанр: ДрамаРежиссер: Маргарете фон ТроттаАктеры: Катя Риманн, Армин Мюллер-Шталь, Карин Дор, Аугуст Диль, Бернадетт Хирваген, Барбара Ауэр, Дитер Лазер, Петер Лерхбаумер, Бен Саад, Феликс МюллерПеревод: Любительский одноголосый (Денис Строев)Субтитры: ОтсутствуютПродолжительность: 01:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E44F148503A50901D1F8B4BF985314D358E97DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979251   (960745) от 25.01.2016
-
-Ралука / Raluca (2014) DVDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Послужной список Филипа Маролда в полиции подпорчен, и теперь он перебивается частным сыском, выслеживая неверных мужей и жен. Во время очередного (на первый взгляд ординарного) дела, он встречает в баре красивую румынку. Слишком большой любитель женщин, чтобы даже задуматься над случайностью такой встречи, он очертя голову бросается в новую интрижку. Даже не подозревая (   Читать дальше...   )Производство: Чехия / Screenplay ByЖанр: Триллер, Драма, Криминал, ЭротикаРежиссер: Зденек Виктора / Zdenek ViktoraАктеры: Ян Долански, Мальвина Пахлова, Давид Новотный, Гелена Дворжакова, Станислав Майер, Кристина Фрейова, Дана Сислова, Радим Шваб, Клара Седлачкова-Олтова, Петр Конаш, Зденек Виктора...Перевод: Одноголосый закадровый (женский - Kass)Продолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BD36DE84DE5DEF80217A77A7662E39025BF0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747596   (960717) от 20.01.2014
-
-Любовь и секс на Ибице / Verliefd op Ibiza (2013) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футболист Кевин только что заключил выгодный контракт с мадридским Реалом. Он вряд ли понимает, что делать со свалившимся на него богатством, но его подруга Эльза знает, как Кевин должен тратить свои миллионы... Две 40-летних подруги Джеки и Ирма хотя и проводят отпуск вместе, но имеют разные представления об идеальном отдыхе: Джеки предпочитает тусоваться с молодыми (   Читать дальше...   )Производство: Нидерланды / Farmhouse Film & TV, Johan Nijenhuis & Co, Televisie Radio Omroep Stichting (TROS)Жанр: Мелодрама, КомедияРежиссер: Йохан НийенхейсАктеры: Виллеке ван Аммельрой, Йим Баккум, Рик Энгелкес, Ким Феенстра, Джаспер Готтлиб, Мариус Готтлиб, Кимберли Клавер, Симоне Клейнсма, Ян Коейман, Дэвид ЛюсиерПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B991F3AB48F4E038109E230C0969534F47814DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747421   (960708) от 20.01.2014
-
-В погоне за счастьем / The Pursuit of Happyness (2006) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Гарднер — отец одиночка. Воспитывая пятилетнего сына, Крис изо всех сил старается сделать так, чтобы ребенок рос счастливым. Работая продавцом, он не может оплатить квартиру, и их выселяют.
-Оказавшись на улице, но не желая сдаваться, отец устраивается специалистом в брокерскую компанию. Только и там его доходы далеки от нормальных. Но Крис поклялся себе во чтобы (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Габриэле МуччиноАктеры: Уилл Смит, Тэнди Ньютон, Брайан Хау, Джеймс Карен, Дэн Кастелланета, Курт Фуллер, Джейден СмитПеревод: Профессиональный |полное дублирование|Язык субтитров: РусскийПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66A78F86409A076ED2E0340D0490505AEF12A7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637255.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637118.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633667.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623806.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_611609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611609.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_611476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_611476.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610525.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610357.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610050.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608826.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608757.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606974.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605175.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603708.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603703.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603677.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603587.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603550.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602769.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602737.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600046.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597500.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596476.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594746.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587893.jpg" />
 </div>
 
 
@@ -711,28 +711,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554159   (578866) от 29.05.2022
+###  Публикация: 1301001   (586965) от 09.05.2019
 
-Футбол. Лига Чемпионов 2021-2022. Финал. Ливерпуль (Англия) - Реал (Мадрид, Испания) (28.05.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Лига Чемпионов УЕФА 2018-2019. 1/2 Финала. 2-й матч. Аякс (Нидерланды) — Тоттенхэм Хотспур (Англия) (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Лига Чемпионов 2021-2022. Финал. Ливерпуль (Англия) - Реал (Мадрид, Испания) (28.05.2021)
-СУДЬЯ Тюрпен Клеман (Улинс, Франция)
-Судья на линии 1: Дано Николя (Франция)
-Судья на линии 2: Гренгор Сириль (Франция)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:53:52
+08 мая 2019, среда. 22:00 МСК
+Лига Чемпионов УЕФА 2018-2019. Плей-офф
+1/2 Финала. 2-й матч.
+Аякс (Амстердам, Нидерланды) — Тоттенхэм Хотспур (Лондон, Англия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:58:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44C172882230E147ED8F924E42CBC508F75489CB
+magnet:?xt=urn:btih:B8DA5194D6D4E19B6ED4FA198B6549D5CBBAF1DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

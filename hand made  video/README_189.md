@@ -1,3 +1,29 @@
+###  Публикация: 1812820   (7532) от 16.08.2025
+
+Ущелье / The Gorge (2025) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [handmade] [MVO]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший морпех и элитный снайпер Ливай, потерявший смысл жизни, соглашается на сверхсекретное задание — год просидеть в полном одиночестве в сторожевой башне на краю огромного ущелья. На другой стороне в такой же башне сидит литовская снайперша Драса. Их общая задача, сформулированная ещё на заре холодной войны, — следить, чтобы из тумана не вылезали монструозные (   Читать дальше...   )Производство: Великобритания, США / Crooked Highway, Lit Entertainment Group, Skydance ProductionsЖанр: фантастика, боевик, мелодрамаРежиссер: Скотт ДерриксонАктеры: Майлз Теллер, Аня Тейлор-Джой, Сигурни Уивер, Сопе Дирису, Уильям Хьюстон, Кобна Холдбрук-Смит, Джеймс Марлоу, Julianna Kurokawa, Рута Гедминтас, Оливер Тревена и др.Перевод: Многоголосый (LE-Production)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 02:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09078CC6F33EE267C90A100862E1C7D7FEB44A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804947   (7366) от 17.08.2025
 
 Холодное лето пятьдесят третьего... (1987) WEB-DL [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7366.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7144.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6973.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6970.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6860.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6828.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6707.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6701.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6510.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6509.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6370.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6345.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6337.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6313.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6204.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.264/1080p-LQ] [hand m
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6065.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6033.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5920.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5723.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5710.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5703.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5438.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5383.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5272.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5240.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8FFA6B5C57E47E9FDBA12E378515C751ADCF74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815788   (5034) от 31.08.2025
-
-Остров головорезов / Cutthroat Island (1995) BDRip [H.264/1080p] [handmade AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважная дочь пирата, Морган Эдамс, жаждет отомстить за своего отца, погибшего от рук собственного брата. Ей досталась в наследство треть карты Острова Головорезов с обозначением места, где спрятаны несметные сокровища. Чтобы добраться до них, Морган набирает команду из старых боевых товарищей отца.Производство: США, Франция, Италия, Германия / Beckner/Gorman Productions, Canal+Жанр: боевик, комедия, приключенияРежиссер: Ренни ХарлинАктеры: Джина Дэвис, Мэттью Модайн, Фрэнк Ланджелла, Мори Чайкин, Патрик Мэлахайд, Стэн Шоу, Рекс Линн, Пол Диллон, Кристофер Мастерсон, Джимми Ф. СкэггзПеревод: Многоголосый профессиональный (Позитив-Мультимедиа)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 02:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D8CD890274F5795FDCB5A764DE7B5B21970D98
 ```
 
 https://mybot314.ru/tekegram_catalog/

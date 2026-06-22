@@ -1,3 +1,56 @@
+###  Публикация: 475623   (85395) от 30.03.2012
+
+Пикник - 30 световых лет (2012 ) DVD9
+
+>>След.
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцатилетний юбилей группы Пикник - хороший повод, чтобы «вспомнить все», а точнее исполнить все те песни, которые составили не только квинтэссенцию творчества Пикника, но и вошли в золотой фонд Русского рока. На юбилейном концерте, состоявшемся в Ледовом дворце, на глазах восьми тысяч зрителей, ожили фантастические персонажи песен Эдмунда Шклярского. Это и Гигант на ходулях, и Кукла с человеческим лицом, и Танцующий шаман. Не обошлось и без эксклюзивных инструментов, таких как Живая виолончель (в песне «Глаза (   Читать дальше...   )Жанр: RockФормат: DVD VideoПродолжительность: 02:14:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473432   (84515) от 26.03.2012
+
+Iron Maiden - En Vivo! (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84515.jpg" />
+</div>
+
+
+###  Подробнее
+
+EMI 26 марта выпускают новый концертный релиз IRON MAIDEN, "En Vivo!", который будет доступен на Blu-Ray, 2-DVD и 2-CD. Его съемки состоялись на выступлении 10 апреля в Сантьяго перед 50 000 поклонниками, которое проходило в части "Round The World In 66 Days" из "The Final Frontier World Tour", достойно запечатлев как небывалый энтузиазм и самоотдачу чилийских поклонников, так и отразив всю суть IRON MAIDEN образца 2011 года.
+Концерт снимался на 22 HD-камеры и октокам (летающая камера над толпой перед сценой), записан в стерео и 5.1-формате, сведение которого осуществил Kevin "Caveman" Shirley, каждый из них только подчеркивает невероятную атмосферу выступления. Особым моментом релиза станет возможность близкого наблюдения за каждым музыкантом на разделенном экране, а сет-лист плавно варьируется от классических произведений до номеров с последнего альбома.Жанр: Heavy MetalПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472504   (84295) от 25.03.2012
 
 Angel Voices. Libera in Concert(2007) DVD5
@@ -6,7 +59,7 @@ Angel Voices. Libera in Concert(2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84295.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Monsters of Metal Vol.8 (2012) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83746.jpg" />
 </div>
 
 
@@ -70,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83711.jpg" />
 </div>
 
 
@@ -104,7 +157,7 @@ Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83095.jpg" />
 </div>
 
 
@@ -133,7 +186,7 @@ Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81697.jpg" />
 </div>
 
 
@@ -159,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79182.jpg" />
 </div>
 
 
@@ -186,7 +239,7 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78740.jpg" />
 </div>
 
 
@@ -212,7 +265,7 @@ Deep purple - Machine Head Live 1972 (1999) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78214.jpg" />
 </div>
 
 
@@ -238,7 +291,7 @@ Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78198.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76986.jpg" />
 </div>
 
 
@@ -311,7 +364,7 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76903.jpg" />
 </div>
 
 
@@ -341,7 +394,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76535.jpg" />
 </div>
 
 
@@ -367,7 +420,7 @@ Nazareth - Live From Classic T Stage (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76144.jpg" />
 </div>
 
 
@@ -393,7 +446,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75440.jpg" />
 </div>
 
 
@@ -421,7 +474,7 @@ the Dubliners: 40th Anniversary Concert (2002) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_53148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_53148.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51251.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50212.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ Electric Light Orchestra - The Early Years (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50106.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ Electric Light Orchestra - ZOOM - Tour Live (2001) [DVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50101.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Electric Light Orchestra (ELO) - Out of the Blue Live at Wembley (remastered) [2
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49996.jpg" />
 </div>
 
 
@@ -596,7 +649,7 @@ Heaven & Hell - Neon Nights: 30 Years of Heaven & Hell - Live in Europe (2009) (
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49876.jpg" />
 </div>
 
 
@@ -622,7 +675,7 @@ Heaven and Hell - Radio City Music Hall Live! (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49742.jpg" />
 </div>
 
 
@@ -651,7 +704,7 @@ B.B. King & Friends - A Night of Blistering Blues (2005) DVD5 <Blues>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49461.jpg" />
 </div>
 
 
@@ -681,7 +734,7 @@ Foreigner - Live At Deer Creek 1993 (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49435.jpg" />
 </div>
 
 
@@ -695,61 +748,6 @@ Foreigner - Live At Deer Creek 1993 (2003) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68B6B994FAA35AAC1BC1319660A3D2AFCF10BA87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314525   (49428) от 20.07.2024
-
-Fleetwood Mac: Live In Boston (2003) DVD5 + DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fleetwood Mac  — влиятельная и коммерчески успешная британо-американская группа, которая с момента своего создания в июле 1967 года знала немало взлётов и падений, несколько раз обновляла состав и меняла стиль исполняемой музыки, благодаря чему смогла сохранить популярность дольше подавляющего большинства конкурентов — вплоть до самого конца XX века.Производство: США,  WTTW/Chicago and HD Ready. LLSЖанр: Blues, Blues/Rock, RockУчастники: Mick Fleetwood - Drums & Percussion
-Stevie Nicks - Vocals
-Lindsey Buckingham - Guitars & Vocals
-John McVie - BassСубтитры: Английские, Французские, Немецкие, Датские, Итальянские, Португальские, ИспанскиеФормат: DVD5 + DVD9Качество: DVDПродолжительность: 0:57:04 + 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA11E5FF26C9607561E400C459124D6BA596EFED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 91514   (49427) от 20.07.2024
-
-Fleetwood Mac - The Dance (1997) DVD
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный альбом, записанной группой после воссоединения в их самом плодотворном составе (Линдси Бекингем, Мик Флитвуд, Стиви Никс, Кристин и Джон МакВи). Дебютировал на первой строчке Billboard и попал в первую пятерку самых успешных концертных альбомов в истории (5 миллионов проданных экземпляров). Издание включает хиты "Dreams", "Rhiannon (Will (   Читать дальше...   )Жанр: Soft RockРежиссер: Bruce GoverАктеры: Mick Fleetwood, John McVie, Stevie Nicks, Lindsey Buckingham, Christine McVieПеревод: ОригинальныйЯзык субтитров: EnglishЯзык: АнглийскийПродолжительность: 01:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5FFCB98F43DFDD190B3C4B035510E88B5F167F
 ```
 
 https://mybot314.ru/tekegram_catalog/

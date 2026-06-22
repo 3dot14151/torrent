@@ -6,7 +6,7 @@ MInstAll Enter-Soft Free v14.0 09.12.2021 [Multi/Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163085.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 21.04.2024) [Ru] (а
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58315.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MInstAll v.21.09.2025 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1547.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ MInstAll v.21.09.2025 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_456.jpg" />
 </div>
 
 

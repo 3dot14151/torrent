@@ -1,3 +1,111 @@
+###  Публикация: 1424290   (229865) от 16.11.2020
+
+Export Calendars Pro 1.10 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Export Calendars Pro - мощный инструмент для экспорта событий и напоминаний, сохраненных в Calendar and Reminders apps на Вашем Mac, в различные форматы файлов "табличных-данных", таких как: Excel, CSV, tab-delimited text.
+
+Можно  экспортировать практически любое поле адресной книги для любого контакта, прикрепленного к событию, в том числе поля с пользовательскими (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Stefan KellerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE48C24DE48F16B0FE0A3D9FB54EB49191C1BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424298   (229814) от 16.11.2020
+
+Exporter for Contacts 1.13 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exporter for Contacts (ранее был «Export Address Book») - это популярное и мощное приложение для Mac, предназначенное для экспорта контактных данных из контактов Apple в различные форматы, способное организовать настройки экспорта в настраиваемых шаблонах, что значительно упрощает повторный экспорт. Приложение позволяет экспортировать выбранные контакты, группы и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Stefan KellerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8225836233FAD7928971D788C0255B29CFD97557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512831   (229337) от 26.11.2021
+
+Banktivity 7 v7.5.3 fix [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Banktivity (прежнее название iBank) - это серьезное и очень мощное коммерческое приложение для контроля над личными финансами и финансами в предприятиях малого бизнеса.
+
+Основные возможности:Тип издания: macOS SoftwareРелиз состоялся: 16.09.2020Разработчик: IGG Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56504809789A16A1A36709A63B20E3B0FA313C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341707   (229274) от 29.11.2019
+
+Scudo 1.0 beta 10 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scudo - это гибридный брандмауэр для macOS, который сочетает в себе фильтр входящих пакетов сетевого уровня с исходящим брандмауэром прикладного уровня. Scudo помогает защитить сетевые службы вашего Mac от нежелательных подключений с удаленных компьютеров и повышает вашу конфиденциальность и безопасность, контролируя сетевую активность всех приложений, позволяя вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: murus.itПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F6AF0E4695660CBFA18E01857F9D079B022C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649534   (229267) от 28.07.2023
 
 QuartzCode 1.67.1 [En]
@@ -6,7 +114,7 @@ QuartzCode 1.67.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229267.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Pastebot 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229258.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ RAR Extractor - The Unarchiver 8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229168.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Family Tree Maker 2019 v24.0.1.252 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228970.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ DjVu To PDF Converter 2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228964.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ Aquarium 4K – Live Wallpaper 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228946.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Password Vault Manager Enterprise 6.1.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228416.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ Jaksta Screen Recorder 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228193.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Jaksta Music Recorder (Miner) 1.3.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228133.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Photoflow - for Instagram 1.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227947.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Jaksta Video Converter 2.0.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227906.jpg" />
 </div>
 
 
@@ -305,7 +413,7 @@ Omni Remover 4.0.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227854.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ Omni Downloader 1.4.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227840.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Jaksta Media Recorder 1.4.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227776.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ Radio Silence 3.0 beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227487.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Scapple 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227456.jpg" />
 </div>
 
 
@@ -437,7 +545,7 @@ Screens 4 v.4.12.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226481.jpg" />
 </div>
 
 
@@ -463,7 +571,7 @@ Records 1.6.13 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226162.jpg" />
 </div>
 
 
@@ -490,7 +598,7 @@ Redacted 1.2.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226153.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ Jump Desktop (RDP & VNC) 8.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226064.jpg" />
 </div>
 
 
@@ -546,7 +654,7 @@ Memory Clean 3 v1.0.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226032.jpg" />
 </div>
 
 
@@ -574,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226011.jpg" />
 </div>
 
 
@@ -585,111 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5D50F9D475A2F66201FD4685BB6E74AF6CBA275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342205   (225997) от 01.12.2019
-
-SQLEditor 3 v3.6.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225997.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLEditor - визуальный инструмент для разработки SQL БД и связей объектов (ERD). Приложение полностью заменяет ручную запись SQL-комманд. Если у вас уже есть созданные базы данных, то SQLEditor может помочь вам визуализировать картину всей БД, со всеми межтабличными связями. Приложение поддерживает экспорт дизайна баз данных для MySQL, Postgres, Oracle и других БД.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2019Разработчик: MalcolmhardieПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666DC139FBA1388F6383B9FF9AB9D7FC1FC74038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650291   (225963) от 02.08.2023
-
-ImageRanger Pro Edition 1.9.4.1874 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225963.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 30.07.2023Разработчик: © 2023 XtSense GmbHПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79FCE0046246B764C3B35B75F0CD2A042E58C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650664   (225932) от 02.08.2023
-
-SweetScape 010 Editor for Mac 14.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225932.jpg" />
-</div>
-
-
-###  Подробнее
-
-010 Editor — комплексное программное приложение, предназначенное для редактирования текста и шестнадцатеричного кода любого файла, диска или процесса. В первую очередь оно предназначено для пользователей с минимальным опытом работы с такими инструментами. Приложение имеет чистый интерфейс с профессионально выглядящим макетом, где вы можете использовать файловый браузер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.07.2023Разработчик: © 2002-2023 SweetScape Software Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1847C5B694306BE4CA99EE5B02C65D2081A35ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513383   (225875) от 28.11.2021
-
-SubsMarine 1.3.0 fix [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Найти субтитры для видео и телевизионных шоу. SubsMarine - полезная утилита, которая самостоятельно сможет найти субтитры для фильма или ТВ-сериала. SubsMarine просканирует указанные пользователем папки на наличие видео файлов, и найдет и скачает нужные субтитры.
-Благодаря этой малютке можно забыть о долгом и утомительном поиске подходящих субтитров. В настройках (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2018Разработчик: CocoaWithChurrosПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7AC70AE308C5E352DDBA7FEDA6CB1508D56344
 ```
 
 https://mybot314.ru/tekegram_catalog/

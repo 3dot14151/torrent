@@ -1,3 +1,110 @@
+###  Публикация: 392573   (400013) от 13.10.2011
+
+[EN]Гавайи 5-0 / Полиция Гавайев / Hawaii Five-0 (сезон 2 серии 1-4(2011)) HDTVRip
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремейк некогда популярного шоу семидесятых годов.
+Hawaii Five-O (TV Series 1968–1980)
+Детектив Стив МакГаррет возвращается в родной город для расследования убийства своего отца. Это должно было стать его единственным делом, но губернатор штата Гавайи уговаривает МакГаррета возглавить новую команду. И все ради одной цели — поймать самую крупную «дичь» в городе. Волею (   Читать дальше...   )Жанр: Драма, детективРежиссер: Len WisemanПеревод: русские субтитры notabenoidФормат: AVIПродолжительность: ~  00:42 :00 минуты серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949896   (372056) от 25.10.2015
+
+CSI: Бессмертие / CSI: Immortality (2015) HDTV [H.264/720p-LQ] [EN / RU, EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завершающий фильм сериала «CSI: Место Преступления / CSI: Crime Scene Investigation».
+Лас Вегас... Своими яркими неоновыми огнями, сотнями игровых клубов и казино он манит всё новых и новых людей. Но далеко не все из них оказываются добропорядочными гражданами. В огромном людском потоке частенько прячутся преступники всех мастей. Они убеждены, что их злодеяния останутся (   Читать дальше...   )Производство: СШАЖанр: криминал, драмаРежиссер: Луис Шоу МилитоАктеры: Марг Хельгенбергер, Уильям Петерсен, Элизабет Арнуа, Тед Дэнсон, Мелинда Кларк, Кэти Стивенс, Джоржа Фокс, Эрик Шманда, Пол Гилфойл, Уоллес Лэнгэм и др.Перевод: отсутствуетЯзык озвучки: английскийЯзык субтитров: русский, английскийПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872D41C53761E7E53D9D2BD58AC36768B8ACD582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 835434   (371046) от 28.10.2014
+
+Под кодовым именем «Хантер» / Kodenavn Hunter (2007) DVDRip [сезон 1, серии 1-6 из 6] [NOR / RU Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автозак, который должен был перевезти заключённого Ариана Алуши, подвергается жестокому вооружённому нападению. В ходе столкновения гибнет брат Бьёрна Рённингена Вегард. Задача Бьёрна и его коллег - найти сбежавшего преступника. В ходе расследования выясняется, что полиция имеет дело с крупной международной преступной группировкой, которая готова пойти на всё, чтобы (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Ярл Эмселль ЛарсенАктеры: Ане Дал Торп , Кристоффер Йонер, Мадс Оусдал, Ян Сэлид, Александра Рапапорт, Лайла Гуди, Андрине Сэтер, Петронелла Баркер, Вера Руди, Ким Хауген и др.Перевод: ОтсутствуетЯзык субтитров: русскийПродолжительность: 6x00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B92E42B2B7DE33715F454EB4741B8E00B24303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574952   (369926) от 14.11.2012
+
+Остаться в живых / Lost [сезон 1, 25 серий из 25] (2004) [720p] BDRip [EN]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_369926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красавец-лайнер, совершающий полет из Сиднея в Лос-Анджелес, неожиданно терпит крушение. 48 пассажиров, оставшихся в живых, оказываются на пустынном острове посреди океана. Люди в панике. Надежда быть найденными довольно призрачна. Поэтому остается только одно: собраться с силами и постараться выжить на острове, начиненном множеством опасностей…Жанр: Фантастика, Триллер, ПриключенияРежиссер: Джек Бендер, Стивен Уильямс, Таккер Гейтс, Грег Яйтанс, Кевин Хукс, Джей Джей АбрамсАктеры: Мэттью Фокс, Эванджелин Лилли, Джош Холлоуэй, Терри О’Куинн, Нэвин Эндрюс, Хорхе Гарсиа, Майкл Эмерсон, Эмили де Рэйвин, Дэниэл Дэ Ким, Ким Юн Джин, Доминик Монахэн, Генри Йен Кьюсик, Хэролд Перрино, Элизабет Митчелл, Кен ЛюнПеревод: ОтсутствуетПродолжительность: 25 x ~00:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576704   (359796) от 18.11.2012
 
 Остаться в живых / Lost [сезон 2, 24 из 24] (2005) BDRip [EN]
@@ -6,7 +113,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_359796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359796.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342253.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_342183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342183.jpg" />
 </div>
 
 
@@ -89,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342128.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342125.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341996.jpg" />
 </div>
 
 
@@ -159,35 +266,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 257396   (340599) от 14.11.2010
-
-[J-Dorama] Мужчина, который не мог жениться / Kekkon Dekinai Otoko (12 эп.) [JP; RU subs] [2006] TVRip
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_340599.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Жениться? Да кому это нужно!" - так считает архитектор Кувано Шинске. Ему 40 лет, он недурен собой, у него отвратительный характер и куча привычек убежденного холостяка. А жена и дети внесут только хаос в его упорядоченную донельзя жизнь. Но все меняется, когда его соседка, желающая пожаловаться на громкую музыку, находит Кувано, скрючившегося от боли, (   Читать дальше...   )Жанр: КомедияРежиссер: Miyake Yoshishige, Komatsu Takashi, Ueda HisashiВ ролях: Abe Hiroshi as Kuwano Shinsuke
-Natsukawa Yui as Hayasaka Natsumi
-Kuninaka Ryoko as Tamura Michiru
-Tsukamoto Takashi as Murakami Eiji(   Читать дальше...   )Перевод: ОригинальныйЯзык субтитров: РусскиеПродолжительность: 1 серия - 00:57:34, со 2 - ~00:46:30, 12 серия - 00:57:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 713511   (339632) от 24.11.2013
 
 Однажды в сказке / В Некотором Царстве / Давным-давно / Once Upon A Time (2013) WEB-DL 1080p [Сезон 3, cерии 1-8 из 22] [EN / RU Sub] (Обновляемая)
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339632.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337591.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327174.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296503.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276337.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272348.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258181.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257067.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256497.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256232.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254998.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254433.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247380.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247263.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246846.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244498.jpg" />
 </div>
 
 
@@ -602,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91C5708595662436F92F36F876F1B2DEB5A37FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567204   (244372) от 01.08.2022
-
-Уверенным шагом / Best Foot Forward (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джош Дьюбин рад пойти в школу после домашнего обучения. Быть в ней единственным ребенком с протезом ноги — это испытание, которое он готов преодолеть. Пока он устраивает свою жизнь со сверстниками, родные и друзья поддерживают его на каждом шагу.Производство: США / Muse Entertainment Enterprises, Muse Entertainment LLCЖанр: драма, комедия, семейныйРежиссер: Виктор Нелли мл., Эшли Икин, Энн РентонАктеры: Логан Мармино, Стивен Шнайдер, Джой Супрано, Пейтон Джексон, Тринити Блисс, Роджер Дэйл Флойд, Роми Фэй, Лайам Кайл, Изабелла Менесес, Миа ДавилаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, итальянские, английские и др.Продолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDB19F66CC7710B99B1D77E75A7240A522CB55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512467   (229955) от 25.11.2021
-
-Бойтесь ходячих мертвецов: Записи Алтеи / Fear the Walking Dead: The Althea Tapes (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) [EN / RU, PL Sub] [PR]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229955.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Бойтесь ходячих мертвецов: Записи Алтеи" - это третий мини-сериал, основанный на сериале "Бойтесь ходячих мертвецов", в котором основное внимание уделяется записям, сделанным персонажем Алтеей.Производство: США / American Movie Classics (AMC)Жанр: ужасы, фантастика, триллер, драмаРежиссер: Ереми Маттерн, Дэвид БарретАктеры: Мэгги Грэйс, Adam Cope, Кристал Мартинес, Колби Минифи, Тейлор Мерфи, Брайан Торнтон, Ленни Джеймс, Джо Массинджилл, Эрик Мэтью, Майк ДэвисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: русские (отдельным файлом), польские (отдельным файлом)Продолжительность: ~00:06:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339C1B0A512BB1EE6B68257DF6EF07D864DA7FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642877   (229591) от 27.07.2023
-
-Ведьмак / The Witcher (2023) WEB-DL [H.264/1080p] (сезон 3, серии 1-8 из 8) [EN / RU, EN, Multi Sub]
-
->>След.
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьмак Геральт, мутант и убийца чудовищ, на своей верной лошади по кличке Плотва путешествует по Континенту. За тугой мешочек чеканных монет этот мужчина избавит вас от всякой настырной нечисти — хоть от чудищ болотных, оборотней и даже заколдованных принцесс. В сельской глуши местную девушку Йеннифэр, которой сильно не повезло с внешностью, зато посчастливилось (   Читать дальше...   )Производство: США, Польша / Netflix, Pioneer Stilking Films, Platige ImageЖанр: фэнтези, приключения, драма, ужасыРежиссер: Алик Сахаров, Стивен Серджик, Шарлотта БрандстромАктеры: Генри Кавилл, Фрейя Аллан, Аня Чалотра, Мими Дивени, Имон Фэррен, МайАнна Бёринг, Уилсон Раджу-Пухальте, Анна Шаффер, Джои Бэти, Ройс ПирресонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: Русские, украинские, английские (SDH), и др.Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADEA69FB5580E0DE48878D8385D2AFE49CB9A9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

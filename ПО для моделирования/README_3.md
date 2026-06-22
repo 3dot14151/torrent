@@ -1,3 +1,55 @@
+###  Публикация: 1012403   (778131) от 02.05.2016
+
+Mixamo Fuse Character Creator 1.3.0 [En]
+
+>>След.
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fuse - отдельная программа для моделирования и текстурирования 3D персонажей. Первоначальная версия была разработана группой исследований Владлена Колтуна в Стенфордском университете, главным программистом был Сидхарта Чодхури. Mixamo продолжило разработку Fuse, добавляя, помимо прочего, построение бесшовного меша, умную поддержку текстур вместе с Allegorithmic, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B333D121CCCC08325A8956CD8231EF37205573A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012795   (777853) от 03.05.2016
+
+Flora3D 2014.06.14 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flora3D, является процедурным генератором 3D-моделей растений, кустов, деревьев. Основное предназначение этой программы - генерация трехмерных растений, с последующим сохранением в форматы *.obj; *.3ds; *.x или как Delphi-модули (*.pas). Прежде всего, сетки моделей оптимизируются под игровые проекты и реал-тайм рендеринг. Программа не создает множество дополнительных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E65397C20A1AC362E6EA0BA42677A794F1A0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212797   (774008) от 14.03.2018
 
 Reallusion CrazyTalk Animator 3.22.2426.1 Pipeline + Resource Pack [En]
@@ -6,7 +58,7 @@ Reallusion CrazyTalk Animator 3.22.2426.1 Pipeline + Resource Pack [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774008.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Autodesk Mudbox 2019 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772637.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Itoo Forest Pack Pro 6.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769275.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Snap To Floor 1.3 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765947.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ MaxToC4D 3.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740516.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ DropToSlate 1.29 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735353.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Guruware Ivy generator 0.976b [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731358.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Remograph Remo 3D v2.1 [Английский]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725644.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ E-on Vue xStream 2016 R2 Build 104398 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719994.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Nevercenter Silo Professional 2.5.3 (x64) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719233.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ RappaTools 3.41 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715862.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ E-on PlantFactory Producer 2016 R2 Build 104398 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714047.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Anatomy360 - Male and Female Bundle 5.4.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692735.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Topowire 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691052.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Syflex 1.0 for Cinema 4D R20 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689796.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Reeper 2.03 For Cinema 4D [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688933.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ VisiCon 1.1 SE [русский]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_665625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665625.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ ArchvizTools - Backdrop Generator 1.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662018.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ CrazyTalk 7.32.3114.1 Pro + Custom Content Packs Repack by Kindly [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658393.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Anim8or 0.9.8.0 Portable [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643235.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ MultiTexture Map 1.0.2 для 3DS Max 9, 2008, 2009, 2010, 2011, 2012, 2013 x86/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_620126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_620126.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Nitro4D NitroBlast 2.0.2 for Cinema 4D  [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607782.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Smith Micro Anime Studio Pro 11 Build 15858 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604591.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Reallusion CrazyTalk Pipeline 8.13.3615.3 + Resource Pack [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604189.jpg" />
 </div>
 
 
@@ -620,60 +672,6 @@ CrazyTalk – это мощный инструмент для "оживлени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:448BB9D42E080CB19B5B5C4907907F2E24C0DD24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913162   (599388) от 01.07.2015
-
-Rayfire 1.65.01 for 3ds Max 2014-2015 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный в своем роде плагин для 3DS Max, позволяющий симулировать разрушение объектов от столкновений и выстрелов.
-Вот его краткое описание:
-RayFire дает вам возможность стрелять, уничтожать, разрушать, ломать, взрывать, и делать другие подобные вещи, которые вы всегда мечтали делать в Максе.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3721CCBCECDD2FD2DCDB525A8F38E7B3983DAEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357236   (587741) от 30.06.2011
-
-Раскрой (Raskroy) 4.06.34 от 21.06.1999 [Русский]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа раскроя позволяет производить построение карты оптимизированного раскроя промышленных материалов, например, ДСП (при изготовлении мебели), стекла или любых других листовых или рулонных материалов.Очень оптимальный раскрой.Минимум отходов.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

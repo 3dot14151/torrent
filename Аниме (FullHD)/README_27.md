@@ -6,7 +6,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru | Лучший в ми�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633167.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633160.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bungaku Shoujo - Kyou no Oyatsu ~Hatsukoi~ / Book Girl / Книжная лако
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632450.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631851.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631699.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631693.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631691.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631533.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Heion Sedai no Idaten-tachi | The Idaten Deities Know Only Peace | Боги-ст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631528.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Wonder Egg Priority | Приоритет чудо-яйца [2021, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631227.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Summer Ghost | Летний призрак [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631226.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ani Tore! EX / Anitore! EX / Тренировки с аниме! [2015, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626387.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Shin SOS Dai Tokyo Tankentai | SOS! Tokyo Metro Explorers: The Next | SOS! Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625567.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Wakako-zake / Саке для Вакако [2015, TV, 12 из 12] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624584.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Kimi to Boku / You and I / Ты и я [2011, TV, 13] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624520.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Zoku Owarimonogatari | Финальные истории: Продолжение
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623866.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mob Psycho 100 II / Моб Психо 100 II [2019, TV, 13] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622182.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Gabriel DropOut / Gabriel Dropout / Габриэль бросает школу [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621422.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Idolmaster: Cinderella Girls | Идолмастер: Золушки [2015, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621413.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620658.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Ultraman Season 2 | Ультрамен: новый герой [ТВ-2] [2022, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620205.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Shinmai Maou no Testament Departures | Завет Дьявольских Сес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618881.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Chiisana Eiyuu: Kani to Tamago to Toumei Ningen | Modest Heroes | Скромны
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616915.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616905.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616750.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Just Because! | Просто так! [2017, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615412.jpg" />
 </div>
 
 

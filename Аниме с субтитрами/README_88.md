@@ -1,3 +1,29 @@
+###  Публикация: 1183024   (312196) от 12.11.2017
+
+A Channel+smile: Nabe wo Tabeyou | A-Channel+smile: Let's Eat Hot Pot | A Channel: поедим горяченького [2017, OVA, 1] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312196.jpg" />
+</div>
+
+
+###  Подробнее
+
+бонусный эпизод на BD-переиздании всей серии.Производство: MBSЖанр: комедия, повседневность, школаРежиссер: AniplexПеревод: KrasialexЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 23 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3E021E2C5F0C636E642581E69CF6997A5AE9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036746   (311713) от 12.11.2017
 
 Oh! Family / Ох, семейка [1986, TV, 12 из 26] DVDRip 480p х265 raw
@@ -6,7 +32,7 @@ Oh! Family / Ох, семейка [1986, TV, 12 из 26] DVDRip 480p х265 raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311713.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Versailles no Bara | The Rose of Versailles | Lady Oscar | Роза Версал
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311666.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Wanpaku Ouji no Orochi Taiji | The Little Prince and the Eight Headed Dragon | �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311499.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Soukyuu no Fafner: Dead Aggressor - Heaven and Earth / Fafner: Heaven and Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310710.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Major 2nd (2020) | Второй Мэйджор [ТВ-2] [2020, TV, 25] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310245.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Haruchika: Haruta to Chika wa Seishun Suru | Haruchika: Haruta & Chika | Хар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310078.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309806.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Naka no Hito Genome [Jikkyouchuu] | The Ones Within | Nakanohito Genome [Jikkyou
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309112.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Kyou kara Ore wa!! | Today, It's My Turn!! | Сегодня и начну! [1993
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308437.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Kidou Senshi Gundam: SEED | Mobile Suit Gundam: SEED | Мобильный дос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308031.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Mei Ou Project Zeorymer / Hades Project Zeorymer / Дьявольский Про
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307836.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ ISUCA | Иска [2015, TV, 10 эп. + 1 OAD] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307053.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Terra Formars / Терраформеры [2014, OVA, 2 ep] DVDRip 576p Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305964.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV + OVA, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305419.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Mikagura Gakuen Kumikyoku | Mikagura School Suite | Сюита школы Мик
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305300.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Akage no Anne | Anne of Green Gables | Энн из Зеленых Мезонин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305253.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Hoshi o Ou Kodomo | Hoshi wo Ou Kodomo | Children Who Chase Lost Voices | Лов
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304218.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Clione no Akari | Lights of the Clione | Свет морского ангела 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303276.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Love Live! The School Idol Movie | Живая любовь! (фильм) [2015, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303207.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303104.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Eiga Chuunibyou demo Koi ga Shitai! Take on Me | Чудачество любви
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303099.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Trinity Seven / Святая Семёрка [2015, OVA, 1] BDRip 720p Hi10P raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302502.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ THE iDOLM@STER SHINY FESTA | The Idolmaster: Shiny Festa [2012, OVA, 3 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299586.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299039.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Frame Arms Girl | Боевые куколки | Вооружённая малы�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298776.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Frame Arms Girl | Боевые куколки | Вооружённая малы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C72ACDBAD806487B48385175D3700F479668A37A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334124   (298748) от 27.10.2019
-
-Uta Kata | Ута-Ката [2004, TV, 12 эп. + 1 OVA] DVDRip 576p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298748.jpg" />
-</div>
-
-
-###  Подробнее
-
-За день до летних каникул Итика Татибана занимается уборкой в старом здании школы и замечает необычное зеркало. Итика встречает в зеркале необычную девушку по имени Минацу, которая предлагает ей дать 12 разноцветных камней, в которых заключена сила джиннов. Во время летних каникул Итика использует силу камней, чтобы справится с различными опасностями. Однако каждый (   Читать дальше...   )Производство: студия Hal Film Maker / ハルフィルムメーカーЖанр: махо-сёдзё, романтика, драма, эттиРежиссер: Гото КэйдзиПеревод: A.k.M., Ramzes-III, ДмитрийЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 1 OVA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBF663C01513CDC0489CC0B5FD8EF2A90A6444B
 ```
 
 https://mybot314.ru/tekegram_catalog/

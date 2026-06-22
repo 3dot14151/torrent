@@ -6,7 +6,7 @@ VA - Ladies In Love classees X (1939 - 1956) 2CD, 2006, Nocturne [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040842.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Max Roach - The Complete Mercury Max Roach Plus Four Sessions (1956 - 1960) 7CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040654.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Prism - Live Alive, Vol.2 (In '85) (1987)  1997 , Bandai-Japan  [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040645.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Burton Greene - Live At The Woodstock Playhouse (1965) 2010, Porter Records [APE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040638.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Barbara Lea - Lea In Love (1957) 1990, Original Jazz Classics [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040629.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ali McGregor - Jazz Cigarette (2011) Pearl Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040553.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Alvin Batiste - Late (1993) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040401.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Bob French - Marsalis Music Honors Series (2007) Marsalis Music [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040396.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Eddie Higgins - Time On My Hands (2000) Arbors Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040382.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Alvin Batiste - Marsalis Music Honors Series (2007) Marsalis Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040197.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - Hit The Rhodes, Jack (2005) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040147.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sun Ra & His Intergalaxtic Arkestra - Second Star To The Right: Salute To Walt D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040146.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Jazz Pop Cover Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040082.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Gotz Alsmann   - In Rom (2017) [FLAC|Lossless|image + .cue] <vocal Jazz. Early J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039599.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Curtis Fuller Quintet - Blues-ette (1959) 2003, Savoy Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039524.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Count Basie / Zoot Sims - Basie & Zoot (1975) 1994, Original Jazz Classics [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039395.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Sun Ra - Jazz in Silhouette & Sound Sun Pleasure!! (1959) 2011, Phoenix Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039372.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Sonny Rollins - Work Time (1955) 2004, Prestige [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039135.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Bobby Watson - Advance (1984) 1997, Enja [FLAC|Lossless|tracks + .cue] <Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039104.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Nat King Cole - Just One Of Those Things (1957) 2011, Analogue Productions [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038855.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Helen Merrill - Sings Screen Favorites (1968) 2004, JVC[FLAC|image+.cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038818.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ray Brown - I'm Walking (1998) JVC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038817.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Charles Mingus - East Coasting (1957) 1986, Bethlehem Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038609.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Freddie Hubbard - Above & Beyond (1982) 1999, Metropolitan Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038608.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Jeremy Pelt - Men Of Honor (2010) HighNote [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038605.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Maria Pia De Vito & Burnoguala Large Vocal Ensemble - Moresche e altre invenzion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038528.jpg" />
 </div>
 
 

@@ -1,3 +1,108 @@
+###  Публикация: 1012724   (793264) от 01.05.2016
+
+Parted Magic 2016-04-26 [x86, x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parted Magic - дистрибутив на основе Linux, предназначенный для различных дисковых операций: очистка, восстановление, создание файловой системы, разбиение на разделы, клонирование, резервное копирование. Так же в дистрибутиве содержатся утилиты тестирования и диагностирования.
+Система является Live-версией, не требующий инсталляции. Загрузка возможна с CD, USB или (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B781F01873A995A65B134695687D197384D66325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386655   (793168) от 30.05.2020
+
+BlackArch Linux 2020.06.01 [Хакинг, аудит, безопасность] [x86_x64] 1xDVD + 1xNetinstallCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опубликованы новые сборки BlackArch Linux, специализированного дистрибутива для исследований в области безопасности и изучения защищённости систем. Дистрибутив построен на пакетной базе Arch Linux и включает около 2300 связанных с безопасностью утилит. Поддерживаемый проектом репозиторий пакетов совместим с Arch Linux и может использоваться в обычных установках Arch (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BF53E677C7E06DA7E8C79CB50DFAD14D1B12C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274648   (790875) от 10.01.2019
+
+Parted Magic 2019.01.03 [i686/amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0DC3EED6F02FD94BAC3D761F727B64065FAA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510392   (790143) от 18.11.2021
+
+Kali Linux 2021.3 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит безопасности, хакинг.
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790143.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 сентября 2021 состоялся релиз нового дистрибутива Kali Linux 2021.3, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9A9978B62D5E9A1C943F52021C5539EE2FC7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387862   (790000) от 04.06.2020
 
 BackBox Linux 7 [Аудит безопасности, хакинг] 1xDVD [amd64]
@@ -6,7 +111,7 @@ BackBox Linux 7 [Аудит безопасности, хакинг] 1xDVD [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790000.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Phoenix OS 3.0.7.508, 1.5.0.297 x86/x64 [En]
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789225.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Parrot Security OS 3.11 [Хакинг, аудит, безопасность] [i3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783987.jpg" />
 </div>
 
 
@@ -76,6 +181,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390823   (782211) от 17.06.2020
+
+CentOS 8.2 (2004) [amd64] 2xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_782211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNet: представлен выпуск дистрибутива CentOS 2004, вобравший в себя изменения из Red Hat Enterprise Linux 8.2. Дистрибутив полностью бинарно совместим с RHEL 8.2, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления. Сборки CentOS 2004 подготовлены (7 Гб DVD и 550 Мб netboot) для архитектур x86_64, (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343F8F1A7BF2F327E377A016EE478BC72E49DA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209524   (779195) от 27.02.2018
 
 BlackArch Linux 2017.12.11 [Хакинг, аудит, безопасность] [i686, x86-64] 1xDVD, 1xCD
@@ -84,7 +215,7 @@ BlackArch Linux 2017.12.11 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779195.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ NAS4Free build 11.1.0.4.5127 amd64 1xCD 3xIMG BUILD 11.1.0.4.5127 [amd64 (64-bit
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778904.jpg" />
 </div>
 
 
@@ -140,7 +271,7 @@ Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774653.jpg" />
 </div>
 
 
@@ -168,7 +299,7 @@ BackBox Linux 3.05 [Анализ безопасности, хакинг] [i386, 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774610.jpg" />
 </div>
 
 
@@ -198,7 +329,7 @@ OpenBSD 6.1 [alpha,amd64,arm64,armv7,i386,loongson,luna88k,macppc,octeon,sparc64
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773042.jpg" />
 </div>
 
 
@@ -224,7 +355,7 @@ JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_769957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_769957.jpg" />
 </div>
 
 
@@ -250,7 +381,7 @@ Parrot Security OS 3.5 [Хакинг, аудит, безопасность] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768453.jpg" />
 </div>
 
 
@@ -276,7 +407,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766746.jpg" />
 </div>
 
 
@@ -302,7 +433,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766638.jpg" />
 </div>
 
 
@@ -328,7 +459,7 @@ SystemRescueCD 6.1.6 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764364.jpg" />
 </div>
 
 
@@ -354,7 +485,7 @@ OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764354.jpg" />
 </div>
 
 
@@ -380,7 +511,7 @@ OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764277.jpg" />
 </div>
 
 
@@ -407,7 +538,7 @@ pfSense Community Edition 2.4.5p1 [amd64] 1xCD, 3xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764212.jpg" />
 </div>
 
 
@@ -433,7 +564,7 @@ MX-19.2 Linux (XFCE) [x86-64, i386] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764207.jpg" />
 </div>
 
 
@@ -459,7 +590,7 @@ OPNSense 17.1.4-OpenSSL [i386, amd64] 2xCD, 6xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764151.jpg" />
 </div>
 
 
@@ -487,7 +618,7 @@ Antergos (ex. Cinnarch) 2013.05.12 (легкий дистрибутив) [i686 +
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762499.jpg" />
 </div>
 
 
@@ -515,7 +646,7 @@ JonDo 0.9.77 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_759054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_759054.jpg" />
 </div>
 
 
@@ -541,7 +672,7 @@ Proxmox VE 5.1 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757774.jpg" />
 </div>
 
 
@@ -554,144 +685,6 @@ Proxmox Virtual Environment (Proxmox VE) — система виртуализа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5078C0728CA8FA409E328E9B9D9E0B24FE2D5092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395189   (756859) от 09.07.2020
-
-Debian Edu - Skolelinux 10.4.0 Buster [Linux для школы] [i386, x86-64] 2xBD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D55310A8FBE6D29A20956011A651DAA262DB0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662917   (756822) от 30.05.2013
-
-Debian GNU/kFreeBSD 7.0.0 [i386, amd64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одновременно с Debian GNU/Linux 7.0.0 вышел Debian GNU/kFreeBSD 7.0.0.
-
-Перенос Debian на GNU/kFreeBSD состоит из пользовательского окружения GNU, использующего библиотеку C GNU, которое запущено поверх ядра FreeBSD, а также привычного набора пакетов Debian.
-
-Основные обновления аналогичны обновлениям в основной версии Debian GNU/Linux 7.0.0. В репозитории представлено 37493 бинарных пакетов, что примерно на 30% больше, чем было представлено в Debian 6.0. По сравнению с Debian 6.0 добавлено 12800 новых пакетов, удалено 4125 устаревших пакетов, обновлено 20160 пакетов.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018605   (755671) от 20.05.2016
-
-Calculate Linux 15.17 [i686] 1xCD, 6xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755671.jpg" />
-</div>
-
-
-###  Подробнее
-
-На серверах размещена следующая версия российского дистрибутива Calculate Linux - 15.17. Calculate Linux 15.17, построен на основе Gentoo Linux, поддерживает непрерывный цикл выпуска обновлений и оптимизирован для быстрого развёртывания в корпоративной среде.
-
-Дистрибутив доступен в нескольких редакциях, собранных для архитектур i686 и x86_64: Calculate Linux Desktop (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC15E8E28A475D33245A6BBC23359A0ED864E6BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888283   (754886) от 14.04.2015
-
-Scientific Linux 7.1 (w. LiveDVD) [x86-64] 3xDVD, 1xDL DVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следом за CentOS 7.1 и Oracle Linux 7.1 стал доступен релиз дистрибутива Scientific Linux 7.1, построенного на пакетной базе Red Hat Enterprise Linux 7.1 и дополненного средствами, ориентированными на использование в научных учреждениях. Дистрибутив поставляется для архитектуры x86_64, в форме DVD-сборок (4.3 Гб и 7.1 Гб) и сокращённого образа для установки по сети (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF04870AE19C64257A57760E31E05CEA411A5E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663349   (754872) от 31.05.2013
-
-Chakra (Arch + KDE) 2013.05 Benz [x86-64] (1xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_754872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз Chakra GNU/Linux 2013.05 – третий выпуск новой ветки Benz (под таким кодовым наименованием будут выходить релизы Chakra GNU/Linux с рабочим окружением KDE 4.10.x) дистрибутива с непрерывным циклом обновления, выполненного на основе наработок Arch Linux и среды рабочего стола KDE.
-
-Основные особенности выпуска Chakra GNU/Linux 2013.05:  KDE Software Compilation 4.10.3; Chromium 26.0.1410.63, Firefox 21.0, Opera 12.15, QupZilla 1.4.2, Rekonq 2.3.0; KMPlayer 0.11.3d, SMPlayer 0.8.5, Plasma Media Center 1.0.0, VLC 2.0.6, XBMC 12.2; Amarok 2.7.1, Musique 1.2.1, Qmmp 0.7.0, Tomahawk 0.7.0, Yarock 0.9.62; Blender 2.66a, KDevelop 4.5.0, Kdenlive 0.9.6, QtCreator 2.7.0, Rosegarden 13.04; Calligra 2.6.3, FocusWriter 1.4.2, LibreOffice 4.0.3; KMyMoney 4.6.3, Skrooge 1.7.1; digiKam 3.1.0, KDE Telepathy 0.6.1.
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

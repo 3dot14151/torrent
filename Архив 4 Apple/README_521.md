@@ -1,3 +1,55 @@
+###  Публикация: 1450736   (237415) от 27.02.2021
+
+DockMate 0.8.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предварительный просмотр окон и элементы управления док-станцией. DockMate добавляет в Dock предварительный просмотр окон при наведении указателя мыши, с полезными встроенными инструментами управления окнами и специальными представлениями для приложений «Музыка» и «Календарь». Просто наведите указатель мыши на значок, чтобы увидеть все приложения, в которых запущены (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2021Разработчик: MacEnhanceПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD215FF1206BFD5515D76EFF9A9EFF0D1FE6E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502813   (237413) от 16.10.2021
+
+MacMagic 1.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237413.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacMagic может помочь очистить гигабайты дискового пространства, переполненного кешами плохо оптимизированных приложений, скрыть или отобразить файлы в Finder, помочь принудительно удалить содержимое корзины и выполнить различные другие задачи для автоматизации. Упростите свой рабочий процесс с утилитой MacMagic.Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: Koingo Software, IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F8E9D3884CE132DFEE1900DFB25DB81C2357A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502811   (237407) от 16.10.2021
 
 Display Maestro 5 v5.0 [En]
@@ -6,7 +58,7 @@ Display Maestro 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237407.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Amadeus Pro 2.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237406.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ MediaHuman Youtube Downloader 3.9.9.33 (build 1502) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237379.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Hides 5.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237370.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237345.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Viwizard Spotify Music Converter for Mac 2.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237339.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ SQLPro Studio 2020.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237333.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Dynamic Wallpaper 14.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237330.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ FSNotes 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237296.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Export for iTunes 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237288.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Integrity Plus 10.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237279.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ System Dashboard Pro 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237278.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ ExpanDrive 7 v7.4.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237271.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ OmniOutliner Pro 5 v5.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237266.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ Xliff Editor 2.9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237258.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Nevercenter CameraBag Pro 2021.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237252.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Script Debugger 8 v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237245.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Permute 3 v3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237243.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237232.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Sketch 96.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237220.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Principle 6.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237213.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ BetterDisplay Pro for Mac 1.4.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237202.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ PopChar X 8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237195.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Vidmore Video Converter 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237162.jpg" />
 </div>
 
 
@@ -626,61 +678,6 @@ Vidmore Video Converter 2.0.10 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE97FADCC26ECEFD2FE993046C6A1F440F79AEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504367   (237158) от 23.10.2021
-
-ArchCommander 2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение ArchCommander - это легкий файловый менеджер архивов для macOS.
-• Browsing
-• Просмотр элементов
-• Создание новых архивов(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4279120D2A3F2B33DF109E0AF4698BBE907D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607959   (237140) от 28.01.2023
-
-Exhibeo 2 v.2.0.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exhibeo 2 - Создайте великолепные HTML5 презентации. Exhibeo - мощное средство для создания эффектных веб-галерей и слайд-шоу для веб-сайтов. Exhibeo поддерживает большинство распространенных графических форматов (PNG, JPEG и GIF), так же PSD, TIFF, RAW и многие другие. В приложении имеются уже готовые темы оформления на все случаи жизни, в которые пользователю остается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2023Разработчик: © 2016 - 2023 Softpress Systems LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0FD0E150D1A43DBB99588EB2D027B44AB2167C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1502164   (830000) от 13.10.2021
+
+Двенадцать ночей / Shap yee yeh / Twelve Nights (2000) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дженни узнаёт в свой день рождения от подруги-гадалки, что отношения с её бойфрендом Джонни вот-вот порвутся из-за того, что кто-то из них лжёт другому. Полная решимости покончить с этим первой, Дженни расходится с ничего не подозревающим Джонни и в ту же ночь, сквозь череду невероятных совпадений, оказывается в постели с бывшим парнем своей подруги, Аланом. Их любовь (   Читать дальше...   )Производство: Гонконг, Golden Harvest Company Ltd., Golden Harvest Pictures (China)Жанр: драма, мелодрамаРежиссер: Обри ЛамАктеры: Сесилия Чунг, Изон Чан, Су Ау, Рональд Чэн, Николя Чун, Стивен Фанг, Гу-Би ДжиСи, Кэнди Ло, Николас ТсеПеревод: любительский одноголосый (Виктор Береговых)Субтитры: русские, английскиеПродолжительность: 01:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E16F05980F38C281EC34F70A9C97D097E7A9F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381040   (829501) от 05.05.2020
+
+Гость (Дудочник) / Sonnim / The Piper (2015) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829501.jpg" />
+</div>
+
+
+###  Подробнее
+
+После Корейской войны хромой музыкант с сыном странствуют по стране. Они случайно забредают в отдаленную деревушку в горах и просят приюта на пару дней. Деревенский староста разрешает им остаться, но, кажется, что он что-то скрывает. Кроме того, деревня терпит настоящее бедствие — по ночам крысы нападают на людей, и особенно на детей.Производство: Южная Корея / CJ Entertainment, Ubu FilmЖанр: Триллер, детектив, ужасыРежиссер: Ким Гван-тхэАктеры: Рю Сын-нён, Ли Сон-мин, Чхон У-хи, Ли Джун, Ку Сын-хён, Ли Сын-джун, Чон Гук-хван, Ким Джон-ён, Мин Чжи Ли, Чон Джун-вонПеревод: Многоголосый любительский, двухголосый любительскийСубтитры: Русские, английские - отдельными файламиПродолжительность: 01:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEABC68269D8181E81AF273E44DA023CC57D81EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115402   (827884) от 17.03.2017
+
+Гамера: Защитник Вселенной / Gamera daikaiju kuchu kessen (1995) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гигантская огнедышащая суперчерепаха Гамера — мускулистая боевая машина с семидесятиметровым панцирем, защищающая человечество от ужасных тварей, особей и чудовищ из космоса. Гамера — ближайший родственник легендарного Годзиллы и один из самых впечатляющих монстров мирового кино.
+Только Гамера может спасти Землю от гибели, вступив в битву с новым воплощением гиперзла (   Читать дальше...   )Производство: ЯпонияЖанр: Фэнтези, боевик, триллер, драма, приключенияРежиссер: Сюсукэ КанэкоАктеры: Цуёси Ихара, Акира Онодэра, Синобу Накаяма, Аяко Фудзитани, Юкидзиро Хотару, Хацунори Хасэгава, Хиротаро Хонда, Акира Кубо, Кодзиро Хонго, Такаси МацуоПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63433F322DFD7D7CFF6F78F45A79AC56935B811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502518   (826615) от 15.10.2021
 
 Дальнобойщики 10 / Torakku yaro: Furusato tokkyubin / Truck Guys 10: Run Truck Rascal Run (1979) BDRip [AVO]
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826615.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826510.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_826140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_826140.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824691.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824226.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822822.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822514.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822151.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821209.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820789.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820677.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820605.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820421.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819391.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819117.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819073.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818981.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818813.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818655.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816864.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816543.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815401.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814873.jpg" />
 </div>
 
 
@@ -591,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E59666E229061D7D330D73BFBF35BC02C27E6425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117938   (814624) от 24.03.2017
-
-2012: Гибель Империи / Nihon chinbotsu (2006) HDTVRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёные вычислили, что Япония уйдёт под воду в течение сорока лет из-за того, что тектоническая плита, находящаяся под Японским архипелагом постепенно перемещается на запад. Однако доктор Тадокоро, который возглавляет группу по исследованию океана, вычисляет, что это произойдёт через 338,58 дней.
-Он показывает результаты своих исследований Премьер-министру и другим. (   Читать дальше...   )Производство: ЯпонияЖанр: Фантастика, триллер, драма, приключенияРежиссер: Синдзи ХигутиАктеры: Цуёси Кусанаги, Ко Шибасаки, Эцуси Тоёкава, Мао Даичи, Митсухиро Оикава, Маюко Фукуда, Хидеко Йошида, Акира Эмото, Дзюн Кунимура, Кодзи Исидзака ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 02:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC04D0E718CA7814B9AD7383EFA8CD14DDEF0D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504208   (814061) от 22.10.2021
-
-Дальнобойщики 2 / Torakku yaro: Bakuso Ichibanboshi / Trucker Yaro II The Wild Trucker (1975) HDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй из десяти фильмов, рассказывающих о беззаботном приключении двух водителей грузовиков. Момодзиро (Бунта Сугавара) и его лучший друг Мацусита (Кинъя Айкава) отправляются в путь на своих грузовых автомобилях, впечатляя друг друга своими навыками быстрой езды и уклонения от полиции при перевозке товаров по всей стране. Случайные встречи с людьми на этом пути (   Читать дальше...   )Производство: Япония, Toei TokyoЖанр: БоевикРежиссер: Норифуми СудзукиАктеры: Бунта Сугавара, Кинъя Аикава, Масуми Харукава, Сидзуэ Абе, Сакура Камо, Кёко Окада, Тэруо Симидзу, Каяко СоноПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1088DB23235386B2A1D949718B3694D6BD562F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383388   (811416) от 15.05.2020
-
-Китайский лётчик / Zhong guo ji zhang (2019) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811416.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 мая 2018 года на внутреннем рейсе компании «Сычуаньские авиалинии» на высоте чуть меньше 10 километров пассажирский самолёт теряет одно из ветровых стёкол. Происходит разгерметизация кабины, одного из пилотов чуть не утягивает наружу, сквозняк и шум стоят такие, что пилоты не слышат по радио голоса диспетчеров. И вдобавок из-за сильных вибраций самолёта показания (   Читать дальше...   )Производство: Китай / Bona Film Group, Alibaba Pictures, Huaxia Film DistributionЖанр: Биография, боевик, триллерРежиссер: Эндрю ЛауАктеры: Чжан Ханьюй, Охо Оу, Ду Цзян, Юань Цуань, Чжан Тяньай, Ли Цинь, Чжан Ямэй, Ян Цижу, Гао Гэ, Хуан ЧжичжунПеревод: Двуголосый любительский (Колобок)Субтитры: Русские (forced), английские - отдельными файламиПродолжительность: 01:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33389CB7632E34B5E64981E7020575D1819E859E
 ```
 
 https://mybot314.ru/tekegram_catalog/

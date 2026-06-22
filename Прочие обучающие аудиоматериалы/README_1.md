@@ -1,3 +1,115 @@
+###  Публикация: 1866430   (1066108) от 20.04.2026
+
+Татьяна Муравьева | Мифы Западной Сибири. От Оби и Алтайских гор до Старика-филина и Золотой бабы (2025) [MP3, Дарья Корепанова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный пересказ мифов девяти народов Сибири
+
+Мифология народов Западной Сибири сложна и богата. В этом удивительном образно-поэтическом мире боги спускаются с неба в золотых люльках, птица-демиург ныряет за сушей на дно океана, капля воды может обратиться прекрасной девой, духи рек управляют жизнью людей, а будто бессвязный младенческий лепет на самом деле (   Читать дальше...   )Жанр: История, Мифы и легендыИздательство: МИФПродолжительность: 08:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11B6A533B4CB44F20CCDBC3D59037AC36457387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866426   (1066106) от 20.04.2026
+
+Владимир Печенкин | Мифы драгоценных камней. От стрел Амура и яблока Адама до живого серебра и кожи Великого Полоза (2025) [MP3, Андрей Новокрещенов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему драгоценные камни называли не только в честь богов и героев мифов, но и в честь отъявленных злодеев? Появление какого минерала приписывают Адаму? Что за камень был в кольце Соломона и в чем смысл мифа о Поликрате? Почему не получается идентифицировать самоцветы из Библии?
+
+Драгоценные камни, металлы и сделанные из них украшения во многих древних культурах (   Читать дальше...   )Жанр: История, Мифы и легендыИздательство: МИФПродолжительность: 09:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E34802F928200190F39F606102DCE7B37B6EC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866417   (1066105) от 20.04.2026
+
+Кен Дженнингс | Загробное путешествие. Царство Аида, Средиземье и Вальхалла: 100 мест, которые нельзя пропустить после смерти (2024) [MP3, Джэм Небеский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие круги ада по Данте самые красивые? Где лучше всего перекусить в древнеегипетском подземном мире? Как одеваются в небесном дворце индуистского Вишну? И какие сокровища можно найти в глуши Вальхаллы?
+
+Перед вами список мест, ради которых миллиарды людей готовы умереть! Захватывающее исследование загробной жизни: культовые места из мифологии, истории и литературы (   Читать дальше...   )Жанр: История, Мифы и легендыИздательство: МИФПродолжительность: 09:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EFCBFC348E9D2155C7A93E732F06D5DAD38755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866411   (1066104) от 20.04.2026
+
+Юлия Чмеленко | Магия и медицина Древней Месопотамии. От демонов Пазузу и Ламашту до целителей асу и экзорцистов Вавилона (2024) [MP3, Екатерина Салова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066104.jpg" />
+</div>
+
+
+###  Подробнее
+
+От чего и как лечились жители Двуречья? К кому спешили в первую очередь: к заклинателю или врачу? Как им помогала астрология? И как изгонять насылающих болезнь духов?
+
+Древняя Месопотамия — одно из первых мест, где магия и медицина объединяются, вставая на защиту человеческой жизни. Когда демоны насылают болезни, долголетие зависит от воли богов, а одна эпидемия (   Читать дальше...   )Жанр: История, Мифы и легендыИздательство: МИФПродолжительность: 04:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40578D7DE7F077C99EEFCBE9C091658EF6756BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866408   (1066103) от 20.04.2026
 
 Владимир Петрухин | Карело-финские мифы. От «Калевалы» и птицы-демиурга до чуди и саамов (2023) [MP3, Игорь Богданов]
@@ -6,7 +118,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066103.jpg" />
 </div>
 
 
@@ -33,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066102.jpg" />
 </div>
 
 
@@ -59,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066101.jpg" />
 </div>
 
 
@@ -87,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066100.jpg" />
 </div>
 
 
@@ -114,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066099.jpg" />
 </div>
 
 
@@ -140,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066095.jpg" />
 </div>
 
 
@@ -168,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066094.jpg" />
 </div>
 
 
@@ -194,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066092.jpg" />
 </div>
 
 
@@ -221,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066049.jpg" />
 </div>
 
 
@@ -249,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066043.jpg" />
 </div>
 
 
@@ -278,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066042.jpg" />
 </div>
 
 
@@ -306,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065845.jpg" />
 </div>
 
 
@@ -332,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065783.jpg" />
 </div>
 
 
@@ -359,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065321.jpg" />
 </div>
 
 
@@ -386,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065177.jpg" />
 </div>
 
 
@@ -412,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064577.jpg" />
 </div>
 
 
@@ -438,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064144.jpg" />
 </div>
 
 
@@ -464,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064018.jpg" />
 </div>
 
 
@@ -490,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063875.jpg" />
 </div>
 
 
@@ -516,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063074.jpg" />
 </div>
 
 
@@ -545,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062790.jpg" />
 </div>
 
 
@@ -571,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062533.jpg" />
 </div>
 
 
@@ -582,113 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44BD90EAE7EF6CE6BB4FFB6E6DAC38CC0CC3A2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861498   (1062375) от 26.03.2026
-
-Алихан Динаев | Я не волшебник, я только учу. Педагогам о мотивации, дисциплине и любви к профессии (2026) [MP3, Давид Ломов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта аудиокнига – практическое руководство для педагогов любого уровня, написанное с теплотой, юмором и большим личным опытом. Автор – победитель конкурса «Учитель года России – 2018», человек с богатой и разнообразной педагогической практикой, который собрал в книге не только свои наработки, но и лучшие идеи коллег, результаты исследований, а также реальные истории (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Издатель: Альпина.Дети, Правообладатель Альпина ДиджиталПродолжительность: 10:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D05FF7D7B95EEB21A42EC9817911611F532C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861496   (1062374) от 26.03.2026
-
-Тимур Казанцев | Экспресс-курс по скорочтению. Научись читать в 3 раза быстрее и понимать лучше (2022) [MP3, Шаклеина Светлана]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня производится так много информации, что научиться потреблять ее быстро – обязательное условие, чтобы быть в курсе последних событий. Неслучайно большинство успешных людей владеют навыками скорочтения. В этой книге мы изучим приемы, которым обучают во всех школах по скорочтению и которые помогут вам увеличить скорость чтения от 150-250 слов в минуту до 700-1000 (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: ЛитРес: чтецПродолжительность: 01:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA86915B50A84778C7DE56B2A7B7753F04A8E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860729   (1062233) от 23.03.2026
-
-Игорь Незовибатько | Искусство выступать, влиять и вдохновлять (2006) [MP3, Игорь Незовибатько]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незовибатько Игорь Борисович
-Тренер. Театральный режиссёр и актёр.
-Окончил театральное училище им. Щепкина (при Малом театре) и режиссерский факультет Российской Академии Театрального Искусства (ГИТИС). Работал актёром и режиссёром в различных театрах. С 1995 по 1998 возглавлял созданный им театр “Мистерия N”, а так же преподавал в школах профессиональной подготовки (   Читать дальше...   )Жанр: Аудиокурс. Ораторское мастерствоИздательство: Студия Видео8Продолжительность: 02:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA8DAB0AC539D6DF229EC039C11D647FD0A1480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860859   (1062232) от 27.03.2026
-
-Алексей Маслов | Другое человечество. Здесь кто-то побывал до нас... (2026) [MP3, Иван Букчин] [Обновляемая]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современное человечество не является ни «венцом творения», ни результатом долгой эволюции. Оно вообще возникло, кажется, ниоткуда, внезапно и одномоментно. А до нас на этой земле жило много видов человечеств. И ни один их тех, кого мы считаем нашим предком, не был даже нашим «родственником».
-И эти – другие человечества – оказались значительно более успешными, чем (   Читать дальше...   )Жанр: Альтернативные научные теорииИздательство: Аудиокнига своими рукамиПродолжительность: 03:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF802DAEEFC5D6E030446D04282CCF7452F73ED1
 ```
 
 https://mybot314.ru/tekegram_catalog/

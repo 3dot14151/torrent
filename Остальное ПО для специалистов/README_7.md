@@ -1,3 +1,242 @@
+###  Публикация: 1751774   (42253) от 27.09.2024
+
+Veeam ONE 12.2.0 Build 4093 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Veeam ONE - это комплексное решение, разработанное Veeam Software для управления виртуальными средами и средами защиты данных. Veeam ONE обеспечивает мониторинг в реальном времени, деловую документацию и отчетность по управлению для Veeam Backup & Replication, Veeam Backup for Microsoft 365, VMware vSphere, VMware Cloud Director и Microsoft Hyper-V.
+
+Veeam ONE (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4BD50E81A72EECB0BFFE2107212350CABFF2AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753612   (41424) от 05.10.2024
+
+Visual Studio Code 1.94.0 + Автономная версия (Standalone) [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E5253D1D8EFD358273C3989D8A74E42C78DD36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756115   (39238) от 26.10.2024
+
+HCL Lotus Domino Notes 14.0 [Ru/En] + Nomad Safelinx Verse Traveler + C REST API
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39238.jpg" />
+</div>
+
+
+###  Подробнее
+
+HCL Notes (ранее IBM Notes/Domino, старое название — Lotus Notes) — программный продукт, платформа для автоматизации совместной деятельности рабочих групп (Groupware), содержащий в себе средства электронной почты, персональных и групповых электронных календарей, службы мгновенных сообщений и среду исполнения приложений делового взаимодействия.
+Впервые продукт выпущен (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47712D6C0E8896228AB3776DCD912876B54590D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701491   (37449) от 13.11.2024
+
+VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by alexyar [Ru]
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37449.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Русский (alexyar)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141BC837926EF2D244B14BA674534D3C172C606D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762677   (36087) от 26.11.2024
+
+PyMOL 3.1.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36087.jpg" />
+</div>
+
+
+###  Подробнее
+
+PyMOL — система визуализации молекул. Позволяет создавать высококачественные трёхмерные изображения как малых молекул, так и биологических макромолекул, в первую очередь белков. Примерно четверть всех публикуемых в научной литературе изображений структур белков сделана с помощью PyMOL.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F586B20CECD934887A0CB310C1168E0A9710ACEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772487   (31313) от 11.01.2025
+
+VMware Workstation Pro for Personal Use 17.6.2 Build 24409262 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31313.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — программное обеспечение виртуализации для компьютеров x86-64 операционных систем Microsoft Windows и Linux. Позволяет пользователю установить одну или более виртуальных машин на один физический компьютер и запускать их параллельно с ним.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66CCCCE483B277BBB48557BC8775E51351B1ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773666   (30690) от 17.01.2025
+
+LDPlayer 9.1.37.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30690.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer 9 — мощный бесплатный эмулятор устройства с операционной системой Android для ПК Windows. Это приложение позволяет запускать на вашем компьютере почти все популярные мобильные игры и приложения созданные для ОС Android. Игры можно устанавливать из магазина LD Store, Google Play или с помощью APK-файла и управлять ими с помощью мыши и клавиатуры. Этот эмулятор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFBBEF330A906519FA9783117DAF30592D8A501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775658   (29632) от 27.01.2025
+
+SigmaPlot 15.0.0.13 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29632.jpg" />
+</div>
+
+
+###  Подробнее
+
+SigmaPlot – эффективный программный инструмент для научной графики и статистического анализа. Программа используется в разных научных сферах и предлагает более 100 типов графиков, широкий спектр графических шаблонов и инструментов, полный набор функций для точного и быстрого анализа и визуализации данных.
+
+SigmaPlot дает возможность быстро создавать сложные графики (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FA8FC5E2803DC52B4921E8737D42B37233C528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776694   (28891) от 02.02.2025
+
+Turbo Studio 25.1.5 Portable by 7997 (PAF + NSIS) [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turbo Studio - это программа, которая служит для виртуализации приложений. Она дает возможность упаковать любое приложение в единый исполняемый файл (контейнер), позволив запускать его без предварительной установки. Программа использует собственный формат контейнеров и предоставляет доступ к огромной библиотеке дистрибутивов популярного софта. В отличие от своего (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F852C8393BA7B00583B28427AA7FC22C844F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778792   (28163) от 09.02.2025
 
 WinToHDD 6.6.1 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakaedr [Ru/En]
@@ -6,7 +245,7 @@ WinToHDD 6.6.1 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodak
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28163.jpg" />
 </div>
 
 
@@ -32,7 +271,7 @@ Wolfram Mathematica 14.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27985.jpg" />
 </div>
 
 
@@ -59,7 +298,7 @@ WinToHDD 6.6 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27558.jpg" />
 </div>
 
 
@@ -85,7 +324,7 @@ Crystal Impact Diamond 4.6.8 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27512.jpg" />
 </div>
 
 
@@ -111,7 +350,7 @@ Free Hex Editor Neo 7.50.04.8813 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26319.jpg" />
 </div>
 
 
@@ -138,7 +377,7 @@ Navicat Premium 17.2.2 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24710.jpg" />
 </div>
 
 
@@ -164,7 +403,7 @@ Adobe XD 58.0.12.9 RePack by KpoJIuK [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23777.jpg" />
 </div>
 
 
@@ -190,7 +429,7 @@ SweetScape 010 Editor 15.0.2 + Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22918.jpg" />
 </div>
 
 
@@ -216,7 +455,7 @@ Ultimaker Cura 5.10 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22720.jpg" />
 </div>
 
 
@@ -242,7 +481,7 @@ RisohEditor 5.8.7 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22175.jpg" />
 </div>
 
 
@@ -270,7 +509,7 @@ OrcaSlicer 2.3.0 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22167.jpg" />
 </div>
 
 
@@ -297,7 +536,7 @@ CoolUtils Total CAD Converter 4.1.0.230 RePack (& Portable) by elchupacabra [Mul
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21618.jpg" />
 </div>
 
 
@@ -323,7 +562,7 @@ FlashPrint 5.8.7 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21243.jpg" />
 </div>
 
 
@@ -349,7 +588,7 @@ BlueStacks App Player 5.22.51.1038 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20648.jpg" />
 </div>
 
 
@@ -375,7 +614,7 @@ Sante DICOM Viewer Pro 14.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20417.jpg" />
 </div>
 
 
@@ -402,7 +641,7 @@ Sante DICOM Editor 10.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20369.jpg" />
 </div>
 
 
@@ -429,7 +668,7 @@ Schrodinger Suite 2025-2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17118.jpg" />
 </div>
 
 
@@ -440,244 +679,6 @@ Schrodinger Suite 2025-2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C44A37F1E7A4B43D3F845B890AE4C7EC7225133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803781   (13464) от 25.06.2025
-
-WinEdt 11.2 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощнейший редактор для MS Windows с фантастическими возможностями по настройке программы. Перестраивается абсолютно все: меню, панели, кнопки... Имеются модули поддержки редактирования кодов: TeX, C++, Perl, HTML.
-Программа позволяет редактировать файлы, написанные в TEX формате. Редактирование происходит более удобным-наглядным способом. Программа так же облегчает (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44496FDE6D9465AD919A9EA298064E9D8A8BC337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804772   (12843) от 01.07.2025
-
-Geneious Pro 4.8.5 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geneious Pro предоставляет исследователям ведущие в отрасли инструменты биоинформатики и молекулярной биологии, оптимизируя анализ последовательностей и получение информации.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2151786F125E89507C59F5CA3639836E6E92E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802267   (12175) от 08.07.2025
-
-Maplesoft Maple 2025.1 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система Maple предоставляет пользователям мощные инструменты для решения математических задач любой сложности. В ее арсенале более 5000 встроенных функций, охватывающих широкий спектр разделов математики: математический анализ, линейную алгебру, дифференциальные уравнения, статистику, геометрию и многое другое. Maple сочетает в себе символьные, численные и гибридные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F948014300EEEA0C40662FDC1FA6138DD5AE6972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807285   (11142) от 18.07.2025
-
-EasyUEFI 6.0 Release 1 Technician RePack (& Portable) by elchupacabra [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11142.jpg" />
-</div>
-
-
-###  Подробнее
-
-EasyUEFI - удобная утилита для редактирования загрузочного меню операционных систем Windows на основе EFI/UEFI. Технология UEFI все чаще используется разработчиками и производителями ПК как замена известного всем интерфейса BIOS, позволяя более гибко и тонко управлять параметрами запуска операционной системы.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6DE6D68C861EFDA285E4BAED5A744D4D8EE4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807686   (10956) от 20.07.2025
-
-VMware Workstation 17 Pro 17.6.4 Build 24832109 RePack by KpoJIuK [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10956.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FAFC363884D89922C29DFB5961C3F93F345897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808081   (10673) от 22.07.2025
-
-Inno Tools Ultimate Pack 2025 by Necros1404 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция программ и утилит имеющая прямое отношение к созданию инсталляторов в Inno Setup.
-В сборке присутствует множество весьма полезных инструментов.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8AD87B23CF0DB355345613356339062243526B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808774   (10212) от 27.07.2025
-
-1С:Предприятие платформа 8.3.27.1644 [Ru/En]
-
->>След.
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10212.jpg" />
-</div>
-
-
-###  Подробнее
-
-«1С:Предприятие 8» — это технологическая платформа для разработки и исполнения прикладных решений. Платформа «1С:Предприятие 8» предоставляет разработчику предметно-ориентированную среду быстрой разработки — интегрированный набор инструментов и технологий, необходимых для быстрой разработки, распространения и поддержки прикладного решения для автоматизации бизнеса.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAFB3874086EF17301DD75BDD94835BA9223B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810091   (9529) от 02.08.2025
-
-SQLite Expert Professional 5.5.37.648 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9529.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLite Expert Professional – мощный визуальный инструмент для удобного управления БД SQLite3.
-Программа совмещает управление базами данных и их обслуживание в единой интегрированной среде с четким и интуитивно понятным пользователю графическим интерфейсом. С помощью этого приложения пользователь может редактировать и просматривать таблицы, перестраивать поля, проставлять (   Читать дальше...   )Язык интерфейса: Английский, русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E78E985C8C72A3C39934358A57FDB7E1DA48857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810341   (9427) от 03.08.2025
-
-CudaText 1.226.0.0 Portable + addons [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9427.jpg" />
-</div>
-
-
-###  Подробнее
-
-CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
-Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E27D3791937C6C51FBAD99A1189FDCBC0C5602
 ```
 
 https://mybot314.ru/tekegram_catalog/

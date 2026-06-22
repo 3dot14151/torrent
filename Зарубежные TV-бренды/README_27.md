@@ -1,3 +1,133 @@
+###  Публикация: 1387396   (791776) от 01.06.2020
+
+NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы. Несмотря на свой древний внешний вид, рептилии - это животные, полные загадок, и сложные для изучения. Во время охоты змеи в совершенстве контролируют каждый миг, который отделяет жизнь от (   Читать дальше...   )Производство: Испания, Nat Geo WildЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A532A350C9E407C4F10D0E263D138165DA0EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387250   (791773) от 01.06.2020
+
+DV: Улыбка удачи / The Joy Of Chance (2016) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Спигелхолтер рассказывает, как мы открыли принципы случайности, как мы пытаемся подчинить их себе и как можно научиться их любить.Производство: США / Wingspan ProductionsЖанр: ДокументальныйРежиссер: Dan HillmanПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5DD829CAF9567892694C8547431757B4EF7ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275015   (791685) от 09.01.2019
+
+Animal Planet: Спасение животных: ураган Харви / Surviving Harley. Animals After the Storm (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791685.jpg" />
+</div>
+
+
+###  Подробнее
+
+После урагана Харви и наводнения многие животные лишились крова. Волонтеры и спасатели работали не жалея сил, пристраивая бездомных животных.Производство: США, Peacock Productions, Animal PlanetЖанр: Документальный, природа, катаклизмыРежиссер: Стивен ФлислерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC93FB04273AB7A5A20F29C13D7BB107A00C7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275029   (791606) от 09.01.2019
+
+Охота на ведьм: столетие убийств / Witch Hunt: A Century of Murder (2015) HDTVRip [H.264/1080p-LQ] (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791606.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой документальной драме доктор Сюзанна Липскомб отправляется на поиски истоков ужасной массовой охоты на ведьм, что привело её на британские острова и Европу. Каково было невинным жертвам, которых пытали, убивали и обвиняли в преступлениях, которые те не смогли бы совершить никоим образом?Производство: Великобритания, 5 ProductionsЖанр: Документальный, история, реконструкцияРежиссер: Крис ХалтПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199FBD68A0FD4D2016D5285257EDAE4462F476F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201731   (791397) от 26.01.2018
+
+BBC. Земля: Один потрясающий день / Earth: One Amazing Day (2017) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-путешествие, которое раскрывает удивительную силу природы. В течение одного дня сюжет следует за солнцем — от высочайших гор, через отдаленные острова к экзотическим джунглям. С помощью новейших технологий фильм знакомит зрителей с колоритными животными и напоминает: каждый день в мире происходит больше чудес, чем вы можете себе представить.Производство: Великобритания, Earth Film Productions, BBC Worldwide North AmericaЖанр: Документальный, СемейныйРежиссер: Ричард Дэйл, Фань Лисинь, Питер ВебберПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70098F3CDBDED7672EC67D65A4B90FD2F1A41E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510431   (791249) от 16.11.2021
 
 Сбой в матрице / A Glitch in the Matrix (2021) WEBRip
@@ -6,7 +136,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791249.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791201.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791194.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791193.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791190.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ DV: Изящество логики / The Joy of Logic (2013) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791168.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791144.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790368.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790169.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ DV: "Вояджер" - полет за пределы Солнечной сис�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790003.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789790.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789215.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788971.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788783.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ History Channel: Тайны коптских мумий / Coptic Mummies of Anti
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788561.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ Animal Planet. Кошек не любить нельзя / Must love cats (2012)
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788533.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788465.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788338.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788313.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788148.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788142.jpg" />
 </div>
 
 
@@ -539,138 +669,6 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D72D1619EBC36BF93457400C05EC3D0D944EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276617   (788141) от 16.01.2019
-
-NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nature (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корея — древнее горное королевство. Земля разделённая на две части войной. Шрамы войны видны не везде. В мире дикой природы вы сможете найти другую Корею. На юге осталось много не тронутых человеком уголков. Там живут удивительные существа, которые тесно связаны с этой страной, и друг с другом. Здесь человек столетиями жил в гармонии с природой, по этому по сей растительный (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс РидПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC039A2577EC4820911322B24DBB86709552056E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276560   (788035) от 16.01.2019
-
-BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (2015) BDRemux [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония - это более 6 тысяч островов на краю Тихого океана. Жизнь здесь зависит от милости самых могущественных стихий на земле. На севере - пустынные и холодные просторы, на юге - жаркие субтропики. Животным пришлось приспосабливаться к жизни на этих островах самыми невероятными способами. Но и люди на этих землях установили необычные отношения с миром природы. Они (   Читать дальше...   )Производство: Великобритания, Германия, BBC, Docland GmbHЖанр: Документальный, природа, флора, фаунаРежиссер: Гавин Максвелл, Давид Маркс, Сюзи ПентерПеревод: Дублированный (СВ-Дубль)Субтитры: Русские, английскиеПродолжительность: 3x ~00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CE009673688AB5B0C747F2791DE43E4804C9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203370   (788014) от 02.02.2018
-
-BBC: Вулканы Солнечной системы (Космические Вулканы) / Space Volcanoes (2017) HDTVRip [H.264/720p-LQ] (сезон 22, серия 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вулканы долго помогали формировать Землю. Но, что менее известно, заключается в том, что на других планетах и лунах есть еще более необычные вулканы, чем на нашей родной планете. Горизонт следует за международной командой вулканологов Исландии, поскольку они рисуют увлекательные параллели между вулканами на Земле и другими в Солнечной системе. Благодаря исследованию (   Читать дальше...   )Производство: Великобритания, BBC ScotlandЖанр: Документальный, научно-популярный, космосРежиссер: Эндрю ТомпсонПеревод: Двуголосый закадровый, профессиональный (СВ Дубль)Субтитры: отсутствуютПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FD28DABCB6409F63E943F38FE78AE6E4409665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203245   (787964) от 02.02.2018
-
-BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H.264/720p-LQ] (сезон 1, серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задумывались ли вы, насколько мы похожи на братьев наших меньших? Каждый эпизод освещает такие важные аспекты как любовь и дружбу, радости и невзгоды. Все эти удивительные моменты запечатлены с помощью скрытых камер нового поколения, позволяющих увидеть не только особенности жизни и поведения животных, но также осознать нашу тесную связь с живой природой.
-Аниматронные (   Читать дальше...   )Производство: Великобритания, John Downer Productions Ltd for BBC. PBS and Thirteeen Productions LLCЖанр: Документальный, научно-познавательный, фауна, исследованиеРежиссер: Джон ДаунерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 5x~00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF70199B157A1ED9A55D49D4FF1A649A4C316EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276642   (787593) от 17.01.2019
-
-NGW: Рожденные в Африке. Школа выживания / Born in Africa (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проследите все этапы взросления этих милых пушистых зверьков, переживая вместе с их матерями за их жизнь и деля с ними моменты нежности к своим детенышам.
-Все новорожденные должны научиться с первых дней жизни ассимилироваться к двум фундаментальным вызовам: опознавать свою мать, как животное того же вида и научиться владеть своим телом.Производство: Франция, One Planet, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Стефани ГолдшмитПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3089EC0D2DFB34BF83CE477C3DFD4391474176FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

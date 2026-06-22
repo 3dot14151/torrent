@@ -1,3 +1,55 @@
+###  Публикация: 1336101   (282558) от 05.11.2019
+
+Анастасия Никитина | Ректор по семейным обстоятельствам (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что не так?! Именно этот вопрос задаст любой, кому мне вздумалось бы пожаловаться на свою жизнь. Ещё бы. Для счастья всё в наличии: королевская кровь, звание «Лучший зельевар Белого континента», внешностью Создатели не обидели. Ах, да, с этого года я ещё и занимаю пост ректора Академии стихий. Нравится? А мне не очень. Потому что я – маг-боевик, и ненавижу зельеваренье! (   Читать дальше...   )Жанр: Любовное фэнтези, Юмористическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01D331512BDF7D16AC604AB09325DA13163CA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336099   (282388) от 05.11.2019
+
+Валентина Савенко | Проклятие на удачу (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что общего между везением и проклятием? Ничего. Вот и Летта так считала. Пока однажды не получила чужое проклятие и не оживила его. А все дар, о котором она не подозревала. Сомнительный дар дарить везение и притягивать чужое невезение. И, похоже, не только его, но и приключения на свою… голову. Живое проклятие с принципами, охотник за темными магами, забывший, что (   Читать дальше...   )Жанр: Любовное фэнтези, Книги про волшебниковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A578296A7E625BB9987EF29FA184A2519A024965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187225   (282365) от 27.11.2017
 
 Блейк Чарлтон | Чароплет (2016) [FB2]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282365.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282329.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282194.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282032.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281894.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281852.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281811.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281809.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281078.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280800.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280666.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280664.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280526.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280446.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280314.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280310.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280303.jpg" />
 </div>
 
 
@@ -466,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280290.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280270.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ Wargon.exe | X14. Исповедь странника (2016) [FB2]
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280167.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280009.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279879.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279756.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279466.jpg" />
 </div>
 
 
@@ -639,63 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCE09A9867BE487A7B12E5CD00CDBB753AE0EDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264442   (279465) от 24.11.2018
-
-Джон Коннолли | Музыка ночи [сборник] (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все темы музыки ночи.
-
-От иронии рассказа об оживших книжных героях до вязкой и сумрачной атмосферы сказки о Полом Короле. От истории женской мести, до крошечной зарисовки про жизнь мертвеца.
-(   Читать дальше...   )Жанр: Зарубежная фантастика, Мистика, УжасыПеревод: Александр ШабринФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB62F3AA6E5B175B72FAF585DAB9B54C8E355105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264453   (279409) от 24.11.2018
-
-Екатерина Азарова | Заложница (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман, примыкающий к циклу «Университет высшей магии».
-
-Если встречаете мага, который предлагает вам провести отпуск в другом мире, — не соглашайтесь. Даже если вы строго оговорили все условия. Иначе рискуете не только оказаться заложницей, но и отдать свое сердце. Именно это случилось со мной. А все началось с того, что я оказалась не в том месте и не в то время…Жанр: Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B20882B0E8DC55E5365F30A9F51294A7E78F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

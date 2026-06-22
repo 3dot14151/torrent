@@ -1,3 +1,29 @@
+###  Публикация: 1838365   (260023) от 22.11.2025
+
+Операция «Ы» и другие приключения Шурика (1965) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студент Шурик попадает в самые невероятные ситуации: сражается с хулиганом Верзилой, весьма оригинальным способом готовится к экзамену и предотвращает «ограбление века», на которое идёт троица бандитов — Балбес, Трус и Бывалый.Производство: СССР / МосфильмЖанр: комедия, мелодрама, криминалРежиссер: Леонид ГайдайАктеры: Александр Демьяненко, Наталья Селезнёва, Алексей Смирнов, Юрий Никулин, Евгений Моргунов, Георгий Вицин, Михаил Пуговкин, Виктор Павлов, Владимир Басов, Рина Зелёная и др.Перевод: Не требуетсяСубтитры: отсутствуютПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D6F0F349FCE69CB91C65AC5E97E4156BCC0357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838359   (260022) от 22.11.2025
 
 Москва слезам не верит (1979) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260022.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260021.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259794.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259792.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259790.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259788.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258062.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258052.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257927.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257924.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257916.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257915.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257914.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257904.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257903.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257901.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257882.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257880.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257876.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257864.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257840.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257811.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257762.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256855.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256840.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:161913C52434ED6FD1E2188BF285202DA1E112AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837313   (256790) от 17.11.2025
-
-Очаровательная проказница / La belle noiseuse (1991) BDRip [H.264/1080p] [Handmade correction AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драма о непростых взаимоотношениях художников и моделей. Известный в прошлом живописец, Френхофер живет уединенно в небольшой деревеньке на юге Франции. Его приезжает навестить молодой коллега-художник с юной подругой Марианной. Увидев девушку, Френхофер решает закончить картину "Очаровательная проказница", работу над которой он начал много лет назад и (   Читать дальше...   )Производство: Франция, Швейцария / Canal+ fr, George Reinhart, Pierre GriseЖанр: драмаРежиссер: Жак РиветтАктеры: Мишель Пикколи, Джейн Биркин, Эммануэль Беар, Марианн Деникур, Дэвид Бурштейн, Жиль Арбона, Мари Беллюк, Мари-Клод Роже, Лейла Ремили, Дафна ГудфеллоуПеревод: Многоголосый профессиональный (Twister, R5)Язык озвучки: русский, французскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 03:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85943CDB2F28B803F8EF9BC6BCC23DDB5469249F
 ```
 
 https://mybot314.ru/tekegram_catalog/

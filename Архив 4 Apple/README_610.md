@@ -1,3 +1,56 @@
+###  Публикация: 1431616   (167005) от 14.12.2020
+
+Deliver 2.6.23 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver - это комплексное решение для отправки файлов через Интернет и локальные сети с уведомлением по электронной почте. Он поддерживает FTP, SFTP, Amazon S3 и другие основные сервисы, а также предлагает автоматические уведомления о доставке электронной почты, сжатие, доставку по нескольким направлениям и многое другое. Сообщения уведомления основаны на переменных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2020Разработчик: Zevrix SolutionsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820D11C4A26AD00D47EE6DE69E69C4E36A489FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516201   (167000) от 10.12.2021
+
+Jettison 1.8.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jettison - размонтирование внешних дисков перед сном Mac. macOS X имеет свою философию и некоторые вещи в системе происходят несколько иначе, чем в других ОС. К этому можно просто привыкнуть, но можно и упростить себе жизнь используя простые утилиты или приложения.
+«Думаю, всем знакомы надоедливые системные баннеры с уведомлением о том, что один из ваших дисков был (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77AB3D8CAD992801A088E6F7B09AFBC4861F289A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431561   (166996) от 14.12.2020
 
 Ink2Go 1.9.1 [En]
@@ -6,7 +59,7 @@ Ink2Go 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166996.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ UltraCompare 22.00.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166994.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166989.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ System Toolkit 5.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166986.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ SiteSucker 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166976.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Resize Sense - Flexible batch image processing 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166971.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ FigrCollage 3.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166969.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Swift Publisher 5 v5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166965.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ EdgeView 2 v2.910 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166964.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ BBEdit 13 v13.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166960.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ NXPowerLite Desktop 9 v9.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166953.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Watermark Sense - Flexible batch watermarking 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166950.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Art Text 4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166944.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ MAMP PRO 6 v.6.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166913.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Serviio Pro 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166865.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Reallusion Cartoon Animator 4 v4.4 Pipeline macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166859.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Wondershare UniConverter 12.5.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166843.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ Tap Forms Organizer 5 v5.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166770.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Chronicle Pro 9.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166763.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ GrandTotal 6 v6.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166759.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ Cascadea 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166731.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ Storyist 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166727.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Mitti 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166725.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ PDF Checkpoint 1.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166721.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ PDF Checkpoint автоматизирует рабочие процессы PDF 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1793C8C3E2F101F86E43BEB8954B4FA9581065C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345461   (166715) от 15.12.2019
-
-iDatabase 6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166715.jpg" />
-</div>
-
-
-###  Подробнее
-
-iDatabase - это самый простой способ организовать ваши данные, т.е. содать базу данных используя один из 22 готовых шаблонов, легко настроив их "под себя" или создайте новую базу данных с нуля. Без предварительного опыта работы с базами данных вы можете использовать включенные шаблоны для быстрого создания и настройки баз данных, содержащих кадастры, списки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2019Разработчик: ApimacПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D2A30F00B1122ADC2BAE3B568AD9C2ADB9AD7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345310   (166711) от 15.12.2019
-
-Amadeus Pro 2.6.2 (build 2235) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60552B5F5BEE0EF328DBCCD7FD202677BB4C4A59
 ```
 
 https://mybot314.ru/tekegram_catalog/

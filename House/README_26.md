@@ -1,3 +1,90 @@
+###  Публикация: 1125946   (766393) от 17.04.2017
+
+VA - Transmission Express Vol.2 - Electro House (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  George Morillo - Bass Boobing  7:26
+02.  Cass & Mangan - Bible Belt (Cass & Mangan Play Early)  7:24
+03.  Daniel Forbes & DJ Mogwai - Underground Technology (Quinten de Rozario Tek Remix)  7:06
+04.  Adrian Davis - Burning Boy (Ztarbuc Remix)  6:54(   Читать дальше...   )Жанр: HouseПродолжительность: 02:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52F298DA4CA4BE5600F0CA9EBE4C99221DCC1B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126248   (766383) от 17.04.2017
+
+VA - Vocal House Maniacs, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Express - Freedom (feat Sabrina Johnston - Midnight Express Dream mix) 05:46
+02. Robbie Act - I Want You 03:53
+03. Niko Deejay - Black Queen Black Machine (feat Janet Gray - Funky version - Piano Chic) 06:11
+04. Blade/Masquenada Family - Private Life (feat Noel McCalla - Frank Dancers Demosphere remix) 05:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD22F335462A39A5E18921EF1BDF20B0CBC49FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126564   (765548) от 18.04.2017
+
+VA - Senssual Miami (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coxswain & Jane Fox - Everybody's Free (Jane Fox vocal mix)
+02. Tall, Handsome & Bubble Jack - See U
+03. Terry Lex - House Is My Passion
+04. Esteban De Urbina - Caminando Por Las Nubes(   Читать дальше...   )Жанр: HouseПродолжительность: 04:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9D80A9D725C4E2A8AD3635E52823BEBBED32C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126622   (765540) от 18.04.2017
 
 VA - Smash The House Vol.1 (2017) [MP3|320 Kbps] <House, Progressive House>
@@ -6,7 +93,7 @@ VA - Smash The House Vol.1 (2017) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765540.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Spring Dance: The Best Dance Music (2017) [MP3|320 Kbps] <House, EDM, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765536.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Giuliano Rodrigues & Jubba - Techno 2018 (2019) [MP3|320 Kbps] <Minimal, Tech Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765465.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Nothing But...Tech House Essentials, Vol.07 (2019) [MP3|320 Kbps] <Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764596.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - JOOF 20 Years (Mixed by Gary Delaney & Facade & Daniel Lesden) (2018) [MP3|
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764595.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Paul Oakenfold: Sunset At Stonehenge (2019) [MP3|320 Kbps] <House, Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764532.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Freakin Miami (Mixed by House Of Virus) (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764067.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Spring Progressive House Vol.1 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764065.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Coastal Selections 006 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764063.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - XXX Club Bouncer (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763036.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Winter 2019: Best Of Inception (2019) [MP3|320 Kbps] <Progressive House, De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762222.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - 50 Top Hits Remixed Vol.1 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762202.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Deep House Hits (Armada) (2019) [MP3|320 Kbps] <House, Deep House, Vocal Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762123.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Infrasonic Miami (2018) [MP3|320 Kbps] <Progressive House, Progressive Tran
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761811.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Dance Party - Ready For The Summer (2016) [MP3|320 кб/с] <House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761235.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761224.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761115.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760515.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Deep House Spring Essentials 2018 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758103.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Tran
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756600.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Rick Pier O'Neil - Mysterious (2016) [MP3|320 кб/с] <Progressive House, Techn
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756119.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Hard EDM Workout - Running 70s 80s 90s Hits: 150 bpm (2020) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755172.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Spring Break Is Coming (Tech House Fever Is All Over) (2018) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754859.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Spring Break Is Coming (Tech House Fever Is All Over) (2018) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5D7992FB9677ADC2345AAEB830B803D1E5C322A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018613   (754147) от 21.05.2016
-
-VA - Black Hole House Music 05-16 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manufactured Superstars - Carry You Home (Disco Fries Remix) (feat. Iossa) 4:32
-02. Betsie Larkin - We Are the Sound (Futuristic Polar Bears Remix) 4:26
-03. Gunslinger - Roadhouse 4:09
-04. Max Graham - Amnesia (Original Mix) 6:16(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A06A06C6FD5BB389D4BE9F2F5A654EC627A191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018941   (754100) от 21.05.2016
-
-VA - Tribal House Sensations Vol. 3 (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky Vario - Extreme Beats (Original Mix)
-02. Mark De Lord - Wireless Drum (Original Mix)
-03. Fernando Venga - Tribal Tuning (Original Mix)
-04. Juan Salva - Percussion Tribe (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F520B6CA199B93A4A7EF34773AB98FD68B0F0548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018925   (754090) от 21.05.2016
-
-VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Carmela - Curve Sound (Original Mix)
-02. Anthony Mea - Dreama (Original Mix)
-03. Marco Grandi - Butterfly (Original Mix)
-04. Adam Byrd - Without You (Original Mix)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 01:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F332D9E7C7D1062D4016E00E4B4586B2D8BBEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

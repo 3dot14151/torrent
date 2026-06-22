@@ -1,3 +1,81 @@
+###  Публикация: 972081   (984213) от 04.01.2016
+
+Ветеран / Beterang (2015) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Со Ду Чхоль пытается засадить за решетку Чо Тэ О. Но сделать это не так просто как кажется. Ведь парень не кто-нибудь, а наследник крупной компании с хорошими связями. Получится ли у детектива довести дело до конца?Производство: Корея Южная / CJ Entertainment, Filmmaker R&K, Weyunaegang ProductionsЖанр: Боевик, Драма, Комедия, КриминалРежиссер: Рю Сын-ванАктеры: Хван Джон-мин, Ю А-ин, Ю Хэ-джин, О Даль-су, Чан Юн-джу, Ким Щи-ху, О Дэ-хван, Чон Ун-ин, Чон Ман-щик, Сон Ён-чханПеревод: Любительский двухголосый (den904&DeadSno)Субтитры: ОтсутствуютПродолжительность: 02:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346441DDECD0881C9D4A50874BE6FC7DB520D8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355414   (983366) от 26.01.2020
+
+Храбрые телохранители / Tian xia di yi biao ju / The Bravest Escort Group (2018) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потерпев поражение от армии Цин, министр и генерал династии Мин решают переправить в безопасное место принцессу и карту к богатствам. Они проводят испытание среди эскортов и выбирают самый лучший. Храбрым воинам предстоит проделать опасный путь. И лишь немногие из них вернутся домой живыми...Производство: Китай, Beijing Sheng Shi Hua Ying Culture Communication Co., LtdЖанр: Боевик, историческийРежиссер: Тао МэнсиАктеры: Луис Фань, Чэ Юнли, Син Юй, Рэй Луй, Люн Ка-Янь, Кен Ло, Ши Нань, Чэнь Чжихуэй, Си Хун-БоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Английские, китайские (hardsub (неотключаемые), русские (softsub (SRT)Продолжительность: 01:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46ADAFF75EA8771126334BE7BF10F458880747D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972102   (983005) от 05.01.2016
+
+Преисподняя мертвых / Z airando (2015) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя десять лет глава клана якудза Хироя Мунакава встречает своего верного соратника Такаши из тюрьмы. Парень принял удар вместо него, так что босс присматривал за его женой и дочерью, пока он отбывал срок. Но дочь Такаши, не желая встречаться с отцом, вместе со своей подругой сбежала на остров Зени. Однако в это время на остров обрушилась зомби-эпидемия. И Такаши (   Читать дальше...   )Производство: ЯпонияЖанр: Ужасы, боевик, комедияРежиссер: Хироси СинагаваАктеры: Сё Айкава, Дайго, Синго Цуруми, Кунихиро Кавасима, Шунсуке Кадзама, Ючи Кимура, Есуке Кубодзука, Даизуке Миягава, Эрина Мизуно, Хидео НаканоПеревод: Любительский двухголосый (DeadSno & den904)Субтитры: ОтсутствуютПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6B22FB20620E8AA2207037745E9C3A3F7711E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972142   (982797) от 05.01.2016
 
 Город будущего / Natural City (2003) DVDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982797.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982690.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982571.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982284.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982216.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981476.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980498.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978054.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977937.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974516.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971885.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971731.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970463.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970274.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968679.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968633.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967315.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966187.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965124.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964255.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964124.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961857.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960740.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02957645FD0072486BAA396706AD0C7542ED9404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360454   (960575) от 15.02.2020
-
-Первая любовь / Hatsukoi / First Love (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рео и Моника — боксер со смертельным диагнозом и проститутка-наркоманка, влипшая в долги… Любовь, первая любовь настигает их внезапно. Но их чувство и жизнь под угрозой: за парочкой гонятся якудза, продажный коп, киллерша, посланная китайской триадой, и даже призрак в белой простыне… Безумная ночь в безумном Токио.Производство: Япония, Великобритания / Oriental Light and Magic (OLM), Recorded Picture Company (RPC), Toei CompanyЖанр: Криминал, мелодрама, боевикРежиссер: Такаси МиикеАктеры: Масатака Кубота, Сакурако Кониси, Нао Омори, Сёта Сомэтани, Сэиё Утино, Беки, Дзюн Мураками, Сансэй СиомиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD84A1F6930E7E12FFAE9750B5FC7C30192BFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360460   (960523) от 15.02.2020
-
-Первая любовь / Hatsukoi / First Love (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рео и Моника — боксер со смертельным диагнозом и проститутка-наркоманка, влипшая в долги… Любовь, первая любовь настигает их внезапно. Но их чувство и жизнь под угрозой: за парочкой гонятся якудза, продажный коп, киллерша, посланная китайской триадой, и даже призрак в белой простыне… Безумная ночь в безумном Токио.Производство: Япония, Великобритания / Oriental Light and Magic (OLM), Recorded Picture Company (RPC), Toei CompanyЖанр: Криминал, мелодрама, боевикРежиссер: Такаси МиикеАктеры: Масатака Кубота, Сакурако Кониси, Нао Омори, Сёта Сомэтани, Сэиё Утино, Беки, Дзюн Мураками, Сансэй СиомиПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B02650A1F79A3907A84DEF88B85EFEB20BC8B5EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360473   (960300) от 15.02.2020
-
-Ип Ман 4 / Yip Man 4 (2019) WEBRip [MVO]
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка, 1960-е годы. Ип Ман прибывает в Сиэтл, где один из его учеников решил открыть школу вин-чун.Производство: Гонконг, Китай / Bullet Films, Mandarin Motion Pictures, Shanghai Bona Cultural MediaЖанр: боевик, биографияРежиссер: Уилсон ИпАктеры: Донни Йен, Скотт Эдкинс, Дэнни Чань, У Юэ, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Английские, корейские (hardsub)Продолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3D4F18FE5A947D7B69379B0B7E308944AC6E2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

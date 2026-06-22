@@ -6,7 +6,7 @@ World Trigger | Импульс мира [2014, TV, 73 из 73] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736568.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Action Heroine Cheer Fruits | Фруктовые героини [2017, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736112.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ookiku Furikabutte: Natsu no Taikai-hen | Замахнись сильнее: Л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735271.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Handa-kun | Ханда [2016, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734276.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733527.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Maison Ikkoku: Bangaihen Ikkokujima Nanpa Shimatsuki | Maison Ikkoku: Deserted I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733430.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Maison Ikkoku: Shiki Utsuriyuku Kisetsu no Naka de | Maison Ikkoku: Through the 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733387.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kuro no Sumika -Chronus- / Чёрные сущности -Хронус- [2014, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732741.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Blade Runner: Black Lotus | Бегущий по лезвию: Чёрный ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732591.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Bishoujo Senshi Sailor Moon R / Sailor Moon R Movie: Promise of the Rose + SP / 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731724.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730711.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Fate/Kaleid Liner Prisma Illya Zwei! | Судьба: Девочка-волшеб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730449.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Classroom Crisis | Кризис в классе [2015, TV, 13 + 1sp] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730024.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kuma miko | Kumamiko: Girl Meets Bear | Жрица и медведь [2016, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729975.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729018.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728982.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Mahou Shoujo Lyrical Nanoha Vivid | Magical Girl Lyrical Nanoha Vivid | Лири
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728552.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Ensemble Stars! | Звёзды ансамбля! [2019, TV, 24 эп.] WEBRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725997.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Kidou Senshi Gundam 00 | Mobile Suit Gundam 00 | Мобильный воин Г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725871.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724706.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Angelic Layer / Арена Ангелов [2001, 26 эпизодов] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722634.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722610.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tantei wa Mou, Shindeiru. | The Detective Is Already Dead | Детектив у�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722607.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Comet Lucifer | Комета Люцифера [2015, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722596.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ M3: Sono Kuroki Hagane | M3 The Dark Metal | M3: Чёрная сталь [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720434.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Jinsei Soudan TV Animation / Jinsei / La Bonne Vie / Советы по жизн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720432.jpg" />
 </div>
 
 

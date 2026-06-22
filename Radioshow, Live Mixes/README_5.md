@@ -1,3 +1,148 @@
+###  Публикация: 1494687   (887852) от 08.09.2021
+
+VA - Luminosity Beach Festival, Netherlands (2021) [MP3|128-320 Kbps] <Trance, Progressive House, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Activa @ Beachclub Bronze, Luminosity Beach Festival, Netherlands 2021-08-20(128Kbps):
+01. Activa - The Lost Language (Original Mix)
+02. Orkidea & Activa - Z21 (Activa’s ‘Origins’ Remix)
+03. Alex Daf - Back To Life (Activa Rework)(   Читать дальше...   )Жанр: Trance, Progressive House, Hard DanceПродолжительность: 17:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB29DB2BBB7ACDCCBCDC8057B03BB6DC103778C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373333   (876895) от 08.04.2020
+
+Greg Dusten - Pure Trance Selection Winter 2020 2020-03-30 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Murray - Inception feat Veronica Moran (Extended Mix)
+02. Joe Schaeffer - There and Back (Skua Remix)
+03. LTN & Cassidy Ford - Hurt Yourself (Extended Mix)
+04. Costa & Sarah Lynn - Never Fade (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BD20256735F225271F107AFE2B3FA21273E687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496506   (871658) от 18.09.2021
+
+Yoshi & Razner - Transmission Live, Spain (2021-08-28) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Quicksilver - Ameno (Yoshi & Razner Remix)
+02. UCast vs. The Killers - Sympton Brightside (Yoshi & Razner Mashup)
+03. Steve Dekay - Sublime
+04. Miikka Leinonen ft. Kim Kiona - Breath Of The Wild (Metta & Glyde Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACF6C781C56AACAC6DC9FFAF5A460CC332B12C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496717   (871546) от 18.09.2021
+
+Lane 8 - Fall 2021 Mixtape (2021-09-15) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyma & Janus Rasmussen feat. Delhia De France - Claire
+02. Sultan + Shepard - ID
+03. Leaving Laurel - Winter In The Woods
+04. Parvenu - Captured (Tagavaka Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE370EF15DC137E594B2C5F783DC17B3F824D9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496734   (871404) от 18.09.2021
+
+Tiesto - Formula 1 Grand Prix Circuit Zandvoort, Netherlands (2021-09-05) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - The Business
+02. Tiësto & Sevenn - BOOM
+03. Tiësto - Grapevine
+04. Tiësto & The Chainsmokers - Split (Only U)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0371A637151EC03CC87BB88739F3D01D724AE479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496891   (869931) от 19.09.2021
 
 Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)] <Techno>
@@ -6,7 +151,7 @@ Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869931.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Martin Grey - Solitudes Episode 001 - 127 (2009-2016)[MP3|320 кб/с]<Chillout,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867398.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Trance Wax - Live @ Atlantis Ibiza, Spain (2021-09-16) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864946.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Live @ Supersonic Festival (2021) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864882.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2021-09-16) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859660.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Aly & Fila - Future Sound Of Egypt 485 (2017) [MP3|320 Kbps] <Trance, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857377.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852733.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Third Party - Release Radio (01-54) (2016-2021) [MP3|320 Kbps] <Electro House, P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843920.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Live @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839693.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Vitaly Otto - City of Trance 001-042 (Обновляемая) (2014-2016) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839435.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Microsha 89 - Микшер русской кибернетики #206 (2021) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838124.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, District At
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836674.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Korolova - Live @ Guaba Beach Bar Limassol, Cyprus (2021-09-10) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836548.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Korolova & Two Are - Live @ Kachanivka Palace, Ukraine (2021-10-08) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836414.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Korolova - Live @ New York, United States (2021-08-27) [MP3|320 Kbps] <Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836408.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ daveepa x Fuerte x Rencontre Nocturne - Festival Anthem Music Mix 2020-04-10 [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835065.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Kaneda - Eternal Spirit 001-... / Eternal Light 001-050 / Promo & Guest Mixes (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834509.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ DJ Feel - Top 30 Of February (2017) [MP3|320 Kbps] <Progressive Trance, Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832079.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ VA - Live  Creamfields UK, United Kingdom (2021) [MP3|320 Kbps] <Trance, Techno,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830005.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ VA - Ori Uplift - Uplifting Only 255 (Tune of the Year Vote - Top 25 Countdown) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822425.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819198.jpg" />
 </div>
 
 
@@ -603,151 +748,6 @@ VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DFF9A7A7EE58692AEB79F04F973287AFF64E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196852   (819193) от 05.01.2018
-
-VA - Aly & Fila - Future Sound of Egypt 529 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Bohmer & Wood — Velvet Rebellion (Original Mix)
-02. The Journey — The Toad (Original Mix)
-03. Paul Thomas & K3V — Aquamarina (Extended Mix)
-04. Concierj — Reality Pending (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064ABDA5AD3F90A34DCEDE21711EB9AE945149AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196895   (819069) от 05.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast - New Year’s Rehab (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiiso - Autumn Leaves
-02. Jam & Spoon - Odyssey to Anyoona (Jamie Stevens & Uone Remix)
-03. Jeremy Olander - Araoz
-04. Gabriel & Dresden featuring Sub Teal - White Walls(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2B96226014A37275D85D41543CE73016664ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197115   (817698) от 06.01.2018
-
-VA - Ori Uplift - Uplifting Only 256 (Ori's Top 30 Vocal Uplifters of 2017) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Nolans Stenemberg feat. Jennifer Lauren - The Winter
-02.Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
-03.Andrew Henry feat. Angel Falls - No Need To Hide (Aldo Henrycho Remix)
-04.Artisan feat. Anki - Thank You (Ultimate Extended Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC32825DC98B057DE72C774087D7350462653A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009598   (803212) от 24.04.2016
-
-DJ Nike Twist - TranceWave 138 @ GTI Radio (21.04.2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803212.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mike Adams - Nine Worlds (Original Mix) (Alter Ego)
-2. Diher & R3dub - Lynx (Original Mix) (Alter Ego)
-3. Alan Morris - Lost In Space (Original Mix) (Transistic)
-4. Highforcer - Galaxy (Aldo Henrycho Remix) (OceanBlue)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E648817B7C41E85B094E0A4C27C302FBC77B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199364   (801839) от 15.01.2018
-
-VA - Ori Uplift - Uplifting Only 257 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. illitheas - Levity (Intro Mix)
-02. PRE-RELEASE PICK: Eric Senn - Kharon (EXCLUSIVE PREMIERE)
-03. Ross Rayer - Memories (EXCLUSIVE PREMIERE)
-04. Jericho Frequency feat. Emma Chatt - Do You See Me? (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B04D9D274AA5142DD347E94B5428FFAEF310C66
 ```
 
 https://mybot314.ru/tekegram_catalog/

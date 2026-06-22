@@ -1,3 +1,61 @@
+###  Публикация: 1260516   (307108) от 09.11.2018
+
+Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия финального выступления Стивена Уилсона в зале The Royal Albert Hall 28.03.2018г в рамках тура в поддержку альбома «To The Bone». Стивен Уилсон (Steven Wilson) – один из крупнейших представителей прогрессивного рока, выпустивший более пятидесяти альбомов на протяжении трех десятилетий своей карьеры, его последний полноформатный альбом «To The Bone» стал (   Читать дальше...   )01. Intro Truth
+02. Nowhere Now
+03. Pariah
+04. Home Invasion / Regret #9(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: RockРежиссер: James RussellСубтитры: отсутствуютПродолжительность: 02:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33B89FD8EF4A8C1DB1D7DF83C1F665B7E1F2037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183662   (305413) от 15.11.2017
+
+Rob Orlemans & Half Past Midnight - Open The Cage (2007) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rоb Orlemans & Half Past Midnight - голландское трио, играющее блюз-рок в лучших его традициях. "Лицо" группы - Rob Orlemans, инновационный и интересный гитарист-левша, обладающий своим стилем и неповторимым тембром звучания – динамичным и захватывающим. Группа завоевала популярность и авторитет среди поклонников всего мира за их взрывные, живые концерты (   Читать дальше...   )01. Introduction
+02. Going Down (D.Nix)
+03. Libertyville (R.Orlemans)
+04. Buzzin'King Bee (R.Orlemans / J.Moore)(   Читать дальше...   )Производство: Нидерланды, Silvox RecordsЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:26:38 + 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC95B93CC1E066A2AC83AB66E5971F89C94F45FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 158559   (303835) от 14.12.2009
 
 Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009) 2*DVD-9
@@ -6,7 +64,7 @@ Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303835.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Cesaria Evora - Live D'amor (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303342.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302413.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301295.jpg" />
 </div>
 
 
@@ -116,7 +174,7 @@ Dio - Evil Or Divine (Live in New York City) (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301180.jpg" />
 </div>
 
 
@@ -145,7 +203,7 @@ New Order, Live In Glasgow (2008) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301135.jpg" />
 </div>
 
 
@@ -175,7 +233,7 @@ Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301086.jpg" />
 </div>
 
 
@@ -204,7 +262,7 @@ Queen – A Night At The Odeon (2015) (Recorded Live At The Hammersmith 1975) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300804.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298805.jpg" />
 </div>
 
 
@@ -262,7 +320,7 @@ Celine Dion - Live at Tokyo Dome (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294695.jpg" />
 </div>
 
 
@@ -291,7 +349,7 @@ Sting - 25 Years. Rough, Raw & Unreleased: Live at Irving Plaza  (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293737.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ P J Harvey - On Tour Please Leave Quietly (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293506.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ Tom Waits "Burma Shave" (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293155.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ Iron Maiden - Death On The Road (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292751.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Celtic Woman (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290747.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ The Jeff Healey Band - Live At Montreux 1999 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289517.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285019.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Joe Cocker - Cry Me A River (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284045.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Santana - Supernatural (2000) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_282161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_282161.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Beyonce - I Am... World Tour (2010) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275839.jpg" />
 </div>
 
 
@@ -578,7 +636,7 @@ David Garrett - Rock Symphonies (Open Air Live) (2010) BDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275668.jpg" />
 </div>
 
 
@@ -604,7 +662,7 @@ Alcatrazz - Live In Japan 1984 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274061.jpg" />
 </div>
 
 
@@ -633,7 +691,7 @@ Eric Clapton - Live at Montreux 1986 (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271830.jpg" />
 </div>
 
 
@@ -659,7 +717,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271812.jpg" />
 </div>
 
 
@@ -673,63 +731,6 @@ Part 1 - Accept
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7997953D6B31B63E8D69F5D664AB3CC56DC12381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266676   (269093) от 03.12.2018
-
-Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления Beth Hart, состоявшегося 4 мая 2018г в зале The Royal Albert Hall.01. As Long As I Have A Song
-02. For My Friends
-03. Lifts You Up
-04. Close To My Fire(   Читать дальше...   )Производство: Provogue/Mascot Label GroupЖанр: RockРежиссер: Nigel DickАктеры: Beth Hart & bandСубтитры: отсутствуютПродолжительность: 02:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080E9AB255F93D54AFF2A7C7CFD0B9DB96D5589D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 104052   (269038) от 03.12.2018
-
-Григорий Лепс - Парус Live (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Григория Лепса в Кремле "Парус" (Высоцкий 21 века)
-Идея записать песни Владимира Высоцкого возникла ещё 5 лет назад, когда впервые на концерте памяти великого артиста Григорий Лепс исполнил «Парус».
-Мощный темперамент, мужественная харизма, умение петь сердцем – то, что объединило двух певцов и то, что сделало возможным сам факт существования проекта, (   Читать дальше...   )Жанр: КонцертРежиссер: Даниил МишинАктеры: Ирина Завьялова, Роман Грачев, Анна Горнова, Михаил Чуваков, Ирина Усачева, Светлана Кирилина, Сергей БакинСубтитры: ОтсутствуетПродолжительность: 02:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5B2C89E93EDF9FD7A8E49B57C2106A2F8C6406
 ```
 
 https://mybot314.ru/tekegram_catalog/

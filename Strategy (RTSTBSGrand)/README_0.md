@@ -1,3 +1,29 @@
+###  Публикация: 1844579   (1050074) от 27.12.2025
+
+Total War: Three Kingdoms (2019) [Ru/Multi] (1.7.8/dlc) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total War: Three Kingdoms - эта игра из популярнейшей стратегической серии посвящена легендарному военному конфликту в древнем Китае. Вас ждет эпоха легендарных героев и традиционное для Total War сочетание эпических сражений в реальном времени и глубоко проработанной пошаговой кампании.Тип издания: LicenseРазработчик: Creative AssemblyЖанр: Экшены, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0A9F650DE906F948B780088FD48FCD21B85C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841806   (1048330) от 13.12.2025
 
 Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.057.0/dlc) Repack seleZen [Complete Edition]
@@ -6,7 +32,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.057.0/dlc) Repack se
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048330.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Age of Empires IV (2021) [Ru/En] (15.2.7445.0/dlc) Repack Let'sРlay [Anniversar
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047822.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047783.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Company of Heroes 3 (2023) [Ru/Multi] (2.2.0.40455/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046952.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Company of Heroes 3 (2023) [Ru/Multi] (2.2.0.40455/dlc) Scene Rune [Ultimate]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046736.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Star Dynasties (2021) [En] (1.0.4.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046301.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Chromosome Evil (2022) [Ru/En] (3.079/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044579.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.11.24193/dlc) License GOG [Special Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044457.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Lord of the Rings: The Battle for Middle-earth II / Властелин Ко�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041531.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Rock of Ages 3: Make & Break (2020) [Ru/Multi] (1.04) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040453.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Before We Leave (2020) [Ru/Multi] (1.0171) Repack xatab (обновляемая)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038926.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Stellaris (2017) [Ru/Multi] (2.8.1.2/dlc) Repack xatab [Galaxy Edition] (обн�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038385.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Jurassic World Evolution 2 (2021) [Ru/En] (1.3.1/dlc) Repack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037960.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Nebuchadnezzar (2021) [Ru/Multi] (1.4.7/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037151.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037052.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Steel Division 2 (2019) [Ru/Multi] (46442/dlc) Repack xatab [Total Conflict Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036169.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Europa Universalis III / Европа 3 (2007) [En] (5.2/dlc) License GOG [Compl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030624.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0/dlc) Repack xatab [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029827.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029354.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Spacebase Startopia Extended Edition (2021) [Ru/Multi] (1.1.1) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023898.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/Multi] (1.0.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023887.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Empire of Sin (2020) [Ru/Multi] (1.04/dlc) Repack Other s [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021237.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017979.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ One Step From Eden (2020) [Ru/Multi] (1.6.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013305.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Partisans 1941 (2020) [Ru/Multi] (1.1.04/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006048.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Partisans 1941 (2020) [Ru/Multi] (1.1.04/dlc) License SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1935ABEEA62ACC4B87CAB0AF86CEF5CB73889AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487310   (1003698) от 04.08.2021
-
-Kingdom Rush Vengeance (2018) [Ru/Multi] (1.9.9.20) License PLAZA
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могущественный маг Везнан вернулся! Отправьтесь в эпическое путешествие и помогите ему собрать армию тьмы и воплотить в жизнь его хитрый план... ха-ха-ха! Покажите Королевству, кто тут настоящий босс! Сражайтесь и покоряйте как новые, так и уже знакомые Вам земли. Столкнитесь с могущественными империями и схлестнитесь с могучими боссами в этой классической игре в (   Читать дальше...   )Тип издания: LicenseРазработчик: Ironhide Game StudioЖанр: Strategy, Tower DefenseЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39073B42576801BE55CFE3C4405FADD14E4AAE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

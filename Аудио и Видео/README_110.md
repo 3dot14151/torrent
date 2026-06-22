@@ -1,3 +1,417 @@
+###  Публикация: 1531832   (718878) от 17.02.2022
+
+VA - Notes from the Depth, Vol. 1 (2019) [AAC|~330 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boddhi Satva, Maalem Hammam - Belma Belma (LUM Remix) (6:04)
+02. Andrew McDonnell - Engaged in Music (7:02)
+03. Squire - Kalonice (8:40)
+04. Mr. ID, Fayçal Azizi - Layalina (Sobek Remix) (7:30)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE718AB76F6CC9A9D3A2856934816314C019AB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531820   (718876) от 17.02.2022
+
+VA - Deep-House Fashion Grooves Milano (2022) [AAC|~319 Kbps] <House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mojito Groove - Gone (Original Mix) (3:54)
+02. Dee Drop - Screen (Triangle Soul Mix) (3:11)
+03. NJ Producer - First Avenue and First Street (Original Mix) (7:40)
+04. Sander Goldmann - Last Night (Original Mix) (3:18)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21899169AD304CD5275CAB14E424243310ED5C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531957   (718873) от 17.02.2022
+
+VA - Chill & Flowers: Chillout Your Mind (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)
+02. Martin Hiska - Circles (5:36)
+03. Beamy - Dream Traveler (4:48)
+04. Schwarz & Funk - 5 Am (Original Mix) (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF05FD9FE233844C2B0911494566C21A7E61413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531945   (718866) от 17.02.2022
+
+VA - Талисман (Песни композитора Дмитрия Прянова) (2022) [AAC|~328 Kbps] <Chanson, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Serov - Талисман (3:40)
+02. Рада Рай, Афина - Танцуй, красивая (3:25)
+03. Ярослав Сумишевский - Страна моей юности (3:39)
+04. Марина Девятова - У меня до тебя (3:16)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C21FAD72BD8446F501652EB081E9F248356A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400539   (718861) от 05.08.2020
+
+Неудачники / Micmacs a Tire-Larigot (2009) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базилю не везет по жизни. То он чуть не погибает от шальной пули, то становится бездомным, то однажды с такими же «счастливчиками» как и он сам не начинает бороться за справедливость. И с кем бороться — с крупнейшими в стране производителями оружия. Но, кто знает, может на этот раз удача улыбнется ему?Производство: Франция / Epithète Films, Tapioca Films, Warner BrosЖанр: Боевик, комедия, криминалРежиссер: Жан-Пьер ЖёнеАктеры: Дани Бун, Андре Дюссолье, Николас Мари, Жан-Пьер Марьель, Йоланда Моро, Жюли Ферье, Омар Сю, Доминик Пинон, Урбен Канселье, Патрик Пару, Жан-Пьер Бекер, Эрик Наггар, Арсен Моска, Доминик Беттенфельд, Жак ЭрленПеревод: ДублированныйСубтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F228E2BF2FC730AB70CB3708C366FD382ADCB9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531948   (718852) от 17.02.2022
+
+VA - Lounge Jazz In Rome (2022) [AAC|~326 Kbps] <Jazz, Nu Jazz, Lounge, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTJ XPerience, Ammuin Orchestra - Never End (Radio Version) (3:36)
+02. Papik, Frankie Lovecchio, Claudia Arvati - Acqua e Sale (4:29)
+03. Soulstance, Ana Flora - Mas Que Nada (4:16)
+04. Papik, Walter Ricci - Viento 'e Terra (4:18)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Lounge, Easy ListeningПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAA4E00F5F1F383BAD75C6F4D71BB5172850223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531953   (718747) от 17.02.2022
+
+VA - Lounge Jazz In Madrid (2022) [AAC|~329 Kbps] <Jazz, Nu Jazz, Lounge, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulstance, Ana Flora - Chega De Saudade (4:42)
+02. Ely Bruna, Papik - The Year Of The Cat (4:47)
+03. Anduze - How To Love A Good Man (3:33)
+04. Papik, The Soultrend Orchestra, Alan Scaffardi - Outstanding (4:52)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Lounge, Easy ListeningПродолжительность: 01:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4F027C3401318B86F1C0D1B208DB0F5579FEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285635   (718670) от 27.02.2019
+
+Отвязные приключения в Лондоне / Lost in London (2017) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718670.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу сюжета фильма легли реальные события, происходившие с Вуди Харрельсоном в столице Великобритании. По воле случая главный герой оказывается в Лондоне. Чтобы скоротать время, он отправляется в местный паб… Но что-то пошло не так, когда Вуди встретил там своего старинного приятеля Оуэна. Всего за одну ночь он умудрился устроить невообразимый переполох. Ему (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Драма, комедияРежиссер: Вуди ХаррельсонАктеры: Дэниэл Рэдклифф, Вуди Харрельсон, Оуэн Уилсон, Элинор Мацуура, Мартин МакКанн, Уилли Нельсон, Боно, Амир Эль-Марси, Питер Фердинандо, Али ХьюсонПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A562E26A1296092400583F39FDC9528EF0DCBAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531898   (718665) от 17.02.2022
+
+VA - Новая дискотека шансона (2021) [AAC|~341 Kbps] <Chanson, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эдуард Хуснутдинов - Не святой (4:17)
+02. Сергей Завьялов - Ивушка (3:22)
+03. Владимир Ждамиров, Лена Василёк - Огонёчек (3:54)
+04. Игорь Кибирев - Птицей лети (3:39)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 02:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA014110E89E3450E25E982ADC7ACFF90247FFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531899   (718652) от 17.02.2022
+
+VA - Новая дискотека шансона 2 (2022) [AAC|~337 Kbps] <Chanson, Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вячеслав Сидоренко - Болит душа твоя (4:37)
+02. Виктор Королев - Бриллианты (4:20)
+03. Владимир Ждамиров - А ты прости меня (4:14)
+04. Катерина Голицына - Прости меня (3:29)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 03:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E0414F01725BFA7E5A159765C9AC7925914633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285641   (718463) от 27.02.2019
+
+Робин Гуд: Начало / Robin Hood (2018) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран Крестового похода лорд Робин Локсли возвращается в родной город Ноттингем и видит, что он погряз в коррупции. Робин присоединяется к группе Весёлых Шервудских Разбойников и становится знаменитым благородным вором, продолжая при этом вести светскую жизнь для слежки за ноттингемским шерифом.Производство: СШАЖанр: Боевик, триллер, приключенияРежиссер: Отто БатхёрстАктеры: Тэрон Эджертон, Джейми Фокс, Бен Мендельсон, Ив Хьюсон, Джейми Дорнан, Тим Минчин, Пол Андерсон, Ф. Мюррэй Абрахам, Йен Пек, Корнелиус БутПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD75120A8058B2A0F5A9E6D1AF094CF89F2C2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129722   (718447) от 30.04.2017
+
+Разбуди меня  (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная Москва. Молодая девушка Женя работает на паспортном контроле аэропорта. Полтора года назад уехал и не вернулся её друг Андрей. И сейчас она не может думать ни о ком другом. На фоне этого у неё появляется дар — вещие сны. Постепенно Женя становится частью окружающего её криминального мира, и сама того не осознавая, играет в нём не последнюю роль. Благодаря (   Читать дальше...   )Производство: РоссияЖанр: Триллер, драмаРежиссер: Гийом ПроценкоАктеры: Константин Лавроненко, Даниил Воробьев, Елена Морозова, Валерий Гришко, Кирилл Пирогов, Александра Ребенок, Евгений Гришковец, Илья Древнов, Екатерина Волкова, Александр Лымарев, Ирина ВербицкаяПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48471956F24E0A121FD58632CC54D58377B21342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285643   (718392) от 27.02.2019
+
+Робин Гуд: Начало / Robin Hood (2018) BDRip [480p] iPod
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран Крестового похода лорд Робин Локсли возвращается в родной город Ноттингем и видит, что он погряз в коррупции. Робин присоединяется к группе Весёлых Шервудских Разбойников и становится знаменитым благородным вором, продолжая при этом вести светскую жизнь для слежки за ноттингемским шерифом.Производство: СШАЖанр: Боевик, триллер, приключенияРежиссер: Отто БатхёрстАктеры: Тэрон Эджертон, Джейми Фокс, Бен Мендельсон, Ив Хьюсон, Джейми Дорнан, Тим Минчин, Пол Андерсон, Ф. Мюррэй Абрахам, Йен Пек, Корнелиус БутПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78505C87D4AFAE1F84B8DD10FC3FA5B66D2A249B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285630   (718383) от 27.02.2019
+
+Больше / Bigger (2018) WEB-DL [1080p] ATV (MVO)
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Джо и Бен Уайдеры — профессиональные тренеры, всю жизнь занимавшиеся популяризацией бодибилдинга. В 1946 году они основали Международную федерацию бодибилдинга, которая впоследствии выросла в мощную и влиятельную организацию. Именно они обнаружили в Австрии молодого Арнольда Шварценеггера и уговорили его переехать в США. Фильм расскажет, как строилась империя (   Читать дальше...   )Производство: США / Bee Holder Productions, Red Sky StudiosЖанр: ДрамаРежиссер: Джордж ГаллоАктеры: Джулианна Хаф, Тайлер Хэклин, Колтон Хэйнс, Макс Мартини, Кевин Дюран, DJ Куоллс, Виктория Джастис, Стив Гуттенберг, Анейрин Барнард, Роберт ФорстерПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Английские (Full, SDH)Продолжительность: 01:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF1ECDF9BC424784D2DA63D4916617812D1DB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285646   (718373) от 27.02.2019
+
+Коллекция аудиокниг: Российская фантастика, фэнтези, мистика, ужасы 1 (2002-2018) [M4A|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция российской фантастики, фэнтези, мистики и ужасовЖанр: Фантастика, Фэнтези, Мистика, УжасыФормат: .m4a
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B441AC1ACDA3A1C19843DE3F13619D3456D8B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129380   (718145) от 30.04.2017
 
 Манчестер у моря / Manchester by the Sea (2016) BDRip [480p] iPod
@@ -6,7 +420,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718145.jpg" />
 </div>
 
 
@@ -32,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718126.jpg" />
 </div>
 
 
@@ -58,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717484.jpg" />
 </div>
 
 
@@ -84,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717300.jpg" />
 </div>
 
 
@@ -110,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717249.jpg" />
 </div>
 
 
@@ -136,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716997.jpg" />
 </div>
 
 
@@ -162,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716994.jpg" />
 </div>
 
 
@@ -188,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716989.jpg" />
 </div>
 
 
@@ -214,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716820.jpg" />
 </div>
 
 
@@ -240,7 +654,7 @@ VA - Notes from the Depth, Vol. 4 (2019) [AAC|~314 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716772.jpg" />
 </div>
 
 
@@ -269,7 +683,7 @@ VA - Notes from the Depth, Vol. 5 (2019) [AAC|~336 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716770.jpg" />
 </div>
 
 
@@ -283,423 +697,6 @@ VA - Notes from the Depth, Vol. 5 (2019) [AAC|~336 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4671FA2563BFB20B6C2562B60D852D1E75DFC0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532079   (716765) от 18.02.2022
-
-VA - Iconic Lounge (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossing Colors - Bright Sun Rays (5:33)
-02. Leisure Pleasure - Grape Leaves (5:54)
-03. Exquisite Frame - Supernatural Twist (6:15)
-04. The Biosnakes - Drop Me a Line (5:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608F87C340DD8FEE95BAF41C7670EEEA1884A9CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532229   (716760) от 18.02.2022
-
-VA - Lounge Jazz in Rio De Janeiro (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zeb - Brazilenco (5:40)
-02. Gazzara - Rhodes to Bahia (5:49)
-03. LTJ XPerience - Sombre Guitar (2Gether Project Trumpet Take) (6:12)
-04. DJ Rodriguez - Peter Pan's Syndrome (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C21B71CECAB36A8D946C3A196F970D027C6583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532083   (716754) от 18.02.2022
-
-VA - Summer Vibes (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koenig Eltz - Alluded (5:47)
-02. Schlichting - Rethinking (6:00)
-03. Pique Dame - Souvenir de Bordeaux (6:14)
-04. Fascinating Case - Immersive Experiences (5:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F470E243F6D82880CD3DBEB31F94574555ABD192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532069   (716752) от 18.02.2022
-
-VA - Lounge Jazz in New York (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ohm Guru - Please, Please, Please, Let Me Get What I Want (3:35)
-02. Matteo Brancaleoni - How Am I Supposed to Live Without You (5:21)
-03. Banda Brasileira - Cosmic Girl (4:34)
-04. Agostino Maria Ticino - An Easy Way to Spend a Day (2:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7E4A5D7011CC8C005621E815F0C2B289ED9A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532237   (716751) от 18.02.2022
-
-VA - Lounge Jazz in Berlin (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joao Donato, Palmyra, Levita - A Rà (4:39)
-02. Mauro Falardo - The Yellow Karma (5:39)
-03. Papik, Alan Scaffardi - Crazy (4:32)
-04. Jestofunk - Say it again (6:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE4A92899CD7E4FF434690022FB460E02D05979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285876   (716673) от 28.02.2019
-
-Вы умрете, или мы вернем вам деньги / Dead in a Week: Or Your Money Back (2018) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716673.jpg" />
-</div>
-
-
-###  Подробнее
-
-После очередной неудавшейся попытки свести счеты с жизнью незадачливый писатель Уильям обращается к услугам наемного убийцы Лесли — неумолимого ангела смерти из «Гильдии Убийц» — организации, готовой оказать помощь всякому, кто нуждается в быстром и безболезненном уходе из жизни. У Лесли доброе сердце, но нетвердая рука. Начальство мечтает отправить его на пенсию, (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, комедияРежиссер: Том ЭдмундсАктеры: Кристофер Экклстон, Анайрин Барнард, Том Уилкинсон, Фрейя Мавор, Гетин Энтони, Найджел Линдсэй, Мэрион Бэйли, Натали Баскомб, Марсия Уоррен, Велибор ТопичПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F785F484C2872FAA3672DAE5260CD2C2C8D0B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532232   (716644) от 18.02.2022
-
-VA - Lounge Jazz in Los Angeles (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I-dep - Make Somebody Smile (Club Edit) (6:01)
-02. Belladonna - Melodies (7:30)
-03. Big Mojo - Don't Cry for Me (Submantra Deep Remix) (6:26)
-04. Papik, Ely Bruna - Special Love (3:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8BC9F8E638243045F3405B314157382EE13266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532073   (716640) от 18.02.2022
-
-VA - Lounge Jazz in Paris (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~338 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dagmar's Collective - C'Est Si Bon (2:26)
-02. LTJ-Xperience - And I Love Him (Remix) (5:47)
-03. Kelly Joyce - Ce Que J'Aime de Toi (Alternative Version) (2:46)
-04. Arcoiris - Volta Pro Mar (5:05)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0702C4334D92E15031B51F960F48629EEF57AFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532236   (716639) от 18.02.2022
-
-VA - Lounge Jazz in Moscow (A Chillout and Bossa Jazzy Collection) (2014) [AAC|~344 Kbps] <Lounge, Chill Out, Downtempo, Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Mighty Wax - Shake Your Heart (4:01)
-02. Cybophonia - Vostok Jazz (4:52)
-03. Papik, Walter Ricci - My Sharona (2:50)
-04. LTJ XPerience - Feel My Soul (5:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, JazzПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB92449E2A3D817C0B222F7A4132757F47281157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668677   (716601) от 18.06.2013
-
-Темный рыцарь: Возрождение легенды / The Dark Knight Rises (2012) [1080p] BDRip [ATV]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_716601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемь лет назад Бэтмен растворился в ночи, превратившись из героя в беглеца. Приняв на себя вину за смерть прокурора Харви Дента, Темный рыцарь пожертвовал всем. Вместе с комиссаром Гордоном они решили, что так будет лучше для всех. Пока преступность была раздавлена антикриминальным актом Дента, ложь действовала.
-
-Но с появлением хитрой воровки с загадочным прошлым (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, Драма, КриминалРежиссер: Кристофер Нолан
-Актеры: Кристиан Бэйл, Том Харди, Энн Хэтэуэй, Джозеф Гордон-Левитт, Марион Котийяр, Гари Олдман, Морган Фриман, Майкл Кейн, Мэтью Модайн, Бен Мендельсон, Дэниел Сунджата, Эйден Гиллен, Лиам Нисон, Алон Абутбул, Берн Горман, Нестор Карбонелл, Джуно Темпл, Брент Бриско, Регги Ли, Крис Эллис, Киллиан Мёрфи, Том Конти, Десмонд Харрингтон, Бретт КалленПеревод: Русский, Английский, УкраинскийСубтитры: русские, английскиеЯзык субтитров: Русский (форсированный), Русский, Английский, Английский (SDH)Продолжительность: 02:44:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285748   (716570) от 28.02.2019
-
-Лоро / Loro (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716570.jpg" />
-</div>
-
-
-###  Подробнее
-
-На закрытых вечеринках и дорогих приемах в Риме и на Сардинии его всегда окружают самые красивые и самые опасные люди, готовые на все, лишь бы получить доступ к живой легенде. «Лоро» («они») — это нувориши-итальянцы и их нравы, воплощение которых — тиран и весельчак, гедонист и романтик, скандальный политик и миллиардер Сильвио Берлускони.Производство: Италия, Франция / Direzione Generale Cinema, Fondazione Sardegna Film Commission, Indigo Film, OCS, Pathe, Regione LazioЖанр: Биография, ДрамаРежиссер: Паоло СоррентиноАктеры: Тони Сервилло, Елена София Риччи, Риккардо Скамарчо, Касия Смутняк, Эвридиче Аксэн, Фабрицио Бентивольо, Роберто Де Франческо, Дарио Кантарелли, Анна Бонаюто, Джованни ЭспозитоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78B31E4D728A2E83DE384F71569CBC07C06DCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285870   (716559) от 28.02.2019
-
-З.К. / O.G. (2018) WEB-DL [1080p] ATV AMZN (MVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луи — заключенный учреждения строгого режима в Индиане. Он бывший предводитель опасной тюремной банды, который проводит последние недели своего 24-летнего срока. Но после появления в тюрьме дерзкого молодого парня по имени Бичер его скорое освобождение может сорваться.Производство: США / Brookstreet Pictures, Great Curve FilmsЖанр: ДрамаРежиссер: Мадлен СэклерАктеры: Джеффри Райт, Уильям Фихтнер, Бойд Холбрук, Мэр Уиннингхэм, Дэвид Патрик Келли, Юл Васкес, Бахни Турпин, Райан Кутрона, Ато Эссонда, Кевин ДжексонПеревод: Профессиональный многоголосый (Amedia)Субтитры: Английские (вшитые, отключаемые)Продолжительность: 01:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53125D136508F3F71133EBBBB9ECF011C2E5C663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285875   (716556) от 28.02.2019
-
-Звезда родилась / A Star Is Born (2018) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кантри-музыкант Джексон Мейн, чья карьера быстро катится под откос, однажды знакомится с никому не известной талантливой певицей Элли. Между героями вспыхивает страстный роман. Джек помогает Элли добиться успеха. Но чем стремительнее набирает обороты музыкальная карьера Элли, тем сложнее ему мириться со своей увядающей славой.Производство: СШАЖанр: Мелодрама, музыкаРежиссер: Брэдли КуперАктеры: Леди Гага, Брэдли Купер, Сэм Эллиотт, Эндрю Дайс Клэй, Рафи Гаврон, Энтони Рамос, Дэйв Шаппелл, Алек Болдуин, Марлон Уильямс, Брэнди КарлайлПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  АнглийскиеПродолжительность: 02:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD48C8C3D6CF8C0BB653298530BB0D947B1E3237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791282   (715896) от 30.05.2014
-
-Лего. Фильм / The Lego Movie (2014) HDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная лего-фигурка соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Жанр: Мультфильм, фэнтези, комедия, приключения, семейныйПродюсер: Рой Ли, Дэн Лин, Эллисон ЭббейтВ ролях: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Крэйг Берри, Элисон Бри, Дэвид Берроуз, Энтони ДэниелсПеревод: Профессиональный (дублированный) (iTunes Russian)Язык субтитров: Русский, АнглийскийПродолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10D4ABE37C64A78CFAB2451C6EE7E4FD5A03F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130337   (715870) от 01.05.2017
-
-Обитель зла: Последняя глава / Resident Evil: The Final Chapter (2016) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия фильма разворачиваются с того момента, на котором закончилась предыдущая часть. После того как Вескер предал Элис в Вашингтоне, конец истории человечества стал еще ближе. Элис — последняя надежда на спасение мира. Она должна вернуться к точке отсчета, туда, где все и началось — город Раккун-Сити, где корпорация «Амбрелла» готовится к финальной атаке по тем, (   Читать дальше...   )Производство: США, Германия, Франция, Великобритания, Япония, Канада, ЮАР, АвстралияЖанр: Ужасы, фантастика, боевик, триллерРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Иэн Глен, Эли Лартер, Шон Робертс, Оуэн Мэкен, Фрайзер Джеймс, Руби Роуз, Уильям Леви, Рола, Эвер АндерсонПеревод: Дублированный (Blu-ray CEE)Субтитры: Русские форсированные, Русские, АнглийскиеПродолжительность: 01:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48104F7C873BC60BD07AD9D835944F0FCA4B8645
 ```
 
 https://mybot314.ru/tekegram_catalog/

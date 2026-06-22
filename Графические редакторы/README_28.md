@@ -1,22 +1,75 @@
-###  Публикация: 1614788   (202348) от 23.02.2023
+###  Публикация: 1611805   (202732) от 13.02.2023
 
-Фото на документы Профи 9.35 [Ru]
+ФотоВИНТАЖ 4.0 Portable by conservator [Ru]
 
 >>Мультимедиа и Графика
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_202348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фото на документы Профи - это удобная программа для быстрой подготовки и печати фото на документы. Включает готовые форматы документов всех необходимых форматов: внутренний и заграничный паспорт, визы различных стран, удостоверения и пропуска. Она позволяет всего за несколько минут получить фотографию на документ профессионального качества. Программа имеет простой (   Читать дальше...   )Язык интерфейса: Русский
+ФотоВИНТАЖ — это мощный редактор, в котором можно восстановить старые фотографии. Нужно отреставрировать повреждённый снимок родственников или раскрасить чёрно-белое фото бабушки? В программе ФотоВИНТАЖ даже новички сделают это за 2 минуты!
+Вам больше не понадобятся услуги профессиональных реставраторов фото! В ФотоВИНТАЖЕ вы сможете самостоятельно убрать царапины (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15869713CF6EC8504D085AA68BAF0C8F7A021A12
+magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613859   (202586) от 19.02.2023
+
+HitPaw Photo Enhancer 2.0.3.1 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202586.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Photo Enhancer - это наиболее полный инструмент улучшения изображений для всех пользователей, позволяющий обновлять образ и повышать качество изображения. С его помощью вы можете сделать фотографию намного яснее, увеличить изображение без снижения качества, исправить размымые изображения и т.д.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1041CAFFF67E5CC5A5A25B92DC91DED327405C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614612   (202495) от 22.02.2023
+
+Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снимайте в любом месте при любом освещении без оговорок. Устраните шум и восстановите четкие детали на ваших изображениях с помощью первого инструмента для подавления шума - DeNoise AI. Вы можете быть удивлены полученными результатами.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D4BC44A8DD3866388DDE86124FD0FBA172E947
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -32,7 +85,7 @@ Perfectly Clear WorkBench 4.8.0.2871 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202212.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Paint Tool SAI 2 20230711 Technical Preview [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202180.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Topaz DeNoise AI 3.7.2 (x64) RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201963.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ FireAlpaca 2.13.26 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201822.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Topaz DeNoise AI 3.7.2 RePack (& Portable) by TryRooM [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201743.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Ashampoo Photo Commander 17.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201575.jpg" />
 </div>
 
 
@@ -183,33 +236,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618094   (201561) от 09.03.2023
-
-Ashampoo Photo Commander 17.0.3 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_201561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Множество возможностей: более 200 функций для твоих фото в одной программе
-Ashampoo Photo Commander 17 - это мощное решение для просмотра, редактирования и организации твоих фотографий. Наведи порядок в своей коллекции, выполняй оптимизацию любого количества фотографий одновременно и создавай стильные календари, открытки или даже слайд-шоу в кратчайшие сроки! Преврати (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA8207EB351315CF6E6A2CDD65A45D27AFF06B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1828945   (199941) от 24.10.2025
 
 reaConverter Pro 8.0.148 [Multi/Ru]
@@ -218,7 +244,7 @@ reaConverter Pro 8.0.148 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199941.jpg" />
 </div>
 
 
@@ -237,32 +263,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627166   (199652) от 17.04.2023
-
-ФотоМАСТЕР 16.7 Portable by conservator [Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_199652.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФотоМАСТЕР - мощная программа, позволяющая быстро и качественно улучшать фотографии. Благодаря инновационной архитектуре, "ФотоМАСТЕР" даёт возможность изменять любые параметры фотоснимков и отменять эти изменения в любом порядке без потери качества.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A19A2DEE03EBF507626A3AB0D4CEB04928BE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627435   (199552) от 19.04.2023
 
 Filter Forge Studio Edition 12.6.714 [En]
@@ -271,7 +271,7 @@ Filter Forge Studio Edition 12.6.714 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199552.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ SoftColor PhotoEQ 10.10.2305 RePack by 78Sergey [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_198875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198875.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ CyberLink PhotoDirector Ultra 14.5.1627.1 (x64) RePack by PooShock [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198605.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Franzis SHARPEN projects 4 professional 4.37.03697 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198598.jpg" />
 </div>
 
 
@@ -367,32 +367,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632470   (198582) от 10.05.2023
-
-Adobe Animate 2023 23.0.2.103 RePack by KpoJIuK [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_198582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Animate, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate CC также позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96AD873424442C14725C8CCA245794844E94986A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635547   (197975) от 26.05.2023
 
 ФотоМОНТАЖ 1.45 Repack KaktusTV [Ru/En]
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197975.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ PhotoDiva Pro 5.0 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197126.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ PT Portrait 6.0.1 (x64) Studio Edition RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196803.jpg" />
 </div>
 
 
@@ -473,58 +447,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642209   (196584) от 26.06.2023
-
-PhotoDiva Pro 5.0 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_196584.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDiva - программа для ретуши портретных фотографий. Подойдет начинающим фотографам и тем, кто хочет быстро улучшить снимки. Избавляйтесь от засветок, удаляйте любые дефекты на коже и случайно попавших в кадр людей, меняйте неудачный фон на фотографиях, корректируйте черты лица, добавляйте макияж — все это можно сделать в программе за пару секунд. Позволяет улучшать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9CDA49E0C47AC4B7B4D33E56208C23CD90D318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642418   (196459) от 27.06.2023
-
-PhotoDiva Pro 5.0 Portable by 7997 [Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_196459.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoDiva - программа для ретуши портретных фотографий. Подойдет начинающим фотографам и тем, кто хочет быстро улучшить снимки. Избавляйтесь от засветок, удаляйте любые дефекты на коже и случайно попавших в кадр людей, меняйте неудачный фон на фотографиях, корректируйте черты лица, добавляйте макияж — все это можно сделать в программе за пару секунд. Позволяет улучшать (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4B756E2C89AB863D91535E657ADD3F2C768BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652020   (194596) от 09.08.2023
 
 PhotoInstrument 7.7 Build 1052 [Multi/Ru]
@@ -533,7 +455,7 @@ PhotoInstrument 7.7 Build 1052 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194596.jpg" />
 </div>
 
 
@@ -551,32 +473,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653283   (194334) от 15.08.2023
-
-Green Screen Wizard Professional 12.2 [En]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_194334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Green Screen Wizard - это автономная программа для работы с хромакеем, которая не требует использования Photoshop или других приложений для редактирования фотографий.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8769B8061DF783E63DCEA84E6C4C5596529428B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654900   (193943) от 23.08.2023
 
 SoftOrbits Sketch Drawer Pro 10.01 (акция Comss) [Multi/Ru]
@@ -585,7 +481,7 @@ SoftOrbits Sketch Drawer Pro 10.01 (акция Comss) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193943.jpg" />
 </div>
 
 
@@ -611,7 +507,7 @@ AliveColors 10.0.4853 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193384.jpg" />
 </div>
 
 
@@ -640,7 +536,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191929.jpg" />
 </div>
 
 
@@ -666,7 +562,7 @@ MediBang Paint Pro 29.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191477.jpg" />
 </div>
 
 
@@ -677,6 +573,112 @@ MediBang Paint Pro 29.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD740EFB8B4F1FC34B6A2EECACC3918EA87328DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589396   (190135) от 09.11.2022
+
+Capture One Pro 22 16.0.0.143 Portable by conservator [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F069CDDF9505B739D04B3BB4FBB1B1E9BC6176E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591273   (187417) от 17.11.2022
+
+Stepok Recomposit Pro 8.0.0.1 [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stepok Recomposit — это современное программное обеспечение для создания фотокомпозитов, которое поможет фотографам всех типов. Он позволяет вырезать объект из фона, сохраняя при этом все детали и прозрачность.
+Вырезание объекта, маскирование объекта или извлечение объекта из фона может быть сложной задачей для многих пользователей, но Recomposit упрощает ее. Предоставляя (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60BBCB7BAAADC27F07580F259B1B7296A860569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591757   (186636) от 19.11.2022
+
+Adobe Illustrator 2023 (27.0.1.620) Portable by XpucT [Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Illustrator – мощнейший инструмент для работы с векторной графикой. Дизайнеры используют его в разных целях: в рекламе, поздравительных открытках, плакатах, книгах, графических романах, раскадровках, журналах, газетах и других. Программа обладает широким набором инструментов для рисования и возможностями управления цветом и текстом.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AB36C3677985DDD9C4014D5B88F60DE05E3E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663737   (186178) от 24.09.2023
+
+Upscayl 2.8.6 [En]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная (freeware) программа для апскейлинга фото.
+Отличается небольшим весом, имеет интуитивно понятный интерфейс и несколько пресетов обработки изображения.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627ACFFA90B3B04C329286BB4BEBC7A6E565E3A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

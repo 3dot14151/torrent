@@ -1,3 +1,107 @@
+###  Публикация: 1455609   (243732) от 19.03.2021
+
+Юлия Варенцова | День Ангела. Рассказы о святых (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный рассказ о необыкновенных и очень разных судьбах святителей и угодников, мучеников и преподобных. Попытка воссоздания их живого образа, внимательная реконструкция биографии героев в контексте той или иной исторической эпохи. Мы нашли отголоски жизней святых в современности, побывали в местах, где они родились, проповедовали и несли свой подвиг. Мы устроили (   Читать дальше...   )Жанр: Биографии и мемуары, Православие, ХристианствоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DE89F5FCBA51C314F51CE927530A8D52B0738C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076875   (243712) от 26.11.2016
+
+К.С. Дружинина | Концепция прав и свобод человека в Русской Православной Церкви в контексте мировой политики (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243712.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассматриваются современная концепция достоинства, прав и свобод человека, разработанная в Русской Православной Церкви, и практическая правозащитная деятельность последней. Автор дает комплексный обзор теоретических положений концепции, анализирует деятельность Церкви по ее реализации, рассматривает существующую критику православной концепции прав человека, (   Читать дальше...   )Жанр: МонографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B4AB27D077A52DAF5056E805F6C252B861D92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455670   (243690) от 20.03.2021
+
+Елена Зубова (сост.) | С радостью примем пост. Как поститься с пользой? (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое христианский пост и в чём он состоит? Чем пост отличается от диеты? Обязательно ли его соблюдать? Как правильно поститься, чтобы не навредить душе и телу? Какова истинная цель поста? Какие бывают церковные посты? На эти и многие другие вопросы ответит эта небольшая книжка о посте.Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91811692727272B8266511B403A9C081A73F6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612757   (243608) от 17.02.2023
+
+Святитель Феолипт Филадельфийский | Аскетические творения. Послания (2018) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Феолипт Филадельфийский (1250 – ок. 1326) – одна из самых ярких личностей в истории святоотеческого богословия и византийской церковной письменности. Его можно считать первым представителем поздневизантийского исихазма и учителем святителя Григория Паламы. К сожалению, до недавнего времени творения этого выдающегося подвижника и духовного писателя были (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAA332EDD251A0450037B9067F40002F56D5C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612780   (243588) от 17.02.2023
 
 Русскiй Хронографъ (изд.) | Преподобного Орсисия, аввы Тавенисиотского, учение об устроении монашеского жительства (1994) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243588.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243519.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243498.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243462.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243409.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243326.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243237.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243150.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243081.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242980.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242960.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242886.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242875.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242820.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242819.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242771.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242610.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242602.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242550.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242540.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242488.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242388.jpg" />
 </div>
 
 
@@ -575,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E4C66EB760F601E2AC98131AF98935A5C0F362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616537   (242347) от 03.03.2023
-
-Николай Посадский | О Божественной литургии (2017) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Божественная литургия – это главное из богослужений, во время которого совершается таинство Церкви: таинство Причащения, или Евхаристия. Первую литургию совершил Сам Господь наш Иисус Христос в Сионской горнице. Отныне каждая литургия становится продолжением этого события. По словам святого праведного Иоанна Кронштадтского, «В даровании Божественной литургии Церкви (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23534023B83CEC687E3111C8D6397AA123EB2A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635123   (242125) от 24.05.2023
-
-Митрополит Антоний Сурожский | Любовь всепобеждающая. Проповеди, произнесенные в России (2021) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242125.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Быть христианином – это быть подвижником; и однако самим нам спастись невозможно. Наше призвание настолько высоко, настолько велико, что человек своими силами не может осуществить его. Я уже говорил, что мы призваны быть как бы привитыми к человечеству Христа, как веточка прививается к животворному дереву – с тем, чтобы жизнь Христова била ключом в нас, чтобы мы (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C859BC7FD03643E6AE4114D45EA3EE698B6360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635119   (242105) от 24.05.2023
-
-Епископ Василий (Родзянко) | Живет во мне Христос. О смысле жизни и православной веры (2020) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл бесед епископа Василия (Родзянко) (1915-1999) посвящен основным проблемам духовной жизни современного человека. В них собран поразительный опыт владыки, накопленный более чем за полвека священнического, а затем епископского служения. Эти годы были связаны с драматическими событиями жизни в эмиграции, тюремным заключением, преодолением тягот военных и послевоенных (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F005BBAAD6853B32BDE79999BF8407EED6E3084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635127   (242095) от 24.05.2023
-
-Сибирская Благозвонница | Молитвослов на церковнославянском языке (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молитвослов на церковнославянском языке содержит молитвы утренние, молитвы на сон грядущий, Помянник, Каноны и Акафисты, а также Последование ко Святому Причащению и Благодарственные молитвы по Святом Причащении.Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A743365BA61EFABC451138026D7CA3BDA83AADE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

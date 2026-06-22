@@ -1,3 +1,55 @@
+###  Публикация: 1705314   (63589) от 08.03.2024
+
+macOS 14 Sonoma 14.4 (Installer) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63589.jpg" />
+</div>
+
+
+###  Подробнее
+
+macOS Sonoma открывает новые возможности для работы и творчества. Выбирайте великолепные заставки и добавляйте виджеты прямо на Рабочий стол. Демонстрируйте свою работу, оставаясь на переднем плане во время видеовызова. Организуйте просмотр сайтов, используя профили Safari и веб‑приложения. Повышайте производительность игр в игровом режиме. Обновление также (   Читать дальше...   )Тип издания: InstallerРелиз состоялся: 07ю03.2024Разработчик: © 2022 Apple, Inc.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92528164EA83A7BD272C07C6E2E7B773BC214E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706199   (63367) от 11.03.2024
+
+Adobe Illustrator for Mac 2024 v.28.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте векторную графику в программе, которую используют профессионалы. Оцените все возможности: от веб- и мобильной графики до логотипов, значков, иллюстраций, дизайна упаковки и рекламных щитов. Наслаждайтесь свободой творчества с Illustrator.Тип издания: macOS SoftwareРелиз состоялся: февраль 2024Разработчик: © 1987 - 2023 AdobeПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D987A5F2FB949B9787DF2BFAF5E4CA8AB9D9EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706095   (63284) от 11.03.2024
 
 Dynamic Wallpaper Engine 17.5 [En]
@@ -6,7 +58,7 @@ Dynamic Wallpaper Engine 17.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63284.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Wondershare Recoverit for Mac 12.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62759.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Movist Pro 2.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62245.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.5 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62214.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56556.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53199.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52678.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50657.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49819.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47168.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47117.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43592.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41766.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40401.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35971.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32194.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32191.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31591.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30378.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26529.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20262.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19943.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18323.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16712.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86AC81756F752DA55F9739CC13125A8B490B6B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801293   (15072) от 10.06.2025
-
-4K Video Downloader + 25.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2025Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82627897E0B05541ABA84566369230A2EED67A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805165   (12468) от 05.07.2025
-
-4K Video Downloader + 25.2.0.210 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.07.2025Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C16C9E50F06DC31F451CC51A9D02FCF8BF6D42C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,92 @@
+###  Публикация: 967466   (158709) от 20.12.2015
+
+Карел Яромир Эрбен | Златовласка (1968/2005) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158709.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждой страны, каждого народа есть свой любимый герой. Одни герои – полководцы и короли, другие – простые крестьяне. Чаще всего такой герой – обыкновенный человек, и на первый взгляд ничего особенного в нём не найдёшь. Нередко таких людей считают глупыми или ничтожными, пока не покажет он себя настоящим богатырём, умным, сильным – умнее и сильнее самих царей. У (   Читать дальше...   )01 | Златовласка. Часть 1 | 08:18
+02 | Златовласка. Часть 2 | 09:21
+03 | Златовласка. Часть 3 | 07:45
+04 | Златовласка. Часть 4 | 09:36Жанр: АудиоспектакльПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7A2C33E09757F3112C39DD52DBA6194BCD2185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967421   (158702) от 20.12.2015
+
+Д. Мамин-Сибиряк | Сказка про славного царя Гороха (1982/2008) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158702.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моё время — это большее или меньшее количество написанных глав, а с последней главой заканчивается и то, что называется жизнью». Человек, написавший эти строки, имел полное право на подобное утверждение: две трети его не такой уж долгой (1852—1912) жизни связаны с непрекращающимися занятиями литературой.01 | Сказка про славного царя Гороха. Часть 1 | 09:40
+02 | Сказка про славного царя Гороха. Часть 2 | 13:48
+03 | Сказка про славного царя Гороха. Часть 3 | 15:16
+04 | Сказка про славного царя Гороха. Часть 4 | 08:51Жанр: АудиоспектакльПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F54D7DA7C544C5CFAD8F84497509F191B40613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967152   (158688) от 20.12.2015
+
+Приключения Пифа (1959,1960/2008) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пиф - это пес охотничьей породы. Он живет в семье, где есть мама, папа и сынишка Дуду.
+Можно с уверенностью сказать, что семья эта была бы совсем обыкновенной, если бы не Пиф.
+Вот уж с кем не соскучишься!
+Мало того, что с ним все время происходят разные истории, так он еще и придумывает себе и своим друзьям неожиданные приключения!(   Читать дальше...   )01 | Приключения Пифа. Часть 1 | 14:00
+02 | Приключения Пифа. Часть 2 | 15:27
+03 | Приключения Пифа. Часть 3 | 15:48Жанр: Музыкальная сказка / инсценировкаПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3137402A1F58C8608A1079AF41FE49EF5CA8912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967435   (158685) от 20.12.2015
 
 Василий Жуковский | Сказка о Иване-царевиче и Сером Волке, Сказка о царе Берендее (1969,1978/2013) [WavPack]
@@ -6,7 +95,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158685.jpg" />
 </div>
 
 
@@ -35,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158604.jpg" />
 </div>
 
 
@@ -66,7 +155,7 @@ VA - Фиксипелки 2. 20 любимых песен Фиксиков (2013
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158582.jpg" />
 </div>
 
 
@@ -92,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158477.jpg" />
 </div>
 
 
@@ -121,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157152.jpg" />
 </div>
 
 
@@ -147,7 +236,7 @@ DetkiTV - Песни для детей (2018) [MP3|320 Kbps] <Детские п�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156801.jpg" />
 </div>
 
 
@@ -176,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156065.jpg" />
 </div>
 
 
@@ -202,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155951.jpg" />
 </div>
 
 
@@ -228,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154910.jpg" />
 </div>
 
 
@@ -254,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154747.jpg" />
 </div>
 
 
@@ -280,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154682.jpg" />
 </div>
 
 
@@ -308,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154556.jpg" />
 </div>
 
 
@@ -334,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154483.jpg" />
 </div>
 
 
@@ -360,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154348.jpg" />
 </div>
 
 
@@ -389,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153397.jpg" />
 </div>
 
 
@@ -416,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153147.jpg" />
 </div>
 
 
@@ -442,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152956.jpg" />
 </div>
 
 
@@ -468,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151989.jpg" />
 </div>
 
 
@@ -494,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151789.jpg" />
 </div>
 
 
@@ -529,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151152.jpg" />
 </div>
 
 
@@ -555,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150750.jpg" />
 </div>
 
 
@@ -581,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150344.jpg" />
 </div>
 
 
@@ -607,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149020.jpg" />
 </div>
 
 
@@ -618,86 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2694907F5FEF58FD8646174171EF633E85921D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347770   (148882) от 24.12.2019
-
-Фрэнсис Хардинг | Колодец желаний (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148882.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то утро Райан проснулся с паршивым ощущением – день не задался с самого начала. Увидев в зеркале чужое лицо, он чуть не свернул себе шею. А еще ему повсюду мерещилась вода. С лучшими друзьями тоже творились странные вещи. Челли начала читать мысли других людей, а рядом с Джошем перегорали и взрывались лампочки.
-Что же это за колдовство?
-Всему виной горстка монет, (   Читать дальше...   )Жанр: Детские остросюжетныеПродолжительность: 08:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449D8ABC91DD662473EF53E1906922473B292690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347755   (148648) от 24.12.2019
-
-Кир Булычев | Похищение чародея (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы решили отдохнуть в уютном деревенском домике – хорошенько подумайте. Не пришлось бы оказаться втянутым в гнусную историю с похищением из Древней Руси гениального чародея – изобретателя…Жанр: Детская, фантастикаПродолжительность: 05:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB875E3F69D1D10E9DEB537145E6384B541F4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434981   (148547) от 26.12.2020
-
-Ирина Наумова | Господин Куцехвост, Одуванчик и большая оттепель. Книга 2 (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга замечательной современной писательницы про мышиное семейство Куцехвостов, живущее в дачном поселке. Маленького мышонка Одуванчика и его друга Мышеврага ждут новые приключения. А все началось с того, что Одуванчик решил переплыть в спичечном коробке лужу, которая образовалась у дома… Коробок размок, Одуванчик провалился в ледяную воду, но все-таки добрался (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 02:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767B274C8F6664D1194478CA39E6F20F4F42C816
 ```
 
 https://mybot314.ru/tekegram_catalog/

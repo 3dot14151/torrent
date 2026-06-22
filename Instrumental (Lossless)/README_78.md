@@ -6,7 +6,7 @@ Orango - Mohican (2022) [FLAC|Lossless|WEB-DL|tracks] <Vintage Hard Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324335.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Philip Sayce - Innerevolution (2010) [FLAC|Lossless|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323707.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nora Jean Wallace - BluesWoman (2020) [FLAC|Lossless|WEB-DL|tracks] <Chicago Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322209.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ God's Property - From Kirk Franklin's Nu Nation (1997) [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321394.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Eddy "The Chief" Clearwater - Reservation Blues (2000) [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321282.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Grainne Duffy - Where I Belong (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319329.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Shannon Curfman - 4 Albums (1999 - 2010) [FLAC|Lossless|tracks + .cue]<Blues/Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314926.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Various Artists - Blues Piano-Rama (2010) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_313361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_313361.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Various Artists - Harmonica Blues - Blowing from Memphis to Chicago (2004) [WavP
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_313360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_313360.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Snowy White & The White Flames - Sоmething Оn Me (2020) [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313161.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Screamin' Jay Hawkins - Cow Fingers & Mosquito Pie (1991) Compilation [APE|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312042.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ YUM - Hot Wax (2019) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311692.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Band of Heysek - Bad Ideas (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310815.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Stevie Wonder - 12 Albums Collection (1966-1985) /Japanese SHM-CD Reissue 2012/ 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307058.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Gregg Wright's Left Hook - Round One (1995) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303528.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Albert Collins, Robert Cray, Johnny Copeland - Showdown! (1985) Remastered, 2011
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300515.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Diana Ross - Diamond Diana: The Legacy Collection (2017) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298884.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Van Morrison - Three Chords And The Truth (2019) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298836.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Joe Bonamassa - Live At The Sydney Opera House (2019) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298746.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Dave Hole - The Live One (2003) Live [APE|Lossless|image + .cue] <Blues Rock, Mo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290410.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Aynsley Lister - Eyes Wide Open (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290239.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Roadhouse - Broken Land (2006) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290014.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Rag'n'Bone Man - Human (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Rhyt
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289581.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Michael Kiwanuka - Kiwanuka (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Rock, Fu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289209.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Bluesville Station - Step On The Gas (2012) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288553.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ King King - Exile & Grace (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284560.jpg" />
 </div>
 
 

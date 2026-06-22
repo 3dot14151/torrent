@@ -1,3 +1,90 @@
+###  Публикация: 955116   (336914) от 09.11.2015
+
+Scorpions - World Wide Live (1985) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|320 кб/с]<Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown
+02. Coming Home
+03. Blackout
+04. Bad Boys Running Wild(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3CA2F1E291E1E4C3E72A7EB67C268388816DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579480   (336411) от 27.09.2022
+
+Talas - 1985 (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Mounting Flame
+02. I'll Take The Night
+03. Crystal Clear
+04. Don't Try To Stop Me Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFA6B7CC974DBCECBC05F6AD09783E2BDA73EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074857   (336032) от 20.11.2016
+
+Mountain - Super Hits (1998) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi Queen (02:31)
+02. Theme From An Imaginary Western (05:07)
+03. Never In My Life (03:52)
+04. Flowers Of Evil (04:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A876CB5F4F7629E436BD1662384B0105B829AF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181175   (335583) от 06.11.2017
 
 Iconic Eye - Into The Light (2017) [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +93,7 @@ Iconic Eye - Into The Light (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335583.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Torchlight Parade - 3 Albums (2014-2022) [MP3|320 Kbps] <Classic Hard Rock, Heav
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334692.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Nordic Union - Second Coming (2018) Japanese Edition [MP3|320 Kbps] <Melodic Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334342.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Alice Cooper - Live from the Astroturf (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334330.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ Harlis - Harlis (1976) Reissue, 2009, Sireena Records [MP3|320 кб/с]<Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332624.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ Big Bad Bubba - Unleashed (2003) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331290.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Uriah Heep - Totally Driven (2015) 2CD [MP3|320 кб/с]<Hard Rock, Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330978.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ Lifeline - Scream (2015) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329413.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Jeff Brown (Ex-Sweet) - 23 Years (2015) [MP3|320 кб/с]<Hard Rock, Classic Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328413.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Days Of Jupiter - Secrets Brought To Life (2012) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327655.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Dirty Sound Magnet - What Lies Behind (2012) [MP3|320 кб/с]<Blues rock, Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326711.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ The Warrior Kings - The Warrior Kings (2012) [MP3|320 кб/с]<Blues rock, Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326708.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ AC/DC - POWER UP (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323699.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Trishula - 3 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323482.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Nazareth - The Singles(2CD) (2012) [MP3|320 кб/с]<Hard Rock, Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322350.jpg" />
 </div>
 
 
@@ -444,7 +531,7 @@ Striker - Striker (1978) Reissue, 2014, Hard Rock Diamonds [MP3|320 Kbps] <Melod
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321161.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ Bon Jovi & Queen - FM Broadcast (2020) [MP3|320 Kbps] <Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319540.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ Shakra - Snakes & Ladders (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319202.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ Lionsheart - Heart of the Lion (2019) 5CD Box Set [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318490.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ AC/DC - Rock Or Bust (2014) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317785.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) Japanese Edition [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317569.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Whitesnake - Love Songs (2020) 2020 Remix [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317412.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Incround - Down on Your Knees (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314041.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ Incround - Down on Your Knees (2016) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5B4E0248FA58F07078FF12C1454AD66C0D56BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332006   (314037) от 20.10.2019
-
-JD Miller - Afterglow (2019) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314037.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Inside a Dream (4:41)
- 2 - Game Of Love (4:49)
- 3 - Inception (4:26)
- 4 - Icarus (3:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC71C4C441FBA03A75D300896D208E0D8E8F5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332387   (314013) от 20.10.2019
-
-Dream Company - The Wildest Season (2019) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Days in Blue[3:39]
- 2 - Mine Mine Mine[3:42]
- 3 - Scared to Be Loved[3:59]
- 4 - Salvation[3:54](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A4322B53FA75EEAD95ECB02CDEFFBBD2D4E836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332186   (313999) от 20.10.2019
-
-Danger Zone - Don't Count on Heroes (2019) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313999.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Demon or Saint[4:56]
- 2 - Faster Than Love[4:40]
- 3 - Somewhere out of Time[4:17]
- 4 - Destiny[4:12](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9017CEAEE38F40A7E7B84583392D127ED61FE9FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

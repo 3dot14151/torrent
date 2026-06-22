@@ -1,29 +1,3 @@
-###  Публикация: 1314973   (516056) от 17.07.2019
-
-Славянский базар в Витебске. Церемония закрытия фестиваля (15.07.2019) HDTVRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516056.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ночь на 16 июля в витебском Летнем амфитеатре торжественно закрыли «Славянский базар — 2019». Гала-концерт собрал на одной сцене артистов из Беларуси, России, Украины, Молдовы, Италии, Швеции. Самой звездной гостьей стала София Ротару — певица уже давно не была на «базаре» и подарила витебским зрителям новую песню.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4118D5151B529C3568715796864831A51B185E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930195   (516008) от 22.08.2015
 
 Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
@@ -32,7 +6,7 @@ Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516008.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Slipknot / Live At Download (2009/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515357.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Muse - Live At Rome Olympic Stadium (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513660.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511742.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ Heaven and Hell - Radio City Music Hall Live! (2011) BDRip 1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505415.jpg" />
 </div>
 
 
@@ -177,7 +151,7 @@ Metallica - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504942.jpg" />
 </div>
 
 
@@ -203,7 +177,7 @@ Gary Moore - Live at Montreux (2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504157.jpg" />
 </div>
 
 
@@ -232,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504152.jpg" />
 </div>
 
 
@@ -258,7 +232,7 @@ U.D.O. - Navy Metal Night (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503258.jpg" />
 </div>
 
 
@@ -287,7 +261,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502318.jpg" />
 </div>
 
 
@@ -316,7 +290,7 @@ Gary Moore - Blues for Jimi (2007/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502152.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502149.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502136.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ Rammstein - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502114.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502093.jpg" />
 </div>
 
 
@@ -463,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501113.jpg" />
 </div>
 
 
@@ -492,7 +466,7 @@ Madonna - The MDNA Tour (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500199.jpg" />
 </div>
 
 
@@ -521,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499051.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Edguy - Live Wacken (2012) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498347.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ Steve Hackett - Genesis Revisited – Live at the Royal Albert Hall (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497270.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ Dream Theater - Live at Luna Park (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496053.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ The AIX All Star Band - Pachelbel Canon Acoustica (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495468.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494179.jpg" />
 </div>
 
 
@@ -698,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493971.jpg" />
 </div>
 
 
@@ -725,7 +699,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493857.jpg" />
 </div>
 
 
@@ -739,6 +713,35 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BC94FCD54FD44FA7EC8800B580312FE97023103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936944   (492231) от 13.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

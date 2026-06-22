@@ -1,3 +1,55 @@
+###  Публикация: 1369328   (903028) от 23.03.2020
+
+One Finger Death Punch 2 (2019) [En] (2.0) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903028.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом ураганном 2D-экшне вы превратитесь в кунг-фу мастера, которому предстоит победить множество врагов. У вас будет шанс открыть более четверти сотни умений, опробовать разнообразное оружие и пройти непростые испытания. Вместе с мастером боевых искусств вам удастся одолеть огромное количество разъяренных противников. Вы сможете помахать разнообразным оружием, (   Читать дальше...   )Тип издания: LicenseРазработчик: Silver Dollar GamesЖанр: Экшн, Сражения, ФайтингЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AD4CD274E7A57EB0D92528BBD6B354731610C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992245   (901836) от 01.03.2016
+
+The Binding of Isaac: Afterbirth (2015) [En] (1.05) Repack R.G. ILITA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901836.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Binding of Isaac: Rebirth - полный перезапуск игры The Binding of Isaac. Данная игра будет основываться не на Flash-версии, а как полноценная, с 16-ти битной графикой. Главным героем выступает все тот же многострадающий Исаак. По задумке он спустится в подземелье, чтобы пройти на голос Божий и найти своих родных. В отличии от прошлой игры теперь герою будут встречаться (   Читать дальше...   )Тип издания: RepackРазработчик: Nicalis, Inc., Edmund McMillenЖанр: RPG, Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5E46DC16B05297AB5E37DFF2C5A5DB248828B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992511   (900406) от 02.03.2016
 
 12 is Better Than 6 (2015) [Ru/Multi] (1.0.0.313) Repack R.G. Catalyst
@@ -6,7 +58,7 @@
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900406.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Until We Die (2021) [Ru/Multi] (2021.07.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900018.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Pac-Man Museum (2014) [Multi] (1.0) License Reloaded
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899125.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ El Shaddai: Ascension of the Metatron (2021) [Multi] (7272439) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896953.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893077.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.07/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891861.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Red Risk (2016) [En] (1.0) Repack Mr.Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890705.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Stick It To The Man (2013) [Ru/En] (1.0u?) RePack Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888446.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Cannon Brawl (2014) [En] (1.261) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887391.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Enter the Gungeon (2016) [Ru/Multi] (1.1.1h1/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886729.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Big Rumble Boxing: Creed Champions (2021) [Multi] (6579165) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885433.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dwarrows (2020) [En] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884805.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The King of Fighters XIV (2017) [Multi] (1.0/dlc) License GOG [Galaxy Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884745.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Pode (2020) [Ru/Multi] (1.0/hotfix) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881326.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Race The Sun (2013) [En] (1.51/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881063.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Revolve (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880937.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Ultimate Chicken Horse (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880283.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ WWE 2K16 (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880277.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ ClusterTruck (2016) [En] (1.1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879387.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd 3) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878687.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Shadow Blade: Reload (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878455.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 4 (2016) [Ru/Multi] (1.0/upd 2) License C
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874593.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874385.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Last Stand Legacy Collection (2021) [En] (1.04) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874227.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Last Stand Legacy Collection (2021) [En] (1.04) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A8645CD31655FDBD2E9F21CCAA04A5D7F4F174B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187917   (873244) от 30.03.2010
-
-3D Ultra Pinball: The Lost Continent [En] (L) 1997
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предпосылка позади этого приключенческого пинбола - то, что когда-то после Второй мировой войны, Рекс Хантер, опытный летчик и частично занятый герой для найма, разбился при посадке в неизведанных джунглях. С ним Профессор Спектор, зоолог и известный изобретатель, и его помощница, Мэри. Они оказываются в месте защищенными временем, мир, где динозавры и пещерные люди все еще существуют. Кто-то украл части их самолета ночью. Чтобы решить тайны чужой страны и найти недостающие части самолета, таким образом чтобы они могли возвратиться домой. Чтобы сделать это, Рекс и его друзья должны выдержать нападения динозавров, пересечь предательский ландшафт, и обмануть хитрые ловушки. Самая большая опасность, однако, предлагается на Diabolical Doktor Hekla, у кого нет никакого намерения позволить Рексу и его друзьям спастись.Тип издания: ЛицензияЖанр: АркадаЯзык озвучки: n/aЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997874   (871107) от 18.03.2016
-
-Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (2016) [Ru/Multi] (1.0.10897.0) Repack R.G. Catalyst
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы окажетесь в Амритсаре 1841 года, когда отношения между Сикхской империей и Ост-Индской компанией были накалены до предела. В город прибывает магистр тамплиеров, исполненный решимости завладеть легендарным алмазом ""Кохинур"", и романтические отношения между Арбаазом Миром и племянницей махараджи Пьярой Каур оказываются под угрозой. Арбаазу (   Читать дальше...   )Тип издания: RepackРазработчик: Climax Group, Ubisoft MontréalЖанр: Arcade (Platform), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF7FEA2D71450C951094585840C248F8937D7FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200116.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Udemy, Raffi Bedross | Intro to Hair and Fur in Houdini 19.5 (2022) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200044.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Udemy, Philip Cotton | Beginners Ultimate Guide to 3D Printing; Bootcamp (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200038.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200026.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Aaron Blaise | How to Draw Wolves, Coyotes & Foxes (2020) WEB-DL [AD] [EN / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200008.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199983.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Udemy, Shahzad Ahmad | Magical Butterfly FX in Houdini (2022) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199964.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kalacheva School, Анна Цымбал | Практическая линогр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199938.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Refactoringui, Adam Watan | Refactoring UI – Complete Package (2023) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199812.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Designcode, SOURASITH PHOMHOME | UI Design Android Apps in Figma (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199769.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Udemy, Ken Zhuang | Mystique Effect in Houdini with Vex (2022) WEB-DL [EN / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199768.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ The Gnomon Workshop, Dan Weiss | Designing & Modeling a Creature With Scales By 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199763.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ CG Fast Track | Geometry Nodes Boot Camp Vol. 1 (Blender 3.4) (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199347.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199294.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199158.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Udemy, Joakim Tornhill | The Blender Path to Procedural Patterns! (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199123.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Udemy, Joakim Tornhill | The Emitter Particle Course for Blender 2.8 and above (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199046.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Udemy, Joakim Tornhill | Shader Magic in Blender 3.41 and above (2023) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199028.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Udemy, Joakim Tornhill | A Workflow to Create Realistic Material in Blender (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199002.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Udemy, Joakim Tornhill | All About Eevee for Blender 2.8 and above (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199000.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ CGcircuit, Tim Van Helsdingen | Aggregation – Rigid body Self Assembly (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198795.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ CGcircuit, Radu Cius | Houdini Tutorial Procedural Modeling – Escalator (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198787.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Kalacheva School, Вероника Калачева | Акварель 2.0 (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198761.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198741.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ CGcircuit, Arsen Margaryan | Discovering Houdini VOP 2 (2022) WEB-DL [Без о�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198720.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ ivelizar_, Елизавета Иванова | Exterior atmosphere training (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198716.jpg" />
 </div>
 
 

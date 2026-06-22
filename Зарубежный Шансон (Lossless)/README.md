@@ -7,7 +7,7 @@ Salvatore Adamo - In French Please ! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042885.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Charles Aznavour - Hit-Collection (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005271.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ V.A. - Французский поцелуй - Хиты Франции (2011) [F
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994385.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Joe Dassin - Best of Joe Dassin 3xCD (2009) [FLAC|Lossless]<Pop / Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982365.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Patricia Kaas - Mademoiselle Chante... (1988) 1992, Deon Ltd. [FLAC|Lossless|ima
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936943.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Per Un' Ora D' Amore (2002) [FLAC|Lossless|tracks + .cue] <Chanson, Vocal, 
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922229.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Tony Carreira - Le coeur des femmes (2017) [FLAC|Lossless|tracks] <French Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885453.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Charles Aznavour - Collected (2016) 3CD [FLAC|Lossless|image + .cue] <French Cha
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844735.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Patrick Fiori - Choisir (2014) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820529.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Edith Piaf - Edith Piaf 1962 (Remastered 2017) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807878.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Jane Birkin - Jane Birkin (1987) 2001,Universal [FLAC|Lossless|image + .cue] <Ch
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807877.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Michel Polnareff - Love Me, Please Love Me (1966) 2010, Universal [FLAC|Lossless
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802520.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Salvatore Adamo - Si Vous Saviez... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, C
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780192.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ L - Chansons (2018) [FLAC|Lossless|WEB-DL|tracks] <Chanson Française, French Po
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779207.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Marie Laforet - French Collection (2000) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762481.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Edith Piaf - French Collection 2000 (2000) [APE|Lossless|image + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725868.jpg" />
 </div>
 
 
@@ -466,41 +466,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 339390   (667250) от 20.05.2011
-
-Charles Aznavour - Duos [2CD] (2008) [FLAC|Lossless]<French Shanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charles Aznavour & Elton John - Yesterday When I Was Young [03:28]
-02. Charles Aznavour & Liza Minnelli - Quiet Love [05:27]
-03. Charles Aznavour & Sting - Love Is New Everyday [04:09]
-04. Charles Aznavour & Frank Sinatra - Young At Heart [02:55]
-05. Charles Aznavour & Nana Mouskouri - To Die Of Love [04:03]
-06. Charles Aznavour & Bryan Ferry - She [02:29]
-07. Charles Aznavour & Paul Anka - I Didn't See The Time Go By [03:53]
-08. Charles Aznavour & Celine Dion - You And Me [03:37]
-09. Charles Aznavour & Josh Groban - La Boheme (English version) [03:30]
-10. Charles Aznavour & Placido Domingo - El Barco Ya Se Fue [02:28](   Читать дальше...)Жанр: French ShansonПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 798817   (651672) от 23.06.2014
 
 Joe Dassin - Integrale Albums (2000) 15CD Box Set, Limited Edition [FLAC (image+.cue)|Lossless]<French Chanson, Ballad, Disco>
@@ -509,7 +474,7 @@ Joe Dassin - Integrale Albums (2000) 15CD Box Set, Limited Edition [FLAC (image+
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651672.jpg" />
 </div>
 
 
@@ -538,7 +503,7 @@ Julio Iglesias - Da Manuela A Pensami (1978) [FLAC|Lossless|tracks + .cue] <Chan
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647388.jpg" />
 </div>
 
 
@@ -567,7 +532,7 @@ Bernard Lavilliers - Samedi soir a Beyrouth (2008) [FLAC|Lossless|tracks + .cue]
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629227.jpg" />
 </div>
 
 
@@ -596,7 +561,7 @@ VA - Bonjour La France ( The Sound Of France ) (1993 & 1996) 2*2CD [FLAC|Lossles
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_622542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622542.jpg" />
 </div>
 
 
@@ -631,7 +596,7 @@ Zazie - Zen (1995) [FLAC|Lossless|tracks + .cue] <Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610120.jpg" />
 </div>
 
 
@@ -660,7 +625,7 @@ Francoise Hardy - L'amour fou (2012) [FLAC|Lossless|image + .cue] < Pop, chanson
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596428.jpg" />
 </div>
 
 
@@ -689,7 +654,7 @@ Joe Dassin - Les Plus Belles Chansons D'amour De (2003) [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587401.jpg" />
 </div>
 
 
@@ -724,7 +689,7 @@ Joe Dassin - Best Of 3 CD L'Album Souvenir (2010) [FLAC|Lossless]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_559122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_559122.jpg" />
 </div>
 
 
@@ -751,30 +716,59 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 384604   (480346) от 07.09.2011
+###  Публикация: 1246272   (465461) от 09.09.2018
 
-Patricia Kaas - Greatest Hits [2CD] (2009) [APE|Lossless]<Pop, Blues, French Shanson>
+Lio - Je Suis Comme Ca (2000) [FLAC|Lossless|image + .cue] <French, Pop, Chanson, Jazz>
 
 >>Шансон, Авторская и Военная песня
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_480346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ma Liberte Contre La Tienne (5:49)
-02. Une Femme Comme Une Autre (4:46)
-03. Quand Jai Peur De Tout (4:22)
-04. Chanson Simple (3:24)
-05. Less Eternelles (3:52)
-06. Unne Fille De Lest (3:31)
-07. Mon Chercheur Dor (4:32)
-08. Rien Ne Sarrete (3:31)
-09. What Now My Love (3:59)
-10. Where Do I Begin (3:45)(   Читать дальше...   )2009Жанр: Pop, Blues, French ShansonПродолжительность: 02:39:11
+1 C'était L'été 2:13
+2 Dieu Et Diable (En Duo Avec Guy Marchand) 2:30
+3 Je Suis Comme Je Suis 3:59
+4 Il Y A La Nuit 3:21(   Читать дальше...   )Жанр: French, Pop, Chanson, JazzПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB01588CD7C07C342D14E4844725D5088528F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552900   (445523) от 27.09.2012
+
+Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLAC|Lossless]<Shanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Man (Mon Homme)
+02. If You Go Away (Ne Me Quitte Pas)
+03. What Now My Love (Et Maintenant)
+04. Un Homme Et Une Femme
+05. The Summer Knows (Un Ete 42)
+06. I Wish You Love (Que Reste-t-il De Nos Amours)
+07. Yesterday When I Was Young (Hier Encore)
+08. Les Moulins De Mon Coeur (The Windmills Of Your Mind)
+09. Autumn Leaves (Les Feuilles Mortes)
+10. Where Do I Begin (Love Story)(   Читать дальше...   )Жанр: Shanson, PopПродолжительность: 00:56:49
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,29 @@
+###  Публикация: 1777729   (928) от 26.09.2025
+
+Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Let'sРlay [Digital Extras Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_928.jpg" />
+</div>
+
+
+###  Подробнее
+
+С событий первой части прошло 20 лет. Вирус победил, человечество на грани вымирания. Ваш герой - странствующий пилигрим Эйден Колдуэлл - своего рода посыльный, помогающий поселениям, разбросанным по опустошенным страшным вирусом землям, поддерживать между собой связь. Но истинная цель Эйдена - найти сестру Мию, которую он оставил в лапах жестокого доктора Вальца.Тип издания: RepackРазработчик: TechlandЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BA00A0DA1DA5DDF9F898D817FD36DFA61CDE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799978   (899) от 26.09.2025
 
 Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
@@ -6,7 +32,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_899.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ DOOM Eternal (2020) [Ru/Multi] (20078587/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_884.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_867.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.8.0-71665-194/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_849.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Severed Steel (2021) [Ru/Multi] (5.62) License GOG [Digital Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_724.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 990590   (909885) от 26.02.2016
+
+Now Or Never - II (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Voice Inside
+2. Sonic Ecstasy
+3. King for a Day
+4. I Shall Remain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D36DD1D212DEE870AA96F2D469B2E79454E41F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990719   (909854) от 26.02.2016
+
+The New Black - A Monster's Life (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Time Coming
+02. Blockbuster Life
+03. With A Grin
+04. Send In The Clowns(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1C47BB035065EB87DE9E2F107387E7B17A9C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990901   (908111) от 27.02.2016
+
+Wisdom - Rise of the Wise (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Wall
+02. Ravens' Night
+03. My Heart Is Alive
+04. Hunting the Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2675423458FB27DE73EF4B3132388DD5F5E851AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991312   (907919) от 27.02.2016
+
+The Unguided - Lust And Loathing (2016) Limited Edition [MP3|320 кб/с] <Melodic Death Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enraged
+02. The Worst Day (Revisited)
+03. King Of Clubs
+04. Heartseeker(   Читать дальше...   )Жанр: Melodic Death Metal, Modern MetalПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD64DA0ED71CD91FC0F1C81CC8F9CE47D32800E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368698   (907511) от 21.03.2020
 
 Neorhythm - 3 CDr Альбома (2018-2020) [MP3|320 Kbps] <Groove, Death Metal>
@@ -6,7 +122,7 @@ Neorhythm - 3 CDr Альбома (2018-2020) [MP3|320 Kbps] <Groove, Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907511.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dark Arena - Worlds of Horror (2021) [MP3|320 Kbps] <Progressive, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907385.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Silent Circus - Rise and Fall (2017) [MP3|320 Kbps] <Groove Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907334.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Balfor - Barbaric blood (2010) [MP3|320 кб/с] <Progressive Death Metal, Black
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906429.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Maerzfeld - Fremdkorper (2014) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905308.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Into Orbit - Caverns (2014) [MP3|320 кб/с]<Atmospheric Post Metal, Post Rock,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905090.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dead End Finland - Slaves To The Greed (2016) [MP3|320 Kbps] <Modern MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905066.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ COVID-19 - We all Die (2020) [MP3|V0] <Doom, Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905058.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Firewind - Immortals (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904953.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Maerzfeld - Tief (2011) [MP3|320 Kbps] <Industrial Metal, NDH>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903555.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Oblyvion - Amygdala (2020) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900529.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Fuimadane - Hundrudi Hljoda  (Hundruði Hljóða) (2020) [MP3|320 Kbps] <Folk & 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900194.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ Bruthal 6 - 2 альбома (2006-2011) [MP3|160-320 Kbps] <Nu Metal, Groove Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899901.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Violet Cold - Anomie (2017) [MP3|320 Kbps] <Atmospheric Black Metal, Shoegaze>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899354.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ Mortal Terror - Creating Destruction (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897765.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ Nightwish - Vehicle of Spirit (Live) (2016) 3CD [MP3|320 kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897172.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Welicoruss - The Best of Welicoruss / Siberian Heathen Horde (2016-2020) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897045.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ The Black Dahlia Murder - Verminous (2020) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897029.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Nine Inch Nails - Ghosts VI: Locusts (2020) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896918.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ Nine Inch Nails - Ghosts V: Together (2020) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896906.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Axxis - Kingdom of the Night II (2014) 2 CD [MP3|320 кб/с]<Melodic Heavy / Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896372.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ Ocean Grove - The Rhapsody Tapes (2017) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896312.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ Ocean Grove - The Rhapsody Tapes (2017) [MP3|320 Kbps] <Nu-Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF53E666AAB884EC13DD96F7C5314D51832EC42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993504   (895983) от 05.03.2016
-
-Breaking Fate Down - Over The Seasons (2016) [MP3|320 кб/с]<Progressive Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895983.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:43] 01. The Beast
-[04:11] 02. Over The Seasons
-[02:48] 03. My Collapse
-[03:30] 04. Appearance(   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD01FD9AB3191F2989D419E82EB217B79C8E5837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993540   (895950) от 05.03.2016
-
-Burning Black - MechanicHell (2009) [MP3|320 кб/с] <Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reckoning Day (Instrumental)  00:35
-02. Our Sentence  04:48
-03. MechanicHell  03:41
-04. Purgatory Child  04:52(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0651880438A603F37A23FA454B51A8184F3B49E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993350   (895779) от 05.03.2016
-
-Diamond Head - Diamond Head (2016) [MP3|320 кб/с] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bones
-02. Shout at the Devil
-03. Set My Soul on Fire
-04. See You Rise(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0585B3DC8E06E1CB3A27CDE8B47A5EC62D007F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370861   (895277) от 28.03.2020
-
-808hardcore - Любое название меняет смысл / LIVE (2019-2020) [MP3|~245 Kbps (V0)/320] <Experimental Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:00:31]
-02. Ты - страх (LIVE) [00:03:51]
-03. Закон (LIVE) [00:03:39]
-04. Плеть (LIVE) [00:03:48](   Читать дальше...   )Жанр: Experimental HardcoreПродолжительность: 2 CD, 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D506176CF3AFD9182EECA4EDAB77A8871CDE7EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

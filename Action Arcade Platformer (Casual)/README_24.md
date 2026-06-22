@@ -1,3 +1,55 @@
+###  Публикация: 1747402   (44516) от 05.09.2024
+
+Lone Fungus (2022) [En] (1.1.14) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lone Fungus переносит пользователей в фэнтезийный мир, где предстоит взять под управление последнего выжившего гриба-гуманоида. Игра представляет собой классическую метроидванию, где необходимо изучать открытый мир, прокачивать персонажа, сталкиваться с опасностями и монстрами, а также открывать секреты вселенной, созданной грибами. У юзеров выйдет посетить 8 уникальных (   Читать дальше...   )Тип издания: SceneРазработчик: Basti GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3900CEA4D36D033A8BEA0082C80EC0B947F641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747849   (44332) от 07.09.2024
+
+WARCANA (2024) [Multi] (15354714) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра сочетает в себе магию и стратегию в битве за выживание с высокими ставками. Вы играете за могущественного мага, который сталкивается с неумолимыми волнами монстров. Уникальное преимущество игры - создание колод. Ваша миссия двояка: выжить под натиском монстров и перехитрить других магов. Вы строите свою колоду, укрепляете базу и призываете армии. Это гонка со (   Читать дальше...   )Тип издания: SceneРазработчик: 1000 OrksЖанр: Защита башни, Карточные игрыЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1902B35E36F5B0D47B57C836AA62DD84FE7BA31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747847   (44331) от 07.09.2024
 
 Shadow of the Ninja Reborn (2024) [Multi] (1.0) Scene Tenoke
@@ -6,7 +58,7 @@ Shadow of the Ninja Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44331.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Volgarr the Viking I + II (2) (2013, 2024) [Multi] (1.36c/1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44246.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ PROTOCOL 11 - Episode 1 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44042.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Spiritfall (2024) [Ru/Multi] (1.5.11) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43823.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.1/dlc) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43441.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.78.11833/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43334.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43197.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Gimmick! 2 (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42735.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42731.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Grapple Dogs: Cosmic Canines (2024) [Multi] (1.0.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42557.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Iron Meat (2024) [Ru/Multi] (1.0.2) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42142.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Tribal Hunter (2022) [Ru/Multi] (1.0.2.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41957.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Gravity Circuit (2023) [Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41653.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Steredenn: Binary Stars (2015) [Ru/Multi] (2.7.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41639.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41091.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40934.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cash Cow DX (2024) [En] (1.1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40564.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40506.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40417.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40412.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.10/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40314.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Waveform (2012) [Multi] (1.0/dlc) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40111.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Slave Zero X (2024) [Ru/Multi] (1.05/dlc) License GOG [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39444.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Great Rebellion (2024) [Multi] (1.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39219.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Great Rebellion - экшен с олдскульной пиксельной 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79AEBD50279F7BE75330CBBF927731652C061E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758755   (38309) от 04.11.2024
-
-Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack FitGirl [Complete Sacrament Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть серии Blasphemous сулит вам новую встречу с Кающимся, чья история продолжится в Wounds of Eventide - бесплатном дополнении к основной игре. Сердце небес возвестило о возвращении Чуда и предсказало рождение необычного ребенка. Лишившись вечного покоя и проснувшись на незнакомой земле, Кающийся оказывается вовлеченным в бесконечный цикл жизни, смерти и (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Экшны, MetroidvaniaЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19524C549F28BDF22EEE7189698D11EF0AC544C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758753   (38295) от 04.11.2024
-
-Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack seleZen
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть серии Blasphemous сулит вам новую встречу с Кающимся, чья история продолжится в Wounds of Eventide - бесплатном дополнении к основной игре. Сердце небес возвестило о возвращении Чуда и предсказало рождение необычного ребенка. Лишившись вечного покоя и проснувшись на незнакомой земле, Кающийся оказывается вовлеченным в бесконечный цикл жизни, смерти и (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Экшны, MetroidvaniaЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8514A3255D0DF1552C1E0D09A00EE81C17FDE4E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

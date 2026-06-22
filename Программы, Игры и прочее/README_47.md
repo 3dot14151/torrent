@@ -1,3 +1,29 @@
+###  Публикация: 1003981   (837614) от 06.04.2016
+
+Contra - Hard Corps 1.0.0 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название этой игры говорит само за себя! Перед вами Contra - Hard Corps, та самая любимая и известная всем контра, получившая своё продолжение на платформе Sega. События игры развиваются в далёком 2641 году, на выбор вам даётся четыре персонажа, каждый из которых обладает своими уникальными способностями. В игре множество врагов, так что скучать вам не придется. (   Читать дальше...   )Релиз состоялся: 3 апреля 2016г.Поддерживаемая ОС: Android 2.3+Жанр: Беги и стреляйЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C65609B1AA0EB21B53F8414689A7B642DF5AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051761   (837600) от 11.03.2017
 
 Mind Games Pro / Игры ума v2.5.4 [Ru/Multi]
@@ -6,7 +32,7 @@ Mind Games Pro / Игры ума v2.5.4 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837600.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ebook Converter v1.13.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837404.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Turbo Grannies  1.1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837296.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Garmin: Azerbaijan Map 2015 V01 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836329.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Garmin: Moldova Road Atlas & Topo 3D 2015.2 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836325.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Advanced Download Manager and Torrent downloader v12.6.1 Pro Mod  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835860.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835850.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Battery Widget Plus v2.43 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835807.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Garmin: Road Map of Latvia LM and Road Map of Latvia TOPO LM v2.7 [Lv]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_834013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_834013.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833463.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833462.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833357.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Electrical Cost v3.0.4 Pro [Ru/Multi] - прогнозный расчет сто
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831469.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830186.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Glitch Lab v1.4.5 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_829525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829525.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Maths Formulas 9.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827969.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824892.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824637.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824312.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Open Camera 1.48.1 [Ru] - Фото и видеокамера
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823844.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822091.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Garmin: NaviGuide Hungary 2017.10 NT Final (+ v2018.10 NT Beta test) [Hu]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820532.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Garmin: City Navigator South America NT 2018.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820519.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Garmin: City Navigator Australia & New Zealand HERE NT 2018.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820513.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Garmin: City Navigator North America NT 2018.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820422.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Garmin: City Navigator North America NT 2018.30 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01C98238EE8A984FE15190CE951550012CD2628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007706   (819450) от 16.04.2016
-
-Garmin: City Navigator China NT 2015.40 AN (по регионам) [Ch]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная карта Китая, для навигаторов Garmin, по регионам, на китайском языке.Тип издания: карты заблокированы (таблетка есть в комплекте)Релиз состоялся: ноябрь 2015Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: КитайскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA300363C2420BD7ACBFEAA5781C163194A2B18D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1138148   (664316) от 29.05.2017
+
+Великие дрессировщики (2016) HDTVRip [H.264/1080i-LQ]  (серии 1-10 из 10)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл исторических фильмов о великих русских дрессировщиках. Они во многом были первопроходцами. Они получали знания о психологии животных, рискуя своим здоровьем, а порой и жизнью. Их «легкое» искусство построило мостик между миром людей и миром животных, попутно внеся немалый вклад в развитие зоологии. И при этом они были артистами и художниками, создававшими новые (   Читать дальше...   )Телекомпания: Россия, ИП Рябинина Ю.Б. по заказу ЗАОЖанр: Документальный, циркРежиссер: Ирина Образцова, Анна Артамонова, Тамара ПронинаПродолжительность: 10 x ~ 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DFFF93F93EA6AA597F34B9206007C0B613B9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 900830   (664234) от 25.05.2015
+
+Янтарная комната (2015) HDTV (часть 1-2 из 2) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба знаменитой "Янтарной комнаты", которую похитили из Царского села во время Великой Отечественной Войны - это тайна века. Никому реально не удалось до сих пор приблизиться к ней. Этот фильм - журналистское расследование. Оно будет построено исключительно на документально подтвержденных фактах, собранных в архиве убитого немецкого искателя Янтарной (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ДокументальныйПродолжительность: 2 серии по 00:52:00 каждая
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006C8C616570E58B1E53B415C0F195E930E45913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224912   (663898) от 12.05.2018
+
+Александр Белявский. Для всех я стал Фоксом (2018) DVB [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663898.jpg" />
+</div>
+
+
+###  Подробнее
+
+За свою творческую жизнь Белявский сыграл более сотни ролей. Все помнят его героев в фильмах «Место встречи изменить нельзя», «Четыре танкиста и собака», «Иду на грозу», «Ирония судьба, или С легким паром!», телесериале «Бригада». У Белявского было фантастическое чувство юмора — об этом говорят все его коллеги. Особенно оно проявлялось во время дубляжа. Недаром он (   Читать дальше...   )Телекомпания: Россия / ЗАО «Телекомпания „Останкино“Жанр: Документальный, Биография, ИскусствоСубтитры: Русские, телетекстПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088241A6F08121753027D9520483B90C79D8610A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908366   (661084) от 22.03.2022
 
 Тайны нашего кино. Старший сын (2015) SATRip
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661084.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660369.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660181.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657213.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656764.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656691.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655643.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654995.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654957.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654393.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654366.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652135.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650426.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650276.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649473.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649256.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647449.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646674.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646667.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646590.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644629.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643325.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641694.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:526C02C600E8804FCA5BDD5019967BEAC1B2415E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907107   (641627) от 10.06.2015
-
-Браво, Артист! - Александр Абдулов (2008) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обыкновенное чудо" случилось с Александром Абдуловым в 1978 году, когда, сыграв Медведя в одноименном фильме Марка Захарова, молодой артист из "Ленкома" проснулся поутру секс-символом Страны Советов. Александр Абдулов сам не помнил, во скольких фильмах снялся за три десятка лет, говорил, что картин было около сотни. На самом же деле - более 140 ролей (   Читать дальше...   )Телекомпания: Россия, ТВ-ЦентрЖанр: ДокументальныйРежиссер: Александр КоняшовАктеры: Александр Абдулов, Александр Ширвиндт, Михаил Ширвиндт, Александр Збруев, Игорь КвашаПродолжительность: 01:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F24E656A2438C700A333835A8E6BFC21F37B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246340   (640629) от 01.04.2019
-
-Леонид Гайдай. Человек, который не смеялся (2018) IPTVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонид Гайдай создавал фильмы, за просмотром которых хохотала вся страна. При этом сам режиссёр слыл человеком серьёзным, неулыбчивым, а то и просто скучным. Так ли это было на самом деле? И в чём секрет невероятной популярности картин мэтра?Производство: Россия, ООО "Панч ТВ"Жанр: Документальный, хроника, кинематограф, биографияРежиссер: Елена ЛапенковаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6391EC1232B3B664CDF39C68568D2CD5A868CAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907120   (639725) от 11.06.2015
-
-Браво, Артист! - Савелий Крамаров (2008) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этой программы "Браво, артист!" Савелий Крамаров любил повторять: "Я обычно играю дураков, поэтому меня везде принимают как своего". Этому актеру с его необычным талантом и своеобразной внешностью удалось родиться вовремя. Прижизненная слава "джентельмена удачи" была огромной: вся страна повторяла репризы из "Неуловимых мстителей","Джентльменов (   Читать дальше...   )Телекомпания: Россия, ТВ-ЦентрЖанр: ДокументальныйРежиссер: Александр Коняшов, Максим СимаковАктеры: Савелий Крамаров, Александр Ширвиндт, Михаил ШирвиндтПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE95DD7B55C658A612A11964458DE06F81989E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

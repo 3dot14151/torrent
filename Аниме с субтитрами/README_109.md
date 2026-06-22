@@ -1,3 +1,29 @@
+###  Публикация: 948953   (152607) от 24.12.2015
+
+Starmyu / High School Star Musical / Старшая школа музыкальных звёзд [2015, TV, 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о пяти студентах, которые стремятся попасть в музыкальный факультет академии Аянаги, школы с упором на музыку. Они хотят попасть к класс звёзд, который обучает сам Као-кай, самый талантливый из музыкального факультета, который стоят на вершине иерархии порядка в академии. К счастью, они были замечены одним из друзей Као-Кай.Производство: C-StationЖанр: музыкальныйРежиссер: Тада СюнсукэЯзык субтитров: Русский (отключаемый)Продолжительность: 12 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C3164F0F29391AF7FD81E27277A7A8B96DAA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500775   (151911) от 21.12.2021
 
 Takt Op.Destiny / Такт Опус. Судьба [2021, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Takt Op.Destiny / Такт Опус. Судьба [2021, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151911.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Houkago Saikoro Club | After School Dice Club | Клуб настольных и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151151.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Fairy Gone 2 / Пропавшие феи 2 [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151111.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Guraburu! | Grand Blues! | Великий блюз! [2020, TV, 12] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150331.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Mahou Sensou | Magical Warfare | Война магов [2014, TV, 12] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150320.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Ikebukuro West Gate Park | Западные ворота парка Икэбук
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150279.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Puraore! Pride of Orange / Оранжевая гордость [2021, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150244.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150094.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149873.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Magic Kaito 1412 / Волшебник Кайто 1412 [2014, TV, 24 из 24] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149831.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Ani Tore! XX: Hitotsu Yane no Shita de / Тренировки с аниме! XX 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149371.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Bakumatsu: Ren'ai Bakumatsu Kareshi Gaiden | Бакумацу [2018, TV, 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149284.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai | Изобрази отвраще�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149189.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из шк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149162.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Teekyuu - 6 / Теннис - 6 сезон [2015, TV, 12] WEB-DLRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148158.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Selection Project / Отборочный проект [2021, TV, 13] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147750.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147614.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita. / YuShibu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147529.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Kuma Kuma Kuma Bear / Ми-ми-ми-мишка [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147323.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Adachi to Shimamura / Adachi and Shimamura / Адати и Симамура [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147140.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146901.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146894.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146813.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146648.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146640.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33A11D817D2C53E52C73BFC615AAF048EEE44966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060422   (146428) от 27.12.2016
-
-Mahou Shoujo Nante Mou Ii Desu kara. Second Season / Меня достало быть девочкой-волшебницей 2 [2016, TV, 12 из 12] WEB-DLRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Юдзука Ханами — тихая девочка, у которой мало друзей. Однажды на улице к ней обращается неведомое существом подозрительной наружности по имени Митон, за секунду до этого рывшееся в мусоре, и сообщает, что у Юдзуки есть все задатки девочки-волшебницы. В следующий момент героиня превращается в девочку-волшебницу, вот только её боевым нарядом оказывается (   Читать дальше...   )Производство: Студия Pine Jam / パインジャムЖанр: комедияРежиссер: Ёнэда КадзухироЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2CB9D4904C896E12B0A82DEE2D37D31D6117CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,161 @@
+###  Публикация: 1788270   (23120) от 29.03.2025
+
+В.В. Буканов | Цветные камни. Энциклопедия (2008) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга зарекомендовала себя как один из лучших справочников о цветных камнях. Её первый вариант в виде «Геммологического словаря» вышел в 2001 году, затем в 2006 году в Праге напечатано её расширенное и прекрасно иллюстрированное английское издание. На конкурсах Российского минералогического общества, обе книги отмечены дипломами. В данный вариант энциклопедии, (   Читать дальше...   )Жанр: Минералогия. Геммология. Энциклопедия. Учебная литература.Издательство: Гранит, ПрагаФормат: PDF, DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8113BDF526D2353C5D7D819FF1859E381CFD2413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790351   (22077) от 08.04.2025
+
+В.Г. Лифляндский, А.Г. Сушанский | Овощи в лечении, косметике, кулинарии. Полная энциклопедия (2002) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Овощи издавна используются для лечения и профилактики многочисленных заболеваний человека, в том числе таких широко распространенных, как сердечнососудистые, нервные, кожные, желудочно-кишечные и другие болезни, вплоть до злокачественных новообразований. Можно с уверенностью сказать, что в овощах, фруктах и зернобобовых культурах потенциально заключено больше целительных (   Читать дальше...   )Жанр: ЭнциклопедияИздательство: ВесьФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F815932E6EB965DC1743CFE1832FE576DF107E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792214   (21151) от 17.04.2025
+
+Р.И. Аванесов, И.С. Улуханов, И.В. Андрианова и др. (Гл. ред.) | Словарь древнерусского языка (XI-XIV вв.) [12 книг] (1988, 1989, 1990, 1991, 2002, 2004, 2008, 2012, 2013, 2016, 2019) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словарь включает около 30000 слов (кроме личных имен, географических названий и этнонимов). Треть из них отсутствует в Материалах для Словаря древнерусского языка И.И. Срезневского и в Словаре русского языка XI-XVII вв. Отличается хронологически строгим отбором источников (взяты памятники в списках не позднее первой половины XV в.), исчерпывающей распиской текстов, (   Читать дальше...   )Жанр: Лингвистка. Словари. Истоичекая литератураИздательство: АН СССР, «Русский язык»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6456F8E4238C4BDB15275991DED61EFD9846A761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792951   (20728) от 21.04.2025
+
+И.Т. Фролов (ред.) | Философский словарь. 8-е издание (2009) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20728.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Философский словарь», восьмое издание, представляет собой уникальное явление в философской жизни нашей страны. Философских словарей много, но такой - один. Словарь издаётся с 1939 г. С четвёртого издания, вышедшего в 1980 г., его ответственным редактором был И.Т. Фролов. Предпоследнее, седьмое издание, подготовленное им, появилось в 2001 г., после смерти И.Т. Фролова. (   Читать дальше...   )Жанр: Словари. ФилософияИздательство: Республика; СовременникФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FFFFC2D433FB5FCF88350919C4E8A3AC3F54F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795055   (19543) от 02.05.2025
+
+И. Кочергин | Байкал (2021) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19543.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Славное море, священный Байкал" – слова этого романса слышал каждый, ну почти каждый! Об этом древнем озере сложено немало песен и сказаний. Это самое большое пресноводное озеро в мире и самое глубокое (в среднем 745 м, а максимальная его глубина достигает 1642 м), образовавшееся в результате тектонических сдвигов.
+
+Путеводитель по Байкалу и Прибайкалью (   Читать дальше...   )Жанр: путеводители, документальная литература о путешествияхИздательство: Аякс-ПрессФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70692BF7EA2F00FCAB1056F7FE6F825542DE29BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795490   (19277) от 05.05.2025
+
+И.А. Губанов, К.В. Киселева, В.С. Новиков и др. | Иллюстрированный определитель растений Средней России [3 книги] (2002, 2003, 2004) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный иллюстрированный определитель подготовлен ботаниками биологического факультета МГУ и представляет собой универсальное иллюстрированное руководство для определения растений средней России. В четырёх томах будет размещено свыше 1600 полных рисунков сосудистых растений региона. Первый том включает общие разделы издания — "Важнейшие морфологические термины, (   Читать дальше...   )Жанр: энциклопедии, ботаника.Издательство: Товарищество научных изданий КМК. Институт технологических исследований. Биофак МГУФормат: DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39595FA6E7C677274ADA32D4CF73CFFBA1915594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795471   (19255) от 05.05.2025
 
 Татьяна Романова | Главная книга владельца собаки (2023) [PDF]
@@ -6,7 +164,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19255.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18964.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18329.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15879.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11728.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11618.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10847.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9011.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8946.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8879.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8703.jpg" />
 </div>
 
 
@@ -297,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8478.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7742.jpg" />
 </div>
 
 
@@ -351,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6015.jpg" />
 </div>
 
 
@@ -378,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4836.jpg" />
 </div>
 
 
@@ -404,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4204.jpg" />
 </div>
 
 
@@ -430,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4130.jpg" />
 </div>
 
 

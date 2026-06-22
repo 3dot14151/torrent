@@ -1,3 +1,55 @@
+###  Публикация: 1792945   (17654) от 21.05.2025
+
+FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let'sРlay [Special Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всеми любимая серия Fatal Fury от SNK впервые вышла на рынок в 1991 году, породив волну файтингов, захлестнувшую индустрию в девяностых. GAROU: MARK OF THE WOLVES (выпущена в 1999 году) долгое время оставалась самой последней игрой франшизы, но вскоре это изменится. Спустя 26 лет на файтинг-арену готова выйти совершенно новая игра — FATAL FURY: City of the Wolves!Тип издания: RepackРазработчик: SNK CORPORATIONЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C0C08BBB95BBE55E0DC6BE9D42D2EA358EBEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744757   (17458) от 22.05.2025
+
+Dustborn (2024) [Ru/Multi] (1.13/dlc) Scene Rune
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dustborn - дорожное приключение, вдохновленное графическими новеллами. Игра выполнена в стиле динамического комикса и рассказывает про небольшую группу подростков-неудачников, отправившиеся в путешествие сквозь всю пост-инфодемическую Америку. Их цель - доставить из Калифорнии одну важную посылку в Новую Шотландию.Тип издания: SceneРазработчик: Red Thread GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FB666F12828B87753F6821CDB4C24705A0B717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764354   (17228) от 24.05.2025
 
 Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.5) Repack Let'sРlay [Deluxe Edition]
@@ -6,7 +58,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.5) Repack Let'sРlay [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17228.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ DRAGON BALL XENOVERSE 2 (2016) [Ru/Multi] (1.24.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17042.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/Multi] (1.24.01/dlc) Repack FitGirl [Special
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16582.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16579.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ GUILTY GEAR -STRIVE- (2021) [Ru/Multi] (1.46/dlc) Repack Let'sРlay [Ultimate Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16458.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.13.112/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16437.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16341.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ ANTONBLAST (2024) [En] (1.1.2с) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16188.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ MindKatt: First Strike (2025) [Multi] (Build 18559755) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15976.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ World of Goo 2 (2024) [Ru/Multi] (1.0.13211) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15896.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Spectator 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15869.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.000.004) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15695.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ DuckTales: Remastered (2013) [Ru/Multi] (Build 1384683) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15519.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Nova Drift (2019) [Ru/Multi] (1.2.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15306.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Zoeti (2023) [Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15106.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License А
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14783.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Creatures: Village (2004) [En] (1.11) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14676.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Mortal Kombat (2013) [Ru] (1.0.7) Repack EXROW [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14650.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Downward (2017) [Multi] (2.0.2) Scene Rune [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14552.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Kitty Collapse (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14522.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.5.0/dlc) Repack FitGirl [Ultimate P
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14507.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14261.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14052.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13915.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Suit for Hire - захватывающий экшн с видом сверху, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FEC18E09B6B093DF526586654DA3F633198F611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803383   (13815) от 22.06.2025
-
-Reality Rash (2025) [Multi] (1.0.1) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reality Rash начинается после того, как корпоративная машина, созданная для навигации между различными реальностями, терпит критический сбой. Этот инцидент заставляет 4 отдельных измерения слиться в единое пространство. В результате технологической аварии 4 ключевых ядра устройства теряются и оказываются разбросаны по смешавшимся мирам. Событие запускает 72-часовой (   Читать дальше...   )Тип издания: SceneРазработчик: Give your jumpsЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Бразильский ПортугальскийЯзык субтитров: Английский, Китайский (упрощенный), Бразильский Португальский и другиеЯзык интерфейса: Английский, Бразильский Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60FF77765C0EFE770033802260952A60FEA867D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803368   (13781) от 22.06.2025
-
-Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack EXROW
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собирайте стадо и отправляйтесь в Goat Simulator 3 - новую, реалистичную «песочницу» на ферме. Присоединитесь к Пилгор на острове Сан-Ангора и приготовьтесь к головокружительным приключениям. Облизывайте, бодайте и ломайте всё, что захочется в огромном новом мире. Убивайте время самым бесцельным способом со времён оригинальной Goat Simulator! Мы не будем объяснять (   Читать дальше...   )Тип издания: RepackРазработчик: Coffee Stain North ABЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43EE7E38BA834A32A2EC644E15066C6D399117F
 ```
 
 https://mybot314.ru/tekegram_catalog/

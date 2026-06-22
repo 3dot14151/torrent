@@ -6,7 +6,7 @@ Angelina Hunter Trio - 2 Альбома (2018, 2023) 2CD [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210396.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Damon Smith - A Fresh Harvest From Old Seeds (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210386.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Guy Belanger - Voyages & Autres Histoires & Other Stories (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209874.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Rory Gallagher - All Around Man ( Live In London ) (2023) 2xCD[FLAC|Lossless|ima
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208622.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Joanne Shaw Taylor - Nobody's Fool (2022) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207254.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Too Slim And The Taildraggers  - 25 альбомов (1988 - 2022) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207130.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Joe Louis Walker - Weight of the World  (2023) [FLAC|Lossless|WEB-DL|tracks] <Mo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206860.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Anthony Gomes - Discography: 15 albums, 16CD (1997-2022) [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206073.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Willie Phoenix - Flower Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205630.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Dr. John - Things Happen That Way (2022) [FLAC|Lossless|tracks + .cue] <Blues, P
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205437.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Blindside Blues Band - XVI (2023) [FLAC|Lossless|image + .cue] <Blues-Rock, Hard
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205263.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Omar & The Howlers - What's Buggin' You? (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204876.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The Greatest Show On Earth - Horizons (1970) Reissue, 1994, Repertoire Records [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204643.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Bernie Marsden - Trios (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204146.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Ghost Hounds - First Last Time (2023) [FLAC|Lossless|WEB-DL|tracks] <blues-rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204085.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ana Popovic - Power (2023) Deluxe Edition [FLAC|Lossless|image + .cue] <Blues, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203673.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Richard Wilson - Promised Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203336.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ The Hurricane Party - Cat. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203333.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Gurf Morlix - I Challenge the Beast (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203325.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sandy Carroll - Love On It (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203323.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Willie J. Campbell - Be Cool (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203321.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ G and The Doctor - Dat Nola Trip (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Fo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203317.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Jeff Washington - Sweet Mama (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203314.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Jeff Michaels - Gritty Music Revisited (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203311.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Laurence Jones - Bad Luck & The Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203304.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Kevin Galway - Something Bartered Something Blue (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203284.jpg" />
 </div>
 
 

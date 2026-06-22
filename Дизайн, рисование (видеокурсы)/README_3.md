@@ -6,7 +6,7 @@ Jonathan Lampel | Creating Plants in Blender (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039504.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jonathan Hamilton | Painting with Ambient occlusion (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039492.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Chung Kan | 3D Creature Modeling for Production (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039491.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Kent Trammell | Short Film Character Production in Blender (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039450.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ James Paick | Environment Design 1 James Paick (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039434.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039433.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039423.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Blender Cloud | Процедурный шейдинг в Blender 2.8 и 2.9 / Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039250.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Michael Rigley | Design for Production: Workflow (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039038.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Adam Swaab | Houdini Particles (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038952.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ CG Cookie, Kent Trammell, Jonathan Lampel | Основы шейдинга в Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038754.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ CG Cookie, Kent Trammell | Шейдинг кожи в Cycles в Blender 2.69 / S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038752.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038749.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ James Paick | Vehicle/Mech Design Workshops (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038739.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Carlo Arellano | Character Design for Games Workshops (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038736.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Ryan Lang | The Art of Color And Light (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038735.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Jason Scheier | Fundamentals for Creative Environment Design (2015) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038734.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Darren Kwach | Environment Design: Sci-Fi World Workshops (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038733.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Ash Thorp | UI and Data Design for Film (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038729.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038716.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ CGCookie | Concept Art Fundamentals (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038677.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ CG Cookie, Kenan Proffitt | Создание VFX видеоролика в Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038675.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Jama Jurabaev | Narrative Concept Art Part 1,2 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038672.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ David Connely | Texturing a Game Character in Substance Painter and Designer (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038671.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Udemy, Sixon C Sunny | Архитектурный дизайн в Blender 2.82 �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038664.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Marco Bucci | The Art Of Color And Light with (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038656.jpg" />
 </div>
 
 

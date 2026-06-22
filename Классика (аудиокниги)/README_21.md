@@ -1,3 +1,55 @@
+###  Публикация: 515153   (656508) от 25.06.2012
+
+Генрик Сенкевич | Камо грядеши [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656508.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жанр: Исторический романПродолжительность: 28:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75200D01CAD8D2758B74B4926E74DB8B7A342FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903687   (656385) от 01.06.2015
+
+Николай Васильевич Гоголь | Вечера на хуторе близ Диканьки (2014) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656385.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вечера на хуторе близ Диканьки" — первое крупное произведение Николая Васильевича Гоголя, которое сразу же принесло ему известность и признание собратьев по перу. Веселая история про то, как в рождественскую ночь в украинском селе всех попутал бес и как могучему кузнецу Вакуле удалось одолеть нечистую силу и добыть для своей невесты царские черевички.Жанр: КлассикаИздательство: Нигде не купишьПродолжительность: 11:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E448D5B8BCFCBA0BE392B7ADC920A367C24DB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140333   (655722) от 06.06.2017
 
 Стефан Цвейг | Шахматная новелла (1981) [MP3, Юрий Яковлев]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655722.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654191.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651684.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650092.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649869.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649671.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649493.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649379.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648698.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648502.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648461.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648250.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647477.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646883.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646763.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645953.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645738.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644215.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644106.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644004.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642572.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642097.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642015.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636868.jpg" />
 </div>
 
 
@@ -626,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CEB1806A51FA438C017E90A261CAFD1059ECC9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033660   (636272) от 12.07.2016
-
-Жан Кокто | Карманный театр (1988) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жан Кокто - "изумительной души человек",- по словам Эдит Пиаф. Он был драматургом, поэтом, писателем, художником и актером, один из самых своеобразных представителей французской культуры хх века. Он любил актеров и написал для них одноактные пьессы-монологи. Вы услышите монологи, посвященные Эдит Пиаф, Жану Марэ, Анни Маньяни. Когд-то эти великие актеры (   Читать дальше...   )Жанр: КлассикаПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858C33AD98843BC53740ED2AD02A8C25015E47E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543183   (633560) от 09.04.2022
-
-Владимир Набоков | Приглашение на казнь (2022) [MP3, Владимир Солдатов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний берлинский роман Набокова и грозное предупреждение не только современникам, но и потомкам.
-
-Главному герою романа Цинциннату Ц. объявляют смертный приговор. Его обвиняют в страшнейшем из преступлений, настолько редком и ужасном, что даже сам он не может его назвать, предпочитая иносказательное «непрозрачность». Цинциннат отправляется в свою камеру в огромную (   Читать дальше...   )Жанр: Литература 20 века, Русская классикаПродолжительность: 06:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B81CC7BC8918833A9F52F3A004B02A1539E7E12
 ```
 
 https://mybot314.ru/tekegram_catalog/

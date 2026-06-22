@@ -1,3 +1,29 @@
+###  Публикация: 1779048   (2272) от 18.09.2025
+
+Door Kickers 2: Task Force North (2025) [Ru/Multi] (1.12) Repack Let'sРlay
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение нашумевшей тактической игры Door Kickers - Task Force North несомненно является лучшим симулятором современных тактических операций. Door Kickers 2 - это игра с видом сверху, где стратегия и тактика превыше всего. Отправляйте своих оперативников в бой, чтобы спасти невинных людей от террористической угрозы в вымышленной ближневосточной стране Новераки.Тип издания: RepackРазработчик: KillHouse GamesЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF8A782E6602DA35353EE5DE336F0AF77D5FEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743345   (2123) от 19.09.2025
 
 Operation: Polygon Storm (2024) [Multi] (1.5.2.7/dlc) License GOG
@@ -6,7 +32,7 @@ Operation: Polygon Storm (2024) [Multi] (1.5.2.7/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2123.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.04.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1402.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1261.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1248.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Old World (2022) [Ru/Multi] (1.0.79871/dlc) Repack Let'sРlay [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1117.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1114.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.01.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_723.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.2/dlc) Repack Let'sРlay [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_700.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack seleZen [Rei
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_587.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.45.9/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.003.111420/dlc) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125.jpg" />
 </div>
 
 

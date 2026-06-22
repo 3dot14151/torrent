@@ -1,3 +1,135 @@
+###  Публикация: 975509   (970286) от 16.01.2016
+
+Эшби / Ashby (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переехав в другой город, Эд начинает дружить со своим новым соседом Эшби - бывшим киллером ЦРУ, которому осталось жить всего несколько месяцев...Производство: США / Head Gear Films, Langley Park Productions, Metrol TechnologyЖанр: драма, мелодрама, комедия, криминалРежиссер: Тони МакНамараАктеры: Микки Рурк, Нат Вулф, Эмма Робертс, Сара Силверман, Кевин Данн, Захари Найтон, Майкл Лернер, Джон Инос III, Стив Култер, Том Ноуики, Адам Алдеркс, Сет ДаусменПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FEC3F2C9E04033ED4436D6DE8D2DFD5F425ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358140   (970271) от 06.02.2020
+
+Мое прекрасное лето с Софи / Une fille facile (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найме 16 лет, она живет в Каннах. Учебный год закончился, впереди каникулы — в компании с приехавшей из Парижа 22-летней кузиной Софи, готовой научить подросшую сестренку правилам взрослой жизни. Лови момент — ее главный девиз. А это значит — богатые и щедрые мужчины для того и существуют, чтобы делать счастливыми юных красавиц и дарить им удовольствия. Такое море (   Читать дальше...   )Производство: Франция / Les Films Velvet, France 3 Cinéma, Canal+Жанр: Драма, комедияРежиссер: Ребекка ЗлотовскиАктеры: Мина Фарид, Захия Дехар, Бенуа Мажимель, Нуно Лопеш, Клотильда Куро, Любна Абидар, Лакдхар Дриди, Анри-Ноэль Табари, Седрик Аппиетто, Микаэль МильориниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC35449EA1B5275DA7A2DF9B75649A994CB6FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975946   (970200) от 16.01.2016
+
+Анестезия / Anesthesia (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970200.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате нападения на профессора философии Колумбийского университета пересекаются жизни нескольких людей…Производство: СШАЖанр: Триллер, драмаРежиссер: Тим Блэйк НельсонАктеры: Дэвид Аарон Бэйкер, Деррик Баскин, Жаклин Баум, Ана Мари Кэлайз, Кэти Чанг, Эрика Чо, Гленн Клоуз, Скотт Коэн, Филип ЭттинджерПеревод: Любительский двухголосый (Паровоз продакшн)Субтитры: ОтсутствуютПродолжительность: 01:29:49Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D94F587747C60BC01D77A045810B495F2D4CC8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168115   (970032) от 20.01.2010
+
+Адский небоскреб / La tour Montparnasse infernale (2001) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два мойщика окон случайно оказываются у самой вершины небоскреба в тот момент, когда здание захватывает группа террористов. Незадачливые герои решают во что бы то ни стало спасти девушку, которую видели в окне. Им и в голову не приходит, что именно она возглавляет банду и готова на все, чтобы избавиться от лишних свидетелей.Производство: 4 Mecs à Lunettes Production, Canal+Жанр: КомедияРежиссер: Шарль НемесАктеры: Эрик Жюдор, Рамзи Бедиа, Марина Фуа, Серж Риабукин, Мишель Путтерфлам, Пьер Семмлер, Эдгар Гиври, Джоржд Триллат, Брюс ДжонсонПеревод: ДублированныйПродолжительность: 01:30:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168258   (970022) от 20.01.2010
+
+Психоаналитик / Shrink (2009) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДрамаРежиссер: Йонас ПэйтПеревод: Профессиональный (многоголосый, закадровый)
+
+ФайлФормат: AVI (XviD)Продолжительность: 01:44:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744724   (970004) от 12.01.2014
 
 Заложники / Kapringen (2012) BDRip [H.264]
@@ -6,7 +138,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970004.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969999.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969938.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969934.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969933.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969712.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969711.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969648.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969630.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969615.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969604.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969602.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969595.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969531.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969529.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969524.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969522.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969511.jpg" />
 </div>
 
 
@@ -476,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969467.jpg" />
 </div>
 
 
@@ -502,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969435.jpg" />
 </div>
 
 
@@ -528,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969405.jpg" />
 </div>
 
 
@@ -539,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9D9900F059738A2108A4EBD5909FA1B91B237DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358100   (969402) от 07.02.2020
-
-Предатель / Il traditore / The Traitor (2019) HDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969402.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 1980-х между боссами сицилийской мафии разгорается война за героиновый рынок. Один из мафиози, Томмазо Бушетта, пытается скрыться в Бразилии. В то время, как на его родине начинается бойня, Бушетта вынужден издалека наблюдать за тем, как его сыновей и братьев убивают в Палермо. Он понимает, что может стать следующим. Бразильская полиция арестовывает Бушетту (   Читать дальше...   )Производство: Италия, Франция, Бразилия, Германия / Ad Vitam Production, Arte France, Gullane Filmes, IBC Movie, Kavac Film, Match Factory Productions, Rai CinemaЖанр: Драма, биография, криминалРежиссер: Марко БеллоккьоАктеры: Пьерфранческо Фавино, Луиджи Ло Кашио, Фаусто Руссо Алези, Мария Фернанда Кандиду, Фабрицио Ферракане, Calì Nicola, Джованни Калканьо, Бруно Карьелло, Бебо Сторти, Vincenzo PirrottaПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1200FAD1AE39A00B55259594B60B5E041A0BAEF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358283   (969398) от 07.02.2020
-
-Предатель / Il traditore / The Traitor (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969398.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 1980-х между боссами сицилийской мафии разгорается война за героиновый рынок. Один из мафиози, Томмазо Бушетта, пытается скрыться в Бразилии. В то время, как на его родине начинается бойня, Бушетта вынужден издалека наблюдать за тем, как его сыновей и братьев убивают в Палермо. Он понимает, что может стать следующим. Бразильская полиция арестовывает Бушетту (   Читать дальше...   )Производство: Италия, Франция, Бразилия, Германия / Ad Vitam Production, Arte France, Gullane Filmes, IBC Movie, Kavac Film, Match Factory Productions, Rai CinemaЖанр: Драма, биография, криминалРежиссер: Марко БеллоккьоАктеры: Пьерфранческо Фавино, Луиджи Ло Кашио, Фаусто Руссо Алези, Мария Фернанда Кандиду, Фабрицио Ферракане, Calì Nicola, Джованни Калканьо, Бруно Карьелло, Бебо Сторти, Vincenzo PirrottaПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84CEDF5DF27F3EA488BACAAC7B92B6C9A08B5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976423   (969334) от 17.01.2016
-
-Гамбит / Gambit (2012) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969334.jpg" />
-</div>
-
-
-###  Подробнее
-
-История лондонского любителя искусств, задумавшего обмануть богатого коллекционера и заставить его купить фальшивую картину Моне. Для этого он договаривается с разбитной девахой из Техаса. Героиня не имеет никакого отношения к искусству — она работает на родео. Однако она будет выдавать себя за женщину, чей дедушка раздобыл картину в конце Второй мировой войны.Производство: СШАЖанр: Комедия, криминалРежиссер: Майкл ХоффманАктеры: Колин Фёрт, Кэмерон Диаз, Алан Рикман, Стэнли Туччи, Клорис Личмен, Том Кортни, Сенем Темиз, Анна Скеллерн, Того Игава, Эрика ЛаРоуз, Грег Беннетт, Джерард Хоран, Чилли Мо, Сара Голдберг, Екатерина Ботциу, Сильвия Крастан, Грэхэм Керри, Танрох Ишида, Симона Либман, Масаси Фудзимото, Гари Свон, Мартин Пул, Филип Дехэни, Фрэнк Стоун, Майк Ноубл, Мартин Мур, Спенсер (   Читать дальше...   )Перевод: Дублированный (лицензия)Язык субтитров: Русский, английскийПродолжительность: 01:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6801950EA67A99F6832E9F522A68286DBF98748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358298   (969309) от 07.02.2020
-
-21 мост / 21 Bridges (2019) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он охотится на преступников, которые совершили на Манхэттене дерзкое ограбление, оставив после себя 8 мертвых полицейских. А продажные копы тем временем охотятся на него, пытаясь подставить. Но преступникам не скрыться, так как первый раз в истории Нью-Йорка полиция перекрыла все выходы с острова, в том числе 21 мост.Производство: США / AGBO, Huayi Brothers, MWM StudiosЖанр: боевик, триллер, драма, криминалРежиссер: Брайан КиркАктеры: Чедвик Боузман, Сиенна Миллер, Тейлор Китч, Дж.К. Симмонс, Стефан Джеймс, Кит Дэвид, Александр Сиддиг, Луис Канселми, Виктория Картахена, Гари КаррПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE01E471616232B4646DDAF1A03565AD2310318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358395   (969302) от 07.02.2020
-
-Пароль: Хаус / H0us3 (2018) WEB-DLRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рафа и Люсия приглашают компанию своих бывших однокурсников провести уикенд в их загородном доме. Тишина и шикарные виды, вино, веселые воспоминания… Во время ужина Рафа, еще в студенчестве заслуживший звание компьютерного гения, признается, что нашел в интернете и расшифровал архив с суперсекретной программой. И теперь, установив эту программу на обычный смартфон, (   Читать дальше...   )Производство: Испания, Ghostdog SL, Horror BoxЖанр: Ужасы, фантастика, триллерРежиссер: Маноло МунгуйяАктеры: Мириам Тортоза, Мариона Тена, Бернат Местре, Анна Бертран, Виктор Гомес, Рок Эсквиус, Диана Ройг, Рубен Серрано, Кристина Райя, Мариола ФустерПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB917D5A2C193769387ED92046050CC5C403356C
 ```
 
 https://mybot314.ru/tekegram_catalog/

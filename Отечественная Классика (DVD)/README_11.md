@@ -1,3 +1,30 @@
+###  Публикация: 142768   (26851) от 22.02.2025
+
+Бег (1970) DVD9
+
+>>След.
+>>Отечественная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26851.jpg" />
+</div>
+
+
+###  Подробнее
+
+По произведениям Михаила Булгакова: "Бег", "Белая гвардия", "Чёрное море".
+Двадцатый год. Гражданская война близится к завершению. После вторжения Красной Армии в Крым начинается исход всех, кто искал спасения от революции. В этом страшном течении оказываются рядом самые разные люди - беззащитная Серафима Корзухина и полковая дама Люська, (   Читать дальше...   )Производство: СССР,  киностудия "Мосфильм"Жанр: Драма, военный, историяРежиссер: Александр Алов, Владимир НаумовАктеры: Владислав Дворжецкий, Людмила Савельева, Алексей Баталов, Михаил Ульянов, Татьяна Ткач, Евгений Евстигнеев, Владимир Заманский, Николай Олялин, Бруно Фрейндлих, Владимир Басов, Олег ЕфремовПеревод: Оригинальная русская озвучкаЯзык субтитров: РусскийПродолжительность: 03:04:31 (1 серия - 01:28:49; 2 серия - 01:35:42)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F612A9A6CF1B97738C038E2738809BFEC5F27804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 15414   (23182) от 29.03.2025
 
 Интервенция (1968) DVD9
@@ -6,7 +33,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23182.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22057.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21823.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20776.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17913.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17642.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15112.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13936.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13652.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13420.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11154.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10957.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10592.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9235.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4875.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3924.jpg" />
 </div>
 
 

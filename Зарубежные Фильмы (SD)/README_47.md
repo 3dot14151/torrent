@@ -1,3 +1,133 @@
+###  Публикация: 1480936   (1008517) от 01.07.2021
+
+Спиритический сеанс / Seance (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камилл — новенькая в элитной женской школе, где недавно при загадочных обстоятельствах погибла одна ученица. Когда умирает очередная девушка, Камилл выясняет, что несчастья начали случаться после спиритического сеанса, во время которого девушки в шутку вызывали дух самоубийцы, покончившей с собой в этих стенах много лет назад.Производство: США / Dark Castle Entertainment, HanWay Films, Ingenious MediaЖанр: Ужасы, детективРежиссер: Саймон БарретАктеры: Сьюки Уотерхаус, Мэдисен Бити, Инанна Саркис, Элла-Рэй Смитт, Стефани Сай, Джейд Майкл, Марина Стивенсон Керр, Джульет Амара, Симус Паттерсон, Меган БесПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (forced) - отдельноПродолжительность: 01:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52C308DC79AB13163EF40CB65DB2C9E743895AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480945   (1008514) от 01.07.2021
+
+Ледяной драйв / The Ice Road (2021) WEB-DLRip [H.265] [10-bit] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Север Канады. Ненадёжный апрельский лёд, вес грузовика — 33 тонны. Проехать по замерзшей поверхности озера возможно только на определенной скорости, а остановка или ускорение означают верную смерть. Но именно такая задача стоит перед колонной грузовиков — только они могут спасти людей, оказавшихся в обрушившейся алмазной шахте. Однако ни трескающийся под колёсами (   Читать дальше...   )Производство: США / Code Entertainment, ShivHans Pictures, Envision Media ArtsЖанр: Боевик, ТриллерРежиссер: Джонатан ХенслиАктеры: Лиам Нисон, Маркус Томас, Лоуренс Фишборн, Эмбер Мидфандер, Бенджамин Уокер, Холт Маккэллани, Мэтт МакКой, Мартин Сенсмейер, Мэтт Сэлинджер, Чад БрюсПеревод: Дублированный (Line), Любительский двухголосый (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Английские (full, SDH)Продолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2178FA183F4B65C19BFF1E8D03702DAA86A5038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480935   (1008508) от 01.07.2021
+
+Короче говоря / Long Story Short (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тедди — классический прокрастинатор, всегда опаздывает, находит массу причин не выполнять свои обязанности и просто не ценит свое и чужое время. Однажды он просыпается после свадьбы и обнаруживает, что через каждые сутки он перескакивает на целый год своей жизни. Теперь ему придется не только побороться за любовь, но и научиться по-настоящему ценить каждое мгновение (   Читать дальше...   )Производство: Австралия / Create NSW, Screen Australia, See Pictures, Spectrum Films, Studio CanalЖанр: Мелодрама, комедияРежиссер: Джош ЛоусонАктеры: Рейф Сполл, Джош Лоусон, Ронни Чиэн, Дена Каплан, Нони Хазлхерст, Зара НьюманПеревод: Профессиональный многоголосый (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F359B2862C5FEE3BD9727D3A21971822AFC97AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481279   (1008384) от 02.07.2021
+
+Война будущего / The Tomorrow War (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008384.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем идёт разрушительный конфликт с инопланетной расой. В попытке переломить ход войны учёные начинают призывать в свою армию солдат из прошлого.Производство: США / Skydance Productions, Lit Entertainment Group, New Republic PicturesЖанр: Фантастика, боевикРежиссер: Крис МакКейАктеры: Крис Пратт, Ивонн Страховски, Дж.К. Симмонс, Бетти Гилпин, Сэм Ричардсон, Жасмин Мэтьюз, Эдвин Ходж, Райан Кира Армстронг, Кит Пауэрс, Мэри Линн РайскабПеревод: Профессиональный многоголосый (NewComers)Язык озвучки: РусскийСубтитры: Русские (forced, full) - отдельноПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2229BA23463A33229513DFBEB5A997D2C84AC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481129   (1008366) от 02.07.2021
+
+Модификаты / Enhanced (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда правительство объявляет модифицированных мутантов вне закона, им приходится податься в бега. Уникальные способности делают из них изгоев, считающихся опасными для общества. Их выслеживают специальные агенты, которым приказано уничтожать одного за другим. Охота уже началась, но внезапно на арену выходит усовершенствованный модификат нового поколения: машина (   Читать дальше...   )Производство: Канада / IndiePro Studios, JP Action FilmЖанр: Фантастика, боевикРежиссер: Джеймс МаркАктеры: Джордж Чертов, Аланна Бэйл, Адриан Холмс, Крис Марк, Эрик Хикс, Майкл Джозеф Делани, Патрик Сабонгуй, Элвис Стойко, Стефано Коласитти, Джеффри Р. СмитПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), Английские (SDH)Продолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3B004BFC1FA53439B31A86C2C4382970AC1405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473791   (1008306) от 03.07.2021
 
 Айла: Дочь войны / Ayla: The Daughter of War (2017) WEB-DLRip [MVO]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008306.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008228.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008208.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008193.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008074.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008073.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008048.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007819.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007803.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007802.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007542.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007515.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007234.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007224.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007216.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007072.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007048.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007045.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007042.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006719.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006699.jpg" />
 </div>
 
 
@@ -537,138 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B64579CC5200F5B0B2250EF6399A584C5CFAAA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483559   (1006697) от 14.07.2021
-
-История Золушки: Встреча со звездой / A Cinderella Story: Starstruck (2021) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финли Тремейн, деревенская девушка из маленького городка, мечтает расправить крылья и воспарить как начинающая исполнительница. Когда голливудская съемочная группа прибывает в ее сонный город, она полна решимости получить роль в постановке и привлечь внимание красивого ведущего актера Джексона Стоуна. К сожалению, неудачное прослушивание вынуждает ее изменить курс. (   Читать дальше...   )Производство: США / Warner Bros. Home EntertainmentЖанр: мелодрамаРежиссер: Мишель ДжонстонАктеры: Бэйли Мэдисон, Майкл Эванс Белинг, Эйприл Телек, Лилиан Дусе-Рош, Ричард Хэрмон, Мэтти Финочио, Рэймонд Джонсон-Браун, Кирстин КонигПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full), английскиеПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D401A43F30AEC2C10DA255ECFE46EA8FA208F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483812   (1006468) от 16.07.2021
-
-Между двух огней / Profil bas (1993) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006468.jpg" />
-</div>
-
-
-###  Подробнее
-
-История флика, недорого проданного своими коллегами, и начавшего играть против всех... или на всех. Стрельба, выбитые зубы, шизанутые отморозки и яркие брюнетки прилагаются.
-Мы знаем Клода Зиди по его сатире на гнилых легавых: Les Ripoux, но здесь все с серьезным лицом.Производство: Франция / TF1 Films Production, Film Par Film, Films 7Жанр: боевик, драма, мелодрама, детективРежиссер: Клод ЗидиАктеры: Патрик Брюэль, Дидье Безас, Жан Ян, Жак Рони, Жан-Луи Трибе, Жан-Пьер Кастальди, Арно ДжованинеттиПеревод: Многоголосый профессиональныйСубтитры: нетПродолжительность: 01:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697DBF9AEA4E70DD00022F037A3B554F7C366C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483837   (1006440) от 16.07.2021
-
-Афера Оливера Твиста / Twist (2021) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный талантливый художник, живущий в Лондоне, случайно попадает в банду, которая готовит дерзкую кражу бесценной картины.Производство: Великобритания / Unstoppable Film and Television, Pure Grass Films, Particular CrowdЖанр: Боевик, драмаРежиссер: Мартин ОуэнАктеры: Dominic Di Tommaso, Лина Хиди, Сэмми Лики, Салли Коллетт, Мартин Оуэн, Майкл Кейн, Рафф Лоу, Ли Френсис, Джейд Аллейн, Рита ОраПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91407BE11DBFF6B85E85E2DAA3B02188CA7871DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484043   (1006360) от 17.07.2021
-
-Она умрёт завтра / She Dies Tomorrow (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эми уверена, что завтра умрёт. Она напивается и говорит подруге Джейн, чтобы после смерти та сделала из её кожи куртку. Джейн пытается вразумить Эми, но эта странная убеждённость оказывается заразной — теперь она тоже уверена, что завтра умрёт.Производство: США / Rustic FilmsЖанр: Триллер, ДрамаРежиссер: Эми СаймецАктеры: Кейт Лин Шейл, Джейн Адамс, Кентакер Одли, Кэтрин Аселтон, Крис МессинаПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английскиеПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834D9801722B5B127DC2CD900297F71DCD844034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482779   (1006354) от 17.07.2021
-
-Смертельные мысли / Mortal Thoughts (1991) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синтия и Джойс - лучшие подруги, и судьба подвергает их дружбу страшному испытанию. Неуравновешенный муж Джойс найден мертвым. Много раз несчастная женщина обещала убить его.
-И накануне гибели между ними вспыхнула очередная ссора. Синтия прекрасно знала мрачную историю их взаимоотношений, но у следователя не сказала ни слова правды. Это была ложь во спасение. Но (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, New Visions Pictures, Polar Entertainment Corporation, Rufglen FilmsЖанр: Триллер, ДетективРежиссер: Алан РудольфАктеры: Деми Мур, Гленн Хедли, Брюс Уиллис, Джон Пэнкоу, Харви Кейтель, Билли Нил, Фрэнк Винсент, Карен Шалло, Кристал Филд, Марианн ЛеонеПеревод: Многоголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA51F1C86789B0A93B382F71C4634D1F182264D
 ```
 
 https://mybot314.ru/tekegram_catalog/

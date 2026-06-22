@@ -1,3 +1,29 @@
+###  Публикация: 1566211   (486292) от 27.07.2022
+
+Куба и кинооператор / Cuba and the Cameraman (2017) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поставив перед собой задачу исследовать кубинскую революцию от и до, режиссёр фильма в течение 45 лет (с 1972 по 2016 год) снимал Фиделя Кастро и простых кубинцев.Телекомпания: СШАЖанр: ДокументальныйРежиссер: Джон АлпертПеревод: Многоголосый закадровый (GreenРай Studio)Язык озвучки: Русский, английскийСубтитры: Английские, немецкие, испанские и др.Продолжительность: 01:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D461DB70E1D95E0AE63E8FB83748CBB2857496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936554   (485832) от 16.09.2015
 
 Киножурнал. Хроника. Сталин (1939) VHSRip
@@ -6,7 +32,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485832.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485829.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484077.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483979.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481687.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476056.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475062.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469791.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469681.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469483.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460118.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456618.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454832.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454743.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454313.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449568.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448323.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444127.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442518.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439431.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438088.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Facebook. История звездного мальчика (2012) SATRip  [H.2
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_435877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_435877.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421473.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421196.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420476.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F5309B1E1613A6412F76B5DCD98BDCD27DF624D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410019   (420083) от 28.09.2020
-
-Титаны ХХ века / Titans of the 20th Century (2019) DVB [H.264] (серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420083.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе программы – истории самых влиятельных людей прошлого века. Франклин Рузвельт, Уинстон Черчилль, Адольф Гитлер, Иосиф Сталин. Эти могущественные личности сформировались в разных частях света, исповедовали совершенно разные политические доктрины и, казалось бы, не имели общих черт, но мы увидим, что за их различиями скрывается и много общего - стремление к (   Читать дальше...   )Телекомпания: Великобритания / WildBear EntertainmentЖанр: Документальный, История, ПолитикаРежиссер: Mike KenneallyПеревод: Двухголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:00 (серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEECFB4653681E274C4AECB8DA886616A4027BB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

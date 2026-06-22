@@ -1,3 +1,29 @@
+###  Публикация: 1143857   (632921) от 19.06.2017
+
+Илья Ильф, Евгений Петров | Золотой телёнок. Впервые полностью (2000) [DJVU]
+
+>>Художественная литература
+>>Сатира, Юмор
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632921.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сих пор «Золотой теленок» И. Ильфа и Е. Петрова издавался не полностью и не в том виде, в каком его написали авторы, а в том, в каком его «разрешили» советские редакторы и советская цензура. Теперь — впервые в истории — выходит полная версия знаменитого романа, восстановленная известными филологами Давидом Фельдманом и Михаилом Одесским. На самом деле роман начинался (   Читать дальше...   )Жанр: Юмор и сатираФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191182EF61DD4C0566D229906567CBACA7EA4648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524853   (609048) от 20.07.2012
 
 Е. Обухов, В. Георгиев (сост.) | Самые смешные рассказы (2010) [RTF, TXT]
@@ -6,7 +32,7 @@
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609048.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604927.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604225.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604089.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592907.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590869.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589716.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584659.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577433.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575314.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_574375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_574375.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564998.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548126.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546340.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540784.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538758.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523939.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523895.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523888.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522457.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522455.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522449.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522446.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518164.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513247.jpg" />
 </div>
 
 
@@ -658,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EF429FDA5F95F53D03D05F92A284A258D37879C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540284   (504490) от 28.08.2012
-
-Джон Мэкс | Как быть смешным (2006) [RTF]
-
->>Художественная литература
->>Сатира, Юмор
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто не мечтал с легкостью ответить на язвительное замечание, остроумно пошутить, разрядив напряженную атмосферу; или завязать знакомство при помощи смешного замечания? Для того чтобы быть остроумным, вам нужно постоянно работать над этим.
-"Как быть смешным" - веселое руководство, которое научит вас непринужденно шутить в повседневном общении.Жанр: Юмор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02645A89F0D5700575E5721AAD4DE7266E06AFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

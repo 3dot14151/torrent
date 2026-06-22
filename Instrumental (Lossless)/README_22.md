@@ -6,7 +6,7 @@ Dave Kalz - Relish (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008964.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bonnie Kay and the Bonafides - Handyman (2021) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008960.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Deek Jackson - I Got the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008952.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charlie Hunter & Lucy Woodward - I'm a Stranger Here (2021) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008947.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Broke Fuse - Rocket Ride (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008930.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Roberta Flack - 3 Albums (1970/2021) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008922.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Barbara Lewis - Don't Forget About Me: The Atlantic & Reprise Recordings (2020) 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007839.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Dave Rudolf - Nostalgia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007738.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Sonic Blue - Last Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007726.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Quinn Sullivan - Wide Awake (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007266.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Sananda Maitreya - The Sphinx (2011) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006795.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sananda Maitreya - Pandora's PlayHouse (2021) [FLAC|Lossless|WEB-DLL|tracks] <Fu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006790.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Ben Jud - Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006516.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Chris King Robinson - Chris King Robinson (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006507.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Brian Walton - Still Got My Mojo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006501.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Teena Marie - Super Hits (2002) Compilation [FLAC|Lossless|WEB-DL|tracks] <R&B, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006402.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Gino Fanelli Live - King of Nuthin (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006259.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Clint Morgan - Troublemaker (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006258.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Steve Morgan and the Kingfish - When Will I Know (2021) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006250.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Wee Willie Walker & The Anthony Paule Soul Orchestra - Not in My Lifetime (2021)
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006234.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ DRUM&BEEKER - Peter Beeker - GRMBL (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006111.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Blues Band - Let The Good Times Roll (2021) Live [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006105.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Christone Kingfish Ingram - 662 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005429.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ John Mooney - All I Want (2002) [WavPack|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004972.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Frank B Montoya - Burnin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004565.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Emily Duff - Razor Blade Smile (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004546.jpg" />
 </div>
 
 

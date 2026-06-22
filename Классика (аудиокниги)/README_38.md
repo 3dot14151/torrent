@@ -1,3 +1,58 @@
+###  Публикация: 1837722   (257713) от 18.11.2025
+
+Фёдор Достоевский | Скверный анекдот (2002) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
+Рассказ «Скверный анекдот» написан в сатирическом ключе, с элементами гротеска, и впервые опубликован в журнале «Время» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 03:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33901D8F027CC312C580C2AC2D445C8012C0F421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837865   (257624) от 19.11.2025
+
+Всеволод Соловьёв | Гений (2015) [MP3, Владимир Левашёв]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Всеволод Сергеевич Соловьёв (1849–1903) – русский писатель, автор популярных исторических романов. Прекрасный беллетрист, истинный художник слова, обладавший блестящим литературным даром и тонким вкусом, Всеволод Соловьёв, помимо исторических произведений, писал яркие «бытовые» рассказы, в которых создавал психологически глубокие образы, (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 01:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7185BB72882A62DE76AB038748F3EB0A13961F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837867   (257622) от 19.11.2025
 
 Всеволод Соловьёв | Монах поневоле (2020) [MP3, Александр Бордуков]
@@ -6,7 +61,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257622.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256359.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255593.jpg" />
 </div>
 
 
@@ -91,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255590.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254806.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254135.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254133.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254132.jpg" />
 </div>
 
 
@@ -230,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254127.jpg" />
 </div>
 
 
@@ -258,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254113.jpg" />
 </div>
 
 
@@ -287,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254101.jpg" />
 </div>
 
 
@@ -315,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253075.jpg" />
 </div>
 
 
@@ -343,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253067.jpg" />
 </div>
 
 
@@ -371,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252601.jpg" />
 </div>
 
 
@@ -398,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252600.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252599.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252598.jpg" />
 </div>
 
 
@@ -484,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252319.jpg" />
 </div>
 
 
@@ -511,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252318.jpg" />
 </div>
 
 
@@ -539,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250737.jpg" />
 </div>
 
 
@@ -568,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250735.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250557.jpg" />
 </div>
 
 
@@ -626,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250556.jpg" />
 </div>
 
 
@@ -655,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250555.jpg" />
 </div>
 
 
@@ -668,63 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:067D0E3A147338DC3E82A7E2233B143B61A61A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835154   (250554) от 05.11.2025
-
-Максим Горький | Дачники (Радиоспектакль) (2014) [MP3, Леонид Галлис, Алексей Консовский, Мария Волкова, и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Максим Горький (1868–1936) – русский писатель, литературный критик и публицист, в творчестве которого нашли отражение история, быт и культура России первой трети XX века.
-Спектакль «Дачники» по одноимённой пьесе Максима Горького, написанной им в 1904 году. Спектакль о русской интеллигенции, беседующей на философские темы (   Читать дальше...   )Жанр: Русская литература, классика, драма, пьесаИздательство: ИДДК, БизнессофтПродолжительность: 03:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4575058B9BF8BEF2DF89671B8289A2A1372310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835152   (250553) от 05.11.2025
-
-Максим Горький | Васса Железнова (Радиоспектакль) (2013) [MP3, Вера Пашенная, Михаил Жаров и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Звуковой архив Малого театра».
-Максим Горький (1868–1936) – русский писатель, литературный критик и публицист, в творчестве которого нашли отражение история, быт и культура России первой трети XX века.
-Пьеса «Васса Железнова» – Максима Горького, написанная в 1910 году и переработанная в 1935 году.
-Радиопостановка Государственного академического Малого (   Читать дальше...   )Жанр: Русская литература, классика, драма, пьесаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 01:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3360FEC250985F9B713AB3D71EF343E76AF258CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

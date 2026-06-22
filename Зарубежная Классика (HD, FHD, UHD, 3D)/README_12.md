@@ -1,3 +1,55 @@
+###  Публикация: 862555   (926639) от 25.01.2015
+
+Однажды в Америке / Once Upon a Time in America (1984)  BDRip [H.264/720p-LQ] [Extended Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926639.jpg" />
+</div>
+
+
+###  Подробнее
+
+В бурные двадцатые годы, когда Америка веселилась под звуки джаза и каждый бродяга мечтал стать миллионером, в трущобах Нью-Йорка встретились несколько отчаянных парней. Убирая с дороги конкурентов, безжалостно карая предателей и нагло проворачивая хитроумные аферы, они стали королями преступного мира золотой эры «сухого закона». Они поклялись отдать жизнь друг за (   Читать дальше...   )Производство: США , ИталияЖанр: Драма, криминалРежиссер: Серджио ЛеонеАктеры: Роберт Де Ниро, Джеймс Вудс, Элизабет МакГоверн, Джо Пеши, Берт Янг, Тьюзди Уэлд, Трит Уильямс, Дэнни Айелло, Ричард Брайт, Джеймс ХейденПеревод: Авторский (одноголосый закадровый)Язык субтитров: Русский , АнглийскийПродолжительность: 04:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8E7EE269F55E9631E446E033514DFA77CF924E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981691   (925911) от 17.02.2016
+
+Не тот человек / The Wrong Man (1956) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925911.jpg" />
+</div>
+
+
+###  Подробнее
+
+История музыканта — Мэнни Балестреро, человека, переполненного скрытой яростью из-за своего ошибочного ареста. Его подавленную горем жену Роуз суровые испытания доводят до сумасшествия.Производство: США, Warner Bros.Жанр: Драма, КриминалРежиссер: Альфред ХичкокАктеры: Генри Фонда, Вера Майлз, Энтони Куэйл, Харольд Стоун, Джон Хелдабрэнд, Дарлин Лэнг, Норма Коннолли, Лола Д’Аннунцио, Роберт Эссен, Дейтон ЛаммисПеревод: Многоголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 1:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFB6D4E979432CAEC4000E1B8F6EDB4771373E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 286899   (925166) от 27.01.2011
 
 Кобра / Cobra (1986) [1080p] Blu-ray
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925166.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924949.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923854.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923405.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923303.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922645.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921919.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921910.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921725.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921688.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920425.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920399.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920389.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919856.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919663.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918935.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918702.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917557.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915261.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914334.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913799.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912857.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911939.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911716.jpg" />
 </div>
 
 
@@ -621,60 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC4A18442FA5A9AE76C8A5383DEE25A30B3B17F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984230   (911424) от 25.02.2016
-
-На той стороне 110-й улицы / Across 110th Street (1972) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелкие чернокожие преступники отважились на нахальное преступление: они украли у итальянского гангстера 300 тысяч долларов и теперь находятся в бегах. За дело берутся двое полицейских — коррумпированный коп и его юный чернокожий напарник. Остается только один вопрос, кто первым доберется до воришек: служители закона или итальянские мафиози…Производство: США, Film GuarantorsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Бэрри ШирАктеры: Энтони Куинн, Яфет Котто, Фрэнк Эду, Фрэнк Арно, Пол Бенджамин, Эд Бернард, Тина Бейер, Джерри Блэк, Сэмюэл Блу мл.Перевод: Многоголосый закадровыйЯзык субтитров: английскиеПродолжительность: 01:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030A6AAEEB0C683F231265B23F66325334AD05E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490839   (910199) от 25.08.2021
-
-Падение Римской империи / The Fall of the Roman Empire (1964) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правлению императора Марка Аврелия приходит конец, умирая, он назначает своим преемником не сына Комадаса, а полководца Гая Ливия, влюбленного в его дочь.
-Именно из-за этого Комадас все-таки приходит к власти и ситуация в Римской империи резко меняется: рушатся все военные и политические достижения, племена
-варваров вместе с предводителями бывших имперских провинций (   Читать дальше...   )Производство: США / Samuel Bronston ProductionsЖанр: Драма, военный, историяРежиссер: Энтони МаннАктеры: Софи Лорен, Стивен Бойд, Алек Гиннесс, Джеймс Мэйсон, Кристофер Пламмер, Энтони Куэйл, Джон Айрленд, Омар Шариф, Мел Феррер, Эрик ПортерПеревод: Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, украинский, английскийСубтитры: ОтсутствуютПродолжительность: 03:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF51393282DA58FD737EC8DE1E0DE9A01BC736E
 ```
 
 https://mybot314.ru/tekegram_catalog/

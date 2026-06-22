@@ -1,3 +1,117 @@
+###  Публикация: 1174611   (385087) от 15.10.2017
+
+Movavi Screen Capture Pro 5 v5.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записывайте всё, что происходит на экране!
+Movavi Screen Capture Pro для Mac поможет быстро и легко делиться с коллегами происходящим на экране при помощи видео и скриншотов. Показывайте «баги» и ошибки на скриншотах, добавляйте пояснительные стрелки и надписи. Записывайте важные видеозвонки и онлайн-собеседования, чтобы вернуться к ним позже. Экономьте время благодаря (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2017Разработчик: MovaviПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61E3ED27C8E4C936906AD5CADB53008E3FA4180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067902   (385029) от 30.10.2016
+
+Patterns - The Regex App 1.1.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Patterns - простой, но мощный инструмент для работы с регулярными выражениями. Строить большие модели быстро и без особых усилий с подсветкой синтаксиса, а также с соответствием и заменой происходит в режиме реального времени.
+
+Особенности:
+- Синтаксис регулярных выражений.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 октября 2016Разработчик: Nikolai KrillПоддерживаемая ОС: OS X 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C2DB9C596E0A06D3DB8DB752192EB62BF0D3CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326391   (384989) от 20.09.2019
+
+Leaf - RSS News Reader 5.1.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leaf интуитивно понятная читалка для RSS новостей
+Leaf является удивительным для чтения новостей для вашего Mac. Читайте, делитесь и пользуйтесь поиском новости на всех ваших любимых веб-сайтов.
+
+Leaf проще как по функциям, так и по внешнему виду. В читалке появилась поддержка агрегатора Feedly, так что теперь без проблем можно прыгать между Leaf, ReadKit и Reeder (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2019Разработчик: Rocky Sand StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3858668E75860EE6835765344B42B03EA20086A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174418   (384831) от 15.10.2017
+
+Movavi Video Editor 5 Plus 5.0.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактор видео для Mac OS от Movavi
+Встречайте лучшую программу для обработки видео на Мак – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий.
+
+Просто загрузите фото и видео в программу, исправьте качество одним (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: MovaviПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9782B9D40A1EDF60F62D1A55B5A1D7A7DED3AF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067999   (384360) от 30.10.2016
 
 Wondershare PDF Converter Pro (OCR) 5.1.0 [Multi]
@@ -6,7 +120,7 @@ Wondershare PDF Converter Pro (OCR) 5.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384360.jpg" />
 </div>
 
 
@@ -34,7 +148,7 @@ Extensis Suitecase Fusion 3 14.0.4 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_384339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_384339.jpg" />
 </div>
 
 
@@ -62,7 +176,7 @@ popCalendar 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383398.jpg" />
 </div>
 
 
@@ -90,7 +204,7 @@ Deskovery3 v3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382655.jpg" />
 </div>
 
 
@@ -119,7 +233,7 @@ Intaglio 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381772.jpg" />
 </div>
 
 
@@ -145,7 +259,7 @@ DjVuReader EX 1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381125.jpg" />
 </div>
 
 
@@ -173,7 +287,7 @@ IINA 0.0.14 (build 45) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380928.jpg" />
 </div>
 
 
@@ -199,7 +313,7 @@ WindowMizer 4.4.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380597.jpg" />
 </div>
 
 
@@ -228,7 +342,7 @@ Studies 1.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379629.jpg" />
 </div>
 
 
@@ -256,7 +370,7 @@ Dejal Simon 4.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379627.jpg" />
 </div>
 
 
@@ -282,7 +396,7 @@ JustBroadcaster for Facebook 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379619.jpg" />
 </div>
 
 
@@ -309,7 +423,7 @@ Watercolor Studio Pro 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379527.jpg" />
 </div>
 
 
@@ -335,7 +449,7 @@ ChatMate for Facebook 4.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379524.jpg" />
 </div>
 
 
@@ -361,7 +475,7 @@ iGif Creator 4.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379523.jpg" />
 </div>
 
 
@@ -387,7 +501,7 @@ JustBroadcaster for YouTube 2.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379522.jpg" />
 </div>
 
 
@@ -415,7 +529,7 @@ Icon Plus - Icon & Logo Design 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379404.jpg" />
 </div>
 
 
@@ -441,7 +555,7 @@ OmniPlan Pro 3 v3.10.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379308.jpg" />
 </div>
 
 
@@ -467,7 +581,7 @@ Movavi Video Editor 15 Plus 15.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379299.jpg" />
 </div>
 
 
@@ -493,7 +607,7 @@ ChatMate for WhatsApp 4.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379202.jpg" />
 </div>
 
 
@@ -519,7 +633,7 @@ Wondershare Filmora 8.7.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379198.jpg" />
 </div>
 
 
@@ -545,7 +659,7 @@ OS X Server 5.0.15 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379149.jpg" />
 </div>
 
 
@@ -573,7 +687,7 @@ Adware Zap Pro 2.8.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379120.jpg" />
 </div>
 
 
@@ -585,113 +699,6 @@ Adware Zap Pro 2.8.3 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99FF3E432C6E6375C27E93010A9114B994050E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415213   (379104) от 11.10.2020
-
-Seasonality Core 2.7.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Seasonality Core - превращает ваш Mac в домашнюю метеостанцию, показывая вам, прогноз погоды с использованием спутниковых и радиолокационных изображений, с помощью которых вы сможете посмотреть облачность и где идет дождь или снег. Также можно посмотреть погоду на следующие 7 дней. Вы можете следить за погодой не только в вашем городе, но и по городам всего мира. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Gaucho Software, LLC.Поддерживаемая ОС: macOS 10.8.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE3B00C5BE610998474FDDC07969E8EBE83B119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415315   (378947) от 11.10.2020
-
-Bongiovi Digital Power Station (DPS) 2.1.0.15 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bongiovi Digital Power Station ™ (DPS) - это идеальное решение для обработки звука которое сочетает в себе усовершенствованную акустическую технологию, созданную звукорежиссерами со страстью к отличному звучанию.
-Bongiovi DPS - запатентованный алгоритм, который оптимизирует аудио в реальном времени. Профили DPS создаются и реализуются для максимальной гибкости звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Bongiovi AcousticsПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D1D06FED2EE3926E609839ECDE33AEE4E9678B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175399   (378764) от 18.10.2017
-
-Productivity Lab for Pages - Templates Bundle 3.2.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Business Template Lab - представляет собой комплект из более, чем 600 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей, товарных чеков и счетов, заканчивая различными формами для менеджемента и других публикаций.
-
-Сотни профессиональных шаблонов и почти бесконечных возможностей настройки делают этот комплект, самым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1F41E58D3B8995FAC8F16B2CCC261BC4CE2FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326908   (378641) от 23.09.2019
-
-LightWave 3D v2019.1.3 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378641.jpg" />
-</div>
-
-
-###  Подробнее
-
-LightWave 3D 2019.1.3 сочетает в себе современное средство визуализации с мощными, интуитивно понятными инструментами моделирования и анимации. В пакет продукта входят инструменты, которые могут стоить дороже в других профессиональных 3D-приложениях, включая 999 бесплатных кроссплатформенных узлов рендеринга, поддержку Windows и Mac UB 64 и 32-битных операционных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: NewTekПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB639244A4E67645855A9793821B78B5CDB9C948
 ```
 
 https://mybot314.ru/tekegram_catalog/

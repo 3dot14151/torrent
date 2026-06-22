@@ -1,3 +1,31 @@
+###  Публикация: 794854   (694217) от 10.06.2014
+
+Rozen Maiden Zuruckspulen | Rozen Maiden ~2013~ | Девы Розена (2013) [2013, TV, 13 эп.] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то мастер Розен изготовил шесть чудесных кукол, вдохнув в них душу и магические способности. Он хотел создать совершенную девушку, но знал свой предел и понимал, что напрямую такое не получится. Тогда мастер заставил творения сразиться в «игре Алисы», чтобы победительница собрала в себе самое лучшее и исполнила его мечту. Для усиления каждая участница должна была найти хозяина-человека, который бы «завел» и поддержал ее своей жизненной силой. Розен не был богом, но владел временем, а потому был готов повторять игру до победного конца. Вот только игра внезапно пошла по чужим правилам…
+
+На деле мастер создал семь кукол, просто понял, какой жуткий и злокозненный дух получит седьмая – и не стал давать ей тело. Ничего, Киракисё, королева лжи и обмана, даже из Небытия смогла дотянуться до сестер и начала уничтожать их поодиночке. Конечно же, остановить ее могут лишь «дева-роза» Синку и ее партнер, японский парень Дзюн, по потенциалу сравнимый с самим Розеном. Для этого ребята разработали дерзкий план, включающий (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Омата СинъитиПродолжительность: 13 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4CE82DB2FAF19EEE66937CED8C189821B04F927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 794858   (694201) от 10.06.2014
 
 Haiyore! Nyaruko-san W OVA | Няруко-сан: Крадущийся хаос W OVA [2014, OVA, 1 ep.] DVDrip 480p raw
@@ -6,7 +34,7 @@ Haiyore! Nyaruko-san W OVA | Няруко-сан: Крадущийся хаос 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694201.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693345.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692093.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Kenpuu Denki Berserk | Berserk | Берсерк [1997, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691920.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ Kowarekake no Orgel | Half-Broken Music Box | Полусломанная муз�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691731.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691666.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ Steins;Gate: Kyoukaimenjou no Missing Link - Divide By Zero / Врата Ште�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691123.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ Kuusen Madoushi Kouhosei no Kyoukan / Sky Wizards Academy / Инструктор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691076.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ Show by Rock!! | Рок-шоу! [2015, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690539.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ Kacchikenee! / Спасибо за всё! [2016, Movie] SATRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688964.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688109.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ Karasu Tengu Kabuto / Raven Tengu Kabuto / Кабуто [1992, OVA, 1 ep.] DVDRi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686957.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ Marie and Gali / Мари и Гали (второй сезон) [2010, TV, 30 ep
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686795.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Весё�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686440.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ Chikyuugai Shounen Shoujo | The Orbital Children | Дети на орбите | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686433.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ Denei Shoujo Ai / Video Girl Ai / Ай - девyшка с кассеты [1992, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_684903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_684903.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684570.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru | My Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684220.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ Kuroshitsuji: Book of Circus | Black Butler: Book of Circus | Демон-дво�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684181.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ Gunslinger Stratos The Animation | Небесные стрелки [2015, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682502.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ Kanojo ga Flag o Oraretara | Gaworare | If Her Flag Breaks | Если бы я о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682126.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ Kangoku Gakuen | Prison School | Школа-тюрьма [2015, TV, 12] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681760.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ Terraformars: Revenge / Терраформеры [ТВ-2] [2016, TV, 13 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681758.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ Hakuouki: Shinsengumi Kitan / Hakuouki / Хакуоки [2010, 12 эп.] SDTV 72
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_680845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680845.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ Kyuukyoku Choujin R | The Ultimate Esper "R" | Абсолютный Суперч
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680791.jpg" />
 </div>
 
 
@@ -646,33 +674,6 @@ Kyuukyoku Choujin R | The Ultimate Esper "R" | Абсолютный Суперч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A123D8A22760D8EB593C3926242F28DDFA4E7B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029561   (680254) от 27.06.2016
-
-Chitose Get You!! | Читосе добьется тебя! [2012, TV, 26] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680254.jpg" />
-</div>
-
-
-###  Подробнее
-
-История повествует об 11-летней школьнице Читосе, которая влюблена в молодого человека намного старше ее, работающего рядом со школой. Он, само собой, об этом даже не догадывается и только удивляется преследованию с ее стороны.
-©Etsu333Жанр: комедияРежиссер: Сано Такао / Sano Takao / 佐野隆雄Продолжительность: 26 серий по 3 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B1F528EE0A15252E9FE7776025795BBA9EE1D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

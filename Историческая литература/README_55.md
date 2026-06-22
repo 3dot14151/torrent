@@ -1,3 +1,114 @@
+###  Публикация: 1046922   (551182) от 28.08.2016
+
+А. С. Бубнов | Статьи и речи о народном образовании (1959) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551182.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник включены важнейшие статьи и речи А. С. Бубнова за период с 1929 по 1936 г., посвященные строительству советской школы. В них затрагиваются вопросы всеобщего обязательного обучения, трудового воспитания, политехнического образования и др., отражается определенный этап в развитии народного образования в СССР.Жанр: История, политология, педагогика, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB7511DEF32720181055B0A318C70DB2F90405E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046640   (550873) от 28.08.2016
+
+В. С. Сергеев | Очерки по истории древнего Рима [2 книги] (1938) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550873.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе В. С. Сергеева «Очерки по истории древнего Рима» дается систематическое изложение истории Рима от основания города до падения Римской империи. Большая часть работы написана на основании изучения источников.
+
+Книга является пособием к университетскому курсу.
+(   Читать дальше...   )Жанр: История, политология, культурология, искусство, археология, экономика, этнографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2B3D58A09C28A20EE00D712F7C507ABC8104F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047522   (549160) от 30.08.2016
+
+В. Колоколкин, С. Моносов | Что такое Термидор (1928) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внимательное отношение к опыту исторического развития, трезвый учет и трезвая оценка этого опыта издавна составляют одну из самых сильных и самых замечательных сторон большевизма.
+
+Нельзя стать настоящим большевиком, следовательно, нельзя подняться до уровня передовых представителей рабочего класса, не изучая, не переваривая и не используя в интересах непосредственной (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AFCF196DB9692A6681B09C9E5D22B43A82801B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047301   (548984) от 30.08.2016
+
+Андрей Зубов (ред.) | История России. XX век. Как Россия шла к ХХ веку. От начала царствования Николая II до конца Гражданской войны (1894–1922). Том I (2016) [EPUB, FB2, MOBI]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – первая из множества современных изданий – возвращает русской истории Человека. Из безличного описания «объективных процессов» и «движущих сил» она делает историю живой, личностной и фактичной.
+
+Исторический материал в книге дополняет множество воспоминаний очевидцев, биографических справок-досье, фрагментов важнейших документов, фотографий и других живых (   Читать дальше...   )Жанр: ИсторияФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DC58C730F939F9BC30FD6CCAF3298F5D7B9841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048094   (547420) от 01.09.2016
 
 Э. В. Ковалев, В. В. Малышев | За кулисами террора (1985) [DJVU]
@@ -6,7 +117,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547420.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547266.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547011.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546529.jpg" />
 </div>
 
 
@@ -113,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546474.jpg" />
 </div>
 
 
@@ -139,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546194.jpg" />
 </div>
 
 
@@ -165,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545798.jpg" />
 </div>
 
 
@@ -194,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545746.jpg" />
 </div>
 
 
@@ -221,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545554.jpg" />
 </div>
 
 
@@ -248,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545095.jpg" />
 </div>
 
 
@@ -274,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544665.jpg" />
 </div>
 
 
@@ -301,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544446.jpg" />
 </div>
 
 
@@ -327,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544135.jpg" />
 </div>
 
 
@@ -353,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543711.jpg" />
 </div>
 
 
@@ -381,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543347.jpg" />
 </div>
 
 
@@ -407,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543069.jpg" />
 </div>
 
 
@@ -433,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542647.jpg" />
 </div>
 
 
@@ -459,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542522.jpg" />
 </div>
 
 
@@ -486,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541708.jpg" />
 </div>
 
 
@@ -515,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539282.jpg" />
 </div>
 
 
@@ -543,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539190.jpg" />
 </div>
 
 
@@ -569,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539172.jpg" />
 </div>
 
 
@@ -580,113 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAADFF70AB448D60C3C1640BCE054F5ED3B96040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239418   (539095) от 05.08.2018
-
-С. С. Абрамов | Национальная работа советов в городах (1935) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539095.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Единственным режимом, способным разрешить национальный вопрос, т. е. режимом, способным создать условия, обеспечивающие мирное строительство и братское сотрудничество различных народностей и племен, является режим советской власти, режим диктатуры пролетариата». Пролетариат России, завоевав государственную власть, отменил все национальные ограничения. Устранив, (   Читать дальше...   )Жанр: История, политология, культурология, правоведение, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62BAB9D02ECDE5724AAF0AFE0BAA989D1AF10C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239383   (539093) от 05.08.2018
-
-Н. Н. Попов | Очерк истории Всесоюзной коммунистической партии (большевиков) [2 книги] (1932) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание тщательно пересмотрено автором с точки зрения указаний, данных т. Сталиным в его письме в редакцию «Пролетарской революции».
-
-На основе этих указаний автор сделал ряд очень существенных добавлений и исправлений. Главные добавления касаются освещения роли большевизма на международной арене, которое в прошлых изданиях было совершенно недостаточно и содержало (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225AC07DDC9393439255D412C4403D0C95DDD2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154601   (539091) от 31.07.2017
-
-В.А. Горончаровский | Подборка книг [2 книги] (2009-2011) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Анатольевич Горончаровский - доктор исторических наук, доцент кафедры истории и теории искусств Санкт–Петербургского государственного университета технологии и дизайна. Он опубликовал четыре монографии и более чем 130 научных и научно-популярных статей по античной истории и археологии.
-В настоящее время является ведущим научным сотрудником Института истории (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93EC4D793A4B5971493642BC8218B9D5C4CD2346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154825   (539088) от 31.07.2017
-
-Фаина Гримберг | Династия Романовых. Загадки. Версии. Проблемы (2006) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему необходимо знать историю династии Романовых? Более того, почему при изучении русской истории следует выделить сведения о Романовых в отдельный раздел, не давая им раствориться в общем курсе? На эти вопросы можно дать не один ответ. Ведь именно в период правления Романовых формируется окончательно русская народность, а затем и национальность, четко оформляется (   Читать дальше...   )Жанр: История, Биографии и мемуарыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEDC0C2CD8CD5D5C40AF4680BF542211F8844F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

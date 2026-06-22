@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1876244   (1073140) от 
+
+Облачно, возможны осадки в виде фрикаделек / Cloudy with a Chance of Meatballs (2009) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой мультфильма — странный ученый Флинт Локвуд, который всегда хотел изобрести что-то такое, что сделает его родной городок счастливым. И вот, у него получилось! Еды теперь хватает всем, и она просто падает с неба, создавая новые пейзажи вокруг: можно любоваться закатом с живописных холмов из фруктового желе. Но иногда вкусные осадки в виде фрикаделек могут (   Читать дальше...   )Производство: США / Columbia Pictures, Sony Pictures AnimationЖанр: мультфильм, фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Фил Лорд, Кристофер МиллерПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E38FBC26A9E2BA39270D284E910E8E330BDC7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876249   (1073137) от 
+
+Облачно... 2: Месть ГМО / Cloudy with a Chance of Meatballs 2 (2013) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все жители острова Поплавок покинули родной дом после событий предыдущего мультфильма. Главный герой Флинт Локвуд теперь работает в компании The Live Corp на своего кумира Честера. Но ему придется оставить свой пост когда он узнает, что его печально-известная машина все ещё работает и производит на свет опасных гибридов. Флинту предстоит ещё раз спасти мир и не дать (   Читать дальше...   )Производство: США / Columbia Pictures, Sony Pictures AnimationЖанр: мультфильм, фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Коуди Кэмерон, Крис ПирнПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH-Colored)Продолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF613489880297F2487FD22AFA10E1E4A7F36FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876236   (1073093) от 
+
+Приключения Тинтина: Тайна Единорога / The Adventures of Tintin (2011) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — молодой газетный репортёр Тинтин. Благодаря своей профессии он путешествует по всему миру и становится участником увлекательных приключений.Производство: США, Новая Зеландия / Columbia Pictures, Paramount Pictures, Amblin EntertainmentЖанр: мультфильм, боевик, детектив, приключенияРежиссер: Стивен СпилбергПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902A34C1ECC9706FA807C53F7221874A0B5348C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870125   (1068716) от 10.05.2026
 
 Тайная жизнь домашних животных / The Secret Life of Pets (2016 - 2019) BDRip 3D [H.264/1080p] [Дилогия] [Вертикальная анаморфная стереопара]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068716.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068704.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066171.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065567.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065566.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065565.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065563.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059966.jpg" />
 </div>
 
 
@@ -207,6 +285,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848086   (1052692) от 17.01.2026
+
+Работа за орехи 3D / Working for Peanuts 3D (1953) BDRip [H.264/1080p] [Вертикальная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1052692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чип и Дэйл заинтересовались арахисом, которым одаривают питомцев зоопарка, смотрителем которого является Дональд Дак.Производство: США, Студия Walt DisneyЖанр: рисованная анимация, детский, короткометражныйРежиссер: Джек ХаннаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68E6552BE278C4CD7F55BBDAFC953F2B63558EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845620   (1050791) от 02.01.2026
 
 Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRip 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050791.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050721.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050199.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050197.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044365.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041563.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037809.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037782.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035829.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035828.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034582.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033114.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032947.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032224.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBA971AF9F3E8D334790CDDB90543F3519B8118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450197   (1029164) от 25.02.2021
-
-Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордАктеры: Николас Кейдж, Эмма Стоун, Райан Рейнольдс, Кэтрин Кинер, Клорис Личмен, Кларк Дьюк, Лесли Манн, Питер Динклэйдж, Келли Мари Трэн, Kailey CrawfordПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E70527E545AF34780C40A82FD1E70EE8012B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450169   (1029154) от 25.02.2021
-
-Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRemux [H.264/1080p] [2D/3D] [ISO]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, АнглийскиеПродолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5152E0DBD7D677D9118F77C76AD1FD7BC11DA0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450460   (1028976) от 26.02.2021
-
-Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRip 3D [H.264/1080p-LQ] [вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордПеревод: Дублированный (iTunes)Субтитры: русские (форcированные)Продолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B145A24F755540B707A1DF39AC095F06922F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457626   (1024357) от 26.03.2021
-
-Повелитель драконов / Dragon Rider (2020) BDRip 3D [H.264/1080p-LQ] [вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то драконы властвовали на Земле, но в наши дни их можно встретить только в кино. Однако молодой дракон, пробираясь сквозь небоскребы мегаполисов и уклоняясь от взоров вечно спешащих людей, мечтает добраться до мест, где по легендам могучие рептилии живут в спокойствии и безопасности. Он просит о помощи одного незадачливого паренька, который, как и все мы, даже (   Читать дальше...   )Производство: Германия / Constantin Film, Able & Baker, CybornЖанр: мультфильм, приключения, семейныйРежиссер: Томер ЕшедПеревод: Дублированный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: английские (полные)Продолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA8491C80E4A9FD37A4853B43AB8CCDCC5ADEBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

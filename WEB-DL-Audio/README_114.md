@@ -6,7 +6,7 @@ Roscoe Bowie and the Federal City Swingers - Relationships (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64805.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lightnin' Malcolm - Turnt Up On Loud (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64803.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lowland Blues - Lowland Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64802.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Koko Taylor - Crown Jewels (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64801.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cyfurcat - 1.0.0 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64800.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pharaoh Rumor - Vintage Blues Express (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64799.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Zayden Fleet - Lone Star Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64793.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64785.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64784.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64760.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Fever Ray - The Year of The Radical Romantics (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64756.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Buddy Guy - Ain't Done With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64720.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pulpit Vomit - Hospital Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Powervi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64716.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Antlers - Antlers (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64715.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Behold the Beloved - Harsh Realities (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64714.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Torben Enevoldsen - Seven (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrume
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64686.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Reneé Rapp - BITE ME (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64545.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Judas Priest ft. Ozzy Osbourne - War Pigs (Charity Version) (2025) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64022.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Megadeth - Tipping Point (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64018.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Hooded Menace - Lachrymose Monuments Of Obscuration (2025) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64012.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Orbit Culture - Death Above Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63986.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Alice Cooper - Billion Dollar Babies (50th Anniversary Deluxe Edition) (1973) Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63705.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63690.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63483.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62639.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62534.jpg" />
 </div>
 
 

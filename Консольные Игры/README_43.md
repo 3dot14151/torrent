@@ -1,3 +1,213 @@
+###  Публикация: 565253   (400737) от 25.10.2012
+
+Dark Souls: Prepare To Die Edition [XBOX360] [PAL] [En] [LT+3.0] (XGD3 / 15574) (2012)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
+ Каждое испытание представляет (   Читать дальше...   )Тип издания: ЛицензияРазработчик: FromSoftwareЖанр: RPG / 3D / 3rd PersonЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C09227F42B5E401267747349ACED9C5A1C89840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170113   (400190) от 30.09.2017
+
+FIFA 18 Legacy Edition (2017) [PS3] [EUR] 4.21 [Repack / 1.02] [Ru/Multi]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждут великолепный игровой процесс и непревзойденная реалистичность, а также обновленные формы и составы, улучшения режима карьеры, FIFA Ultimate Team — и многое другое.Тип издания: RepackРазработчик: EA VancouverЖанр: Sports, SoccerЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEFE846E426635B20F3EE06E197E67042B01052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170097   (400127) от 30.09.2017
+
+FIFA 18 Legacy Edition (2017) [Xbox360] [PAL] 17349 [Freeboot] [License] [Multi]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400127.jpg" />
+</div>
+
+
+###  Подробнее
+
+FIFA 18 - новая часть футбольного симулятора, разработанная студией EA Sports. Лицом FIFA 18 официально является игрок популярного испанского клуба "Реал Мадрид" Криштиану Роналду. Создатели заметно потрудились над графической составляющей и теперь все игроки на футбольном поле будут выглядеть еще более реалистично. Но эти улучшения коснутся не только тех, (   Читать дальше...   )Тип издания: LicenseРазработчик: EA CanadaЖанр: СпортЯзык интерфейса: Английский, Немецкий, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB2419896DC6238F354C6FEAA1C122935DCBEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566992   (397488) от 28.10.2012
+
+PRO EVOLUTION SOCCER 2013 [PSP] [RUS/MULTI5] [ISO] [FULL] (2012)
+
+>>Консольные Игры
+>>PSP
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Evolution Soccer 2013 – продолжение знаменитой серии симуляторов футбола от японской компании Konami. Игра предложит полную свободу контроля над мячом, полностью ручные пассы и удары, пониженную скорость дриблинга, больше контроля над вратарями, а также улучшенный искусственные интеллект.Жанр: Спорт, СимуляторЯзык интерфейса: RUS/MULTI5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D87B07FD5014D43A56B76A36856B941B0E0641D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169983   (396417) от 04.10.2017
+
+Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396417.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 августа 1951 года. Химеры только что начали атаку на Северную Америку. Остановите жестокого врага, играя за Тома Райли – храброго нью-йоркского пожарного, который пытается спасти жену и ребенка. Ему предстоит сражаться против инопланетного вторжения при помощи нового оружия под названием Chimera, а также топора пожарного. В Resistance: Burning Skies представлена (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihilistic SoftwareЖанр: Action, Shooter, First-Person, ArcadeЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04EF090BB0461B6155EEBCC7D230B14C56AD380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568672   (393429) от 01.11.2012
+
+Borderlands 2 [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: ЛицензияЖанр: Action, First Person Shooter, RPGЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10D9A09DD923D7B2091995D5047B22C772A3C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569015   (392379) от 02.11.2012
+
+Ubisoft Triple Pack: Outland, From Dust, Beyond Good and Evil HD [XBOX360] [En] [Region Free] (2012)
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392379.jpg" />
+</div>
+
+
+###  Подробнее
+
+From Dust
+Действия в игре разворачиваются на изменённой версии планеты Земля, являясь мало обитаемой пустынной планетой, на ней происходят активные вулканические процессы, эрозия почвы, формирование гор и ландшафтов. На планете существует племя людей, способное управлять неизвестными силами, с помощью которых они имеют возможность изменять ландшафты, горы, потоки воды и т.д. Целью игрока является противостояние силам природы, для выживания данной группы людей.Тип издания: ЛицензияРазработчик: UbisoftЖанр: CompilationЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA93FB45304895240F14D85DC0FD3DFC8F293F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569891   (391408) от 03.11.2012
+
+Avatar: The Legend of Aang - The Burning Earth [Wii] [PAL] [Multi 2] (2007)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение великолепной игры Avatar: The Last Airbender, основанной на одном из самых успешных мультсериалов за всю историю, с самого начала стало объектом пристального внимания. Ибо ждать было что! Игра развилась по всем фронтам. Ведь теперь по-настоящему эпическое приключение Аанга, последнего из Аваторов, и его друзей, Катары, Сокка, Тоф и Джет, вступивших в (   Читать дальше...   )Разработчик: THQЖанр: action, adventureЯзык интерфейса: Multi 2 (Eng/De)Формат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6941FA25B442036EEAE66F66E3412E91D3020C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570232   (390629) от 04.11.2012
 
 Epic Mickey 2 : The Power Of Two [Xbox 360] [ENG] [RegionFree] [LT+3.0/15574] (2012)
@@ -6,7 +216,7 @@ Epic Mickey 2 : The Power Of Two [Xbox 360] [ENG] [RegionFree] [LT+3.0/15574] (2
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390629.jpg" />
 </div>
 
 
@@ -36,7 +246,7 @@ The Legend of Zelda: A Link to the Past [Wii] [Virtual Console] [RUS] [Pal] (200
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390596.jpg" />
 </div>
 
 
@@ -65,7 +275,7 @@ Call of Duty: Black Ops 2 [Xbox 360] [ENG] (RegionFree) (LT+2.0/15574) (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389735.jpg" />
 </div>
 
 
@@ -92,7 +302,7 @@ One Piece: Pirate Warriors [PS3] [ENG] [FIXED FOR 3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388838.jpg" />
 </div>
 
 
@@ -120,7 +330,7 @@ Pro Evolution Soccer 2013 [PS3] [RUS] [PAL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386780.jpg" />
 </div>
 
 
@@ -146,7 +356,7 @@ God Eater 2: Rage Burst (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/Multi
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386425.jpg" />
 </div>
 
 
@@ -172,7 +382,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386410.jpg" />
 </div>
 
 
@@ -198,7 +408,7 @@ HITMAN: Game of the Year Edition / HITMAN: издание «Игра года» 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385011.jpg" />
 </div>
 
 
@@ -224,7 +434,7 @@ The Wolf Among Us (2014) [PSVita] [USA] 3.60 [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384347.jpg" />
 </div>
 
 
@@ -250,7 +460,7 @@ Project Zero: Maiden of Black Water / Fatal Frame: Maiden of Black Water (2015) 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384262.jpg" />
 </div>
 
 
@@ -279,7 +489,7 @@ TANK! TANK! TANK! (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384158.jpg" />
 </div>
 
 
@@ -307,7 +517,7 @@ Syberia 2 / Сибирь 2 (2015) [Xbox360] [RegionFree] 17349 [Freeboot] [Unoff
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384150.jpg" />
 </div>
 
 
@@ -333,7 +543,7 @@ Crypt of the NecroDancer (2016) [PSVita] [EUR] 3.65 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383322.jpg" />
 </div>
 
 
@@ -351,36 +561,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 572811   (382181) от 09.11.2012
-
-The Amazing Spider-Man/ Новый Человек-Паук [PS3] [FullRUS] [PAL] [MOVE] (2012)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный мегаполис задыхается от власти преступников. На улицах города начинается настоящая война, и только Человек-паук способен очистить родной Нью-Йорк от грабителей, воров и убийц. Питер Паркер вновь надевает свой легендарный костюм и выходит на тропу войны. Но из теней, что сгустились над Манхэттеном, за полетом паутины следит нечто зловещее… и оно жаждет крови.
-
-Этот невероятно зрелищный экшен по мотивам нового голливудского блокбастера позволит вам применить самые впечатляющие боевые приемы из арсенала Человека-паука. Вам доведется парить над городом, прыгать по небоскребам, спускаться под землю и сражаться с легендарными злодеями из классических комиксов Marvel. Сюжет игры начинается там, где заканчиваются события фильма, который выйдет на экраны этим летом. Узнайте, что ждет героев после того, как пройдут финальные титры.
-
-Fix EBOOT на 3.55 http://narod.ru/disk/63536795001.24531daa454b445f682e1b46b4b71987/EBOOT.BIN.html, сохранения от предыдущей моей раздачи автоматом подходят к этой.Тип издания: ЛицензияЖанр: actionЯзык озвучки: русскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283F9D028F69D3092D9C00A5CCE87A764015C81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572956   (382173) от 09.11.2012
 
 Double Dragon Neon [PS3] [ENG] [NTSC] [3.55] (2012)
@@ -389,7 +569,7 @@ Double Dragon Neon [PS3] [ENG] [NTSC] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382173.jpg" />
 </div>
 
 
@@ -415,7 +595,7 @@ Legend of the Guardians: The Owls of Ga'Hoole (2010) [PS3] [EUR] 3.30 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380507.jpg" />
 </div>
 
 
@@ -441,7 +621,7 @@ How to Train Your Dragon (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380498.jpg" />
 </div>
 
 
@@ -467,7 +647,7 @@ Warp [PS3] [PSN] [ENG] [NTSC] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379957.jpg" />
 </div>
 
 
@@ -493,7 +673,7 @@ F1 2014 [PS3] [EUR] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379805.jpg" />
 </div>
 
 
@@ -504,195 +684,6 @@ F1 2014 [PS3] [EUR] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:636E21AD7DC849D23EAF804F280C07249E80BD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832725   (379804) от 24.10.2014
-
-Deadly Premonition: The Director's Cut [PS3] [3D] [EUR] [En] [4.31] [Cobra ODE / E3 ODE PRO ISO] (2013)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379804.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьких городках порой случаются весьма странные происшествия. Именно с такой ситуацией довелось столкнуться детективу Моргану, которого послали расследовать загадочное убийство юной девушки. Мало того, что местные жители не склонны доверять чужакам… вполне может случиться, что именно он станет следующей жертвой. Сможете ли вы провести собственное расследование (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Access GamesЖанр: Action / Adventure / Horror / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B56608242B96F00587A5AC36C9E07180AB6354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834086   (379686) от 24.10.2014
-
-Deus Ex: Human Revolution - Director's Cut [PS3] [EUR] [En] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2013)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deus Ex: Human Revolution - третья часть популярного РПГ проекта, действия которого происходят в мире киберпанка. Главным героем выступаетТип издания: ЛицензияРазработчик: Eidos MontrealЖанр: Action(Tactical) / RPG / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F13EB385463DD59E4EDEEB1D2240D7BA601197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949159   (378980) от 22.10.2015
-
-BlazBlue: Chrono Phantasma EXTEND / BlazBlue: Chronophantasma EXTEND (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aksys Games с удовольствием анонсирует выход BlazBlue: Chrono Phantasma EXTEND - нового, взрывного двухмерного файтинга от Arc System Works, создателей серии Guilty Gear!
-
-Теперь с обновлённой системой блокирования Guard system игроки смогут опробовать новые сверхмощные атаки Guard Crush, пробивающие блок, когда у вашего противника Barrier Gauge находится на низком (   Читать дальше...   )Тип издания: UnofficialРазработчик: Arc System WorksЖанр: Arcade (Fighting), 2DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAF006AE489B252C8CCBF811B0A29BCE01A2C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901461   (378926) от 11.10.2018
-
-Nintendo Gamecube (Redump от 2018-08-25) [GameCube] [NTSC-J] (#-Z)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378926.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче присутствуют 363 известных образов Nintendo Gamecube NTSC-J региона, по версии Redump.org от 2018-08-25.
-Redump.org это база данных и сообщество, хранящее достоверную информацию о когда либо вышедшей играх на оптических носителях для разных платформ. Её цель состоит в том, чтобы собрать образы данных для всех консольных и PC игр. Сайт также предоставляет (   Читать дальше...   )Язык интерфейса: Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A8BF78651B1213ADBCDBAB20C06756513EA572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175286   (378062) от 18.10.2017
-
-Weird Park: The Final Show (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/Multi][MOVE]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финальная часть истории о загадочном клоуне-карлике мистере Дадли, чьи злые проделки принесли вам немало проблем в прошлом. На этот раз он похитил мальчика и готовится провести над ним страшный обряд. Пришло время положить конец этим бесчинствам и узнать главную тайну злодея – его настоящее имя! Маленький мальчик таинственным образом исчезает в загадочном свете, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Epic StarЖанр: Hidden object, Puzzle-solvingЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D03C5393FA6138EAF0B7B2278619118EE9ED91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068644   (377801) от 02.11.2016
-
-SteamWorld Heist (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свистать всех наверх! Устраивайте тактические перестрелки и захватывайте сокровища в SteamWorld Heist из Nintendo eShop для Wii U.
-
-Играйте за непревзойденного тактика капитана Пайпера и ее команду паровых роботов, которые путешествуют по космическим глубинам в поисках воды, которая стала ценным ресурсом в галактике. Вам предстоит вступить на борт множества вражеских (   Читать дальше...   )Тип издания: eShopРазработчик: Image & Form International ABЖанр: Action, Adventure, Turn-Based, TacticsЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D84D8BBFBA9B4E3052AEB6C1EF2F4B7B2BDFBA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833599   (377640) от 25.10.2014
-
-Earth Defense Force Antology [XBOX360] [ENG] (2014) (15574) [FreeBoot]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Earth Defense Force 2025 - это очередная часть безумного консольного шутера про защиту Земли от гигантских насекомых. Впервые в серии в игре появился мультиплеер.
-
-Спустя 8 лет после уничтожения захватчиков из космоса и их летающей базы Земля почти вернулась к прежней жизни. Но в 2025 году возникает новая угроза: гигантские пришельцы найдены под землей. Губители эволюционировали, став еще сильнее. Бойцам Earth Defense Force в очередной раз предстоит спасти от них Землю! Earth Defense Force2025 - ожидаемый многими (   Читать дальше...   )Тип издания: ЛицензияРазработчик: SandlotЖанр: Action / 3D / 3rd PersonЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D6636C0DE7ACAAF7AC8EEFD9972F61E185F216
 ```
 
 https://mybot314.ru/tekegram_catalog/

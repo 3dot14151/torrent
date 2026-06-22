@@ -1,3 +1,83 @@
+###  Публикация: 1760410   (37288) от 14.11.2024
+
+Мария Гербутова | Мама, я пошел! (2024) [MP3, Мила Манышева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы устали от бесконечного потока противоречивой информации вокруг развития вашего ребенка? Вас мучает тревога и постоянные сомнения: “Как научить малыша переворачиваться?”, “Почему он еще не сидит”, “Не слишком ли рано он пошел?”. Найти ответы эксперта на эти и многие другие вопросы поможет аудиокнига «Мама, я пошел!» – настольная энциклопедия для родителей детей (   Читать дальше...   )Жанр: Советы родителямИздательство: Альпина ДиджиталПродолжительность: 03:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375461C221170F98A832CE20B424079EC0029944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342372   (36625) от 21.11.2024
+
+Анни Шмидт | Лучшие сказки народов мира. Мурли (2005) [MP3, Вера Васильева и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Лучшие сказки народов мира.
+Удивительная сказка самой известной детской писательницы Нидерландов Анни Шмидт (1911–1991), которую называли «истинной королевой Голландии».  Героиня превратилась из кошки в девушку, сохранив при этом кошачьи повадки, а также всех своих друзей кошек…Жанр: Зарубежная литература для детей, сказкаВ ролях: Вера Васильева, Лариса Гребенщикова, Александр Леньков и Авангард ЛеонтьевПеревод: Екатерина ЛюбароваИздательство: Два жирафа, Мост-ВПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673C58768CF3710CD148B6D0300FC1950C3686A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761653   (36571) от 21.11.2024
+
+Анни Шмидт | Мурли (2011) [MP3, Ирина Воробьева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Новые сказочные повести.
+Действие книги происходит в небольшом голландском городке. Кошка по имени Мурли по воле случая превращается в девушку. Она ничем не отличается от других людей, но при этом по-прежнему понимает язык кошек и удивляет сограждан своими необычными поступками, потому что в душе остаётся кошкой. Мурли постоянно попадает в курьёзные и (   Читать дальше...   )Жанр: Зарубежная литература для детей, повесть-сказкаПеревод: Екатерина ЛюбароваИздательство: Нигде не купишьПродолжительность: 04:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB9D679A215BC9979E72232F7A6FBCD880533EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761650   (36567) от 21.11.2024
 
 Анни Шмидт | Лучшие сказки народов мира. Виплала (2006) [MP3, Игорь Костолевский и др.]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36567.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36561.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36446.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35406.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35006.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33976.jpg" />
 </div>
 
 
@@ -171,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33136.jpg" />
 </div>
 
 
@@ -197,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31919.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30841.jpg" />
 </div>
 
 
@@ -253,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29896.jpg" />
 </div>
 
 
@@ -280,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29588.jpg" />
 </div>
 
 
@@ -306,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28194.jpg" />
 </div>
 
 
@@ -333,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27127.jpg" />
 </div>
 
 
@@ -360,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27124.jpg" />
 </div>
 
 
@@ -387,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25990.jpg" />
 </div>
 
 
@@ -415,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24989.jpg" />
 </div>
 
 
@@ -442,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24871.jpg" />
 </div>
 
 
@@ -470,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24827.jpg" />
 </div>
 
 
@@ -497,7 +577,7 @@ VA - Мелодии для успокоения и пробуждения мал
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23594.jpg" />
 </div>
 
 
@@ -526,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22269.jpg" />
 </div>
 
 
@@ -552,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21956.jpg" />
 </div>
 
 
@@ -581,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21745.jpg" />
 </div>
 
 
@@ -609,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21424.jpg" />
 </div>
 
 
@@ -620,85 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F69BA88F7C9D938B54573A760AA142BB51CA037D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792806   (20693) от 21.04.2025
-
-Руне Белсвик | Простодурсен. Зима от начала до конца (2021) [MP3, Екатерина Гороховская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повести Руне Белсвика, современного норвежского писателя, о Простодурсене и его друзьях очень популярны в Норвегии. В маленькой приречной стране жизнь героев полна обычных забот: тут рубят дрова и копают канавы, пекут хлеб и сушат башмаки, смотрят в небо и бросают в воду камушки... Но удивительное дело: чуть измени угол зрения - и самые простые вещи наполняются особым (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Ольга ДроботИздательство: СамокатПродолжительность: 05:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF7D0141FA2872A708FDE59C7410B8F9AA882EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649212   (20406) от 24.04.2025
-
-Геннадий Казанский | Ежи. Тернистая дорога к морю (2023) [MP3, Puffin Сafe]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Длинноухий ёжик по имени Ежи всегда понимал человеческую речь, хотя сам разговаривать он не умеет, это не мешает ему объяснить Тимми, что и у него есть мечты. Ежи мечтает увидеть море и не остановится ни перед чем в достижении своей цели. Приключения Тимми и Ежи начались со случайной встречи, которая привела к настоящей дружбе. Мальчик и длинноухий ёж заботятся, (   Читать дальше...   )Жанр: Детская литератураИздательство: Аудиокнига своими рукамиПродолжительность: 02:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD04726BAD1F0A4B027AA93E89FFF19CA5052133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793562   (20264) от 25.04.2025
-
-Альваро Бильбао | EQ-воспитание. Системный подход к воспитанию личности (2025) [MP3, Алексей Петров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нейропсихолог и многодетный отец о воспитании детей с точки зрения развития мозга.
-Книга от нейропсихолога и многодетного отца, раскрывающая все аспекты воспитания и развития детей, от формирования привычек до развития эмоционального и когнитивного интеллекта.Жанр: Воспитание детей, Детская психологияИздательство: МИФПродолжительность: 08:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870BCA2AC741A3BCF0093DC7274CBE298C7FC1F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

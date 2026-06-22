@@ -1,3 +1,110 @@
+###  Публикация: 988537   (920935) от 20.02.2016
+
+Юрий Сушко | Друзья Высоцкого: проверка на преданность (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скульптор Эрнст Неизвестный, актеры Даниель Ольбрыхский и Олег Даль, режиссёр Станислав Говорухин, драматург Эдуард Володарский…
+Эти известные деятели культуры были для Владимира Высоцкого друзьями. В то время значение слова «друг» означало совсем не то, что ныне подразумевается в соцсетях. Друзья Высоцкого были частью его судьбы. Они были его сподвижниками, отражением (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36E7AB29807D01CB79E52C993F89F3E733355C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096315   (920762) от 23.01.2017
+
+Альберто Анджела | Один день в древнем Риме. Повседневная жизнь, тайны и курьезы (2016) [EPUB, FB2, MOBI]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний Рим времен расцвета империи похож на современный мегаполис гораздо больше, чем мы могли бы подумать. Полтора миллиона его жителей сталкивались с теми же проблемами, что и их потомки две тысячи лет спустя: дороговизна жилья и дорожные пробки, наплыв иммигрантов и необходимость «подмазывать» городских чиновников…
+
+Альберто Анджела – знаменитый итальянский палеонтолог, (   Читать дальше...   )Жанр: История, этнография, культурологияФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE560B1E94AD482C43ECA6D4D5EF3DC7EE5EB8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971251   (920431) от 20.02.2016
+
+Андрей Фурсов (сост.) | О заговоре / De Conspiratione (2014) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике анализируются скрытые механизмы мировой истории, политики и экономики, деятельность закрытых (тайных) обществ мирового согласования и управления ("закулисы"), спецслужб и криминальных синдикатов.Жанр: Историография, Политология, КонспирологияФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D219FFEE711C3F7C182B57BCB9B96FB17249F00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096452   (919212) от 24.01.2017
+
+С. С. Хромов (гл.ред.) | Гражданская война и военная интервенция в СССР. Энциклопедия (1983) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919212.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается важный период в истории Советского государства. В это время одновременно с героической борьбой советского народа на фронтах против интервенции и внутренней контрреволюции в условиях разрухи промышленности, транспорта, сельского хозяйства велась напряжённая борьба за хлеб, уголь, металл. Энциклопедия содержит свыше 2700 статей. В ней освещены (   Читать дальше...   )Жанр: ИсториографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED08B3DAF7F88D33A72E378FE1D049383EDF75DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490313   (918948) от 20.08.2021
 
 Е.В. Тарле | История Италии в средние века [2-е изд. стереотипное] (2003) [DJVU]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_918948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_918948.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918891.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917544.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917234.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917025.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915652.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914204.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913539.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912317.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912080.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910432.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910370.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910363.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910072.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909927.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909870.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909857.jpg" />
 </div>
 
 
@@ -456,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909669.jpg" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908947.jpg" />
 </div>
 
 
@@ -508,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908857.jpg" />
 </div>
 
 
@@ -536,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908394.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908136.jpg" />
 </div>
 
 
@@ -573,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CACFD398282541962F6597521396BAFF4F736E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098953   (906791) от 31.01.2017
-
-Алексей Ростовцев | Резидентура. Я служил вместе с Путиным (2016) [PDF, FB2, EPUB, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906791.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Полковник Алексей Ростовцев с 1965 года по 1987 год служил в различных разведывательных подразделениях представительства КГБ в ГДР. В середине восьмидесятых годов он курировал деятельность Дрезденской резидентуры КГБ, одним из оперативных сотрудников которой был Владимир Путин. Автор откровенно и подробно рассказал не только о своих коллегах и подчиненных, (   Читать дальше...   )Жанр: Биографии. МемуарыФормат: PDF, FB2, EPUB, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3FE88A55BC73EA54C0DB715AC7C7381E2978F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991424   (906448) от 28.02.2016
-
-В. К. Логвинов | В борьбе с колчаковщиной (1980) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярные очерки о гражданской войне в Енисейской губернии в 1918-1920 годы. Приводятся новые материалы о руководстве ЦК партии сибирским большевистским подпольем, о деятельности красноярских подпольных комитетов, о действиях Южно-Канского, Северо-Канского и Минусинского партизанских фронтов. Книга найдет широкий круг читателей, явится полезным пособием для учителей, (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1C4B15CEEEC671A755686BB8145855AF65FC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991417   (906446) от 28.02.2016
-
-М. М. Духанов | Остзейцы [Политика остзейского дворянства в 50—70-х гг. XIX в. и критика ее апологетической историографии] (1978) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906446.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге исследуется политика остзейских дворян, многовековое господство которых на большей части территории, населенной латышскими и эстонскими народами, составляло одну из особенностей истории Латвии и Эстонии.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533AA0BB7A7F50AB12C2F9B008B230C6E6876D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991429   (906443) от 28.02.2016
-
-А. Уиннингтон, У. Бэрчетт | Отъявленное вероломство (1955) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военные неудачи в Корее, означавшие банкротство политики с «позиции силы», наряду с усиливавшимися требованиями американского народа и мирового общественного мнения прекратить войну против корейского народа, вынудили правящие круги США пойти на переговоры о заключении перемирия. В действительности же они рассчитывали лишь выиграть время и путем различных махинаций (   Читать дальше...   )Жанр: История, политология, экономика, дипломатияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA25BBA69FB41AC73953CE1C91907FEBE01F747
 ```
 
 https://mybot314.ru/tekegram_catalog/

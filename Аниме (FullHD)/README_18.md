@@ -6,7 +6,7 @@ Lostorage Incited WIXOSS | Беспамятство: Побуждение WIXOSS
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789876.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788995.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788462.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787556.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786723.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786664.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786656.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786542.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Garo: Divine Flame | Гаро: Священное пламя [2016, MV] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786294.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786088.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Accel World: Infinite Burst | Ускоренный мир: Бесконечно�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786080.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786048.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ One Room / Из одной комнаты [2017, TV, 12 из 12] WEBRip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786036.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784855.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784577.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Inukami! The Movie: Tokumei Reiteki Sousakan Karina Shirou! | Инуками! [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784554.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуясики [2017, TV, 11 из 11] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784199.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783407.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783354.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Dies Irae | Судный день [2017, TV + Web, 18 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783351.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783185.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Mirai Keisatsu Urashiman | Future Police Urashiman | Урасиман: Поли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783051.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Touken Ranbu: Hanamaru | Дикая пляска мечей: Ханамару [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782940.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Claymore / Клеймор [2007, TV,  26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782284.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Higashi no Eden Gekijoban I: The King of Eden / Eden of The East the Movie I: Th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780658.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Yoru wa Mijikashi Aruke yo Otome | The Night Is Short, Walk on Girl | Ночь �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780536.jpg" />
 </div>
 
 

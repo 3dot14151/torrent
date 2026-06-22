@@ -1,3 +1,57 @@
+###  Публикация: 984577   (938035) от 09.02.2016
+
+Роберт Кийосаки | Второй шанс (2015) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бестселлер 2015! Долгожданная книга Роберта Кийосаки после нескольких лет молчания! Книга написана для тех, кто осознаёт, что пора начать действовать по-новому.
+Эта книга написана для того, кто понимает, насколько безумно копить деньги, в то время когда банки печатают триллионы долларов; насколько безумно инвестировать на долгосрочную перспективу, в то время когда (   Читать дальше...   )Жанр: О бизнесе популярно, Зарубежная деловая литератураПродолжительность: 09:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F98C98286993DB7B4D6BB48E7725E15AD1CDE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985318   (933983) от 12.02.2016
+
+Евгений Новосёлов | Банкротство: путеводитель по принятию решений (2015) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во многих случаях развитие бизнеса не возможно без привлечения ресурсов кредиторов. Но не всегда прогнозы развития бизнеса сбываются, и тогда компания не может своевременно расплатиться с долгами. В результате начинается самая пугающая любого бизнесмена процедура — банкротство.
+Как избежать банкротства? Как правильно действовать при угрозе банкротства и в процедуре (   Читать дальше...   )Жанр: Бизнес-литератураПродолжительность: 03:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBDCA0B71F18D251839722AD12931D6F863DDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985892   (932203) от 13.02.2016
 
 Евгений Бутман | Ритейл от первого лица. Как я строил бизнес Apple в России [MP3]
@@ -6,7 +60,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932203.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930303.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930299.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930270.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930152.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930109.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929966.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928641.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872640.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845918.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834358.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830644.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830638.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830620.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830549.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830544.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830476.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830475.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830363.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830358.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830273.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830198.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828609.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828390.jpg" />
 </div>
 
 
@@ -635,58 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAEB537ED9ED598005B8FEFEE528E1306A10B913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006304   (826889) от 12.04.2016
-
-В.Б. Алексеев | Финансовое право Российской Федерации. Курс лекций (2010) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Бизнес аудиокниги, АудиокурсыПродолжительность: 11:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A250626646CE54AE402B3D9A1E3FF204E523F0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006647   (826527) от 12.04.2016
-
-Роберт Кийосаки | Школа бизнеса (2010) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826527.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге "Школа бизнеса" Роберт Т. Кийосаки освещает восемь скрытых ценностей бизнеса сетевого маркетинга (а они годятся не только для того, чтобы делать деньги!). Есть еще и три дополнительные скрытые ценности, о которых говорят авторы книги и Диана Кеннеди. Роберт объясняет, что бизнес сетевого маркетинга - это революционный путь достижения богатства, (   Читать дальше...   )Жанр: Предпринимательство, Психология бизнесаПродолжительность: 03:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4821E07C057E948EAC804F22D1B4758D0AF39708
 ```
 
 https://mybot314.ru/tekegram_catalog/

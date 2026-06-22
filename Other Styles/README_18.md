@@ -1,3 +1,264 @@
+###  Публикация: 209464   (954261) от 30.01.2016
+
+VA - Sax & Sex (2000) [APE|tracks+.cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954261.jpg" />
+</div>
+
+
+###  Подробнее
+
+О таком сочетании, наверное, мечтают многие. Sax & Sex - придыхание саксофона, контрабас терзающий низкую струну души, наплывающие волны оркестра - вам это ничего не напоминает? Нет? Тогда послушайте ещё раз этот диск и пусть в это время будет рядом любимый человек...01. Laura  (4:57)
+02. Feelings  (3:54)
+03.  Abrazame  (2:59)
+04. The Shadow Of Your Smile  (3:33)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089149   (953875) от 02.01.2017
+
+Joe Kool - Simple Meditation: The Art of Music, Vol. 1 (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Primary Sounds [00:04:23]
+02 -  Beauty [00:03:47]
+03 -  Generative Art [00:04:02]
+04 -  Gestural [00:04:05](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968750D667D123CBB05386865FA93CAE13E36219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088097   (953699) от 02.01.2017
+
+VA - Enigmatica vol. 1 (2001) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapa Nui (Ethna) [06:38]
+02. Al Cairo's Night (L.C. Puma) [06:15]
+03. Enigmatica (Marah Cash) [05:51]
+04. Labirinth (Ost Kahly) [06:08](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A0A3267AE9832282F97FA1584E3E99246FA5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088282   (953653) от 02.01.2017
+
+The Red Hot Chilli Pipers - Live At The Lake (2014) Live [MP3|320 Kbps] <Folk, World, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Insomnia  (04:12) 
+02|  Gimme All Your Lovin'  (04:04) 
+03|  Silver Spear  (04:36) 
+04|  Thunderstruck  (02:04) (   Читать дальше...   )Жанр: Folk, World, RockПродолжительность: 02:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155B0A8C5C07B3B2D9C45A470606CD2EA64EDBE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088520   (953612) от 02.01.2017
+
+Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayward Sisters (02:56)
+02. Exhibition (01:13)
+03. Restless (01:21)
+04. A Solitary Woman (02:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DA71808663618E2EF141D59B0E8B07EC72EAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280254   (953564) от 08.01.2011
+
+Enya - The Very Best of Enya (2009) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родилась Эния Бреннан, больше известная нам как Enya, 17 мая 1961 года в маленькой деревне Dore (Dobhair по-ирландски) в области Gweedore (Gaoth Dobhair) графства Donegal (произносится как Донегол - ударение на последний слог) на северо-западе Республики Ирландия. В этом местечке сохранился и старинный гэльский язык, и древние кельтские напевы. В семье она четвертая (   Читать дальше...   )01. Trains and Winter Rains (3:44)
+02. My! My! Time Flies! (3:01)
+03. Stars and Midnight Blue (3:08)
+04. Amarantine (3:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64776E07B4B633142CD96FBF7552DFA69C01541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088521   (953506) от 02.01.2017
+
+Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayward Sisters (02:56)
+02. Exhibition (01:13)
+03. Restless (01:21)
+04. A Solitary Woman (02:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED8B0599DB715708058E2F67AB51E3911DD8D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980644   (952901) от 31.01.2016
+
+VA - Mambo (2000) 3CD box [FLAC|Lossless|tracks + .cue] <Mambo>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L. Rodriguez Salazar, Ch. Leis Bendorff - Mira Nina (3:33)
+02. L. Rodriguez Salazar, Ch. Leis Bendorff - Mambo Para Gozar (3:51)
+03. L. Rodriguez Salazar, Ch. Leis Bendorff - Lolita Mambo (3:14)
+04. L. Rodriguez Salazar, Ch. Leis Bendorff - Mambo Espanol (3:13)(   Читать дальше...   )Жанр: MamboПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACB820689B9633E4667F1D415E229775A8EA374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980856   (952880) от 31.01.2016
+
+VA - Sirtaki Dance (1997) Instrumental [FLAC|Lossless|tracks + .cue] <Folklore>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.Zampetas, A.Sakelarios - Siko Horepse Sirtaki (3:53)
+02. St.Xarhakos, V.Goufas - Na Me Thimase (3:16)
+03. I.Kapellas - Nostalgo (3:34)
+04. George Maustaki, D.Christodoulou - Mesogios (3:21)(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923F5B79D8885CA9E73A270FFF14764DE34774B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980974   (952810) от 31.01.2016
 
 VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical>
@@ -6,7 +267,7 @@ VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952810.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ Enya - The Memory Of Trees (1995) Remastered, Limited Edition, 2015, Chinese Dra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952771.jpg" />
 </div>
 
 
@@ -64,7 +325,7 @@ Danny Elfman - The Girl on the Train / Девушка в поезде (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951904.jpg" />
 </div>
 
 
@@ -93,7 +354,7 @@ Danny Elfman - The Girl on the Train / Девушка в поезде (Original 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951895.jpg" />
 </div>
 
 
@@ -122,7 +383,7 @@ VA - Ла-Ла Ленд / La La Land (Original Motion Picture Score) (2016) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951712.jpg" />
 </div>
 
 
@@ -151,7 +412,7 @@ VA & Justin Hurwitz - La La Land  / Ла-Ла Ленд (Original Score) + (Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951614.jpg" />
 </div>
 
 
@@ -180,7 +441,7 @@ VA - Ла-Ла Ленд / La La Land (Original Motion Picture Soundtrack) (2016)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951610.jpg" />
 </div>
 
 
@@ -209,7 +470,7 @@ Sacred Earth - The Way Home (2008) [MP3|320 кб/с] <New age, Meditative, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951571.jpg" />
 </div>
 
 
@@ -238,7 +499,7 @@ VA - Los clasicos argentinos Tango - Vol.07 (1996) [MP3|128 кб/с] <Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951408.jpg" />
 </div>
 
 
@@ -267,7 +528,7 @@ VA - Лёд 2 (саундтрек к фильму) (2020) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950715.jpg" />
 </div>
 
 
@@ -296,7 +557,7 @@ Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950492.jpg" />
 </div>
 
 
@@ -325,7 +586,7 @@ Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950321.jpg" />
 </div>
 
 
@@ -354,7 +615,7 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950204.jpg" />
 </div>
 
 
@@ -383,7 +644,7 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950141.jpg" />
 </div>
 
 
@@ -412,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950047.jpg" />
 </div>
 
 
@@ -438,7 +699,7 @@ StoneOcean - Home (2016) [MP3|320 кб/с] <New Age, Dance & Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949993.jpg" />
 </div>
 
 
@@ -467,7 +728,7 @@ Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949692.jpg" />
 </div>
 
 
@@ -481,267 +742,6 @@ Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA332C058E3476838F74D99646FC7D6BD52C840F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362313   (949677) от 23.02.2020
-
-Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949677.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:32| 01. We Have a Fan Club?
-|04:19| 02. Entering Camp
-|03:03| 03. I Got Top Bunk
-|03:25| 04. Searching for Symbols(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C12E8C31AEC0D6E997ED7BE90FF735C89C8429E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362483   (949667) от 23.02.2020
-
-Gabriel Garrido Garcia - Etherborn (Original Game Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949667.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:15| 01. Main Title
-|01:38| 02. Birth
-|01:36| 03. The Endless Tree - First Vision
-|01:36| 04. The Endless Tree - Second Vision(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88E061E39186459D8260160B397EF192FC959A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362293   (949611) от 23.02.2020
-
-Navid Hejazi - Mah (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949611.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:27| 01. Inicio
-|04:50| 02. Titulos / La Cueva
-|02:14| 03. Amenaza
-|02:45| 04. Guanarteme  / La Busqueda(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3360352637F04533FEF4BE1C7332ED1CE4EC6916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362287   (949607) от 23.02.2020
-
-Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949607.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:58| 01. Snow
-|01:11| 02. First Family Ski Run
-|01:19| 03. Morning Prep
-|00:34| 04. Second Ski Run(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518A2784B6F9997ABCE67ADE2C4AE1C0C745C134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362288   (949604) от 23.02.2020
-
-Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949604.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:58| 01. Snow
-|01:11| 02. First Family Ski Run
-|01:19| 03. Morning Prep
-|00:34| 04. Second Ski Run(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3D033A850C529FAA465694DD7BD3A03E0462D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362469   (949562) от 23.02.2020
-
-Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:41| 01. Days Gone
-|03:36| 02. The Freakshow
-|03:36| 03. We've All Done Things
-|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362272   (949555) от 23.02.2020
-
-John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949555.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:37| 01. Wake the Girls
-|04:02| 02. Train North
-|02:31| 03. Skagway, Alaska
-|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28C13B6B90E2B479CABEE820CAF563EB93E5376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362271   (949552) от 23.02.2020
-
-John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949552.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:37| 01. Wake the Girls
-|04:02| 02. Train North
-|02:31| 03. Skagway, Alaska
-|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C901D57BEC474EA9C5CB8BD649F47C7DAF2E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362470   (949503) от 23.02.2020
-
-Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949503.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:41| 01. Days Gone
-|03:36| 02. The Freakshow
-|03:36| 03. We've All Done Things
-|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5558948E31206E3AE7B2B22376F048AA053D51F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 966002   (217217) от 18.12.2015
+
+Почтальон всегда звонит дважды / The Postman Always Rings Twice (1981) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Времена Великой Депрессии. Бродяга Фрэнк Чемберс нанимается в работники на бензоколонку к пожилому греку Нику Пападакису, который вместе с молодой женой Корой содержит таверну «Два дуба». Словно луч света в темном царстве, стало для Коры появление Фрэнка в их доме.
+Изнывающая в скучном, бесстрастном браке, она влюбляется во Фрэнка. Между ними вспыхивает безудержная (   Читать дальше...   )Производство: США, Германия (ФРГ) / CIP Filmproduktion GmbH, Lorimar Film Entertainment, MGM, New Gold Entertainment, Northstar InternationalЖанр: Триллер, Драма, МелодрамаРежиссер: Боб РейфелсонАктеры: Джек Николсон, Джессика Лэнг, Джон Коликос, Майкл Лернер, Джон П. Райан, Анжелика Хьюстон, Уильям Трейлор, Томас Хилл, Джон Ван Несс, Брайан ФэррелПеревод: Дублированный, двуголосый закадровый, одноголосый закадровый, многоголосый закадроывйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB1FC33CF5331BF2554E27AD60DD37F874A8A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737087   (217184) от 22.12.2013
+
+Эммануэль / Emmanuelle (1974) BDRemux [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_217184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый фильм о жрице любви Эммануэль. Сюжет служит канвой для описания сексуальных похождений героини в Юго-Восточной Азии.
+Муж Эммануэль, работающий в посольстве, поощряет в ней стремление к раскрепощенности в сексе, благо весь дипломатический корпус, особенно женщины, изнывают от скуки. За её воспитание берется уже пожилой специалист. Эммануэль делает большие успехи (   Читать дальше...   )Производство: ФранцияЖанр: Мелодрама, ЭротикаРежиссер: Жюст ЖэкинАктеры: Сильвия Кристель, Ален Кюни, Марика Грин, Даниэль Сарки, Жанна Коллетен, Кристин Буассон, Саманта, Габриэль Бриан, ГрегориПеревод: Двухголосый закадровый, авторский одноголосый закадровыйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F92465751350649B639BF1F94036C8BEE4C9881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587635   (217130) от 12.12.2012
 
 Сто тысяч долларов на солнце / Greed in the Sun / Cent mille dollars au soleil (1964) [1080p] Blu-ray
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217130.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217121.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216056.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215834.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215457.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215046.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214863.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214741.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214174.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ The Beatles: Желтая подводная лодка / Yellow Submarine (1968
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214087.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214025.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213851.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213298.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213263.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213210.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213151.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211835.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211656.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211633.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211549.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211463.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211255.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211104.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210960.jpg" />
 </div>
 
 
@@ -628,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E040BC9D6442211B9735CA4FC1A1AD7C1B34956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641343   (210896) от 22.06.2023
-
-Фортуна - это женщина / Fortune Is a Woman / She Played with Fire (1957) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страховой инспектор Оливер Брамвель прибывает в Lewis Manor, чтобы расследовать причины пожара, случившегося в канун Рождества. Неожиданно Оливер обнаруживает, что хозяйкой поместья является женщина Сара, с которой он встречался много лет тому назад в Гонконге, откуда она внезапно исчезла без объяснения. Теперь она вышла замуж за владельца поместья Трейси. Вскоре (   Читать дальше...   )Производство: Великобритания, США / John Harvel Productions Ltd.Жанр: драма, криминалРежиссер: Сидни ГиллиатАктеры: Джек Хокинс, Арлин Даль, Деннис Прайс, Вайолет Фэрбразер, Иэн Хантер, Малкольм Кин, Джеффри Кин, Патрик Холт, Джон Робинсон, Майкл ГудлиффПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CBC426D477B23DEC6EF58C2E4876925D692661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568068   (210822) от 10.08.2022
-
-Звёздные войны: Эпизод 6 – Возвращение Джедая / Star Wars: Episode VI - Return of the Jedi (1983) BDRip [H.264/1080p-LQ] [Remastered]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210822.jpg" />
-</div>
-
-
-###  Подробнее
-
-В шестом эпизоде «Звездных войн» Дарт Вейдер создает вторую «Звезду Смерти». Он объединяет все силы зла, чтобы с помощью этого смертоносного оружия нанести последний сокрушительный удар по повстанцам и их союзникам.
-Люк Скайуокер вместе с принцессой Лейей и верными дроидами R2D2 и C-3PO отправляется спасать своего друга Хана Соло, который попал в плен к отвратительному (   Читать дальше...   )Производство: США / LucasfilmЖанр: фантастика, боевик, фэнтези, приключенияРежиссер: Ричард МаркуэндАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу (I), Иэн МакДайармид, Фрэнк Оз, Джеймс Эрл Джонс, Дэвид Праус, Алек ГиннессПеревод: ДублированныйСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB13A1FDBECF0AF32E9E58E0C2EFDB3546C119F
 ```
 
 https://mybot314.ru/tekegram_catalog/

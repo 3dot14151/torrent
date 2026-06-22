@@ -1,3 +1,109 @@
+###  Публикация: 911473   (618423) от 22.06.2015
+
+Белла Дижур | Волшебные руки труда и науки (1974) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618423.jpg" />
+</div>
+
+
+###  Подробнее
+
+то книга рассказов, сказок, разных историй и предположений о том, как, когда, где появились на земле первые дома и первые флейты, первые ножи и первые машины-автоматы, первые картины и первые монеты, первые книги и вообще самые, самые первые вещи.Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A47DEFEF882DA796F2F60324DCA3BC4280FCDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036833   (617276) от 22.07.2016
+
+Я. И. Шур | Когда? Рассказы о календаре (1968) [DJV]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли вы, сколько дней в году? Каждый скажет: 365 или 366 - и ошибется. Столько листков в отрывном календаре, а в году больше 365 и меньше 366 суток. Календарь указывает не только число месяца и день недели. Взгляните на отрывной листок, и вы узнаете, когда сегодня взошло и зайдет Солнце, какая нынче фаза Луны, годовщина какого важного события. А на обороте листка (   Читать дальше...   )Жанр: История, справочникФормат: DJV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2CBB3FA544FBA878432A3FFB891C99B43A9DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146039   (615804) от 28.06.2017
+
+Эйвинд Даль | Электроника для детей. Собираем простые схемы, экспериментируем с электричеством (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему лампочки в доме включаются, когда вы щелкаете по выключателю? Как работают машинки на радиоуправлении? И что заставляет лампочки на телевизоре и микроволновке мигать? Технологии вокруг тебя могут показаться магией, но большинство из них не работает без электричества.
+
+"Электроника для детей" делает электричество понятнее с помощью набора прекрасных (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6811664BACD42C0AC3CDE8CD0A7FF21C9C785D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352982   (615690) от 20.06.2011
+
+Н.В.Володина | Считаю и решаю. Для детей 5-6 лет [2009] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_615690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная задача данной книги — подготовить ребенка, незнакомого с буквами, к обучению чтению. Система разнообразных заданий направлена на развитие связной речи, мышления, внимания, памяти, творческого воображения. Регулярно занимаясь по пособию, малыш научится читать по слогам двух-трехсложные слова, определять звуки в словах, составлять рассказ по картинке, писать печатные буквы и несложные слова. Предназначено воспитателям дошкольных образовательных учреждений, гувернерам и родителям для занятий с детьми как в детском саду, так и в домашних условиях.Жанр: Развивающая литература для дошкольниковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F94CD7068B77D14380E3304081A8DAAECDAA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 353008   (615606) от 20.06.2011
 
 Е.Синякина, С.Синякина | Тесты. Что должен знать ребенок 4-5 лет (2009) [DJVU]
@@ -6,7 +112,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615606.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615598.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615153.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614922.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614128.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_613943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_613943.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613566.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612385.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612308.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612217.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611984.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610619.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609619.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609367.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609321.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609269.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608818.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608591.jpg" />
 </div>
 
 
@@ -489,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604955.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604709.jpg" />
 </div>
 
 
@@ -543,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604683.jpg" />
 </div>
 
 
@@ -569,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604221.jpg" />
 </div>
 
 
@@ -581,111 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35994CE419F4E71C26060DD2E30FD2E03AE9632A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231543   (603665) от 20.06.2018
-
-Коннер Бобби | 500 идей для творческого развития. Играем, изображаем, рисуем, танцуем, поем, пишем, строим, мастерим (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастливое детство невозможно без творчества. Эта уникальная книга поможет привнести веселье и творчество в жизнь вашей семьи и сделать ее будни яркими.
-В основе книги — идея о том, что творчество многолико, поэтому здесь вы найдете не только простые поделки и техники рисования, но и множество практических заданий на развитие архитектурных, музыкальных, танцевальных, (   Читать дальше...   )Жанр: Развитие общих способностейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F7AB09B110F9BFA4CC17559F308AF9A4AA9B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148672   (603416) от 07.07.2017
-
-Т.В. Игнатьева | Букварь дошкольника (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный Букварь предназначен для работы взрослых с детьми. На каждой странице взрослые найдут подробные методические рекомендации для занятий, а дети - красочные рисунки и интересные задания. Разнообразная форма подачи материала непременно привлечёт внимание ребёнка. Система заданий в Букваре поможет дошкольнику не только научиться читать, но и расширить активный (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5E92DFE55A139B5D312296768A9002BC3FA92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148701   (603409) от 07.07.2017
-
-Дмитрий  Златопольский | Системы счисления. Учебные и занимательные материалы (2015) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из 18 глав и содержит 13 приложений. В ней приводятся: задачи разного уровня сложности; методика решения типовых задач на системы счисления, представленных в Едином государственном экзамене по информатике; арифметические и геометрические прогрессии чисел в недесятичных системах; логические и сдвиговые операции; основные принципы создания так называемых (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F278D0AF2E0DC18F2CC93743B1B870DC3F164EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148911   (602931) от 08.07.2017
-
-Александра Николаевна Бахметева | История Русской Церкви для детей [II Тома] (1993 (Репринт 1904)) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор данной книги Александра Николаевна Бахметева (1825-1901) в интересной и доступной форме рассказывает об истории Русской Христианской Церкви. Писательница не просто рассматривает важнейшие периоды становления христианства в России, но и преподает нравственные уроки юным читателям, что особенно важно в наше непростое время, когда наблюдается отступление от христианских (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1696C61E4C6049CB8930CBA016E189BAA4A3DC7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1462958   (240882) от 16.04.2021
+
+Irvue 2.7.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 02.04.2021Разработчик: Igor SavelevПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA52DC43ADBC5B5C42495A056A6DAA56DF86221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462995   (240872) от 16.04.2021
+
+Hazel 5.0.6 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01.03.2021Разработчик: Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DA9F1E7664C8DB390B9900CBF258A1808C7570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462971   (240859) от 16.04.2021
 
 TextMate 2 v2.0.22 [En]
@@ -6,7 +58,7 @@ TextMate 2 v2.0.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240859.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Downie 4 v4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240841.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Acon Digital AudioLava for Mac 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240833.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ RAR Extractor Max - Unzip 6.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240824.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Author 6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240807.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ PDF Reader Pro 2.8.23.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240798.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ DiskCatalogMaker 8.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240784.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Pixea Plus 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240772.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Folder-Factory 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240753.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Cisdem DVDBurner 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240745.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240723.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Davinci Resolve Studio 18.0 Beta 1 U2B [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240717.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ System Toolkit 3.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240714.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ macOS 12 Monterey 12.5.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240711.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ RapidWeaver 8 v8.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240705.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Outline 3.2103.4 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240692.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ iCollections 6 v6.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240683.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ File Juicer 4.94 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240669.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ Disk Diet 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240660.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Wattagio 1.12.7 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240654.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ A Better Finder Attributes 7 v7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240591.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Feeder 4 v4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240582.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ Find Any File (FAF) 2.3 b13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240572.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ Acon Digital Acoustica Premium Edition 7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240527.jpg" />
 </div>
 
 
@@ -631,60 +683,6 @@ Acoustica Premium — многофункциональный аудиореда�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A311F6588974C30E6D681563CFA5C9D1680CAD46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464335   (240515) от 21.04.2021
-
-Yate 6.4.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2021Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F1FC4AE4EA9448C700E1E671CF69AA00E76AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464212   (240507) от 21.04.2021
-
-Performance Index 64 Pro 4.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Performance Index 64 предназначено для сравнения вашего Mac с другими устройствами macOS и оценки производительности и эффективности различных конфигураций.Тип издания: macOS SoftwareРелиз состоялся: 02.04.2021Разработчик: EcoComputers, JSCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC559720EA655B6B792591C5F1E88733913C2F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1041630   (581349) от 10.08.2016
+
+Talk Talk - 7 Albums (1982-1998) [MP3|320 Kbps] <Synthpop, New Wave, PopRock, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Talk Talk — британская группа, существовавшая с 1981 по 1991 год, которая добилась широкой известности своими синти-поп-синглами, среди которых «Today», «Talk Talk», «It's My Life», «Such a Shame», «Dum Dum Girl», «Life's What You Make It» и «Living in Another World». Однако среди музыкальных критиков она добилась ещё большего признания своими экспериментальными (   Читать дальше...   )Список альбомов:
+1982 - The Party's Over
+1984 - It's My Life
+1986 - The Colour Of Spring(   Читать дальше...   )Жанр: Synthpop, New Wave, Post Rock, AmbientПродолжительность: 05:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3834D51ED4ADE3032BE1F8037DE450C8F04271BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302468   (581204) от 15.05.2019
+
+Krisma (Chrisma) - 7 Albums (1977-1989) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Krisma (раньше Chrisma) является итальянской музыкальной электронной группой новой волны, основанной Маурицио Аркьери и Кристиной Моузер в 1976. В 1980 группа официально поменяла свое имя от Chrisma до Krisma и стала ближе к синтипопу. Из студийных альбомов выпустила только предлагаемые в раздаче.Список альбомов:
+1977 - Chinese Restaurant
+1979 - Hibernation
+1980 - Cathode Mamma(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 04:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E72904AABD0FD461B8DE16C1E6EE0246635B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041966   (580458) от 11.08.2016
 
 Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
@@ -6,7 +64,7 @@ Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580458.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб/с]<Electronic, Ambient, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573594.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Blancmange - 4 Albums (1982-1985) [MP3|320 Kbps] <Electronic, Synth-pop, New Wav
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572703.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Rheingold - Im Lauf der Zeit (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564074.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Fixx - 15 Albums (1982-2014)(16 CD) [MP3|320 Kbps] <Electronic, New Wave, Po
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561393.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ C.C.C.P. - Album & Compilation (1990, 1992) [MP3|320 Kbps] <Electronic, Industri
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561264.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Synthesize Me (2007) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557337.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Missing Persons - Missing in Action (2014) Deluxe Edition [MP3|320 Kbps] <New Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556942.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Synth Dimension (2013) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, D
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553616.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Jan Hammer - Seasons, Pt. 1 (2018) [MP3|320 Kbps] <Synth-Pop, Instrumental>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553286.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VHS Glitch - MORAL DECAY (2016) [MP3|320 Kbps] <Synthwave, Dark Synth, Cyberpunk
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545644.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Anosphere - 3 Studio Albums (2007-2011) CD [MP3|320 Kbps] <Electronic, Synth-pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543780.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Logic System - History of Logic System (2003) CD Compilations [MP3|320 Kbps] <El
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543765.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Synthpop 2017 vol.1-3 (2017) [MP3|320 Kbps] <Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542420.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Droid Bishop - Beyond The Blue (2014) [MP3|320 кб/с]<Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539112.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Dynatron - Escape Velocity (2012) [MP3|320 кб/с]<80s, dreamwave, electronic>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539007.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Lost Years - Amplifier (2013) [MP3|320 кб/с]<Electronic, Electro, Disco, Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528502.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Summer In Space Vol. 5 (2022) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527801.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522486.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Magic Sword - Vol.1 (2015) [MP3|320 кб/с]<Synth Wave,Retro Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522454.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Synthwave, Vol. 5 (Retro Dreams) (2018) [MP3|320 Kbps] <Synthwave, Retrowav
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522261.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518365.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ BELLATRIX - Cosmic Dust (2019) [MP3|320 Kbps] <Spacepop, Spacesynth, Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513813.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Neuroticfish - A Sign Of Life (2015) [MP3|320 кб/с]<Synthpop, EBM>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512921.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Neuroticfish - A Sign Of Life (2015) [MP3|320 кб/с]<Synthpop, EBM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAD2D6495A3699AEA193AE33BD33B67C8918A570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930467   (510785) от 27.08.2015
-
-Lazerhawk - Skull and Shark (2013) [MP3|320 кб/с]<Electronic, Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skull and Shark (04:50)
-02. Chaos (04:50)
-03. Lawless (04:26)
-04. The King of the Streets (04:57)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54388FF7C8CBBD624A2C840A3B8585CD3A12C096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932194   (509985) от 28.08.2015
-
-Gunship - Gunship (2015) [MP3|320 кб/с]<Electronic, Synthwave, Dreamwav>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mountain (4:25)
-02. Revel in Your Time (4:07)
-03. Tech Noir (4:57)
-04. Shadow Fury (4:13)(   Читать дальше...   )Жанр: Electronic, Synthwave, DreamwaveПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9C2C492DAFC7BE20E053117EE46D0388A48E91
 ```
 
 https://mybot314.ru/tekegram_catalog/

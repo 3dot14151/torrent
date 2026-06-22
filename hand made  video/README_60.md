@@ -1,3 +1,31 @@
+###  Публикация: 940118   (470368) от 23.09.2015
+
+Безумный Макс. Дорога ярости / Mad Max. Fury Road (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преследуемый призраками беспокойного прошлого, Макс уверен, что лучший способ выжить — скитаться в одиночестве. Несмотря на это, он присоединяется к бунтарям, бегущим через всю пустыню на боевой фуре, под предводительством военачальника Фуриосы.
+
+Они пытаются сбежать из Цитадели, страдающей от тирании Несмертного Джо, у которого они забрали кое-что очень ценное. (   Читать дальше...   )Производство: Австралия, СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джордж МиллерАктеры: Том Харди, Шарлиз Терон, Николас Холт, Хью Кияс-Бёрн, Райли Кио, Роузи Хантингтон-Уайтли, Зои Кравиц, Эбби Ли, Кортни Итон, Нэйтан Джонс.Перевод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 2:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A8042CD07C516902140F7AAE3C45AE8E0CF8B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 673590   (469156) от 21.09.2013
 
 Оз: Великий и Ужасный / Oz the Great and Powerful (2013) BDRip [1080p] 3D [Вертикальная стереопара] [Hand Made 16:9]
@@ -6,7 +34,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469156.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469138.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468664.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468362.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468310.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466215.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465768.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463953.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463675.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463372.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462237.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461810.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459782.jpg" />
 </div>
 
 
@@ -347,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459458.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459356.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458529.jpg" />
 </div>
 
 
@@ -425,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457361.jpg" />
 </div>
 
 
@@ -451,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456966.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456771.jpg" />
 </div>
 
 
@@ -503,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455564.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454811.jpg" />
 </div>
 
 
@@ -555,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454245.jpg" />
 </div>
 
 
@@ -581,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452912.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451518.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451340.jpg" />
 </div>
 
 
@@ -645,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1D8A7282C890C9AF74F781801506CB685079357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941169   (451028) от 02.10.2015
-
-Контрабанда / Contraband (2011) BDRip [H.264/720p] [hand made 48fps]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир контрабандистов — это большие ставки и огромный риск. Cтоит оступиться лишь раз, и тебя ждет смерть. В этом мире Крис был лучшим, его называли Гудини, но он вышел из игры, женился и начал новую жизнь…Производство: США, Великобритания, Франция / Relativity Media, Universal Pictures, Studio CanalЖанр: Боевик, триллер, драма, криминалРежиссер: Бальтасар КормакурАктеры: Марк Уолберг, Кейт Бекинсейл, Бен Фостер, Калеб Лэндри Джонс, Джованни Рибизи, Дж.К. Симмонс, Лукас Хаас, Лаки Джонсон, Диего Луна, Роберт УолбергПеревод: Дублированный (Лицензия)Субтитры: Русский, Английский (вшитые отключаемые)Продолжительность: 01:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0D06F294A81DD5AFB6D7E5B5A3070508E68C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

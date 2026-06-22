@@ -1,3 +1,56 @@
+###  Публикация: 943724   (446907) от 04.10.2015
+
+Однажды в России. Сезон 2. Выпуск 10 (2015.10.04) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E63B091860901042539EBDBBBE394786307E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943787   (446651) от 04.10.2015
+
+КВН-2015. Высшая лига. Летний кубок в Сочи  (2015.10.04) HDTVRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446651.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках КВН-недели в Сочи за обладание кубком боролись чемпионы Высшей лиги 2013 года, победители Летнего кубка 2014 года – команда КВН "ГородЪ ПятигорскЪ", Ставропольский край и новоиспеченный чемпион прошлого сезона – "Союз", Тюменская область.
+Каждая команда для участия в кубке пригласила своих друзей из других команд: за Пятигорск сыграла (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896D56518856F1E8F346475B3CDC35BEB22E97D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943673   (446298) от 04.10.2015
 
 КВН-2015. Высшая лига. Летний кубок в Сочи (2015.10.04) SATRip
@@ -6,7 +59,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446298.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444755.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444295.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444289.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444279.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444123.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444121.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Love Is / Comedy Club / Comedy  Woman (2017.09.08) SATRip (выпуск 4)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443939.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443783.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443760.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442763.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442669.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441861.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441839.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441838.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ Comedy Woman (30.08.2019) WEB-DLRip (сезон 9, выпуск 1)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441813.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ Love Is / Comedy Club / Comedy  Woman (2017.09.08) WEB-DL [H.264/720p-LQ] (вы�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441688.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441521.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439610.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439507.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ Comedy Woman (2018.09.21) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439467.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ Comedy Woman (2016.10.14) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439415.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439247.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439206.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA1576D9A04E800BE53181624F90978CE2B074C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164583   (439203) от 10.09.2017
-
-КВН-2017. Премьер лига. Финал (2017.09.09) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198E390F74B7C19E8DA8CD0F3D24D054A0E772BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062906   (439124) от 14.10.2016
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2016.10.14) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439124.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7029AEFCD19A31D5E08D5766FC379595AEE938D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

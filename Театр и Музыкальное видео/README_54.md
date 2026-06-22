@@ -1,3 +1,142 @@
+###  Публикация: 669051   (721208) от 16.06.2013
+
+Океан Ельзи (Океан Эльзы) - Выступление с Минским симфоническим оркестром (2011) TVRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия концерта показанная по Первому Белорусскому Национальному каналу1. Мало менi
+2. Дівчина
+3. Вiльний
+4. Susy(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15713C1C10ABAB8435191AEF1276422978B943B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171968   (720944) от 26.02.2019
+
+5-25 (Пять - двадцать пять). Спектакль ЕГТИ, Мастерская В.Кокорин (2006) VHSRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль молодых ребят, студентов Екатеринбургского театрального института, мастерская - Кокорин В.В. по пьесе Д. Привалова. В екатеринбургском ТЮЗе.Производство: РоссияЖанр: Драма, спектакльРежиссер: Ямбор В, Кокорин В.Актеры: Волоцкий Евгений, Ушакова Наталья, Герасимов Руслан, Манцыгин Алексей, Монгилев Сергей, Трясцын Александр.Субтитры: ОтсутствуютПродолжительность: 01:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D689C28DF199CFDE900305CF5428BEF4B81162CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285251   (720705) от 26.02.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal - Intro
+01. Thunder - She's So Fine
+02. Sebastian Bach - Tunnelvision
+03. Pantera  - Mouth For War(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529D74141A97B571785F01820837DDD93263774B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531661   (720278) от 16.02.2022
+
+Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720278.jpg" />
+</div>
+
+
+###  Подробнее
+
+«PULSE» — видеоверсия концерта группы Pink Floyd, прошедшего 20 октября 1994-го года в Лондонском Earls Court. Концерт проходил в рамках тура в поддержку альбома The Division Bell. Музыка сопровождалась очень красочным шоу с применением огромного количества прожекторов и лазеров, двух больших надувных свиней, пролетающего над зрителями самолета, демонстрацией видеороликов (   Читать дальше...   )Shine On You Crazy Diamond - 0:10
+Learning to Fly - 13:23
+High Hopes - 19:04
+Take it Back - 27:17(   Читать дальше...   )Производство: Великобритания / Pyro SpectacularЖанр: RockРежиссер: Дэвид МалеСубтитры: ОтсутствуютПродолжительность: 02:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFFDA3C95BC1001A41B6DFB754D7C2EEB0055EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327294   (720260) от 24.04.2011
+
+Музыкальный ринг на НТВ. Выпуск №19. Александр Маршал vs Вопли Видоплясова  (22.04.2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: Концерт, ТВ-ШоуПродолжительность: ~ 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DDB6C02C65B54815A184AE5AFEE2BDA1520748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 892333   (719196) от 26.04.2015
 
 Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
@@ -6,7 +145,7 @@ Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719196.jpg" />
 </div>
 
 
@@ -35,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719078.jpg" />
 </div>
 
 
@@ -64,7 +203,7 @@ VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717497.jpg" />
 </div>
 
 
@@ -93,7 +232,7 @@ Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717388.jpg" />
 </div>
 
 
@@ -119,7 +258,7 @@ DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717386.jpg" />
 </div>
 
 
@@ -145,7 +284,7 @@ Led Zeppelin: The Song Remains The Same (2007) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_715304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715304.jpg" />
 </div>
 
 
@@ -171,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_715300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715300.jpg" />
 </div>
 
 
@@ -197,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714046.jpg" />
 </div>
 
 
@@ -224,7 +363,7 @@ Bryan Ferry - Nuits de Fourviere. Live in Lyon (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713803.jpg" />
 </div>
 
 
@@ -253,7 +392,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713698.jpg" />
 </div>
 
 
@@ -282,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713563.jpg" />
 </div>
 
 
@@ -313,7 +452,7 @@ AC/DC: Live at Donington (1991) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_713549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713549.jpg" />
 </div>
 
 
@@ -342,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_713269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713269.jpg" />
 </div>
 
 
@@ -368,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712657.jpg" />
 </div>
 
 
@@ -398,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712592.jpg" />
 </div>
 
 
@@ -424,7 +563,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711946.jpg" />
 </div>
 
 
@@ -453,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711788.jpg" />
 </div>
 
 
@@ -482,7 +621,7 @@ Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710865.jpg" />
 </div>
 
 
@@ -508,7 +647,7 @@ Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710863.jpg" />
 </div>
 
 
@@ -534,7 +673,7 @@ Gregorian - Masters Of Chant Chapter III (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710701.jpg" />
 </div>
 
 
@@ -560,7 +699,7 @@ U.D.O. - Steelhammer: Live From Moscow (2014) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709923.jpg" />
 </div>
 
 
@@ -574,142 +713,6 @@ U.D.O. - Steelhammer: Live From Moscow (2014) DVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE8832E3BA921D26C1D12D8EBD159FF7CA1B5B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792152   (709819) от 02.06.2014
-
-Евгений Гришковец - Прощание с бумагой (2014) WEB-DLRip [H.264]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Драма, КомедияРежиссер: Евгений ГришковецАктеры: Евгений ГришковецПеревод: ОтсутствуетПродолжительность: 02:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46FF80A2CAADBBA81FB9B18820EE66DBAD82590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025543   (709437) от 12.06.2016
-
-The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алан Парсонс - британский музыкант, звукорежиссёр, продюсер. Известен своей работой с группой Pink Floyd — альбом Dark Side of the Moon, который стал звёздным часом для группы, Полом Маккартни и другими музыкантами, а также собственным музыкальным проектом The Alan Parsons Project.1 I Robot
-2 Damned If I Do
-3 Don’t Answer Me
-4 Breakdown(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86AD2AAE9C9F32BBDFFD471C107A71B4B998424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025493   (709325) от 12.06.2016
-
-The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алан Парсонс - британский музыкант, звукорежиссёр, продюсер. Известен своей работой с группой Pink Floyd — альбом Dark Side of the Moon, который стал звёздным часом для группы, Полом Маккартни и другими музыкантами, а также собственным музыкальным проектом The Alan Parsons Project.1 I Robot
-2 Damned If I Do
-3 Don’t Answer Me
-4 Breakdown(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CD4477EEE6B245ED78E994C44CC6C653E9DF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025605   (709322) от 12.06.2016
-
-The Alan Parsons Symphonic Project - Live In Colombia (2016) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алан Парсонс - британский музыкант, звукорежиссёр, продюсер. Известен своей работой с группой Pink Floyd — альбом Dark Side of the Moon, который стал звёздным часом для группы, Полом Маккартни и другими музыкантами, а также собственным музыкальным проектом The Alan Parsons Project.Жанр: Progressive RockПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3958B42C2820A7B102994F6372D5B40C32787727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329772   (709212) от 29.04.2011
-
-VH1 All Classics Hits (2005) 10xDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов, захваченных с цифрового спутникового канала VH1 (Video Hits One) — американского музыкального телеканала.Жанр: Pop, RockПеревод: Не требуетсяПродолжительность: 10 x ~ 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737EC825FEF26D66BC2C3872501391CE08F04814
 ```
 
 https://mybot314.ru/tekegram_catalog/

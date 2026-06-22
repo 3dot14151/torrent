@@ -1,3 +1,81 @@
+###  Публикация: 1340540   (263580) от 24.11.2019
+
+Злой кот (Злобный кот) / Hung mau / Evil Cat (1987) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот уже 400 лет, с промежутками по 50 лет, дух злобного кота появляется в мире людей, в надежде остаться в нашем мире навсегда. И каждый раз кто-то из семьи Чан останавливает его. Говорят у кошек 9 жизней, вот и у злобного кота остался последний шанс. Мастер Чан болен раком, но к счастью ему на помощь приходит незадачливый водитель Лон. Дух кота вселился в тело его (   Читать дальше...   )Производство: Гонконг, Cinema City, Dennis Yu Film ProductionЖанр: Ужасы, фэнтези, комедияРежиссер: Дэннис ЮАктеры: Чэнь Цзюйюэ, Марк Чэн, Пинг Ха, Сюй Шуюань, Галлен Ло, Лю Чя-Лян, Том Пун, Син Хо Йинг, Со Хон-Сан, Джоанн ТанПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0754A0164E92B3C62D8B6093AB5D90127B3470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340143   (263578) от 24.11.2019
+
+Блюз беглеца / Biao cheng / Runaway Blues (1988) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квонг (Энди Лау) – первый парень на Тайване, но там он влипает в неприятности и вынужден бежать в Гонконг. Там его берут под свое крыло местные гангстеры, однако для них жизнь такого, как Квонг – пустяк, мелкая разменная монета. Которой они в конце концов решат заплатить по своим счетам.Производство: Гонконг, Movie Impact LtdЖанр: Драма, мелодрама, криминалРежиссер: Дэвид ЛаиАктеры: Энди Лау, Сю-лин Лу, Юе Линг, Чан Гин-Чун, Си Чанг, Чу Тау, Конг Фонг, Сау Люн «Блэки» КоПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A488442D9AC02D55FB4FE72F35CA61D11D8ABE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339342   (263549) от 24.11.2019
+
+Код «Синий» / Kodo Buru: dokuta heri kinkyu kyumei / Code Blue the Movie (2018) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Произошли крупные аварии в аэропорте Нарита и на парковке Умихотару. Группе экстренной медицинской помощи "Доктор Хели" приходится столкнуться с чрезвычайной ситуацией, чтобы помочь раненым.Производство: Япония, Fuji Television NetworkЖанр: ДрамаРежиссер: Масаки НисиураАктеры: Ямасита Томохиса, Юи Арагаки, Эрика Тода, Манами Хига, Ёсукэ Асари, Масанобу Андо, Юко Араки, Дайки Ариока, Фумика Баба, Чак ДжонсонПеревод: Одноголосый любительский (Asian Miracle Group)Субтитры: английские (by SkewedS), русские (форсированные на начало фильма) - отдельными файламиПродолжительность: 02:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56433956E1CD415207CCF2FCF594777F014E59A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339343   (263135) от 25.11.2019
 
 12 ребят, которые хотят умереть / Juni-nin no shinitai kodomo-tachi / 12 Suicidal Teens (2019) HDRip [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263135.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263132.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263129.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262890.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262827.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262707.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262363.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262325.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262323.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262313.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262305.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262304.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262303.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262298.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_262279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262279.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262079.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260723.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259394.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258197.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256383.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255253.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255169.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255143.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E37D932927D0F409BD70AE6361669B8FB0739634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628484   (254872) от 23.04.2023
-
-Кодрат / Qodrat (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254872.jpg" />
-</div>
-
-
-###  Подробнее
-
-В деревне, расположенной рядом с исламской школой-интернатом, начинают происходить страшные вещи: от внезапного неурожая до случаев одержимости.Производство: Индонезия, Малайзия / Astro Shaw, Caravan Studio, Dunia Mencekam Productions, Ideosource EntertainmentЖанр: ужасыРежиссер: Charles Gozali, Imron AyikayuАктеры: Vino G. Bastian, Марша Тимоти, Maudy Effrosina, Ранди Паналила, Чечеп Ариф Рахман, Keanu Azka, Jason Doulez Beunaya Bangun, Притт Тимоти, Whani Darmawan, Агла АрталидиаПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F74825354A74DCF93467655125FCC0A91FCF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628830   (254848) от 24.04.2023
-
-Двухкомнатная квартира / 2LDK (2003) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нозоми и Рана снимают в Токио квартиру на двоих. Они обе начинающие актрисы и прослушиваются на одну и ту же роль и выберут только одну из них. И существующая и до этого неприязнь перерастает в кровавую вражду...Производство: Япония, DUEL Film Partners, Micott Inc., Times InЖанр: драма, триллерРежиссер: Юкихико ЦуцумиАктеры: Эико Коикэ, Махо Нонами, Даисукэ КидзакиПеревод: любительский многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16113C4C9476127C0A6F9932982E5B33461FE68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632879   (254421) от 12.05.2023
-
-Блуждающая Земля 2 / Liu lang di qiu 2 / The Wandering Earth 2 (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солнце угасает. Последний шанс человечества на спасение — поиск нового дома. Объединившись, люди находят возможность изменить орбиту Земли, отправившись в неизвестность. Но это путешествие на много сотен световых лет во тьму несет разрушение и хаос. Планета растерзана катаклизмами, в которых выживут далеко не все. И все же только в бесконечной пустоте можно обрести (   Читать дальше...   )Производство: Китай / Beijing Dengfeng International Culture Communications Company, CFC Pictures, China Film Co., Ltd., G!Film Studio, Rollin StudiosЖанр: фантастика, боевикРежиссер: Франт ГвоАктеры: Джеки У, Энди Лау, Ли Сюэцзянь, Ша И, Нин Ли, Ван Чжи, Чжу Яньманьцзы, Энди Френд, Тун Лия, Зина БлахусоваПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 02:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15A31ADD627AD774D49628015E8CE0C358DBAB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

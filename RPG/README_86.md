@@ -1,3 +1,107 @@
+###  Публикация: 1773039   (3100) от 13.09.2025
+
+Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3100.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Knock on the Coffin lid вы очнетесь в холодном склепе в тысяче миль от вашего дома, лишенные памяти о случившемся и в компании таинственного незнакомца. Чтобы вернуть потерянные воспоминания, вам придётся исследовать мрачные тайны собственной смерти, заключать неожиданные союзы и тщательно планировать свой путь. Расследуй историю своей собственной смерти, найди (   Читать дальше...   )Тип издания: RepackРазработчик: RedBoonЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B35A5B30D739C9E363427318F990D9CB577F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728285   (3046) от 13.09.2025
+
+Heads Will Roll: Reforged (2023) [Ru/Multi] (2.6/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heads Will Roll: Reforged позволит игроку примерить на себя роль обычного средневекового солдата, волею судеб оказавшегося в эпицентре легендарной Столетней войны между королями Англии и Франции. Вы начинаете свой путь простым пехотинцем, единственной целью которого является выживание, но при должном уровне мастерстве, хитрости, а также пролитой крови, вы вскоре (   Читать дальше...   )Тип издания: RepackРазработчик: 1917 StudiosЖанр: Ролевая игра, Пошаговая, ИсторическаяЯзык субтитров: Русский, Английский, Португальский (Бразилия) и другиеЯзык интерфейса: Русский, Английский, Португальский (Бразилия) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043E1ED729D9CF12DD85694FE30AD4EF33146BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775255   (2891) от 14.09.2025
+
+Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большое приключение в крошечном масштабе! Оказавшись в самом низу пищевой цепочки, нужно готовиться ко всему. Создавайте оружие и броню, седлайте невиданных зверей, стройте базы и исследуйте причудливые земли. Когда-то мы свободно жили под светом Луны и Солнца, покуда наш мир не заняли гиганты. Столетия минули с той поры, но истории о чудесах жизни на поверхности (   Читать дальше...   )Тип издания: RepackРазработчик: Merge GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B791ABC3ED7F9E9CBDB11B3D3D54370A33B4412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793520   (2725) от 15.09.2025
+
+The Elder Scrolls IV: Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2725.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Elder Scrolls IV: Oblivion Remastered представляет собой переосмысление игры 2006 года с обновлённой графикой и доработанным игровым процессом. Исследуйте необъятные просторы Сиродила и сражайтесь с захватчиками из Обливиона в новой версии легендарной ролевой игры от знаменитой студии Bethesda Game Studios.Тип издания: RepackРазработчик: Bethesda Game Studios, VirtuosЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8ACBA3F9827DA4F7A442187753BF6C1F54A8AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708306   (2721) от 15.09.2025
 
 KeeperRL (2024) [En] (1.2.6) License GOG
@@ -6,7 +110,7 @@ KeeperRL (2024) [En] (1.2.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2721.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2695.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.5.4/dlc) Repack Let'sРlay [Digital Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2674.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.231/dlc) Repack Wanterlu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2590.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) Repack Wanterlude [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2583.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2510.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.7.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2438.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2430.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2355.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Darkest Dungeon II (2) (2023) [Ru/Multi] (2.03.79909/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2120.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2119.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.2.0.1/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2116.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2097.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack seleZen [Gold Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1930.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack Wanterlude [Gold
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1927.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1765.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Last Epoch (2024) [Ru/Multi] (1.3.3.1/dlc) Repack Other s [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1743.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1705.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1690.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ FATE: Reawakened (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1512.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Go
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1395.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1384.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2B757E904F21326EA119A02381ACEE88D6A75E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809240   (1380) от 23.09.2025
-
-Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Valor - космическая игра в жанре экшен-РПГ, где вы управляете собственным кораблём и собственной судьбой. Исследуйте огромный процедурно генерируемый мир, начав с самых низов, и станьте самым известным человеком в галактике. Но во вселенной, где человечество влачит существование под пятой почти истребивших его пришельцев, богатство и власть никому не даются (   Читать дальше...   )Тип издания: RepackРазработчик: Rafael BurgosЖанр: Экшены, Инди, Ролевые игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CD3C7B898FA0DDD6546BAB71F695908943F176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780196   (1373) от 23.09.2025
-
-Reality Break (2025) [Multi] (1.1.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы играете за наемника, который неожиданно обретает способность искажать реальность, бросая вас в вихрь постоянных изменений и опасностей. По мере прохождения вы столкнетесь с испытаниями, требующими не только боевых навыков - именно ваше мастерство управления реальностью определит исход. Механика Rewrite - ключевая особенность Reality Break, позволяющая юзерам изменять (   Читать дальше...   )Тип издания: LicenseРазработчик: Element Games, LLCЖанр: Экшены, Инди, Ролевые игрыЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819624   (1349) от 23.09.2025
-
-You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1349.jpg" />
-</div>
-
-
-###  Подробнее
-
-You Will Die Here Tonight - ролевой экшен с пошаговыми элементами. Оказавшись в таинственном особняке, предстоит столкнуться с самым настоящим ужасом поместья. Ты умрешь сегодня вечером - это леденящий душу ужастик, выполненный в духе оригинальных частей Resident Evil. Столкнитесь с нечистью в недрах старинного поместья и попытайтесь выбраться из особняка живым.Тип издания: LicenseРазработчик: Spiral Bound Interactive LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Венгерский, Испанский, Немецкий и другиеЯзык интерфейса: Английский, Венгерский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E12A9E27A5FB17F23DF0AB5D4615C5508F3BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809449   (1262) от 24.09.2025
-
-WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в землях Шу, в мрачные и неспокойные времена заката династии Мин. Империю раздирают междоусобицы, а таинственная хворь порождает кошмарных чудовищ. Вы играете за Учан, бывалую пиратку и грозу морей, потерявшую память. Ей предстоит столкнуться с призраками прошлого и выжить после заражения жуткой Пернатой хворью. Исследуйте глубины Шу, собирайте (   Читать дальше...   )Тип издания: RepackРазработчик: LeenzeeЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Китайский (упрощенный), ЯпонскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897916AF527D2FE9A6DA99DD9060FB02738397CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Nigel Price Organ Trio - That's It. Right There (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110610.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bruno Montrone - Unaware Beauty (Studio) (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110609.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stefano Paolini - Modern Jazz Drumming, Vol. 1 (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110607.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ JC Smith - The Cool & the Smooth (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Sm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110606.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ St. Vincent - All Born Screaming (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110599.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Walker & Royce - No Big Deal (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110594.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Inter Arma - New Heaven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <doom metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110569.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Big Star - #1 Record (1972) Remastered, 2024, Craft Recordings [FLAC 24/192|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110564.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Maria Chiara Argiro - Closer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110552.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Big Star - Radio City (1974) Remastered, 2024, Craft Recordings [FLAC 24/192|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110551.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Deep Purple - Portable Door (2024) Single [FLAC 24/48|Lossless|WEB-DL|track] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110545.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Writhing Squares - Mythology (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psyched
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110515.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Alborosie - Dub Pirate (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Reggae. New A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110511.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Grateful Dead - From the Mars Hotel: The Angel's Share (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110508.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Preacher Stone - V (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110493.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110462.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110461.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Severed Angel - Skyward (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110428.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Smash Into Pieces - Ghost Code (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110425.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sexual Music Collection - Erotic Bath with Jazz (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110415.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Sensual Lounge Music Universe - Sexiest Ballads: Smooth Instrumental Erotic Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110407.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Ghost on Mars - Out of Time and Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110406.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ FM - Old Habits Die Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110390.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Jerome Godboo - One Monkey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110372.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Bart Bryant - Backstage II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110371.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Mitch Polzak & The Kaw-Ligas - Down South Blues (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110370.jpg" />
 </div>
 
 

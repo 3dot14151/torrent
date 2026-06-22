@@ -1,3 +1,56 @@
+###  Публикация: 971980   (983348) от 05.01.2016
+
+Николай Осокин | История альбигойцев и их времени (2000) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор этой книги, Николай Алексеевич Осокин, — один из самых одаренных историографов России, обладавший поистине поразительной способностью обращать сухие исторические факты не просто в научные труды, но в книги — живые, интересные, увлекательные для самых широких кругов читателей.
+Перед вами — самое капитальное из исследований, посвященных истории альбигойской ереси (   Читать дальше...   )Жанр: Христианство, ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0FA21E5F9D4A84C183E928C4EAB6B71ED4AD38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972160   (983101) от 05.01.2016
+
+Г. Майер, П. Штир | Фашизм и политический клерикализм (1963) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателя работа Гарри  Майера — научного сотрудника Института экономики  Германской Академии наук в Берлине, и Петера  Штира — научного сотрудника Высшей экономической школы в Берлине — Карлхорсте, посвящена критике и разоблачению одной из реакционнейших разновидностей идеологии современного империализма - политического клерикализма.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2783209BADABFDD0182A09617C482B52B72D29AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614026   (982534) от 04.02.2013
 
 Р. Кассер, М. Мейер, Г. Вюрст | Евангелие от Иуды [2008] [DJVU]
@@ -6,7 +59,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982534.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981872.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981841.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981738.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981094.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980257.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977950.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977843.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976861.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972244.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971905.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969751.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969022.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967874.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967873.jpg" />
 </div>
 
 
@@ -413,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967870.jpg" />
 </div>
 
 
@@ -439,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967869.jpg" />
 </div>
 
 
@@ -465,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967864.jpg" />
 </div>
 
 
@@ -491,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967862.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967839.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967829.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967822.jpg" />
 </div>
 
 
@@ -598,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967796.jpg" />
 </div>
 
 
@@ -624,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967758.jpg" />
 </div>
 
 
@@ -635,59 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756D4FB814EBF1E94B0FE54A4B095A9D38D46406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976657   (967720) от 19.01.2016
-
-З. В. Калиничева | «Кристалл небес мне не преграда боле...»: Исторические очерки о закономерностях возникновения и развития атеизма (1986) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967720.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге на материалах античности, эпохи европейского Возрождения и русского Просвещения показано формирование атеистических воззрений.Жанр: История, религиоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5227C7CC9556D1B7DE7F526FF56448DE8176A757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358923   (967321) от 09.02.2020
-
-Владимир Зоберн | Разговоры с мертвыми. Рассказы приходских священников (2019) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди порой сталкиваются с такими таинственными явлениями, которые не могут объяснить. Авторы этой книги – православные священники, и они рассказывают о чудесах, связанных с гостями из иного мира.
-Главная задача этой необычной книги – свидетельствовать об истине бытия Божия, о Творце видимого мира и невидимого, Творце бесплотных сил, из которых одни – светлые ангелы, (   Читать дальше...   )Жанр: Духовная литература, ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C85530F4B1C8A8C1AF041C4AF88699DDE761C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

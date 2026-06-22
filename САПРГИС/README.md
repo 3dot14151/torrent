@@ -7,7 +7,7 @@ GstarBIM 2027 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072077.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ GstarCAD 2027 (build 260429) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072072.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ KiCad 10.0.3 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070812.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ KiCad 10.0.3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070328.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GstarCAD Professional 2021 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069539.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ KiCad 10.0.2 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069197.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ KiCad 10.0.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068651.jpg" />
 </div>
 
 
@@ -182,6 +182,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869283   (1068032) от 05.05.2026
+
+QuarkXPress 2026 v22.0.1.58128 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BCFE5F491536D64536F0007AC9E84325D96F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867190   (1066798) от 
 
 KiCad 10.0.1 [Multi/Ru]
@@ -190,7 +216,7 @@ KiCad 10.0.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066798.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Autodesk AutoCAD Mechanical 2027 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065598.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ AnyLogic Professional 8.9.8 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065031.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Autodesk AutoCAD 2027 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062493.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ KiCad 10.0.0 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062049.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ KiCad 10.0.0 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061809.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Proteus Professional 9.1 SP2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060802.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ JMAG Designer 18.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056423.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ AVEVA Process Simulation 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056384.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Siemens Solid Edge 2026.2510 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056234.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Siemens Simcenter Amesim 2404 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055824.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ ESI SimulationX 4.1.1.63427 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055714.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ DS DYMOLA 2023x Refresh 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055499.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052506.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052496.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ InfineonSpice 2025.04.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051422.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ QSPICE 2026.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051392.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Missler Topsolid 7.17.400.000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051381.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ TopSolid 7 объединяет автоматизированное проек�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E1D485244E28CDE9DE51B41C2EB2FEAE7B1FC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845378   (1050701) от 31.12.2025
-
-DipTrace 5.2.0.4 + 3D Models [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050701.jpg" />
-</div>
-
-
-###  Подробнее
-
-DipTrace - это многофункциональная САПР по разработке электронных печатных плат и схемотехнической документации для проектов любой сложности, от идеи до готового устройства.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC14D825E6A4911C88666D28A747BE54CE0AF0AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

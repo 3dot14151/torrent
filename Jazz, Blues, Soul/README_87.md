@@ -1,3 +1,90 @@
+###  Публикация: 992483   (900996) от 02.03.2016
+
+VA - The Blues In... Asia (2005) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cannonball - Suzie Wong (3:59)
+02. The Unseen Guest - Listen My Son 6 (3:55)
+03. The Curtis King Band - Sweet Home Chicago (3:20)
+04. Julian Mokhtar - Walking The Dog (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036A498624FEA3EDD975F10E8BEF5794D8877E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992547   (900923) от 02.03.2016
+
+VA - Bluesed Up Rock Classics (2016) [MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Ed & The Blues Imperials - Leaving Here (3:26)
+02. Michael Burks - Fire And Water (4:02)
+03. Koko Taylor - Hey Baby (4:19)
+04. Shemekia Copeland - Steamy Windows (5:02)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E99568D8C63DB67900E9DEBCC08FC1C4F5DDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492806   (900876) от 31.08.2021
+
+Marbin - Marbin on Audiotree Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock , Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messy Mark (00:06:45)
+02. African Shabtay (00:08:15)
+03. Juke Joint (00:06:46)
+04. Redline (00:08:42)Жанр: Progressive Rock , FusionПродолжительность: 00:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCB2529C373BD2C94A7860F0F075344556E4514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369852   (900530) от 25.03.2020
 
 Oscar Peterson & Harry Edison - 1974 (1992) Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -6,7 +93,7 @@ Oscar Peterson & Harry Edison - 1974 (1992) Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900530.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dustin Massey - Matter of Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900466.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Dan Schinhofen - My Kind of Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900464.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Vincent Gross - Vincent Gross Sings the Music (2021) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900460.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Dag - Apartment #635 (1998) [FLAC|Lossless|image + .cue] <Funk / Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900426.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Billy Cobham - Drum 'n' Voice - All that Groove (2001) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900197.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ John Savage - Remember Me (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contempor
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899996.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Nils Landgren with Janis Siegel - Some Other Time - A Tribute To Leonard Bernste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899968.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Art Blakey And The Jazz Messengers - Backgammon (1976) Remaster, 2016, Warner[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899930.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Manu Katche - Unstatic (2016) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899916.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Tramp - 2 Album (1969, 1974) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899756.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Peter White - Groovin' (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz, Guitar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899675.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Jimmy Raney - A (1955) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899415.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Louis Hayes & Junior Cook - Ichi-Ban (1976) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899414.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Della Reese - Four Classic Albums 1958 - 1961 (2018) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898566.jpg" />
 </div>
 
 
@@ -432,64 +519,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370087   (898544) от 26.03.2020
-
-Billy Cobham - Compass Point (2013) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Snaffler (11:28)
-02. Fragolino (8:01)
-03. Mushu Creole Blues (10:15)
-04. Egg Shells Still On My Head (9:10)(   Читать дальше...   )Жанр: Jazz, Funk, FusionПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A07B466F964D3F0C5833D0F14F2E87AAA0A871A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370221   (898479) от 26.03.2020
-
-Various - Electro Swing II (2009) [FLAC|Lossless|image + .cue] <Electronic, Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wax Tailor Feat A.S.M. - Say Yes
-02. Gabin - Doo Uap, Doo Uap, Doo Uap
-03. Nekta - Here's Us
-04. Caravan Palace - Dragons(   Читать дальше...   )Жанр: Electronic, Electro Swing, JazzПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:516E58BCF8F3DC7741CDEA4285FE2F91D632CFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370141   (898361) от 26.03.2020
 
 VA - Acoustic Blues (2020) [MP3|320 Kbps] <Blues, Acoustic Blues>
@@ -498,7 +527,7 @@ VA - Acoustic Blues (2020) [MP3|320 Kbps] <Blues, Acoustic Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898361.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Quad - El Bizonte Escapado (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898116.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Nelsen Adelard - South By Southwest (2008) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898111.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Quantic & Alice Russell with The Combo Bаrbaro - Look Around The Corner (2012) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898105.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Rob Tognoni - Rock and Roll Live (2010) 2CD [APE|Lossless|image + .cue] <Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898088.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Byther Smith - Hold That Train (1981) [FLAC|Lossless|tracks + .cue] <Blues, Elec
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898076.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Daisy Jopling Band - Awakening (2017) [FLAC|Lossless|tracks] <Jazz, New Age>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898024.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Rob Tognoni - 4 Album (2012 - 2016) [FLAC|Lossless|image + .cue] <Heavy Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898012.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Robert John Tognoni (Тоньони) родился в Улверстоне, н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17FE0E0BB0E54056BBCCBFA146DF135891B9CB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100838   (897959) от 05.02.2017
-
-Eric Clapton - Eric Clapton (1997) [FLAC|Lossless|image + .cue] <Blues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Your Witchdoctor (John Mayall's Bluesbreakers feat. Eric Clapton)
-02. For Your Love (The Yardbirds with Eric Clapton)
-03. Boom Boom (The Yardbirds feat. Eric Clapton)
-04. Good Morning Little Schoolgirl (The Yardbirds with Eric Clapton)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A394CED82AF3C6F2FE18B4B8DA29C7D993AB9824
 ```
 
 https://mybot314.ru/tekegram_catalog/

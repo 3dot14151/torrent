@@ -1,3 +1,58 @@
+###  Публикация: 1336419   (280339) от 06.11.2019
+
+iMazing 2.10.5 (11536) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280339.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A300F092C42E1310F88337411C81A54B8258B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264502   (279573) от 24.11.2018
+
+IconFly 3.8.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279573.jpg" />
+</div>
+
+
+###  Подробнее
+
+IconFly позволяет легко создавать иконки в различных форматах для приложений Mac, iPhone, IPad и Apple Watch. Кроме того, IconFly позволяет создавать иконки для Android-приложений, а также веб-иконки и значки. IconFly активно поддерживается и постоянно обновляется.
+
+IconFly проста в использовании. Просто перетащите изображение в приложение, нажмите кнопку Создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2018Разработчик: Aperio Lux TeamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D8F013B82D4C34A918C06A788D4F0D4A96CCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264618   (279567) от 24.11.2018
 
 PatterNodes 2 v2.1.7 [En]
@@ -6,7 +61,7 @@ PatterNodes 2 v2.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279567.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Amadeus Pro 2.5.2 (2084) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279526.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ Disco Dancer – Simple Scrobbler for Last.fm 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279286.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ iLock 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279284.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ Smooze 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279258.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ MediaInfo 0.7.91 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279193.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ SQLPro Studio 2019.09.27.3 (build 110557) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279172.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ SuperDuper! 3.3.B4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279169.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ VueScan Pro 9.5.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279103.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ AudioSwitcher 2.24.943 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279099.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ Things 3 v3.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279071.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ Battery Health 3 v1.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279053.jpg" />
 </div>
 
 
@@ -332,7 +387,7 @@ HandsFree 2.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279009.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ Switch 3 Pro 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278994.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ Debookee 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278722.jpg" />
 </div>
 
 
@@ -413,7 +468,7 @@ Movavi Screen Recorder 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278712.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ Movavi Video Editor 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278710.jpg" />
 </div>
 
 
@@ -465,7 +520,7 @@ Principle 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278595.jpg" />
 </div>
 
 
@@ -494,7 +549,7 @@ Ableton Live 10 Suite v10.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278461.jpg" />
 </div>
 
 
@@ -520,7 +575,7 @@ Axure RP Team Edition 8.1.0.3366 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278112.jpg" />
 </div>
 
 
@@ -546,7 +601,7 @@ iStatistica 4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277768.jpg" />
 </div>
 
 
@@ -572,7 +627,7 @@ Navicat Premium 12 v12.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277706.jpg" />
 </div>
 
 
@@ -598,7 +653,7 @@ Spy Cam 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277681.jpg" />
 </div>
 
 
@@ -627,7 +682,7 @@ RAR Extractor Expert Pro 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277626.jpg" />
 </div>
 
 
@@ -638,59 +693,6 @@ RAR Extractor Expert - это простой в использовании, бы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4199EA2882F501EB5B64EA0F98E71819CEC2D92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336835   (277601) от 08.11.2019
-
-Find Any File (FAF) 2.0.1 b9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC4E73C72053CE7A9B584F425E9A4321D1CE73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336980   (277596) от 08.11.2019
-
-Video Editor MovieMator Pro 2.9.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря оптимизированному дизайну и профессиональным возможностям редактирования Video Editor MovieMator Pro легко редактирует любые видео и аудио клипы в собственном формате, чтобы создавать фантастические семейные фильмы и высококачественные слайд-шоу с максимальной скоростью. Помимо предоставления основных функций редактирования, таких как обрезка, разделение, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2019Разработчик: EtinysoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DDDAF56C7136A8E08BE9F2C31C7964D5E6FD93
 ```
 
 https://mybot314.ru/tekegram_catalog/

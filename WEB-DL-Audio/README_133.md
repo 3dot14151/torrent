@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21866.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Darkness - Dreams on Toast (2025) Members' Edition, 2025, Cooking Vinyl Limi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21239.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ OK Go - And the Adjacent Possible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21216.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nightsteel - Nightsteel (2024) Remastered, 2025, Cosmic Fire Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21212.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Donna Summer - Cats Without Claws (1984) 40th Anniversary Edition, 2025, Driven 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20803.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ghost - Skeletá (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20403.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Alice Cooper - Black Mamba (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20385.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Noah Beatz - Noah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20172.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ MONOЛИЗА - Кит (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19770.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ The Halo Effect - March Of The Unheard (Bonus Edition) (2025) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19769.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Eurovision Song Contest - Turin 2025 (2025) [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19664.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (2025 Mix) (1972) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19625.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Crematory - Destination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19550.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19356.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Behemoth - The Shit Ov God (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18934.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Roxxcalibur - NWOBHM From The Vaults (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18932.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Laibach - Alamut (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, Neo-Cla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18928.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18573.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ INXS - Listen Like Thieves (1985) 40th Anniversary Deluxe, 2025, Petrol Records 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18402.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Linkin Park - From Zero (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18236.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Waltari - Nations' Neurosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18200.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dire Straits - Brothers In Arms (40th Anniversary) (1985) 2 x CD, Reissue, 2025,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18108.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Morgenshtern (Моргенштерн) - Alisher (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17794.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Professor Emeritus - A Land Long Gone (2025) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17657.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Orchestral Manoeuvres in the dark - Bauhaus Staircase (2023) The Complete Editio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17558.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Mississippi Shakedown - Play You Now, Dig You Later (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17536.jpg" />
 </div>
 
 

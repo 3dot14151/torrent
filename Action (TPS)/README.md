@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1877152   (1073862) от 
+
+Styx: Blades of Greed (2026) [Ru/Multi] (1.20/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер скрытности вернулся! Исследуйте головокружительные высоты Исерианского континента и хитростью истребляйте врагов. Вы играете за хитроумного гоблина по имени Styx. В колких шутках ему нет равных, как и в искусстве скрытности. Ваша цель - заполучить кварц: самый ценный и опасный ресурс в мире, стоящем на пороге войны между эльфами, людьми и орками.Тип издания: LicenseРазработчик: Cyanide StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC7A144319CF9709385B019E1FB5F3FF5C86DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876317   (1073171) от 
+
+Devil May Cry 5 (2019) [Ru/Multi] (Update 15.12.2020/dlc) Repack seleZen [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший охотник на демонов возвращается в новом стильном боевике. В пятой части легендарной серии Devil May Cry вы вновь сможете насладиться сверхскоростными сражениями с участием невероятных персонажей. Новейшие технологии компьютерной графики позволили Capcom создать этот непревзойденный шедевр жанра экшен.Тип издания: RepackРазработчик: CAPCOMЖанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0459EE70E10147EBDF52E7FA1D291FA41B8A93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876187   (1073042) от 
+
+Mindseye (2025) [Ru/Multi] (7608873_cl1511717/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир MindsEye! Действие этого однопользовательского сюжетного боевика происходит в ближайшем будущем в вымышленном городе Редрок, суматошном и жарком пустынном мегаполисе, где правят технологии. Роботы выполняют рутинные задачи, а всевидящие устройства делают Редрок «самым безопасным городом в мире». Это живой эксперимент по исследованию экзистенциального (   Читать дальше...   )Тип издания: LicenseРазработчик: Build A Rocket BoyЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A90C1B67DE1E1F716147ACD4442F658D4078CA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875842   (1072885) от 
 
 Hitman 3 (III) / Hitman: World of Assassination (2021) [Ru/Multi] (3.260.1/dlc) Repack HardwareMining
@@ -7,7 +85,7 @@ Hitman 3 (III) / Hitman: World of Assassination (2021) [Ru/Multi] (3.260.1/dlc) 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072885.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0 Build 11025947/dlc) Repack Other s [Delux
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072528.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) Repack xatab [The Full Pac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072523.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Postal 3 (2011) [Ru/Multi] (1.3/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072482.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Control (2020) [Ru/Multi] (Build 17833993/dlc) Repack HardwareMining [Ultimate E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070849.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (Build 20951841/dlc) Repack Other s [De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070715.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Darksiders Warmastered Edition (2016) [Ru/Multi] (1.1-cs:4296) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070691.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (1151882/dlc) Repack Let'sРlay [Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070339.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (1151882/dlc) Scene voices38 [Deluxe Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070331.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Mafia: The Old Country (2025) [Ru/Multi] (Build 20951841/dlc) Repack FitGirl [De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070326.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069195.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Mafia II (2): Definitive Edition (2020) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069185.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Mafia III (3): Definitive Edition (2020) [Ru/Multi] (1.0.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069184.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ True Crime: New York City (2006) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069135.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ True Crime: Dilogy (2004-2006) [En] (1.0/1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069133.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50) Repack Wanterlude [Ultima
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069039.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Dead Rising 4 (2017) [Ru/En] (1.0 upd4/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068896.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Dead Rising 3 (2014) [Ru/Multi] (1.0.0.6 upd6/dlc) Repack FitGirl [Apocalypse Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068895.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Dead Rising (2016) [Ru/Multi] (1.0.1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068806.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068795.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Watch Dogs (2014) [Ru/Multi] (1.06.329/dlc) Repack Wanterlude [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068765.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.017.189.2/dlc) Repack Wanterlude [Gold Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068688.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Wanterlude [Ultimate Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068686.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Watch Dogs Legion - продолжение экшен-адвенчуры, кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E209302D91226644D899110561E347FD9B6B218D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870164   (1068682) от 10.05.2026
-
-Dishonored (2013) [Ru/Multi] (334700_2022/dlc) Repack Wanterlude [Definitive Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dishonored - это насыщенный экшен от первого лица, в котором вам предстоит вжиться в роль убийцы, чьими поступками движет жажда мести. Гибкая система боя в Dishonored позволит вам комбинировать ваши сверхъестественные способности, оружие и необычные устройства так, как того захотите вы, чтобы устранить ваши цели. Преследуйте врагов под покровом тьмы или обнажите (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D9785B3F9009FE643734E6760E0E142B89B92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869949   (1068566) от 09.05.2026
-
-Stellar Blade (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее человечества балансирует на острие клинка. Земля была разорена странными чудовищами, и горстке выживших людей пришлось покинуть родной мир, бежав в Колонию на орбите. Ева вернулась на истерзанную Землю с важным заданием: спасти человечество, отвоевав планету у биотивов - мутировавших тварей, разоривших ее мир. Но, уничтожая биотивов одного за другим и собирая (   Читать дальше...   )Тип издания: RepackРазработчик: SHIFT UP CorporationЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6B712E5C51EE9F043714910FD4E7090E4EC382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869666   (1068339) от 07.05.2026
-
-Conan Exiles Enhanced (2018) [Ru/Multi] (1.0.1/dlc) Scene Rune
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Conan Exiles Enhanced - это игра на выживание в открытом мире, действие которой разворачивается в мифических землях Конана-варвара. В одиночной, кооперативной или постоянной многопользовательской игре вы должны научиться выживать в диких пустошах Хайбории, прежде чем строить собственный дом или целый общий город.Тип издания: SceneРазработчик: Funcom, Inflexion GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A3127DDD1ED9924BE8FC053DF62B94ACF19184
 ```
 
 https://mybot314.ru/tekegram_catalog/

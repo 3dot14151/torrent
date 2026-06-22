@@ -1,3 +1,56 @@
+###  Публикация: 1819910   (984) от 25.09.2025
+
+Промты - SevenUnited LLC - 430 Midjourney Prompts for The 90’s Vol 2 - 2832775 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 430 настраиваемых промтов Midjourney для 90-х: Том 2Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30003DF12F423D0F9AC0BF6F916BA939B01C98C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820090   (808) от 26.09.2025
+
+Картинки (AI) - UI8 -  Realistic Faces - Diverse Pack of 92 [PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демонстрируйте реалистичное разнообразие в своих дизайнах и экономьте время, затрачиваемое на поиски, с помощью этого тщательно подобранного пакета из 92 портретов, созданных с помощью искусственного интеллекта.
+Эти высококачественные портреты, ориентированные на камеру, идеально подходят для контента в социальных сетях, макетов продуктов и презентаций для клиентов. (   Читать дальше...   )Формат: PNG, PSDРазрешение файлов: 2048x2048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD5013D08B58BFEA5D9885C1CE996DC17858E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820089   (798) от 26.09.2025
 
 Промты - SevenUnited LLC - 554 Midjourney Prompts for Jewelry: Vol 2 - 6094680 [TXT, JPG]
@@ -6,7 +59,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_798.jpg" />
 </div>
 
 

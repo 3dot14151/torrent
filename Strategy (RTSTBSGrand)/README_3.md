@@ -1,3 +1,29 @@
+###  Публикация: 1095153   (860187) от 26.02.2017
+
+Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная космическая стратегия в реальном времени. Основными особенностями второй игры серии стали упрощение и некоторая "либерализация" игрового процесса, а также дань моде: игра выпущена в 3D. Можно смело утверждать, что эксперимент хоть и не стал шедевром, но точно удался. Нам на выбор представлено по одной кампании за три разные стороны: "Федерация (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital RealityЖанр: Strategy (Real-time, Grand strategy), 3DЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1568098544E09409B9D978B1B18ED9D2C5E899E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109064   (860087) от 26.02.2017
 
 Rise of Nations (2014) [Ru/En] (1.10/dlc) Repack R.G. Механики [Extended Edition]
@@ -6,7 +32,7 @@ Rise of Nations (2014) [Ru/En] (1.10/dlc) Repack R.G. Механики [Extended
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860087.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Fort Triumph (2020) [Ru/Multi] (1.0) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857990.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857419.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Broken Lines (2020) [Ru/Multi] (1.0.3) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849332.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Dicey Dungeons (2019) [Ru/Multi] (1.11.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849196.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848216.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sorcerer King - Rivals (2016) [En] (2.1.0.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835795.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834538.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Worlds of Magic (2015) [Ru/Multi] (1.0) Repack xGhost
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831043.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Europa Universalis IV (2013-2016) [En/Multi] (1.16.1.0/60a9/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829989.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827479.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825815.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Monster Train (2020) [Ru/Multi] (12921/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815252.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0.0.5) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814993.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ War for the Overworld (2015) [Ru/Multi] (1.5.2f4/dlc) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810744.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Crusader Kings II/2 (2012) [Multi] (2.1.3/41dlc) SteamRip DWORD [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809867.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Ultimate General: Gettysburg (2014) [En] (1.8mpfix2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809739.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Gnomoria (2016) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809095.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Star Ruler 2 (2015) [En] (2.0.0/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805461.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801499.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Humankind (2021) [Ru/Multi] (1.0.05.0517-S10/dlc) License CODEX [Digital Deluxe 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798328.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Miner's Mettle (2021) [En] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797828.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.36220/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796780.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.36220/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796725.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796476.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F5A1A54ECA5344ACC5F910C315EC282094CEE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385852   (796471) от 26.05.2020
-
-Warhammer 40000: Dawn of War – Soulstorm (2008) [Ru/En] (1.2) Repack xatab
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796471.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Warhammer 40 000: Dawn of War - Soulstorm» — третье по счету, полностью самостоятельное дополнение для получивший множество наград стратегии «Warhammer 40 000: Dawn of War» включает в себя две абсолютно новые расы: жутких Темных Эльдаров, способные забирать души павших противников и использовать их в своих мрачных ритуалах, и таинственных Сестер Битвы, а также масштабную (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: RTSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952FE5106E35A8B8C1C5E4A8ED0218C1DBDA7BF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1022379   (728707) от 02.06.2016
+
+Шри Ауробиндо | Мать (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728707.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Та, кому мы поклоняемся как Матери, есть божественная Сознательная Сила, которая господствует над всем существующим, единая и в то же время настолько многообразная, что даже самый живой ум и самый свободный и широкий интеллект не в состоянии уследить за ее движением. Мать — это сознание и сила Наивысшего — и пребывает высоко над всем, что она создает. Но некоторые (   Читать дальше...   )Жанр: Джнана-йога, Йога знанияПродолжительность: 01:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D605864035F5E3B501A784A229F3F7E0C554363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022376   (728595) от 02.06.2016
+
+Елена Ласкари | От 0 до 80. Симон Шноль (2011) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиодорожка документального фильма-рассказа о Симоне Эльевиче Шноле - профессоре, докторе биологических наук, одном из организаторов первой в мире кафедры биофизики на физическом факультете МГУ. Удивительная память и талант рассказчика легко объединяют во времени и пространстве разнообразные эпизоды личной и общественной жизни.Жанр: документалистика, мемуарыПродолжительность: 03:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFF70E9AEEC929F8991A96DC3BA57935F04DAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022241   (728474) от 02.06.2016
+
+Михаил Марченко | Теория государства и права в вопросах и ответах (2010) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728474.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемом курсе лекций по теории государства и права освещены следующие темы: 1. Предмет, метод и методология государства и права. 2. Место и роль государства и права в системе других наук. 3. Понятие и основные признаки государства. 4. Понятие и основные признаки права. 5. Происхождение государства и права. 6. Типология государства и правовых систем. 7. Государство (   Читать дальше...   )Жанр: ЮриспруденцияПродолжительность: 12:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3168AF1C953D3BC46EDB708C5BA32EA2F7D3495B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022553   (728466) от 02.06.2016
+
+Ричард Докинз | Самое грандиозное шоу на Земле. Доказательства эволюции (2014) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728466.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Самое грандиозное шоу на Земле. Доказательства эволюции." – книга, посвященная развитию жизни на земле с помощью эволюции и естественного отбора. Автор активно поддерживает в читателе научное и критическое мышление, а также помогает преодолеть устоявшиеся пережитки религиозного фундаментализма и суеверий, увлекательно рассказывая в своей книге о фактах (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 14:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B31145FE195C0F32DB88BA3ADF9BFADC2C0B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284732   (727745) от 22.02.2019
 
 Сергей Зотов и др. | Страдающее Средневековье (2018) [MP3]
@@ -6,7 +110,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727745.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727690.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727309.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726628.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726627.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725076.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724536.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718456.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716555.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716029.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714728.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713828.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710624.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709780.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707580.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706922.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706501.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705381.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705378.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704941.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702734.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702208.jpg" />
 </div>
 
 
@@ -576,112 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89E95210863947E1D5D8323EC4963C21D6037BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220851   (700421) от 21.04.2018
-
-Лев Николаевич Толстой | Путь жизни (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга давно не переиздавалась в России, а между тем она является шедевром мировой духовно-эзотерической мудрости, переданной в изложении великого писателя. В этой работе Толстой распределил по отдельным темам лучшие философские афоризмы, высказывания и крылатые выражения, принадлежащие мудрецам и духовным учителям всего мира. Значительную часть из них составляют (   Читать дальше...   )Жанр: Философия, религияПродолжительность: 17:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70234148317D8BEAAA2F607ECFDB9E5308CEA1C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402781   (697915) от 16.08.2020
-
-Славой Жижек | Событие. Философское путешествие по концепту (2019) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Фигуры Философии» – это библиотека интеллектуальной литературы, где представлены наиболее значимые мыслители XX-XXI веков, оказавшие колоссальное влияние на различные дискурсы современности. Книги серии – способ освоиться и сориентироваться в актуальном интеллектуальном пространстве. Неподражаемый Славой Жижек устраивает читателю захватывающее путешествие (   Читать дальше...   )Жанр: Книги по философии, КультурологияПродолжительность: 07:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981FADA5AC98BF4579F0CC17971F701235253DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133291   (693151) от 13.05.2017
-
-Пётр Чаадаев | Философические письма. Апология сумасшедшего (2006) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693151.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Философические письма» обращены в проповеднической манере к некоей даме. В них сосредоточена система взглядов Чаадаева. За них «высочайшим повелением» он был объявлен сумасшедшим. Почему?..
-«Апология сумасшедшего» — это и анализ странного положения, в котором оказался Чаадаев, «пораженный безумием по приговору верховного судии страны», и определение целей, которые (   Читать дальше...   )Жанр: философияПродолжительность: 07:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E7219CD3E13DBA256224CF6C66D7D4D69409A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133555   (692953) от 13.05.2017
-
-Мераб Мамардашвили | Беседы о мышлении (1986-1987) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс лекций под названием "Беседы о мышлении", прочитанного М.К. Мамардашвили студентам Тбилисского государственного университета в 1986-1987 гг.
-"Беседы о мышлении" - это беседы о философии, рассматриваемой автором не в качестве академической дисциплины, а в качестве того акта, который может совершаться в общечеловеческих жизненных ситуациях, (   Читать дальше...   )Жанр: философияПродолжительность: 33:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827824920D2F7B39DBA3658AEBB982085BB50C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

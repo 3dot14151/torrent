@@ -1,3 +1,111 @@
+###  Публикация: 1832777   (220747) от 30.10.2025
+
+Евгений Алексеевич Обухов | 100 великих монет мира (2024) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более двух с половиной тысячелетий существуют на свете монеты. Они рассказывают нам о великих людях и важнейших фактах истории, о наших далёких предках, о древних городах и государствах. И зачастую монеты помогают раскрыть неизвестные страницы истории. Подлинный интерес к монетам возник ещё в эпоху Возрождения, а в XIX веке нумизматика оформилась в качестве самостоятельной (   Читать дальше...   )Жанр: Научно-популярная история, нумизматика, история денегИздательство: ВечеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0469D6E50369EE0DD94129165B7BE543CAAB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342869   (220741) от 04.12.2019
+
+Алан Гринспен, Адриан Вулдридж | Капитализм в Америке. История (2020) [FB2]
+
+>>След.
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220741.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о том, как 13 колоний из мирового захолустья сумели создать самую мощную экономику когда-либо известную человечеству.
+
+300 лет назад Америка была лишь совокупностью разрозненных поселений на краю обитаемого мира. Сначала она обеспечила благосостояние своих граждан, а затем экспортировала процветание по всему миру в форме изобретений и идей. Сегодня Америка (   Читать дальше...   )Жанр: История, ЭкономикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872659F23F9162501A13B92383E5AFF98A77E42F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269699   (220006) от 15.12.2018
+
+Н. Овсянников (ред.) | Материалы по истории пролетарской революции [Том 3, 4] (1920-1922) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящие сборники из серии "Материалы по истории пролетарской революции" ставят своей целью освещение рабочего и коммунистического движения, по преимуществу в Москве и Московской области за последние двадцать пять лет.Жанр: История, политология, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DEDF8FC7791CE625DED7046B86070E17E39EE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269647   (219778) от 15.12.2018
+
+С. А. Алексеев (сост.) | Революция на Украине по мемуарам белых (1930) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый сборник составлен по тому же типу, как и отдельные тома нашей серии «Революция и гражданская война в описаниях белогвардейцев», и отличается от них только своим содержанием: он составлен из отдельных произведений зарубежной мемуарной литературы (русской и украинской) и в общем охватывает весь период революции и гражданской войны на Украине.
+
+Весь материал (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E016061437EAE7EF252C50EFB10CE7D2F61FF3BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269484   (219664) от 15.12.2018
 
 Е. Л. Фокин | Февральская буржуазно-демократическая революция 1917 г. (1937) [PDF]
@@ -6,7 +114,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219664.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218863.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218859.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218387.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218329.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216775.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216663.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216401.jpg" />
 </div>
 
 
@@ -219,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216154.jpg" />
 </div>
 
 
@@ -245,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216088.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215832.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214536.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214228.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211581.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209445.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208948.jpg" />
 </div>
 
 
@@ -430,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208909.jpg" />
 </div>
 
 
@@ -456,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208565.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207353.jpg" />
 </div>
 
 
@@ -508,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204115.jpg" />
 </div>
 
 
@@ -534,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201954.jpg" />
 </div>
 
 
@@ -560,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199879.jpg" />
 </div>
 
 
@@ -572,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDC775AB03515F8B35D0146F640620828C7FA4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637938   (197484) от 06.06.2023
-
-Андрей Антипов | Лев Рохлин: Жизнь и смерть генерала (1998) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эхо выстрела, оборвавшего жизнь генерала Льва Рохлина, будет звучать еще очень долго. На небосклоне общественной жизни России последних лет фигура Рохлина выделялась своей неординарностью и авторитетом, чтобы вот так сразу подвести черту под его жизнью и загадочными обстоятельствами смерти. Боевой «окопный» генерал, он и в политике действовал как солдат — прямо и (   Читать дальше...   )Жанр: историко-биографический, политологияЯзык: РусскийФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93768FC30910141132EE00BA167AFB18D061535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641098   (196850) от 20.06.2023
-
-Энн Эпплбаум | ГУЛАГ (2003) [PDF, FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Энн Эпплбаум – это не только полная, основанная на архивных документах и воспоминаниях очевидцев, история советской лагерной системы в развитии, от момента создания в 1918-м до середины восьмидесятых. Не менее тщательно, чем хронологию и географию ГУЛАГа, автор пытается восстановить логику палачей и жертв, понять, что заставляло убивать и что помогало выжить. (   Читать дальше...   )Жанр: История РоссииФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED733AFB7B09C4973C293D59D5B11BDEDDECA55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650314   (194400) от 13.08.2023
-
-Джозеф Пистоне | Донни Браско: моя тайная жизнь в мафии. Правдивая история агента ФБР Джозефа Пистоне (2023) [FB2, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент ФБР Джозеф Д. Пистоне, изображающий из себя преступника по имени Донни Браско, провел самую дерзкую операцию в истории ФБР, работая под прикрытием шесть лет, чтобы проникнуть в самые закрытые круги мафии.
-Теперь его незабываемый рассказ оживляет весь мафиозный мир — их кодекс чести и предательство, их жен, подруг и любовниц, их расточительные траты и грязные (   Читать дальше...   )Жанр: Автобиографическая, криминальнаяИздательство: Питер КлассФормат: FB2, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F533669AE8D40B3E6D156675B872F4776D73604C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827627   (193390) от 22.10.2025
-
-Юрий Сушко | Владимир Высоцкий. По-над пропастью (2011) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кем же был Владимир Высоцкий? Гениальный поэт, хулиган, бабник, экзальтированный циник, нежный романтик, великий исполнитель, алкоголик и наркоман, блестящий артист - кто он? Творческие взлеты и падения, невероятная популярность, безумная любовь, агрессия - все этапы его жизни до сих пор вызывают множество споров. Каковы на самом деле были отношения с Мариной Влади? (   Читать дальше...   )Жанр: Биографии и МемуарыИздательство: Астрель, Русь-Олимп, ХарвестФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BFD1ADF860B075166AAF8C034E7363219AE0D03
 ```
 
 https://mybot314.ru/tekegram_catalog/

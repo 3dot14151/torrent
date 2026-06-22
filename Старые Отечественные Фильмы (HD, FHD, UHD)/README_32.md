@@ -1,3 +1,81 @@
+###  Публикация: 1819806   (1159) от 24.09.2025
+
+В угаре НЭПа (1924) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1159.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1921 году в Советской России официально перешли к новой экономической политике (нэпу), которая дала населению возможность вести частный бизнес. Однако, согласно идеологии марксизма-ленинизма, частные предприниматели считались элементом капитализма и пережитком буржуазной системы. В советской периодике 1920-х годов их называли нэпманами, то есть людьми нэпа, или (   Читать дальше...   )Производство: СССР / Госкино (Культкино)Жанр: драма, история, немое киноРежиссер: Борис СветозаровАктеры: Петр Кашевский, Галина Кравченко, Михаил Массин, Е. Лилиева, Николай Соснин, Борис Снигирев, П. Нартов-Куркин, Василий ЗайчиковСубтитры: русские (интертитры)Продолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59646534F7A2FCFE0F2D8D700AA243B71E297102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819926   (981) от 25.09.2025
+
+Охота на лис (1980) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два юнца избили рабочего и были справедливо наказаны: один получил условный срок, а другой попал в колонию. Но потерпевшего не покидает мысль о том, как теперь сложится судьба подростков. Он начинает регулярно ездить на свидания с заключенным в надежде достучаться до его сердца...Производство: СССР / МосфильмЖанр: Драма, криминалРежиссер: Вадим АбдрашитовАктеры: Владимир Гостюхин, Ирина Муравьёва, Игорь Нефедов, Алла Покровская, Дмитрий Харатьян, Игорь Безяев, Валентина Сафонова, Андрей Турков, Юрий Леонидов, Юрий МихеенковСубтитры: отсутствуютПродолжительность: 01:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C9AF2F4DA9A5C675D454D5EF16E92CE73BE451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819912   (875) от 26.09.2025
+
+Ёлки-палки!.. (1988) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_875.jpg" />
+</div>
+
+
+###  Подробнее
+
+С виду герой фильма совершенно нормальный человек. Однако большинство земляков считают его слегка чокнутым. Еще бы: конструирует вечный двигатель, годами сочиняет философский трактат… Словом, витает в эмпиреях и глядит свысока на прочих обитателей грешной земли. Глядит-глядит - а счастья-то своего не видит…Производство: СССР / Киностудия им. Горького, Киностудия "Зодиак"Жанр: комедияРежиссер: Сергей НиконенкоАктеры: Сергей Никоненко, Екатерина Воронина, Леонид Куравлев, Евгений Евстигнеев, Леонид Ярмольник, Георгий Бурков. Галина Польских, Светлана Орлова, Иван РыжовСубтитры: отсутствуютПродолжительность: 01:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D20875EED4FBAF1FAE76B6F5B3C371FD498544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820093   (835) от 26.09.2025
 
 Дамы приглашают кавалеров (1980) WEBRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_835.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_833.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_812.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_584.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_345.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_333.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_283.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74.jpg" />
 </div>
 
 

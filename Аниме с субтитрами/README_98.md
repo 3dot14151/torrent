@@ -1,3 +1,29 @@
+###  Публикация: 1612615   (207237) от 16.02.2023
+
+Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь слёзы я притворяюсь кошкой [2020, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная японская старшеклассница Миё живет своей обычной японской жизнью. Но когда девушка влюбляется в одноклассника, а тот не обращает на неё никакого внимания, она решает, что единственный способ добиться его расположения — стать кошечкой. В этом ей поможет волшебная маска. Вскоре также выяснится, что существует параллельный кошачий мир, а вернуться в человеческое (   Читать дальше...   )Производство: студия Studio Colorido / スタジオコロリドЖанр: приключения, романтика, фентезиРежиссер: Сато ДзюнъитиПеревод: Netflix (Всеволод Иващенко)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B6C9B0D32177A1A45BEBCE715355701ADCE1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522114   (207216) от 26.09.2022
 
 Orient | Ориент [2022, TV, 24 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Orient | Ориент [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207216.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Dansai Bunri no Crime Edge | The Severing Crime Edge | Режущий грань
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206993.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Hataraku Maou-sama!! / The Devil is a Part-Timer!! / Повелитель Тьм
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206818.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206294.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206231.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205873.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205782.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Fuuto Tantei | Fuuto PI | Детективы Футо [2022, Web, 12 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205726.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Warau Arsnotoria Sun! | Smile of the Arsnotoria the Animation | Улыбка А�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205349.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Mamahaha no Tsurego ga Motokano Datta / My Stepmom's Daughter Is My Ex / Моя 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205335.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Kakkou no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205186.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204642.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204615.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204588.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Mushikaburi Hime | Bibliophile Princess | Принцесса-библиофил 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204587.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204584.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Renai Flops / Love Flops / Любовные неудачи [2022, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204564.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Peter Grill and the Philosopher's T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204493.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убойный а
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204351.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Mahou Tsukai Sally | Sally the Witch | Ведьма Салли [ТВ-1] [1966, T
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204349.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Kidou Senshi Gundam: Suisei no Majo | Мобильный доспех Ганда
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204302.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203940.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203877.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203870.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203866.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:624C99E98A95B6F8A8BE49C9175B46693C53378B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605630   (203865) от 18.01.2023
-
-Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: По ту сторону [2019, Movie, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прямое продолжение сериала Soukyuu no Fafner: Dead Aggressor - ExodusЖанр: приключения, фантастика, меха, драмаПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101E520682F76DAD2904E004884F2831DB0864A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

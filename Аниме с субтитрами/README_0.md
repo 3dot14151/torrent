@@ -1,3 +1,30 @@
+###  Публикация: 1866550   (1066077) от 20.04.2026
+
+Yowayowa Sensei / Yowayowa Teacher / Учитель Ёваёва [2026, TV, 2 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066077.jpg" />
+</div>
+
+
+###  Подробнее
+
+С началом нового семестра второкурсник Абикура обнаруживает, что его классным руководителем стала ни кто иная, как Хиёри Хивамура, известная под прозвищем «Страшная-страшная сенсей» — женщина, о которой ходят слухи, что она проклинает всех, кто переходит ей дорогу.
+Но однажды после уроков Абикура случайно становится свидетелем совершенно неожиданной стороны характера (   Читать дальше...   )Жанр: комедия, романтика, этти.Режиссер: Исиодори ХиросиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E0D4C17EE37732B9077A45AE9FCE3B7687CD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865573   (1065677) от 16.04.2026
 
 Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (※Muri ja Nakatta!?) | У меня нет любовницы! (А может и есть?!) [2026, SP, 5 эп.] BDRip 1080p HEVC 10-bit raw
@@ -6,7 +33,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (※Muri ja Nakatta!?) | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065677.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Yozakura-san Chi no Daisakusen (2026) | Операция: Семейка Ёдз�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065558.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Mahou Shoujo Magical Destroyers | Девочки-волшебницы: Волш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065425.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Hokuto no Ken: Fist of the North Star | Кулак Северной звезды
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065414.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Aishiteru Game o Owarasetai / I Want to End This Love Game / Я хочу зак�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065299.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Kami no Shizuku | Drops of God | Слёзы Бога [2026, TV, 1 из 12] HDTVR
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065116.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Kill Ao | Kill Blue | Убивая юность [2026, TV, 1 из 12] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065080.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Tsue to Tsurugi no Wistoria 2 / Wistoria: Wand and Sword 2 / Меч и жезл 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064979.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ Kuro Neko to Majo no Kyoushitsu / The Classroom of a Black Cat and a Witch / Ч�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064949.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana / Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064785.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ Mikadono San Shimai wa Angai, Choroi. | Три сестры Микадоно о�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064733.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Awajima Hyakkei | Scenes from Awajima | Сто видов Авадзимы [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064683.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ Hime Kishi wa Barbaroi no Yome | The Barbarian's Bride | Невеста варв
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064666.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ Mamonogurai no Boukensha: Ore dake Mamono o Kuratte Tsuyoku Naru | Monster Eater
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064635.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Otaku ni Yasashii Gal wa Inai!? | Gals Can't Be Kind to Otaku!? | Гяру не 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064465.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken | Always a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063828.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 4th / Classroom of the Elite IV 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063824.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ Saikyou no Ousama, Nidome no Jinsei wa Nani o Suru? 2 / The Beginning After the 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063823.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 3rd Season | Reborn as a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063704.jpg" />
 </div>
 
 
@@ -517,7 +544,7 @@ Dorohedoro Season 2 | Дорохедоро 2 [2026, Web, 3 из 11 эп.] WebRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063703.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ Mata Korosarete Shimatta no Desu ne, Tantei-sama / Killed Again, Mr. Detective? 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063601.jpg" />
 </div>
 
 
@@ -571,7 +598,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken 2 | The Ange
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063598.jpg" />
 </div>
 
 
@@ -597,7 +624,7 @@ Tensei Shitara Slime Datta Ken (2026) | That Time I Got Reincarnated as a Slime 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063597.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ Haibara-kun no Tsuyokute Seishun New Game / Haibara's Teenage New Game+ / Вто
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063594.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ Mairimashita! Iruma-kun (2026) | Welcome to Demon School! Iruma-kun (2026) | Д�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063475.jpg" />
 </div>
 
 
@@ -660,32 +687,6 @@ Mairimashita! Iruma-kun (2026) | Welcome to Demon School! Iruma-kun (2026) | Д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:965DF5845CA801088FA7BEA8D7D0ADF7086DC052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863470   (1063457) от 04.04.2026
-
-Honzuki no Gekokujou: S4 | Ascendance of a Bookworm S4 | Власть книжного червя [ТВ-4] [2026, TV, 1 из 24] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая любительница книг, Урано Мотосу, погибает только-только получив известие о том, что она сможет работать библиотекарем, как она всегда и мечтала. Придя в себя, она обнаружила, что оказалась в теле маленькой девочки Майн, живущей в параллельном мире, где царят средневековые порядки, а самое страшное – нигде нет книг!Производство: Wit Studio / ウィットスタジオЖанр: комедия, повседневностьРежиссер: Ивасаки ЁсиакиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753AC60D7AEAEE74B9C3C2F9CCF224889D2DE7D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

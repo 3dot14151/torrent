@@ -1,3 +1,83 @@
+###  Публикация: 72630   (562825) от 07.06.2022
+
+Мы из будущего (2008) DVD9
+
+>>След.
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие картины разворачивается в двух временных пластах: в наши дни и в годы войны, во время тяжелых оборонительных боев августа 1942-го. Главные герои ленты — четверо «черных следопытов» (людей этой сомнительной профессии называют также «черными копателями») — Борман, Череп, Чуха и Спирт. Они ведут раскопки в тех местах, где когда-то шли бои, чтобы потом продать (   Читать дальше...   )Жанр: фантастика, боевик, приключения, военныйРежиссер: Андрей МалюковАктеры: Екатерина Климова, Данила Козловский, Владимир Яглыч, Дмитрий Волкострелов, Андрей Терентьев, Даниил Страхов, Борис Галкин, Сергей МаховиковСубтитры: отсутствуютПродолжительность: 01:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEE824971B1E41E000FF750637D2ADDD2CDD6EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 815482   (551166) от 24.08.2014
+
+Поддубный (2014) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его называли Чемпион чемпионов. О силе и волевом характере Поддубного слагали легенды. И в 50 великий борец играючи одолевал молодых атлетов, а вопросах чести и справедливости не знал компромиссов. И лишь любовь смогла уложить Русского Богатыря на обе лопатки…Производство: Россия / Канал Россия, Красная стрела, Студия ТритэЖанр: Драма, спорт, биографияРежиссер: Глеб ОрловАктеры: Михаил Пореченков, Дени Лаван, Владимир Ильин, Юрий Колокольников, Роман Мадянов, Александр Михайлов, Катерина Шпица, Максим Сапрыкин, Петр Крылов, Андрей ДебринПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 01:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46B32426476FB131B318BE152F09624D704133C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 816889   (547536) от 28.08.2014
+
+Вербовщик (1991) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547536.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 70-х годов во время войны на Ближнем Востоке самолет советского военного летчика Олега Зорова был сбит. Офицер остался жив, но в бессознательном состоянии попал в плен.
+
+После выздоровления американцы предоставили ему политическое убежище. Двадцать лет Зоров, ставший Алексом Фредом Келли, работал на ЦРУ. И вот теперь, спустя годы, он возвращается на родину, (   Читать дальше...   )Режиссер: Эдуард ГавриловАктеры: Александр Михайлов  (Олег Зоров), Любовь Полищук  (Новикова Зинаида Павловна), Спартак Мишулин  (Логинов Григорий Степанович), Борис Токарев  (Родин), Валентин Смирнитский  (Егоров Михаил Иванович), Михаил Жигалов  (Виктор Гордеев), Ирина Чериченко  (Ольга Зорова), Игорь Бочкин  (Камнев Андрей Петрович)Субтитры: нетФормат: MPEG-PSПродолжительность: 01:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B142B0249F29C1F35690C7976EA2E795822AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 694149   (547528) от 28.08.2013
 
 Кавказский пленник (1996) DVD5
@@ -6,7 +86,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547528.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540586.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538807.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536042.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535565.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535271.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534421.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531908.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530573.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530328.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529612.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527088.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524222.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523201.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522694.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521971.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521807.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521632.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521552.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521549.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521239.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520918.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519792.jpg" />
 </div>
 
 
@@ -597,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184079   (515716) от 17.07.2019
-
-Любовь под прикрытием (2010) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515716.jpg" />
-</div>
-
-
-###  Подробнее
-
-По книге Андрея Кивинова "Одноклассница".
-Судьба свела их в отделении милиции. Павел Угрюмов, только что освободившийся из тюрьмы, пришел вставать на учет. Молодая учительница Ксюша Веселова решила, наконец, написать заявление на соседа по коммуналке Костика, постоянно крадущего ее вещи. Последним его трофеем стала флэшка с очень важной информацией. Никогда (   Читать дальше...   )Производство: Россия , Production ValueЖанр: мелодрама, криминал, детективная комедияРежиссер: Александр БарановАктеры: Денис Никифоров, Ольга Красько, Павел Деревянко, Екатерина Климова, Игорь Савочкин, Людмила Калмыкова, Владимир Русаков, Александр Робак, Богдасаров Михаил, Владимир Меньшов, Елена ДубровскаяПеревод: ОригинальныйПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D474619548B012D149757970AFD96EDCD9475380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 122513   (515433) от 04.07.2022
-
-Штемп (1991) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудник милиции Аркадий Ершов, стремясь разоблачить резидента мафии, втирается в уголовную среду и узнает, кто скрывается под личиной одного из его начальников. Почуяв недоброе, герой решает бежать... На воровском жаргоне "Штемп" — большой милицейский начальник, работающий на мафию.Жанр: Боевик, ПриключенияПеревод: ОригинальныйСубтитры: НетПродолжительность: 01:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81417CE23D61BC42EB3120E177357A85351FBBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 144972   (515424) от 04.07.2022
-
-Генерал (1992) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба главного героя фильма очень похожа на историю известного советского военачальника Александра Горбатова, который жил с 1891 по 1973 годы. В биографии Горбатова, как и у очень большого количества людей живших в то время, было много драматических событий, острых ситуаций — армия, репрессии, ссылка, Великая Отечественная война. Но, несмотря на все повороты судьбы, (   Читать дальше...   )Производство: Россия, Киностудия им. М.ГорькогоЖанр: Драма, ВоенныйРежиссер: Игорь НиколаевАктеры: Василий Попов, Виталий Базин, Леонид Реутов, Александр Боровиков, М. Левкоев, Мария Гаврилко, Владимир Гостюхин, Алексей Жарков, Александр Хочинский, Михаил БычковСубтитры: отсутствуютПродолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2594C56D0D2D0F305F8281CE68C4C7C09CB4DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

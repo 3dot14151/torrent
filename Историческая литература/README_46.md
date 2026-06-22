@@ -1,3 +1,109 @@
+###  Публикация: 906672   (637866) от 12.06.2015
+
+Andrew Jotischky, Caroline Hull | Исторический Атлас Средневекового Мира (2005) [PDF] [En]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический Атлас Средневекового Мира (The Penguin Historical Atlas of the Medieval World) прослеживает развитие народов, культур, и вер от варварских вторжений в четвертом столетии до первых путешествий к Новому Миру в шестнадцатом. Богато оформленный атлас иллюстрирует широкие изменения от падения Римской империи к рождению Ислама, возвышению Христианства, и роли (   Читать дальше...   )Жанр: историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714DF8E3DFE508A73E1F25F9D5C74F848A7DE786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293485   (637415) от 03.04.2019
+
+Айрис Апфель | Икона по воле случая (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Айрис Апфель такая же яркая и прекрасная, как ее автор. Здесь есть советы и жизненные правила, случаи из детства, истории из настоящего, описания нарядов, тканей и аксессуаров, исторические события, участницей которых была Айрис, размышления о жизни, любви и людях, очерки о стиле и рассуждения на самые разные темы. Страницы, каждая из которых достойна висеть (   Читать дальше...   )Жанр: Биографии и мемуары, Истории из жизни, Мода и стильПеревод: Анастасия СоломинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD1E5C8DE8F4A7446FEA8D948C707547B8C7577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143220   (637336) от 17.06.2017
+
+Д. Эрдэ | Революция на Украине: от керенщины до немецкой оккупации (1927) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637336.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Октябрьской революции на Украине еще почти совершенно не разработана, имеются лишь отдельные брошюры и статьи, дающие общий очерк революционного движения за первый период советской власти на Украине. Мы плохо знаем даже фактическую историю этих героических дней, еще много и много событий остается не изученными, весьма часто даже совершенно не освещенными. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1469CD8910F6A6F00561CCC41895A265DB6DE3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143221   (636947) от 17.06.2017
+
+А. С. Енукидзе и др. (ред.) | Первый Всероссийский съезд Советов р. и с. д. [2 тома] (1930) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636947.jpg" />
+</div>
+
+
+###  Подробнее
+
+I Всероссийский съезд Советов рабочих и солдатских депутатов проводился с 3 (16) июня по 24 июня (7 июля) 1917 года в Петрограде.
+
+На I Всероссийском Съезде Советов подавляющее большинство составляли меньшевики и с.-р., которым противостояла маленькая группа большевиков. Меньшевики и с.-р. были у власти, — их лидеры, Керенский и Церетели, играли первую роль в коалиционном (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3267689B4E461AB424CB6A69179F479266A4BA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907533   (636154) от 13.06.2015
 
 Игорь Курукин | Анна Леопольдовна (2012) [DJVU]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636154.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636130.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635978.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635964.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635927.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635436.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634848.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634302.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634300.jpg" />
 </div>
 
 
@@ -251,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634076.jpg" />
 </div>
 
 
@@ -277,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633972.jpg" />
 </div>
 
 
@@ -303,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633971.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633857.jpg" />
 </div>
 
 
@@ -355,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632490.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632483.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632415.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632133.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632109.jpg" />
 </div>
 
 
@@ -489,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631692.jpg" />
 </div>
 
 
@@ -515,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630585.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630227.jpg" />
 </div>
 
 
@@ -569,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630118.jpg" />
 </div>
 
 
@@ -580,110 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:396B475B582C139270F449EAEC39DA7D1F405D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908915   (630109) от 16.06.2015
-
-Георгий Черданцев | Записки футбольного комментатора (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как репортер и комментатор Георгий Черданцев побывал во многих странах и на многих турнирах, ему довелось общаться с футбольными звездами первой величины. Сколько невероятных историй - порой смешных, порой не очень - происходили и происходят в жизни футбольного комментатора! Чего только стоит один чемпионат Европы 2008 года, где произошла удивительная победа России (   Читать дальше...   )Жанр: Биографии. МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E82125D66919F2E482C07B2D8E879D39D2EC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229053   (630085) от 04.06.2018
-
-Л. Л. Борисоглебский | Хронический кризис здравоохранения в США (1980) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630085.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о медицинской помощи в Соединенных  Штатах Америки, которая в последние годы в связи с экономическим спадом, инфляцией, ростом безработицы и возросшей дороговизной лечения становится все более недоступной для рядовых  американцев и вызывает законное недовольство населения всей  страны. В работе приводятся факты, почерпнутые (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031AEEECB255079FB19301746286245FEEC8DA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229155   (630084) от 04.06.2018
-
-Н. Н. Попов | Октябрьская революция и национальный вопрос (1927) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспощадная эксплуатация и угнетение, которому подвергалось нерусское население бывшей царской России, в особенности его трудящиеся массы со стороны русских чиновников, помещиков и капиталистов, вызывало вполне естественное недовольство и возмущение. В своем корне и сущности это была экономическая эксплуатация, одинаковая с той, которой подвергалось и русское трудящееся (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A7AE7E998B31B73C0FD3E44715BE28AC318996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909045   (630030) от 16.06.2015
-
-Илья Олейников | Жизнь как песТня (1999) [DOC, FB2, RTF, TXT]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы стать из неуверенного, хотя и подающего надежды эстрадного салаги известным на всю страну обитателем триумфального «Городка», съел Илья Олейников не один пуд соли, о чем и повествует его биографическая книжка, смешная, трогательная и, главное, откровенная. Он не боится предстать в невыгодном для себя свете, не боится рассказать о дурацких положениях, в которые (   Читать дальше...   )Жанр: Юмор, Биографии, МемуарыФормат: DOC, FB2, RTF, TXT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AB2A71FEC87AF6A6F9444D6768624FB56C678F
 ```
 
 https://mybot314.ru/tekegram_catalog/

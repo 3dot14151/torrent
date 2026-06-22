@@ -1,3 +1,109 @@
+###  Публикация: 1693500   (121859) от 20.01.2024
+
+Святитель Симеон Солунский | О молитве (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Симеон Солунский, святой XV века, был последним епископом древнего города Фессалоники, удерживавшим свою паству от перехода в унию с Римом, и одним из последних византийских богословов. Его перу принадлежит множество творений по самым разным богословским темам. В этой небольшой брошюре помещены два труда святителя Симеона о молитве, помещенные в пятом томе (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA7DE76210C82731A8DD392263E18414B558D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693485   (121831) от 20.01.2024
+
+Сибирская Благозвонница | Призови имя Мое (2009) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник, впервые изданный Валаамским монастырем в 1938 году и ставший одним из лучших пособий по Иисусовой молитве, наконец-то переиздан! Что такое молитва Иисусова? Что говорили святые отцы об этой молитве? Одинакова ли молитва в миру и в монастыре? Об этом и о многом другом размышляют в своих беседах мирской иерей и благочестивый инок-старец на страницах данного (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9AD1D88172EC7E25D7803669BAC9623BBDE7AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693494   (121824) от 20.01.2024
+
+Сибирская Благозвонница | Полная исповедь по десяти Заповедям Божиим и девяти Заповедям Блаженства (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды у известного московского батюшки спросили о том, как наша исповедь в церкви принимается Богом? Батюшка ответил, что исповедь принимает священник, а не Бог. А вот Богу нужно наше покаяние. И очень важно, когда человек сможет сам увидеть свои грехи и рассказать их на исповеди. Но каждый ли знает, против чего в себе нужно «ополчаться»?
+
+Предлагаемая книга поможет (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F890D053F4FB859E8BE6FAD734155C169E2777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693490   (121715) от 21.01.2024
+
+Сибирская Благозвонница | О том, как грех вызывает наказание (2010) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое грех в своей сущности? Какова природа зла? На страницах книги читатель найдет ответы на эти и многие другие вопросы, а так же на примере истории народов узнает о том, как грех вызывает наказание.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621789DF65E7B908D657280DA17D8D6B1B49FD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693501   (121714) от 21.01.2024
 
 Епископ Павел Никольск-Уссурийский | От святой купели и до гроба (2011) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121714.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121704.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121682.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121285.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120267.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119789.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119773.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119772.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119766.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119757.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119751.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118754.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118752.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118751.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118731.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118729.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118727.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118725.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118249.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118247.jpg" />
 </div>
 
 
@@ -531,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118235.jpg" />
 </div>
 
 
@@ -557,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118104.jpg" />
 </div>
 
 
@@ -568,112 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11F949FCBEC7BE5A67A2126D84E30C7012E266C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699047   (118096) от 11.02.2024
-
-Благовест | Молитвослов православного воина (2015) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержит тексты избранных молитв, которые приводятся на принятом в богослужении Русской Православной Церкви церковнославянском языке в гражданском начертании.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99209B68AE8D4AF16A14823B5C709845F81F266C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699041   (118089) от 11.02.2024
-
-Сибирская Благозвонница | Жития святых славных и всехвальных апостолов (2012) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118089.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны жития учеников Спасителя – двенадцати апостолов, апостолов от семидесяти, описания трудов и подвигов святых равноапостольных мужей и жен первых веков христианства, а также живших в последующие времена (включая просветителей славян святых Кирилла и Мефодия, крестителя Руси святого Владимира и равноапостольную княгиню Ольгу). В тексте воспроизведены (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4FF7461EE5A97E5D919362F0BC54460DB8F6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699114   (118076) от 11.02.2024
-
-Митрополит Николай Ярушевич | «Покаяния двери отверзи мне» (2009) [PDF, FB2, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118076.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу митрополита Крутицкого и Коломенского Николая (в миру Бориса Дорофеевича Ярушевича, 31 декабря 1891 – 13 декабря 1961) – епископа Русской Церкви, вошли его проповеди 50—60-х годов о покаянии.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57CA209A437591C16269E120923A46A6A134D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699343   (117947) от 12.02.2024
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Утоли моя печали» (2015) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Празднование в честь иконы Пресвятой Богородицы «Утоли моя печали» совершается 25 января / 7 февраля.
-
-Перед иконой Пресвятой Богородицы «Утоли моя печали» молятся об избавлении от телесных болезней, от греховных страстей, обуревающих сердце человека, об избавлении от скорбей и печали, при расслаблении, параличе, отчаянии.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71459AF8BC04CAC826CFB539B458ECF475CF0284
 ```
 
 https://mybot314.ru/tekegram_catalog/

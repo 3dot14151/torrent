@@ -6,7 +6,7 @@ CG Cookie | Создание облаков в Blender 2.8 и Eevee/ Creating Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474741.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472630.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472383.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472365.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Pluralsight.com | Blender Fundamentals (2018) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470782.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470331.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Profileschool | Пейзажная симфония (2013) [PCRec]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468458.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating the Dune Ornithopter from start to fin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465740.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Skillshare, 3D Tudor | Blender 3 to Unreal Engine 5 Dungeon Modular Kitbash (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465738.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Robby Branham | Multi Pass Rendering and Compositing (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457682.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ CG Cookie | Текстурирование оружия в Blender 2.79 и Subst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457489.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Udemy | Создание катаны для игр в Blender 2.83 и Substance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457355.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ CG Cookie | Моделирование оружия для шутера от п�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457235.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Denis Kozhar | UE4 by Denis Kozhar (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457222.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Profileschool | Графический планшет для ретушера (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457211.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456919.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ CG Cookie | Создание карт нормалей для игр в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455577.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ CG Cookie | Текстурирование и шейдинг Sci-Fi шлема �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455433.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ CG Cookie | Моделирование пост апокалиптическог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455430.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ CG Cookie | Моделирование Sci-Fi шлема в Blender 2.71 / Model
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455429.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lynda.com | CSS: Styling Forms (2012) PCRec [H.264]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454417.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Groove3, Эрик Кинл | Creating Game Audio with Pro Tools (2015) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453506.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Artstation, Aleksandr Kirilenko | Becoming An Expert In Marvelous Designer (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452920.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451296.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Udemy, ChamferZone, Tim Bergholz | Revolver Tutorial - Industry Ready Weapon & A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450837.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450836.jpg" />
 </div>
 
 

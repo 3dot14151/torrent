@@ -1,3 +1,61 @@
+###  Публикация: 1460529   (1022446) от 06.04.2021
+
+Aviators - Dreams Of The Deep (2021) [MP3|320 Kbps] <Synthwave, Cinematic Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wall Of Sleep [00:05:03]
+02. To The Grave [00:05:55]
+03. Black Roses [00:06:03]
+04. Dreams Of The Deep [00:08:21](   Читать дальше...   )Жанр: Synthwave, Cinematic RockПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A300B38F8D1747849CA285EB5D0783F92735AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461180   (1021933) от 09.04.2021
+
+W O L F C L U B (Wolfclub) - 6 Albums (2017-2021) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strangers Forever (feat. Kieran Scragg) (3:32)
+02. Driving Through the Night to You (feat. Indigo) (2:40)
+03. Nightwave (feat. Indigo) (3:15)
+04. Never Stop (feat. Indigo) (3:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 03:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996F3580801507344EF6425444A8265B04C80560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463807   (1020142) от 20.04.2021
 
 Electric Dark Souls - Planet 0712 (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
@@ -6,7 +64,7 @@ Electric Dark Souls - Planet 0712 (2019) [MP3|320 Kbps] <Synthwave, Retrowave, E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020142.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Electric Dark Souls - Heroes (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Electr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020134.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Yello - Yello 40 Years (2021) 4CD, Remastered [MP3|320 Kbps] <Electronic, New Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018372.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Cold Cave - Fate In Seven Lessons (2021) [MP3|320 Kbps] <Synthpop, Darkwave, Ele
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011504.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Age Of Mirrors - 2 Albums (1985, 1987) LP [MP3|320 Kbps] <Electronic, New Wave, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010825.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Summer In Space Vol. 4 (2021) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009184.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ AlimkhanOV A. - We Are The Universe (2021) [MP3|320 Kbps] <Spacesynth, Synthdanc
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008460.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Future Synth - Exoplanet (2021) [MP3|320 Kbps] <Synthpop, Spacesynth, Space-Disc
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006500.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Pet Shop Boys - Hotspot (2020) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986934.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Mflex - Kidnap My Soul (2013) [MP3|320 кб/с]<Nu italo disco, Synthpop, New Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970893.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Pete Shelley - 3 Albums (1981-1986) CD, Reissue [MP3|320 Kbps] <Electronic,  New
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953702.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Retro Promenade: Carpenter (2015) [MP3|320 кб/с] <80's Retrowave, Synthp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951234.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Jordan F - Timelines (2016) [MP3|320 кб/с] <Dreamwave, Synthwave, 80s>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940163.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Dance With The Dead - The Shape (2016) [MP3|320 кб/с] <Synthwave, Synthpop, N
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931923.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Aviators - The Cinematic Future (2020) [MP3|~278 Kbps (V0)] <Synthpop, Alternati
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923902.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Dance With the Dead - B-Sides: Vol. 1 (2017) [MP3|320 Kbps] <Synthwave, Synthpop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917188.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Starcluster And Marc Almond - Silver City Ride (2016) [MP3|320 Kbps] <Electronic
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897722.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Kraftwerk - Tone Float Beat-Club 1971 (2021) [MP3|320 Kbps] <Electronic, Synth-p
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890701.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Boytronic - The Robot Treatment Remix Pack Piece Of Entertainment and Dancing Wi
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890014.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Gregory - Unknown Universe (2021) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884450.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Boytronic - The Robot Treatment (2019) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883744.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Italia Synthetica 1981-1985 (2013) CD [MP3|320 Kbps] <Electronic, New Wave,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882292.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Turboslash - Speed (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877449.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Yellow Magic Orchestra - 17Albums, 5Compilations, 3Singles & EPs (1978-2015) [MP
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868208.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ Yellow Magic Orchestra (YMO) — музыкальный коллектив из 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F5DE7BD838C96607ED1BB6B8893C7AB4AFB861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497326   (864675) от 22.09.2021
-
-Depeche Mode - Ultra (The 12 Singles) (2021) Remastered [MP3|320 Kbps] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Barrel of a Gun [00:05:30]
-02 Barrel of a Gun (Underworld Hard Mix) [00:09:37]
-03 Barrel of a Gun (3 Phase Mix) [00:05:25]
-04 Barrel of a Gun (One Inch Punch Mix (V2)) [00:05:29](   Читать дальше...   )Жанр: Synth-popПродолжительность: 03:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D549B079C6DF1FA88E21C1F64286491884F4F564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107892   (864642) от 24.02.2017
-
-Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Manual 04:05
-02. Reader 04:05
-03. We Were Young 03:57
-04. Sun Flares 04:33(   Читать дальше...   )Жанр: Electropop, Synthwave, DreamwaveПродолжительность: 00:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

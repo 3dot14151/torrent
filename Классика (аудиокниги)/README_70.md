@@ -1,3 +1,58 @@
+###  Публикация: 405037   (114061) от 06.03.2024
+
+Оскар Уайльд | Портрет Дориана Грея (Радиоспектакль) (2006) [MP3, Иннокентий Смоктуновский и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Оскар Уайльд (1854–1900) – ирландский писатель и поэт.
+«Если бы старел этот портрет, а я всегда оставался молодым! Душу отдал бы за это!» — эти роковые слова стали фатальными для молодого, необычайно красивого и незапятнанного пороком Дориана Грея. С тех самых пор ни одной морщины не появлялось на вечно юном лице и вечно (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Издательский дом «Союз», ГостелерадиофондПродолжительность: 01:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61832237EDACBFD65A9CBD424BBC37680C93751F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321842   (114056) от 06.03.2024
+
+Эрнст Теодор Амадей Гофман | Повелитель Блох (2006) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Шедевры мировой фантастики.
+Эрнст Теодор Амадей Гофман (1776–1822) на протяжении своей жизни занимался живописью, графикой и музыкой, но наибольшую известность получил как писатель. Его произведения очень необычны и, несомненно, сильно отличаются от того, что мы привыкли называть «сказками». И, тем не менее, сказочные миры, созданные этим талантливым (   Читать дальше...   )Жанр: Зарубежная литература, классика, условно-фантастическая повестьИздательство: МедиаКнигаПродолжительность: 06:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE92642A8918C120F0C680A887CD55DC050F6B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705167   (113989) от 07.03.2024
 
 Оскар Уайльд | Как важно быть серьёзным (2015) [MP3, Евгений Терновский]
@@ -6,7 +61,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113989.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113967.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113950.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113848.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113662.jpg" />
 </div>
 
 
@@ -147,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113641.jpg" />
 </div>
 
 
@@ -175,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113620.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113530.jpg" />
 </div>
 
 
@@ -231,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113372.jpg" />
 </div>
 
 
@@ -259,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113346.jpg" />
 </div>
 
 
@@ -287,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113071.jpg" />
 </div>
 
 
@@ -314,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112958.jpg" />
 </div>
 
 
@@ -342,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112939.jpg" />
 </div>
 
 
@@ -370,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112713.jpg" />
 </div>
 
 
@@ -397,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112575.jpg" />
 </div>
 
 
@@ -425,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112512.jpg" />
 </div>
 
 
@@ -453,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112511.jpg" />
 </div>
 
 
@@ -481,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112509.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112291.jpg" />
 </div>
 
 
@@ -537,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112042.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111918.jpg" />
 </div>
 
 
@@ -593,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111872.jpg" />
 </div>
 
 
@@ -620,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111820.jpg" />
 </div>
 
 
@@ -646,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111819.jpg" />
 </div>
 
 
@@ -658,60 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CABCB0DBBA698B1DC4D42443E2BA4C532CEA82E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713951   (111783) от 07.04.2024
-
-Александр Островский | Таланты и поклонники (2007) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные страсти, (   Читать дальше...   )Жанр: Русская литература, классика, пьеса, комедияИздательство: Студия «АРДИС»Продолжительность: 03:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599EA8C7E43604983C9DB91D8EA3AF0A488DC744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716953   (111295) от 17.04.2024
-
-Александр Островский | Бешеные деньги (Радиоспектакль) (2004) [MP3, Юрий Кузнецов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Коллекция радиоспектаклей. Из архива «Гостелерадиофонда».
-Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство (   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3D433EA45B14347009B0B4646394515091F2FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

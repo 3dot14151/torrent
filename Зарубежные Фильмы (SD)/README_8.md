@@ -1,3 +1,109 @@
+###  Публикация: 1854519   (1057260) от 18.02.2026
+
+Бугимен. Начало легенды / El hombre del saco / The Boogeyman: The Origin of the Myth (2023) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057260.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти главы семьи мать с тремя детьми переезжает в небольшой городок. Вскоре они узнают, что последние несколько месяцев тут при загадочных обстоятельствах пропадают дети.Производство: Испания, Уругвай / AF Films, Bowfinger International Pictures, Canary Pictures Vehicles, Esto también pasaráЖанр: ужасы, фэнтези, приключенияРежиссер: Анхель Гомес ЭрнандесАктеры: Макарена Гомес, Хавьер Ботет, Иван Ренедо, Клаудия Плейсер, Лорка Гутьеррес Прада, Лукас Блас, Карла Тоус, Гильермо Новильо, Маноло Соло, Карлос Гонсалес МорольонПеревод: Дублированный (SoulPro)Язык озвучки: Русский, испанскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7554EB1F4A2A4A2435987ED1EB4B74A25658048F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854224   (1057241) от 16.02.2026
+
+Без слов / Speechless (1994) HDTVRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кевин и Джулия, страдая от бессонницы, встретились в ночном магазинчике. Сражаясь за последнюю упаковку снотворного, они безумно влюбились друг в друга. Ни один, ни другая не подозревают, что занимаются одним и тем же – написанием речей для политиков, и все было бы прекрасно, но их боссы – ярые политические противники.
+
+Когда правда обнаруживается, начинающийся роман (   Читать дальше...   )Производство: США / Forge, Metro-Goldwyn-Mayer (MGM)Жанр: мелодрама, комедияРежиссер: Рон АндервудАктеры: Майкл Китон, Джина Дэвис, Кристофер Рив, Бонни Беделиа, Эрни Хадсон, Чарльз Мартин Смит, Гейлард Сартейн, Рэй Бэйкер, Митчелл Райан, Уилли ГарсонПеревод: Двуголосый профессиональный (НТВ)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C3CFE95920BAFEFA4E10778ABC281E2DFB6F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854221   (1057239) от 16.02.2026
+
+Джестер / The Jester (2023) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный фокусник по кличке Джестер наводит ужас на жителей небольшого городка. Пиджак и хищная улыбка оказываются не костюмом, а игры и загадки ведут к кровавым последствиям. Под угрозой оказываются жизни двух сестёр, которым придётся преодолеть разногласия, чтобы победить зло.Производство: США / Cinematic Productions, Epic PicturesЖанр: ужасыРежиссер: Колин КравчукАктеры: Майкл Шеффилд, Лелия Симингтон, Делани Уайт, Мэтт Сервитто, Лена Джеймс, Миа Рэй Робертс, Райли Коллинз, Мэри Джейн Пентони, Кори Окучи, Сэм ЛуковскиПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: Русские (Forced) - отдельноПродолжительность: 01:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D960556D4E34EB928578999790C1E37A9B9D1C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853979   (1057232) от 16.02.2026
+
+Око за око / Eye for an Eye (1996) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057232.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Карен МакКанн случилась чудовищная трагедия: в дом МакКаннов ворвался подонок и убил её семнадцатилетнюю дочь Джули. Преступника удалось арестовать, но Карен ждал новый кошмар. Невыносимая боль от жуткого горя сменилась шоком и яростью. Несовершенная судебная машина допустила непоправимую ошибку: убийца девушки вышел на свободу. И что самое ужасное – у него не (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: триллер, драма, криминалРежиссер: Джон ШлезингерАктеры: Салли Филд, Эд Харрис, Оливия Бернетт, Александра Кайл, Кифер Сазерленд, Джо Мантенья, Беверли Д’Анджело, Даррел Ларсон, Чарлэйн Вудард, Филип Бейкер Холл, Кит Дэвид, Ванда Акуна, Джеффри РивасПеревод: Двуголосый профессиональный (Премьер Видео Фильм), авторский (А. Гаврилов, С. Визгунов)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AF492DB405F4DBF6E079EB30067433C72BC714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854259   (1057225) от 16.02.2026
 
 Вся жизнь / Ein ganzes Leben (2023) BDRip [H.264] [MVO]
@@ -6,7 +112,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057225.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057205.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057203.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057175.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057132.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057117.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057108.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057056.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056853.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056729.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056609.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056589.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056586.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056574.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056431.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056393.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056354.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056341.jpg" />
 </div>
 
 
@@ -474,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056233.jpg" />
 </div>
 
 
@@ -500,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056167.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056112.jpg" />
 </div>
 
 
@@ -554,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056031.jpg" />
 </div>
 
 
@@ -565,112 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E427D0984784DCC14BD8A34EE3476DE3F13FE5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852464   (1056016) от 07.02.2026
-
-Безумные подмостки / Noises Off... (1992) DVDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Театральный режиссер – это профессия не для слабых духом. Только такой упрямый постановщик как Ллойд Феллоуз, может рассчитывать покорить грады и веси своей пьесой – и сделать это вопреки всем усилиям актеров все испортить.
-Те, похоже, настолько погружены в собственные проблемы, что времени не остается, чтобы нормально играть.
-Происходящее с героями на сцене не выдерживает (   Читать дальше...   )Производство: США / Touchstone Pictures, Amblin EntertainmentЖанр: комедияРежиссер: Питер БогдановичАктеры: Майкл Кейн, Кристофер Рив, Джон Риттер, Кэрол Бёрнетт, Денхолм Эллиотт, Джули Хэгерти, Мэрилу Хеннер, Марк Линн-Бэйкер, Николетт Шеридан, Кэти РичПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627693688594D67523B3D9FA749B7AC951C25FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852523   (1055973) от 08.02.2026
-
-Дом ада: Исследователи потустороннего / Hell House LLC Origins: The Carmichael Manor (2023) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055973.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1989 году в семье Кармайкл произошла трагедия: старшая дочь погибла в автоаварии, вскоре мать семейства и младшая дочь были найдены дома жестоко убитыми, а отец и сын пропали без следа. С тех пор особняк семейства пустовал и будоражил умы любителей всякого рода загадок. В 2021 году основательница сообщества интернет-детективов получает разрешение провести в доме (   Читать дальше...   )Производство: США / Cognetti Films, Marylous' BoysЖанр: ужасыРежиссер: Стивен КоньеттиАктеры: Бриджет Роуз Перротта, Дестини Лейлани Браун, Джеймс Лидделл, Гидеон Бергер, Cayla Berejikian, Victoria Andrunik, Darin F. Earl II, Searra Sawka, Thomas J. Cipriano, Майкл КаприолиПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1ECB1AA73C0282D39FB6217CDD80856CF62255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852606   (1055941) от 08.02.2026
-
-Дело Фриды / Friedas Fall (2024) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055941.jpg" />
-</div>
-
-
-###  Подробнее
-
-История страшного преступления Фриды Келлер, которое потрясло и раскололо европейское общество начала XX века. В ходе судебного дела предстояло решить, может ли преступник быть жертвой обстоятельств или быть оправданным.Производство: Швейцария / Picture Tree International, SRG SSR idée suisse, Splendid Pictures, Condor Films, SRF Swiss Radio and Television, Lucky ProductionЖанр: детектив, драма, криминал, триллер, биографияРежиссер: Мария БрендлеАктеры: Юлия Сюзанна Бухман, Штефан Мерки, Марлен Танкцик, Максимилиан Симонишек, Лилиан Амуат, Мириам Япп, Бигна Кёрнер, Рэйчел Брауншвейг, Сюзанна-Мария Враге, Рамона СалюцПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADC67BF1A8D5A843AB828498A6ED4B69CC326ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852623   (1055936) от 08.02.2026
-
-Достучаться до небес 2 / Das Beste kommt noch! (2023) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ошибочно решив, что их обоих вот-вот настигнет смертельная болезнь, друзья бросаются напоследок исполнить все свои заветные желания. Для этого им потребуется чужая тачка, двугорбый верблюд, бутылка самого дорогого шампанского и любовь прекрасных женщин, которым они всю жизнь собирались в чем-то признаться, но все как-то не хватало времени.Производство: Германия / barefoot films, Constantin Film, Olga Film GmbHЖанр: комедияРежиссер: Тиль ШвайгерАктеры: Тиль Швайгер, Михаэль Мертенс, Neda Rahmanian, Franziska Machens, Эмма Швайгер, Каро Культ, Хайно Ферх, Карло Льюбек, Петер Симонишек, Тимур БартельсПеревод: Дублированный (Невафильм)Язык озвучки: Русский, немецкийСубтитры: отсутствуютПродолжительность: 01:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB06C3C11CC5322614500FF6831F65FB27919A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

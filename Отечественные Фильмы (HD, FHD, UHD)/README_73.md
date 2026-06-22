@@ -1,3 +1,108 @@
+###  Публикация: 1250102   (424319) от 28.09.2018
+
+Упражнения в прекрасном (2011) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённом спектакле, который был поставлен в театре им. Моссовета.
+Пережив безумные юношеские надежды, люди обычно соглашаются на роль участника массовки. Но некоторые всю жизнь чувствуют в себе силушку и предназначение свыше. И что-то делают, делают, делают. Создают. Или крадут-убивают, но уж в невероятных масштабах. В этой истории герои не крадут (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Виктор ШамировАктеры: Виктор Шамиров, Гоша Куценко, Константин Юшкевич, Ксения Радченко, Павел Савинков, Ирина Апексимова, Дмитрий Осинцев, Дарья Плавинская, Александр Евдокимов, Ирина КирилловаСубтитры: ОтсутствуютПродолжительность: 01:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59588C09A33DB9C1588D8CA41337B5460345FA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250485   (423888) от 28.09.2018
+
+Дневной дозор (2005) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночью в подъезде своего дома убита молодая девушка. На теле не обнаружено никаких следов насилия... Зыбкое равновесие между Светлыми и Тёмными было нарушено. И чаша весов склоняется в сторону Тёмных. Но убитая - тёмная иная, а значит, под подозрением Светлые.Производство: Россия \ Первый канал, Кинокомпания Таббак, Базелевс-ПродакшнЖанр: Фантастика, Боевик, ТриллерРежиссер: Тимур БекмамбетовАктеры: Константин Хабенский, Мария Порошина, Владимир Меньшов, Галина Тюнина, Виктор Вержбицкий, Жанна Фриске, Дмитрий Мартынов, Валерий Золотухин, Алексей Чадов, Нуржуман ИхтымбаевСубтитры: Русские (форсированные)Продолжительность: 02:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF13829DE58A4F2BF5991D78843C651DD2949571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709063   (423452) от 11.10.2013
+
+Шлюха (2012) WEB-DLRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркая, и беззаботная жизнь 4-х выпускников престижного ВУЗа заканчивается после безумной ночи и встречи со «шлюхой». Четверо друзей после вручения диплома и громкой праздничной феерии неожиданно для себя оказываются вовлеченными в криминальный трэш: утро в чужой квартире и мертвая проститутка на полу. Кто убил ее? Зачем? Впавший в амнезию четвертый или бьющийся в (   Читать дальше...   )Жанр: Короткометражный, КриминалРежиссер: Дмитрий СуворовАктеры: Александр Пархоменко, Данила Якушев, Кирилл Каганович, Дмитрий Лещук, Марина Голуб, Мила НовиковаПродолжительность: 00:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44B9B179A99AF69D89A1F69A1321FBABAB13BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572448   (423383) от 26.08.2022
+
+Зимние грёзы (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Степанов учится в одном из университетов города. Он влюблён в свою однокурсницу, Анастасию Авдееву, с которой дружит очень давно. Неожиданно, он узнаёт, что у неё серьёзные отношения с некием Андреем. На следующий день, после занятий, он принимает решение сознаться в своих чувствах...Производство: Россия / Молодёжное творческое кинообъединение "ЮНОСТЬ"Жанр: драмаРежиссер: Сергей СаликовАктеры: Сергей Саликов, Дарина Лохмакова, Вероника Ермакова, Екатерина Макарова.Субтитры: отсутствуютПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F34E6764975DC6B4F8EA5E27CB6CCFBF4E56FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 394182   (423113) от 02.10.2011
 
 Звезда (2002) [1080p] Blu-Ray
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_423113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423113.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422708.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422521.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422376.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422145.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422119.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421000.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419957.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418331.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417904.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417670.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417604.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_416517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416517.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416059.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ Gypsy (2019) WEBRip [H.264/1080p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415903.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415591.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415301.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415225.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414049.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413142.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413133.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411746.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DB55BAC4B1BD049BDBFBF46A8A8BB1A6C76B7DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379252   (411023) от 02.10.2020
-
-Generation П (2011) Blu-ray [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанный на культовом романе Виктора Пелевина фильм «Generation П» во многом строится на галлюцинациях — включая речь Че Гевары о том, почему и как телевидение разрушает человека. Однако через изменённую реальность проступает кропотливо восстановленная атмосфера Москвы в 90-е годы, на фоне которой и разворачивается действие картины. Вавилен Татарский, нашедший (   Читать дальше...   )Производство: РоссияЖанр: фантастика, драма, комедияРежиссер: Виктор ГинзбургАктеры: Владимир Епифанцев, Михаил Ефремов, Андрей Фомин, Сергей Шнуров, Андрей Панин, Александр Гордон, Рената Литвинова, Владимир Меньшов, Олег Тактаров, Юрий СафаровСубтитры: НетПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1805AF95464909346C46634A23739BCE911D399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573725   (410317) от 01.09.2022
-
-Тренер (2018) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футболист национальной сборной Юрий Столешников в ответственный момент не забивает пенальти. После досадной ошибки Столешников покидает сборную, завершает карьеру и становится тренером маленькой провинциальной команды. Именно с этим клубом Столешникову предстоит совершить чудо и вновь поверить в себя.Производство: Россия / DK Entertainment, Кинослово, Студия ТритэЖанр: драма, спортРежиссер: Данила КозловскийАктеры: Данила Козловский, Владимир Ильин, Андрей Смоляков, Ольга Зуева, Ирина Горбачева, Виктор Вержбицкий, Мария Лобанова, Павел Ворожцов, Игорь Гордин, Александр Ильин мл.Субтитры: русские, английскиеПродолжительность: 02:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CDA25F2B26A12C38BADA79F86AE68D532B955D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168358   (409978) от 23.09.2017
-
-Про уродов и людей (1998) WEBRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало двадцатого века. Две благополучные с виду семьи. И загадочный Иоган, владелец фотостудии, в подвальном помещении которой создан некий фотографический театр Маркиза де Сада. Где снимаются фотографические открытки с униженной наготой человеческого тела, вызывающие похоть и злорадствующее торжество власти. Взгляд фотографа, умеющий увидеть в девочке ангельские (   Читать дальше...   )Производство: Россия / Союзкино, Кинокомпания CTBЖанр: Драма, комедия, историяРежиссер: Алексей БалабановАктеры: Сергей Маковецкий, Виктор Сухоруков, Анжелика Неволина, Динара Друкарова, Алеша Де, Чингиз Цыдендамбаев, Вадим Прохоров, Александр Мезенцев, Игорь ШибановПродолжительность: 01:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B529CD7BD1DAC73630892EE084D2AAB08875F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766795   (408933) от 21.10.2015
-
-Вий (2013) BDRip [720p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XVIII века. Картограф Джонатан Грин совершает научное путешествие из Европы на Восток. Проследовав через Трансильванию и преодолев Карпатские горы, он попадает в затерянную среди непроходимых лесов деревушку. Только воля случая и густой туман могли занести его в это проклятое место. Народ, живущий здесь, не похож ни на один доселе виданный путешественником. (   Читать дальше...   )Производство: Россия, Украина, Германия, Великобритания, ЧехияЖанр: Фэнтези, триллер, приключенияРежиссер: Олег СтепченкоАктеры: Джейсон Флеминг, Андрей Смоляков, Алексей Чадов, Агния Дитковските, Юрий Цурило, Ольга Зайцева, Александр Яковлев, Игорь Жижикин, Валерий Золотухин, Нина РуслановаПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 02:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D41932F7EE038130870E38EA3CFEEDA14E9532
 ```
 
 https://mybot314.ru/tekegram_catalog/

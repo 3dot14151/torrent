@@ -6,7 +6,7 @@ Incredible Dracula: The Last Call / Невероятный Дракула II. П
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561004.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chase for Adventure: The Lost City / Погоня за приключениям�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560883.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Turmoil (2016) [Ru/Multi] (1.2.8.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559192.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tempest: Pirate Action RPG (2016) [Ru/Multi] (1.3/dlc) License PLAZA [Pirate Edi
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556813.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Political Machine 2012 [En] (L) 2012 | POSTMORTEM
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541650.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Cosmonautica: A Space Trading Adventure (2014) [Ru/Multi] (2.6.0.7 GOG) License 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527024.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Spy Tactics (2019) [Ru/En] (1.01) License PLAZA
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519927.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Hero Academy [Ru] (RePack/1.0.0.1039/5 DLC) 2012 l Fenixx
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518621.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Grave Mania:Undead Fever / Зомби-Лихорадка (2012) [Ru] Unofficial
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507842.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Big Pharma (2015) [En] (1.00.04) Unofficial
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507775.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Beware Planet Earth! (2012) [En] (1.3.0) Repack R.G. Механики
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506846.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Total War Battles: Shogun [Multi5/-] (RePack/1.0) 2012 | DankoFirst
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498791.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Deadnaut (2014) [En] (1.2.3G) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495883.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Roads of Rome 3: New Generation / Дороги Рима 3: Новое покол
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479970.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Rescue Team 7 / Отважные спасатели 7 (2017) [Ru] (1.0) Unoffici
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471458.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Elven Legend 6: The Treacherous Trick / Эльфийская Легенда 6: �
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469481.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466906.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Mary le Chef: Cooking Passion (2017) [Ru/Mult] (1.0) Unofficial [Коллекц�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465233.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Zombie Pirates - Collector's Edition [Eng] (P) 2010 | THETA
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459904.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ I Am Weapon [En] (L/1.1) 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442811.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Viking Brothers 6 / Братья викинги 6 (2019) [Ru] (1.0) Unofficial [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429211.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Interstellaria (2015) [En] (1.089) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425341.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Alicia Quatermain 4: Da Vinci and the Time Machine / Алисия Квотерм
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418477.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Alice's Wonderland 4: Festive Craze / Алиса в стране чудес 4: �
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417825.jpg" />
 </div>
 
 
@@ -631,6 +631,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 248822   (414827) от 22.10.2010
+
+Gourmania 2: Great Expectations / Гурмания 2. Большие надежды (P) [Ru] (2010)
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_414827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная бизнес-игра, в которой вы вместе с очаровательной Кенди будете развивать сеть ресторанов, баров, кафе и закусочных. Чем эти заведения отличаются друг от друга? В этом вам предстоит разобраться в ходе игры! А еще вы научитесь великолепно готовить: бутерброды, гамбургеры, пирожные и десерты, изысканные блюда европейской кухни и деликатесы из морепродуктов, коктейли на любой вкус и цвет.
+
+Каждый новый ресторанчик вам нужно привести в порядок — отремонтировать, покрасить стены и крышу, обновить вывеску, расставить столики. Шикарный классический ресторан у подножья Эйфелевой башни потребует реставрационных работ, а закусочные на Мальдивах достанутся вам после пляжной вечеринки — придется приложить немало усилий, чтобы привести их в божеский вид. Деньги на ремонт и покупку улучшений вы будете зарабатывать на кухне, стряпая вкуснятину в режиме поиска предметов. Кроме того, вам нужно будет пройти несколько квестов, чтобы справиться с конкурентом — мошенником и пронырой мистером Ллойдом. Решайте задачки на (   Читать дальше...)Тип издания: ПираткаЖанр: Бизнес-симулятор, Аркада, Я ищуЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169833   (401215) от 29.09.2017
 
 Alicia Quatermain: Secret of the Lost Treasures / Алисия Квотермейн: Тайна потерянных сокровищ (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -639,7 +667,7 @@ Alicia Quatermain: Secret of the Lost Treasures / Алисия Квотерме�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401215.jpg" />
 </div>
 
 
@@ -650,32 +678,6 @@ Alicia Quatermain: Secret of the Lost Treasures / Алисия Квотерме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42268880762C49EA6CAB839CF377414AA01FCDD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 249702   (386178) от 25.10.2010
-
-Fix It Up / Починяй-ка. Мастерская Кейт (P) [Ru] (2009)
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_386178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая бизнес-стратегия на автомобильную тематику. Вместе с обаятельной девушкой по имени Кейт вы будете руководить сетью автосервисов. Дело это непростое, так что приготовьтесь к трудностям! Чтобы привести ваш бизнес к успеху и процветанию, придется хорошо потрудиться. Залог вашего успеха — квалифицированное профессиональное обслуживание. Даже самая невзрачная развалюха должна выйти из ваших рук сверкающей и обновленной. Ремонтируйте машины, сдавайте их в аренду, покупайте новые запчасти и улучшайте оборудование. Эта игра станет приятным сюрпризом для всех автолюбителей. Вас ждет сбалансированная экономическая модель, множество увлекательных уровней и даже комикс по мотивам игрового сюжета. Скорее приступайте, Кейт без вас не обойтись!Тип издания: ПираткаЖанр: Бизнес-симулятор, АркадаЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

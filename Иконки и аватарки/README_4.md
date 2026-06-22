@@ -1,29 +1,3 @@
-###  Публикация: 1835060   (250614) от 04.11.2025
-
-Иконки - Creative Market - 350 Nature & Outdoor Filled Icons - 2356852 [AI, CDR, CMX, EPS, JPG, PNG, SVG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор включает в себя иконки с заливкой на темы «Катастрофы», «Осень», «Ферма», «Весна», «Времена года», «Море» и «Садоводство». Iconbunny предлагает 350 самых необходимых иконок, которые можно использовать на любых платформах, включая мобильные приложения, веб-сайты и графический дизайн. Каждая иконка доступна в различных форматах, чтобы удовлетворить все ваши (   Читать дальше...   )Формат: AI, CDR, CMX, EPS, JPG, PNG, SVGРазрешение файлов: 16x16 - 1024x1024
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AAC86324FC93623CA3FD570BF8AB79DF9A792F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834724   (250494) от 04.11.2025
 
 Иконки - UI8 - Christmas 3d Fur Icons [FIG, PNG]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250494.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233693.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228972.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224949.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224931.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223308.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212547.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212136.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202037.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198558.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198544.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198542.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198497.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198482.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198428.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198416.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198316.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198283.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198120.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198116.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198108.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198094.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198082.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198037.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197902.jpg" />
 </div>
 
 
@@ -670,6 +644,32 @@ UI8 – Многоугольные 3D-банковские иконки: Обн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DE08FC53ADB4B688637D55E824D0627197FCBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828035   (193598) от 23.10.2025
+
+Иконки - Moranauta  - 3D Illustrations Icon Pack [PNG, GLB, OBJ, FIG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из 20 3D-иконок Design Thinking для веб-страниц, приложений, маркетинга и презентаций.Формат: PNG, GLB, OBJ, FIGРазрешение файлов: 4000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1FACFF612FAA30083CCBC517512971D5392D73
 ```
 
 https://mybot314.ru/tekegram_catalog/

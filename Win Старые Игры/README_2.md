@@ -1,3 +1,263 @@
+###  Публикация: 1839670   (1046862) от 30.11.2025
+
+Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geneforge 5: Overthrow - это ролевая приключенческая инди-игра, заключительная глава саги Geneforge. Вернитесь в мир Shapers в последний раз. Исследуйте обширный, раздираемый войной мир, создайте и сформируйте вашу собственную армию странных могущественных монстров, выберите сторону и приведите ее к победе. Geneforge 5: Overthrow содержит 9 классов персонажей и огромный (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: Стратегии, Ролевые игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6530BDD756C071EE16E1932297A08B850E73534A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839667   (1046861) от 30.11.2025
+
+Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geneforge 4: Rebellion - это приключенческая ролевая игра с элементами фэнтези, четвертая глава саги Geneforge. Вы окунетесь в мир Шейперов, исследуете обширные территории, выберете сторону, за которую будете сражаться и соберете армию из странных, могущественных монстров. Geneforge 4: Rebellion представит вашему взору огромный мир с более чем восемьюдесятью зонами (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: Стратегии, Ролевые игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDE4411F9B78E7A221F5408DE59966E93F78CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839660   (1046857) от 30.11.2025
+
+You Are Empty (2006) [Ru] (1.2) Repack Other s
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть ли это? Или спасение? Прозрение или гибель разума? Судьба свела вас со зловещей пустотой мертвого города, который внимательно следит за своим единственным гостем. Способны ли вы противопоставить себя этому монстру и бросить вызов судьбе? Невидимое поле, изменяющее физиологию человека, вызвало у населения крупного советского города неконтролируемые мутации.Тип издания: RepackРазработчик: Digital Spray Studios, Mandel ArtPlainsЖанр: Экшены, ШутерыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DEF7880A1158413FCACD50504FA46DF6D8C3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839664   (1046856) от 30.11.2025
+
+Geneforge 3 (2005) [En] (1.0g) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geneforge 3 - это приключенческая ролевая инди-игра, третья часть саги Geneforge. В этом сказочном путешествии вам предстоит исследовать неведомые, враждебные земли, выбрать, на чьей стороне вы сражаетесь, и, конечно же, создать свою собственную орду монстров-мутантов. Geneforge 3 порадует вас большой свободой действий и открытой сюжетной линией, в игре дюжина различных (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: Стратегии, Ролевые игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839852   (1046734) от 01.12.2025
+
+Galador: The Prince and the Coward / Галадор: Проклятие Принца (1998) [Ru/Multi] (1.0) License GOG [Digital Deluxe Edition]
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сон или кошмар? Совершенно обычный мальчик по имени Галадор внезапно обнаруживает себя в теле принца. Однако у внезапного и быстрого восхождения до подобной должности есть свои обратные стороны. От принцев обычно ждут бесстрашия и героизма. Но это не про Галадора. Он хочет как можно скорее вернуться к своей простой и созерцательной жизни. Но это не так просто: его (   Читать дальше...   )Тип издания: LicenseРазработчик: Metropolis SoftwareЖанр: Приключение, КвестЯзык озвучки: Русский, Немецкий, ПольскийЯзык субтитров: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FBF672399110B894A8CC5C270D966CD04FB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839514   (1046641) от 29.11.2025
+
+MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046641.jpg" />
+</div>
+
+
+###  Подробнее
+
+MechWarrior 5: Mercenaries — это шутер от первого лица, в котором игроки берут на себя пилотов гигантских боевых роботов. Игроков ждет далекое будущее - 3015 год, где третья Война за наследие входит в финальную фазу. В роли пилотов-наемников игроки должны выбирать различные контракты, чтобы зарабатывать деньги, открывать новых мехов и продвигаться по карьерной лестнице.Тип издания: RepackРазработчик: Piranha Games Inc.Жанр: Экшены, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4AC65032C8205FEC946BAE1F8411C26181C951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415238   (1046296) от 02.01.2023
+
+Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ого! Не думал, что вы досюда дочитаете... Круто! Кстати, меня зовут Крис. И мне не терпится рассказать вам о своей игре! Это приключенческий платформер в духе 90-х о, казалось бы, «обычных» событиях, которые произошли со мной в 1995 году, когда я еще был пухлым школьником. Именно благодаря этим событиям мне удалось увидеть мир, получить множество полезных способностей (   Читать дальше...   )Тип издания: LicenseРазработчик: Render CubeЖанр: Экшны, Приключение, ПлатформерЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE229AD67E24E7F38F0E00E512571AE555E8AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606959   (1044179) от 24.01.2023
+
+Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драконы... за ними охотились, их убивали, но настал час расплаты. Освободись от оков человеческого тела и вознесись в небо в этом легендарном ролевом приключении, чтобы испытать свою смекалку и сразиться с тысячами противников. Расправь крылья, испепели врагов - стань драконом! Divinity II: Developer’s Cut включает в себя последнее издание Divinity II: более 100 (   Читать дальше...   )Тип издания: LicenseРазработчик: Larian StudiosЖанр: Ролевая игра, От третьего лица, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D96A43195C51ED679CD899C31EE29F88CC2AEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611937   (1040671) от 13.02.2023
+
+Jagged Alliance 2: Wildfire (2005) [Ru/Multi] (6.08/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jagged Alliance 2: Wildfire возвращает вас в Арулько, но это возвращение будет не самым приятным! Армия чинит беспредел и терроризирует жителей страны, чьей главной статьей экспорта стали наркотики. Коррупция и мошенничество поразили все уровни местной власти, а реальная сила принадлежит вездесущей мафии.Тип издания: LicenseРазработчик: I-Deal Games StudiosЖанр: Стратегия, Пошаговая, СовременностьЯзык озвучки: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C3357DE0A7BE2511FCD7FD1E358C1CB8487659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441745   (1037052) от 23.01.2021
+
+Worms 2 (1998) [En] (2.0.0.23) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037052.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном удачном броске гранаты от мирового господства! Добро пожаловать в необычный мультяшный мир Worms 2, который на поверку оказывается полем боя, где каждый стремится к кровавому возмездию.Тип издания: LicenseРазработчик: Team17Жанр: артиллерия, пошаговая стратегияЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BC64E8180B854937097AA6771EC51DBD79EACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442161   (1036778) от 24.01.2021
 
 Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пещеры Капу (2006) [Ru] (1.0) License
@@ -6,7 +266,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036778.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036486.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035677.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035605.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ Vangers / Вангеры (1998) [Ru/En] (1.46) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034729.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034316.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ Baldur's Gate Trilogy + Neverwinter Nights (2022) [Ru] (1.0) Repack/Mod AGKanevc
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033584.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033583.jpg" />
 </div>
 
 
@@ -214,7 +474,7 @@ Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032901.jpg" />
 </div>
 
 
@@ -240,7 +500,7 @@ Harvester (1996) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032886.jpg" />
 </div>
 
 
@@ -266,7 +526,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032863.jpg" />
 </div>
 
 
@@ -292,7 +552,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032848.jpg" />
 </div>
 
 
@@ -318,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030829.jpg" />
 </div>
 
 
@@ -344,7 +604,7 @@ Europa Universalis III / Европа 3 (2007) [En] (5.2/dlc) License GOG [Compl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030624.jpg" />
 </div>
 
 
@@ -370,7 +630,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030166.jpg" />
 </div>
 
 
@@ -396,7 +656,7 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030158.jpg" />
 </div>
 
 
@@ -407,266 +667,6 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:234661426C2F9B485C9CE509E98F821D50FBCA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448911   (1029894) от 21.02.2021
-
-Total Immersion Racing / Жажда Скорости (2002) [Ru] (1.0) License
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составляющие классической гоночной игры довольно просты: лицензированные модели реальных спорткаров, мощный искусственный интеллект, способный учиться на своих и ваших ошибках, качественная физическая модель...Все эти элементы постоянно мелькали в той или иной гоночной игре, но только в "Жажде Скорости" они наконец-то воссоединились! А добавление такой (   Читать дальше...   )Тип издания: LicenseРазработчик: RazorWorksЖанр: Симуляторы, ГонкиЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F75C6D4D00CA6DC56B19B77221538E5E20A6670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170137   (1029354) от 01.04.2023
-
-Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Stronghold Crusader от FireFly Studios переносит вас в жаркие аравийские земли, навстречу отважным воинам с грозным оружием. Продолжение Stronghold идет по пути крайне успешной первой части и вновь предлагает вам невероятный коктейль из элементов градостроительного симулятора и стратегии в реальном времени, но на этот раз вам предстоит пережить события крестовых (   Читать дальше...   )Тип издания: LicenseРазработчик: FireFly StudiosЖанр: Стратегия, Строительство, ИсторическаяЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8612CFA319947006963EEB4D33422B57DC18E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451641   (1028138) от 03.03.2021
-
-1nsane (2001) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никаких ограничений, никаких треков и скучных автодромов. В 1nsane вам предстоит покорять захватывающее бездорожье как в одиночном режиме, так и с друзьями по локальной сети или в Интернете. Выбирайте машины и местность, покажите, на что вы способны на внедорожнике в семи уникальных режимах игры. Да воцарится безграничная свобода и хаос полноприводной гонки! Никаких (   Читать дальше...   )Тип издания: LicenseРазработчик: Invictus GamesЖанр: Racing, ArcadeЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED9744D02611B0EA7941123D75BBDCF4A50AB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453812   (1026678) от 12.03.2021
-
-M.U.L.E. / MULE (1983) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра проходит на вымышленной планете Irata (Atari наоборот). Игра представляет собой опыт в экономике спроса и потребления, включающий соревнование между четырьмя игроками. Место отсутствующих игроков занимают компьютерные противники. У игроков есть возможность выбрать расу их колонистов, что даёт различные преимущества и недостатки, которые могут быть соединены (   Читать дальше...   )Тип издания: LicenseРазработчик: Ozark SoftscapeЖанр: Strategy, TacticalЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD38A25E955507A99B096C49AC76A7FC2A9E0D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455191   (1025702) от 18.03.2021
-
-Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack Other s
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте зомби, творите беспредел и жрите мозги. 1959 год. Город Панчбоул — столица прогресса и образец прекрасной жизни. Однако вам предстоит доказать, что закон и порядок — ничто по сравнению с целеустремленным зомби. Парень Мэгги вернулся, а это значит только одно — Панчбоул больше никогда не будет прежним!Тип издания: RepackРазработчик: AspyrЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4BBA6FED9F459F199467020BB1EC76506FD73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103611   (1021346) от 12.04.2021
-
-SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021346.jpg" />
-</div>
-
-
-###  Подробнее
-
-В SimCity 4 вы не просто строите свой город, а вдыхаете в него жизнь. Создайте мегаполис, объединяя самые разные населенные пункты, среди которых могут быть спальные районы, высокотехнологические городские центры, места отдыха и фермерские общины. Можно создать регион, в котором города, связанные полностью интегрированной транспортной системой, будут иметь общие (   Читать дальше...   )Тип издания: LicenseРазработчик: MaxisЖанр: Strategy (God Sim, Manage, Busin., Real-time), 3DЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F306ABCC0026B2DE0C5F3ECFC89E626EE7DB491E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133765   (1017979) от 02.05.2021
-
-Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Результат содействия New World Computing (в промежутке между разными сериями "Героев...") и Holistic Design (после Merchant Prince, но задолго до Empire of the Fading Suns). Итак, выбрав одну из четырёх рас, один и более игроков могут начать борьбу за милость викингских богов и прижизненное место в Вальгалле на исторической карте Европы или на случайно (   Читать дальше...   )Тип издания: LicenseРазработчик: Holistic DesignЖанр: Пошаговая стратегияЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5688ED965B6AAE4741F275D3ED9707EC85CFDBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468008   (1017170) от 07.05.2021
-
-Hocus Pocus (1994) [En] (1.1) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас угнетает серая повседневность? Устали от того, что вы не великий волшебник? Вуаля! Отправляйтесь в таинственную и волшебную страну Лэттис, где будущему волшебнику Фокусу-Покусу потребуются ваша сообразительность и реакция, чтобы завершить величайшее в его жизни приключение. Терексин, глава совета магов, дал неопытному ученику особое поручение, чтобы проверить (   Читать дальше...   )Тип издания: LicenseРазработчик: Moonlite SoftwareЖанр: ArcadeЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE95000C9D7531EEB644D099C3052354D942D33F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065503   (1016640) от 10.05.2021
-
-The Ultimate Doom (1995) [En] (1.9) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая игра-мегахит, которая потрясла компьютерный мир. Теперь и с новым четвертым эпизодом «Thy Flesh Consumed». Пришли демоны и все морпехи погибли. Кроме одного. Вы - последняя защита против порожденных адом монстров. Приготовьтесь к самому напряженному, набитому мутантами и залитому кровью экшену! Виртуальный мир так реален, что вы не будете просто играть (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (Shooter), 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DA55651BDF588E38E8F39C82A99CD5B45EC7AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235780   (1016630) от 10.05.2021
-
-Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте мир, созданный сумасшествием: уродливые дети, древние боги, призраки из прошлого в доме, отраженном в воде. Вы только что выжили в автомобильной аварии и теперь находитесь в психиатрической лечебнице. Проблема в том, что вы ничего не помните.Тип издания: LicenseРазработчик: DreamForge IntertainmentЖанр: Приключение, Экшн, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF60CEA23A26DD220B086AF70602F5AE23CA8D7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

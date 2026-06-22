@@ -1,55 +1,3 @@
-###  Публикация: 1584253   (225089) от 18.10.2022
-
-This Is the Police 2 (2018) [Ru/Multi] (1.0.7) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трактуйте законы как вам вздумается в This Is the Police 2, продолжении знаменитой нуар-драмы This Is the Police! Руководите департаментом шерифа, управляйте копами, расследуйте, допрашивайте, заключайте под стражу. Принимайте сложные решения – и постарайтесь сами не угодить за решетку! – в этом коктейле из приключенческой игры, стратегии и пошаговых тактических (   Читать дальше...   )Тип издания: LicenseРазработчик: Weappy StudioЖанр: Adventure, Strategy, SimulationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275F1D88072E51B3D574FC99465A6137F16A4D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342055   (224567) от 01.12.2019
-
-Farmer's Dynasty (2017) [Ru/Multi] (1.00.2019.11.21) Repack xatab
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224567.jpg" />
-</div>
-
-
-###  Подробнее
-
-FARMER’S DYNASTY — это совершенно новый игровой опыт, совмещающий реалистичную имитацию с элементами ролевых игр и классических фермерских симуляторов. Помните старые добрые времена, когда вы навещали дедушку на ферме? Когда вы ездили с ним на тракторе по полям и помогали в работе? Теперь вы вернулись на свою ферму. За прошедшие годы было немало забот в городе, но (   Читать дальше...   )Тип издания: RepackРазработчик: UMEO StudiosЖанр: Симуляторы (Simulator)Язык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405B224FB8B2097ABF3A705E5355C312A2830F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513687   (222066) от 30.11.2021
 
 Tinytopia (2021) [Multi] (211111) License GOG
@@ -58,7 +6,7 @@ Tinytopia (2021) [Multi] (211111) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222066.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ European Ship Simulator - Remastered (2016) [Multi] (1.0.765) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221677.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Garden Simulator (2022) [Multi] (1.0.6.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221085.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Bridge Constructor: The Walking Dead (2020) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217152.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ HuniePop 2: Double Date (2021) [En] (1.1.0a) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216250.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Steam-Rip/1.0.8788.0/DLC) 2012 | R.G. И�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216220.jpg" />
 </div>
 
 
@@ -218,7 +166,7 @@ Ship Simulator 2008 (2008) [Ru/En] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216005.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ Professional Lumberjack 2015 (2015) [Multi] (1.0) License PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215681.jpg" />
 </div>
 
 
@@ -270,7 +218,7 @@ Ship Graveyard Simulator (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214498.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ Please Fix The Road (2022) [Ru/Multi] (1.1.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213245.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212660.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212290.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ MechWarrior 2 (1995) [En] (2.3.0.6) Repack Necros [Titanium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212283.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ MechWarrior 4 (2000) [Ru/En] (2.1.0.5/dlc) Repack Necros [Compilation]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212179.jpg" />
 </div>
 
 
@@ -426,7 +374,7 @@ MechWarrior (1989) [En] (2.1.0.4) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212165.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ Best Forklift Operator (2022) [Multi] (1.0) License DARKSiDERS [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210407.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ Are You Smarter than a 5th Grader? (2022) [Multi] (1.13/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209479.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [En] (1.2) License ViTALiTY
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209447.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ King of Retail (2022) [Ru/Multi] (1.0.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207886.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9500/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207857.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.11.0.0/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207139.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206956.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ Coffee Talk Episode 2: Hibiscus & Butterfly (2023) [Multi] (1.11) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206848.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ MythBusters: The Game - Crazy Experiments Simulator (2022) [Multi] (1.0.88) Lice
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206285.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ MythBusters: The Game - Crazy Experiments Simulator (2022) [Multi] (1.0.88) Lice
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF8A20D5E2822A1A8F5E340FEE7A7266757A034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568059   (205516) от 06.08.2022
+
+Last Call BBS (2022) [En] (1.0) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Last Call BBS переносит геймеров во времена эпохи веб 1.0, когда владельцы ПК пользовались электронными досками объявлений и телефонными сетями для обмена информацией. Инди-проект имитирует работу за ретро-компьютером. По сюжету один бармен запустил свой компьютер Z5 Powerlance, подключился к борде под названием "Последний звонок" и начал оттуда качать (   Читать дальше...   )Тип издания: LicenseРазработчик: ZachtronicsЖанр: Симулятор, Аркада, ГоловоломкаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA3B2D16FEB569A3747538EF1FEFF80A4543936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585620   (204771) от 26.10.2022
+
+Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.0.0) License FairLight
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autobahn Police Simulator 3 позволяет вам играть за офицера-новичка, который только что вернулся на свою должность после того, как серьезная автомобильная авария оставила его на некоторое время недееспособным. Усердно работайте и выполняйте миссии, чтобы стать способным полицейским и обеспечить безопасность автобана. Вы новичок в полиции, и это ваш первый день в (   Читать дальше...   )Тип издания: LicenseРазработчик: Z-SoftwareЖанр: Экшены, Казуальные игры, СимуляторыЯзык озвучки: Английский, немецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E549EDBA1D12CD84A5876B9C6B24F9611649F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

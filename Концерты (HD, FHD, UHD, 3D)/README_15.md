@@ -1,29 +1,3 @@
-###  Публикация: 1397271   (741293) от 19.07.2020
-
-Славянский базар в Витебске (2020) HDTVRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741293.jpg" />
-</div>
-
-
-###  Подробнее
-
-В концертной программе участвовали Филипп Киркоров, Сергей Полунин, Елена Ваенга, Александр Буйнов, Олег Митяев, Инна Маликова и ВИА «Новые самоцветы», Анна Семенович, Митя Фомин, Инна Афанасьева, Анатолий Ярмоленко и ансамбль «Сябры», Тима Белорусских, мужской хор «Всехсвятский» храма-памятника Всех Святых в Минске, Влад Сытник и многие другие.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:40:30 + 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C168B1D2F93C7BB0FB9F15F50FE0852074A7EE80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283661   (739602) от 17.02.2019
 
 Квартирник НТВ у Маргулиса. Tequilajazzz (16.02.2019) WEB-DL [H.264/1080p-LQ]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739602.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736391.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Metallica - Seattle (1989) Blu-ray [MPEG-2/1080i] [AI Remastered]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736297.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735848.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735458.jpg" />
 </div>
 
 
@@ -174,7 +148,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734067.jpg" />
 </div>
 
 
@@ -203,7 +177,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734064.jpg" />
 </div>
 
 
@@ -232,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733188.jpg" />
 </div>
 
 
@@ -261,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733146.jpg" />
 </div>
 
 
@@ -290,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_729116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729116.jpg" />
 </div>
 
 
@@ -316,7 +290,7 @@ Mr. Big - Raw Like Sushi 114 (Live At Budokan 2014) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728579.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Lynyrd Skynyrd - Pronounced Leh - Nerd Skin - Nerd & Second Helping (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727475.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726607.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726537.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) HDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726248.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724425.jpg" />
 </div>
 
 
@@ -490,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724087.jpg" />
 </div>
 
 
@@ -516,7 +490,7 @@ Within Temptation - Black Symphony (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723528.jpg" />
 </div>
 
 
@@ -545,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722602.jpg" />
 </div>
 
 
@@ -574,7 +548,7 @@ OneRepublic: One Night in Malibu (2021) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722600.jpg" />
 </div>
 
 
@@ -603,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722476.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720278.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719196.jpg" />
 </div>
 
 
@@ -690,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719078.jpg" />
 </div>
 
 
@@ -719,7 +693,7 @@ Led Zeppelin: The Song Remains The Same (2007) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_715304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715304.jpg" />
 </div>
 
 
@@ -730,6 +704,33 @@ Led Zeppelin: The Song Remains The Same (2007) [1080p] BDRip
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130295   (714046) от 02.05.2017
+
+Филипп Киркоров - Шоу "Я" (2017) HDTV [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филипп Киркоров: "Идея шоу "Я" уникальна. Это не просто концерт. Вместе с Франко Драгоне мы приготовили настоящий спектакль. На время представления зритель почувствует себя героем фантастической истории, путешественником в мир собственных фантазий и грез".
+Впервые идея такого шоу родилась у Филиппа Киркорова десять лет назад во время гастролей (   Читать дальше...   )Жанр: PopСубтитры: нетПродолжительность: 02:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2D28A69858E82976F8D19054185FAFF02B8924
 ```
 
 https://mybot314.ru/tekegram_catalog/

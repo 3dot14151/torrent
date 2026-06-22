@@ -1,3 +1,57 @@
+###  Публикация: 1698855   (118357) от 10.02.2024
+
+Ерофей Трофимов | Северный дракон (2024) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Революция – дело страшное, и когда она случается, плохо становится всем. И правым, и виноватым. Так случилось и теперь. Едва только в Российской империи началась революция, как нехорошо стало и всем её соседям. В том числе и Поднебесной империи. Японская интервенция, безвластие и многие другие прелести того страшного времени. Так что, юному казачку из небольшой станицы (   Читать дальше...   )Жанр: Альтернативная история, Боевая фантастика, Историческая фантастикаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC3313685228D2630191C25B4ECB6B2E6905528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699079   (118159) от 11.02.2024
+
+Нора Джемисин | Великие города (Книга 1). Город, которым мы стали (2024) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Н. К. Джемисин создала новый невероятный роман – захватывающую историю о культуре, индивидуальности, магии и легендах современного Нью-Йорка.
+В Манхэттене молодой аспирант сходит с поезда и осознает, что не помнит, кто он, но чувствует, как бьется сердце города, видит его историю и ощущает его мощь.
+В Бронксе директор арт-галереи находит удивительные граффити, разбросанные (   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтези, Зарубежное фэнтезиИздательство: Эксмо: Fanzon, МоскваФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5D0E01A705A62951CE7374F090DA36AF8D65A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699037   (118155) от 11.02.2024
 
 Тара Сим | Темные Боги (Книга 1). Сумеречный город (2024) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118155.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117734.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114725.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104409.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102273.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102006.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101963.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99669.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97165.jpg" />
 </div>
 
 
@@ -256,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91273.jpg" />
 </div>
 
 
@@ -283,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90840.jpg" />
 </div>
 
 
@@ -309,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_89280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_89280.jpg" />
 </div>
 
 
@@ -335,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88885.jpg" />
 </div>
 
 
@@ -361,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88364.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_88246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_88246.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87935.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85542.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84298.jpg" />
 </div>
 
 
@@ -496,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84143.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83276.jpg" />
 </div>
 
 
@@ -553,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83169.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83131.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83115.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82616.jpg" />
 </div>
 
 
@@ -644,58 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABBD0A48FB266B64D801DCAE8705D207C1407290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467512   (82092) от 14.03.2012
-
-Андрей Вербицкий | Испытания на прочность [2012] [FB2,RTF]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители Зареченска пережили перенос в новый мир и последующую за ним междоусобицу. Они испытали на себе жестокость бандитов и отразили нападение аборигенов хашш. Однако судьба не желает оставлять людей в покое и готовит очередное испытание.Далеко, там, где заканчивается степь и начинается лес, собирается армия, противостоять которой будет очень трудно. Или это только так кажется? Ведь люди не только сохранили знания, которых нет ни у одной расы в этом мире, но и приобрели новые.Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59570CCB8DDCB44F03970658CE4EEA42773501B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467499   (82030) от 14.03.2012
-
-Герман Романов | Спасти Каппеля! Под бело-зеленым знаменем [2012] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы из будущего в пекле 1920 года! Военно-историческая фантастика высшей пробы! Оказавшись в теле колчаковского офицера, наш современник перевел стрелку времени, и бронепоезд русской истории свернул с «запасного пути» на Транссибирскую магистраль, подарив белым шанс на победу в Гражданской войне. Теперь все в руках генерала Каппеля: если его армия устоит, а сам он не погибнет от пневмонии — не будет ни трагедии Великого Сибирского Ледяного похода, ни агонии Белого дела, ни падения России. Но прорвать фронт истории можно лишь отчаянной «психической атакой» (сами каппелевцы называли их иначе — «беспатронными»): под бело-зеленым знаменем, не кланяясь пулям, без единого выстрела — в штыки!Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED0D9C3FAAFC7AADE68E670D78D00A44FD704C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1601989   (11235) от 17.07.2025
+
+Козырные тузы / Smokin' Aces (2007 / 2009) BDRip [H.265/1080p] [10-bit] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11235.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Козырные тузы» — кинофильм 2006 года, криминальный боевик-триллер с элементами драмы, Фильм повествует о борьбе ФБР с американской мафией.
+В начале 2010 года, без выхода в широкий прокат, был выпущен фильм «Козырные тузы 2: Бал смерти», являющийся приквелом. Из киллеров первого фильма в нём появились Лазло Сут и один из братьев Треморов — Лестер. В фильме также (   Читать дальше...   )Производство: Великобритания, Франция, США, Канада / Relativity Media, Scion Films Limited, Studio Canal, Universal Pictures, Working Title Films, Always Split Aces Productions, Capital Arts Entertainment, Universal Studios Home EntertainmentЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Джо Карнахан, П.Дж. ПешеАктеры: Райан Рейнольдс, Энди Гарсиа, Джереми Пивен, Рэй Лиотта, Том Беренджер, Клейн Кроуфорд, Томми Флэнаган, Мори СтерлингПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: русский, английский, французскийСубтитры: русские (Forced, Full, Commentary), английские (SDH, Commentary), французские (Forced)Продолжительность: 01:48:49 | 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A382477D45DB5DEDC5D969F545F5E3AAA547A461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649455   (10949) от 20.07.2025
+
+Кинематографическая вселенная Marvel: Пятая фаза / Marvel Cinematic Universe: Phase Five (2023 - 2025) BDRip [H.264/1080p] [Коллекция]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятая фаза кинематографической вселенной Marvel (КВМ) — серия американских супергеройских фильмов и телесериалов, созданных Marvel Studios и основанных на персонажах Marvel Comics.
+
+В фазу войдут фильмы: «Человек-муравей и Оса: Квантомания» (февраль 2023 года) с Полом Раддом и Эванджелин Лилли, командный фильм «Стражи Галактики. Часть 3» (май 2023 года), «Капитан (   Читать дальше...   )Производство: США / Marvel Studios, Truenorth Productions, Walt Disney Pictures, Fox Studios AustraliaЖанр: фантастика, боевик, приключенияРежиссер: Пейтон Рид, Джеймс ГаннАктеры: Пол Радд, Эванджелин Лилли, Майкл Дуглас, Мишель Пфайффер, Джонатан Мэйджерс, Кэтрин Ньютон, Билл Мюррей, Кэти О’Брайн, Уильям Джексон Харпер, Джэми Эндрю Катлер, Крис Пратт, Карен Гиллан, Пом Клементьефф, Дэйв Батиста, Зои Салдана, Чукуди Ивуджи, Брэдли Купер, Уилл Поултер, Вин Дизель, Шон Ганн, Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Энтони (   Читать дальше...   )Перевод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:29 / 02:30:02 / 01:44:44 / 01:58:32 / 02:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB51BE99526F8852CDFB98B0CB8184BBBACA426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420414   (9708) от 01.08.2025
+
+Голый пистолет / The Naked Gun (1982,1988,1991,1994) BDRip [H.265/1080p] [10-bit] [Антология]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини-сериал и три полнометражных фильма о работе полицейского из «летучего отряда полиции» — пародия на сериалы и фильмы «про полицейских».Производство: США / Paramount PicturesЖанр: комедия, криминалРежиссер: Джо Данте, Джим Абрахамс, Реза Бадии, Дэвид Цукер, Питер СигалАктеры: Лесли Нильсен, Алан Норт, Рекс Хэмилтон, Эд Уильямс, Уильям Дюэл, Питер Люпус, Тесса Ричард, Георг Стэнфорд Браун, Уильям Конрад, Робер Гуле, Присцилла Пресли, Рикардо Монтальбан, Джордж Кеннеди, О. Дж. Симпсон, Сьюзэн Бьюбиан, Нэнси Марчанд, Рэй Бирк, Жанетт Чарльз, Эд Уильямс, Ричард Гриффитс, Жаклин Брукс, Энтони Джеймс, Ллойд Бокнер, Тим О’Коннор, Фред Уорд, (   Читать дальше...   )Перевод: профессиональный многоголосый, профессиональный двухголосый, авторский одноголосый, любительский одноголосыйСубтитры: Русские полные (SRT), English full (SRT)Продолжительность: 02:30:49 / 01:24:59 / 01:25:06 / 01:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F16BF804F68DF38F8D2B6AF347115369A38325C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810379   (9352) от 04.08.2025
+
+Миллениум Стига Ларссона / The Stieg Larsson's Millennium (2009) BDRip [AV1/1080p] [10-bit] [трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9352.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Миллениум» — детективная трилогия, написанная шведским писателем Стигом Ларссоном, главными героями которой являются Микаэль Блумквист, детектив-журналист, и девушка-хакер Лисбет Саландер.
+Трилогия включает в себя: «Девушку с татуировкой дракона», «Девушку, которая играла с огнем» и «Девушку, которая взрывала воздушные замки». Все книги стали бестселлерами с общим (   Читать дальше...   )Производство: Швеция, Дания, Германия, Норвегия / Film i Väst, Filmpool Stockholm Mälardalen, Yellow Bird Films AB, ZDF Enterprises, Nordisk Film A/SЖанр: триллер, драма, криминал, детективРежиссер: Нильс Арден Оплев, Дэниэл АльфредсонАктеры: Микаэл Нюквист, Нуми Рапас, Петер Андерссон, Анника Халлин, Лена Эндре, София Ледарп, Михалис КуцогианнакисПеревод: Дублированный, Многоголосый, Двуголосый, АвторскийЯзык озвучки: русский, шведскийСубтитры: русскиеПродолжительность: 02:32:52 | 02:09:38 | 02:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D372BDED25722F39BB28E4A3F79A0CBE693B5FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660722   (9092) от 07.08.2025
 
 При исполнении 1-9 / In the Line of Duty 1-9 (1985-1996) DVDRip, HDRip [AVO] [Коллекция]
@@ -6,7 +114,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9092.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9075.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9055.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8967.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8963.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8893.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8178.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7948.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7159.jpg" />
 </div>
 
 
@@ -240,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5770.jpg" />
 </div>
 
 
@@ -267,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5765.jpg" />
 </div>
 
 
@@ -294,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5764.jpg" />
 </div>
 
 
@@ -320,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5633.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5280.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4363.jpg" />
 </div>
 
 
@@ -399,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3999.jpg" />
 </div>
 
 
@@ -425,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3907.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3531.jpg" />
 </div>
 
 
@@ -477,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2882.jpg" />
 </div>
 
 
@@ -503,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2690.jpg" />
 </div>
 
 
@@ -529,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2433.jpg" />
 </div>
 
 
@@ -555,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1699.jpg" />
 </div>
 
 
@@ -566,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDBD4ADEAB4AB7CDAC6DDC44C58002A11BA344B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819320   (1659) от 21.09.2025
-
-М3ГАН / M3GAN (2022 - 2025) BDRip [H.264/720p] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джемма — робототехник в компании по производству игрушек. Неожиданно получив опеку над осиротевшей племянницей, она дарит девочке экспериментальную куклу-андроида, которая очень буквально понимает свою миссию защищать ребенка.Производство: США, Новая Зеландия / Atomic Monster, Blumhouse Productions, Divide/ConquerЖанр: ужасы, фантастикаРежиссер: Джерард ДжонстоунАктеры: Эллисон Уильямс, Вайолет Макгроу, Ронни Чиэн, Эми Дональд, Дженна Дэвис, Брайан Джордан Альварез, Джен Браун, Стефан Гарно, Лори Дунги, Эми Ашервуд, Иванна Сахно, Аристотель АтариПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:41:56 / 02:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65943600F463D361D132F31AA627D7BF351B6CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819502   (1353) от 23.09.2025
-
-Кинематографическая Вселенная Marvel: Сага Бесконечности / Marvel Cinematic Universe: The Infinity Saga (2008-2019) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер Паркер вместе с одноклассниками отправляется на летние каникулы в Европу. Однако отдохнуть приятелям вряд ли удастся — по прибытии в Венецию группа попадет в эпицентр сражения. Некое существо, состоящее из воды, появляется из ниоткуда и начинает крушить всё на своём пути, и теперь Питеру придётся спасать европейские архитектурные памятники вместе с загадочным (   Читать дальше...   )Производство: США, Чехия, Австралия, Канада, Италия / Marvel Studios, Columbia Pictures, Pascal PicturesЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джон УоттсАктеры: Том Холланд, Сэмюэл Л. Джексон, Джейк Джилленхол, Зендея, Коби Смолдерс, Мариса Томей, Джон Фавро, Джейкоб Баталон, Тони Револори, Энгаури РайсПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66A4A5741E3870E1CBD6910DAAD0432B014B7BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738347   (935) от 26.09.2025
-
-Альтернативные Вселенные Marvel / Alternative Marvel Universes (2000-2024) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приспособившись к совместному существованию, Эдди и Веном стали друзьями и вместе сражаются со злодеями. Но теперь за Эдди охотятся военные, а за Веномом — его инопланетные сородичи, угрожающие всему живому.Производство: СШАЖанр: фантастика, боевик, приключенияРежиссер: Келли МарселАктеры: Том Харди, Джуно Темпл, Чиветель Эджиофор, Рис Иванс, Стивен Грэм, Пегги Лу, Кларк Бако, Аланна Юбак, Кристо Фернандес, Джаред АбрахамсонПеревод: ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA951D8F700E90F754167AE9C4AD24449569AFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753499   (677) от 27.09.2025
-
-Повелитель кукол / Puppet Master (1989-2022) BDRip [H.265/1080p] [10-bit] [Антология]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повелитель кукол — это американский сериал ужасов, в котором рассказывается о группе антропоморфных марионеток, оживлённых египетским заклинанием, и каждая из которых оснащена своим уникальным и опасным устройством.Производство: США, Румыния, Великобритания / Empire Pictures, Full Moon Entertainment, Kushner-Locke Company, Shadow Entertainment, Shadow Films, Buffalo 8 Productions, Cinestate, Fangoria, Ghost Horse, Zero Trans Fat Productions, Candy BarЖанр: ужасы, фантастика, фэнтези, триллер, мелодрама, комедияРежиссер: Дэвид Шмёллер, Дэйв Аллен, Дэвид ДеКото, Джефф Берр, Чарльз Бэнд, Сонни Лагуна, Томмю Виклунд, Дэйв ПаркерАктеры: Пол Ле Мэт, Уильям Хикки, Элизабет Маклеллан, Коллин Бернсен, Гай Рольф, Ричард Линч, Гордон Карри, Чандра Уэст, Джордж Пек, Эмили Харрисон, Грег Сестеро, Бриджитта Дау, Джейкоб Уиткин, Кейт Орсини, Томас Леннон, Дженни Пеллисер, Леви Филер, Кип Каньон, Джордж Эпплби, Дженни БосвеллПеревод: многоголосый профессиональный, любительский многоголосый, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~01:20:00 фильм
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F591156300E03FC1B4681C3CDC09289B95D869
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1432379   (164541) от 17.12.2020
+
+Duplicate Photos Fixer Pro 2.20 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
+
+Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Японский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8808325EFB3A66D51DCF73EDA15B48BDB9D7E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432557   (164539) от 17.12.2020
+
+NCH WavePad Mater 11.45 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это программное обеспечение для редактирования аудио и является полнофункциональным, профессиональным редактором аудиофайлов. Это позволяет записывать и редактировать музыку, голосовые и другие аудиозаписи. При редактировании аудиофайлов вы можете вырезать, копировать и вставлять части записей, а затем добавлять эффекты, такие как эхо, усиление и шумоподавление. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD35A359D49B7C29B349DBB441D6AA0B0AD8725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516933   (164538) от 13.12.2021
 
 AnyMP4 DVD Ripper for Mac 9.0.20 [Multi/Ru]
@@ -6,7 +60,7 @@ AnyMP4 DVD Ripper for Mac 9.0.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164538.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ LaunchBar 6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164534.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ iCollections 6 v6.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164533.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ System Dashboard Pro 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164531.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Disk Xray 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164529.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Wattagio 1.12.11 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164525.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ AudioSwitcher 3.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164524.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ Hype 4 Pro v4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164517.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ Super PhotoCut Pro 2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164515.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ ImageRanger Pro Edition 1.7.8.1685 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164512.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ Any RecScreen 2.0.55 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164508.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ Valentina Studio Pro 11.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164505.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ Disk Analyzer Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164495.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ NoteBurner Spotify Music Converter 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164492.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ OmniOutliner Pro 5 v5.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164488.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164478.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ Wondershare DVD Creator 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164477.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ Blocs 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164475.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ Resume Templates - Design 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164473.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ Duplicate Photos Fixer Pro 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164467.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ Wondershare PDFelement Pro OCR 10.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164464.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ NCH DreamPlan Plus 5.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164463.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ Wondershare Filmora 9 v9.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164443.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ Feeder 4 v.4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164432.jpg" />
 </div>
 
 
@@ -628,59 +682,6 @@ Feeder - это полнофункциональное приложение дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5023C6219B7670A69447F1619510E4A8AB6D4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597948   (164427) от 17.12.2022
-
-EdgeView 3 v.3.8.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164427.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E244769AC99F184C19DFD14F980261ECF2D2EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516981   (164426) от 13.12.2021
-
-PhotoScape X Pro 4.1.1 fix [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164426.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoScape X Pro – это простой и быстрый инструмент для редактирования фотографий. Помимо основных функций, таких как изменение размера, обрезка и повороты, вы можете применять различные эффекты и корректировки с помощью всего одного клика. Вы также можете украсить свои фотографии с помощью таких инструментов, как фреймы, наклейки (стикеры) и кисти.
-В качестве более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: © 2021 Mooii TechПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский, немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30006C98E2A9A57F2FD6C4BAED64752B7634E8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

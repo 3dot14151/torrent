@@ -1,3 +1,133 @@
+###  Публикация: 1488537   (1001634) от 12.08.2021
+
+Город потерянных детей / La cite des enfants perdus / The City of Lost Children (1995) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мрачный грязный туманный портовый город, где никогда не восходит солнце. Рано повзрослевшая девочка Мьет — вожак банды малолетних грабителей, и верзила-неандерталец по прозвищу One ищут пропавшего Денрé, необыкновенно прожорливого малыша, съедающего курицу за 20 секунд. Он единственный в этом мерзком городе ребенок, не видящий кошмаров, и потому позарез нужен (   Читать дальше...   )Производство: Франция / Studio Canal+, Constellation, Lumière PicturesЖанр: фантастика, драма, приключения, антиутопияРежиссер: Марк Каро, Жан-Пьер ЖёнеАктеры: Рон Перлман, Жюдит Витте, Доминик Пинон, Жан-Клод Дрейфюс, Женевьев Брюнэ, Одиль Мале, Мирей Мосе, Серж МерленПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2CC89D3EBB6879AD957771D5EE897B654DD1FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351876   (1001578) от 12.01.2020
+
+Травка / Leaves of Grass (2009) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001578.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета братья-близнецы, один из которых — успешный преподаватель философии, а другой — его полная противоположность, лодырь, выращивающий марихуану. Однажды преподаватель оказывается вынужден вернуться в родную Оклахому, к брату, где оказывается втянут в опасную аферу против местного наркобарона…Производство: США / Class 5 Films, Grand Army Entertainment, Langley Films, Leaves Productions, Millennium FilmsЖанр: Триллер, Драма, Комедия, КриминалРежиссер: Тим Блейк НельсонАктеры: Эдвард Нортон, Кери Рассел, Тим Блейк Нельсон, Ричард Дрейфусс, Сьюзен Сарандон, Тай Бурелл, Мелани Лински, Люси ДеВито, Кент Джуд Бернард, Амелия КэмпбеллПеревод: Многоголосый профессиональный, Студия ВелесСубтитры: Русские, английскиеПродолжительность: 01:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3201A0F6E4ECE363F3C291285ECF3BFE8E2224D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352019   (1001576) от 12.01.2020
+
+Хорошие мальчики / Good Boys (2019) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001576.jpg" />
+</div>
+
+
+###  Подробнее
+
+История троих друзей-шестиклассников, планирующих посетить крутую вечеринку. Но прежде они должны хорошенько подготовиться, чтобы не ударить в грязь лицом. Так начинается безумное путешествие по долине Сан-Фернандо, в котором надо вернуть наркотики, украсть пиво и починить сломанного дрона — все это нужно сделать, пока родители не вернулись домой.Производство: США / Good Universe, Point Grey Pictures, Universal PicturesЖанр: Комедия, приключенияРежиссер: Джин СтупницкиАктеры: Джейкоб Трамбле, Кит Л. Уильямс, Брэйди Нун, Молли Гордон, Мидори Френсис, Исаак Ванг, Милли Дэвис, Джош Барклай Карас, Уилл Форте, Мариесса ПортелансПеревод: Дублированный (Лицензия DVD R2)Субтитры: русские (forced) - отдельным файломПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5C26CF8E6627C76A2B941D4D254927958E035D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352025   (1001520) от 12.01.2020
+
+Хорошие мальчики / Good Boys (2019) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001520.jpg" />
+</div>
+
+
+###  Подробнее
+
+История троих друзей-шестиклассников, планирующих посетить крутую вечеринку. Но прежде они должны хорошенько подготовиться, чтобы не ударить в грязь лицом. Так начинается безумное путешествие по долине Сан-Фернандо, в котором надо вернуть наркотики, украсть пиво и починить сломанного дрона — все это нужно сделать, пока родители не вернулись домой.Производство: США / Good Universe, Point Grey Pictures, Universal PicturesЖанр: Комедия, приключенияРежиссер: Джин СтупницкиАктеры: Джейкоб Трамбле, Кит Л. Уильямс, Брэйди Нун, Молли Гордон, Мидори Френсис, Исаак Ванг, Милли Дэвис, Джош Барклай Карас, Уилл Форте, Мариесса ПортелансПеревод: Дублированный (Лицензия DVD R2)Субтитры: русские (forced) - отдельным файломПродолжительность: 01:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2039816A1A652D0ABC61DA32550CA9F53B922DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488983   (1001336) от 13.08.2021
+
+Беккет / Beckett (2021) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находясь на отдыхе в Греции вместе со своей девушкой, американский турист Беккет попадает в автокатастрофу, после чего оказывается в бегах от пытающейся его убить полиции, замешанной в непонятном политическом заговоре. Всё, что ему нужно — добраться до посольства и понять, что случилось с его девушкой, пропавшей после аварии.Производство: Италия, Бразилия, Греция / Faliro House Productions, Frenesy Film Company, MeMo Films, Rai Cinema, RT FeaturesЖанр: боевик, триллер, драма, криминалРежиссер: Фердинандо Чито ФиломариноАктеры: Джон Дэвид Вашингтон, Мария Вотти, Вики Крипс, Алисия Викандер, Бойд Холбрук, Панос Коронис, Йоргос Пирпассопулос, Филлипос Иоаннидес, Лена Кицопулу, Изабелла МаргараПеревод: Дублированный (Невафильм) NetflixЯзык озвучки: РусскийСубтитры: русские (форсированные, полные)Продолжительность: 01:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AD4B2A5D101ADD3122CCE70B5C2AD730C5CA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488821   (1001325) от 13.08.2021
 
 Красотка на взводе / Jolt (2021) WEB-DLRip [H.265] [10-bit]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001325.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001274.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001213.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001206.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000987.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000940.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000937.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000826.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000801.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000771.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000686.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000679.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000668.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000630.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000590.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000576.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000566.jpg" />
 </div>
 
 
@@ -455,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000466.jpg" />
 </div>
 
 
@@ -481,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000399.jpg" />
 </div>
 
 
@@ -507,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000367.jpg" />
 </div>
 
 
@@ -533,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000364.jpg" />
 </div>
 
 
@@ -544,136 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B0938EA9DEBC07E3D8824C0F1A10C3BAECAFF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597325   (1000344) от 02.01.2013
-
-247 градусов по Фаренгейту / 247°F (2011) HDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо друзей отправляются в дом на берегу озера, чтобы весело провести выходные… Но уик-энд превращается в настоящий кошмар, когда трое из них оказываются запертыми в горячей сауне. Температура стремительно растёт… Каждая минута дорога в борьбе за выживание…Производство: США, Грузия, Foley Walkers Studio, Imedi Films, Sarke StudioЖанр: Ужасы, ТриллерРежиссер: Леван Бахия, Бека ДжгубуриаАктеры: Скаут Тэйлор-Комптон, Трэвис Ван Винкл, Майкл Копон, Кристина Уллоа, Тайлер МэйнПеревод: Любительский, одноголосый закадровый (den904)Продолжительность: 01:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE6A59C1C6C19EF2F732E41276DECA6A21C92A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597620   (1000131) от 03.01.2013
-
-Филадельфийский эксперимент / The Philadelphia Experiment (2012) [H.264] HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целью секретного правительственного исследования является создание оборудования по повторению, так называемого, «Филадельфийского эксперимента» Второй мировой войны, который позволял делать невидимыми военные корабли. Успешно проведенный в наши дни эксперимент возвращает ранее исчезнувший в 1943г. эсминец «Элдридж». Но он приносит в 21 век только смерть и разрушения. Единственный оставшийся в живых после первого эксперимента Леа и его внучка, пытаются остановить это безумие.Жанр: Фантастика, Триллер, ДетективРежиссер: Пол ЗиллерПродюсер: Джон Принц, Том Берри, Лиза М. ХансенАктеры: Николас Лиа, Райан Роббинс, Джина Холден, Лауро Чартрэнд, Эллисон Хоссак, Чад Кровчук, Том МакБет, Малкольм МакДауэлл, Майкл ПареПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: О. ИвановПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8735E343902781DFEE1FC8DD25588D73BF9E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596723   (1000091) от 03.01.2013
-
-Эволюция Борна / The Bourne Legacy [EXTENDED] (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000091.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре всегда несколько фигур. Одна из них — Джейсон Борн, другая — совершенный агент Аарон Кросс. Их возможности безграничны. Но даже у идеального оружия бывают сбои…Жанр: Боевик, триллер, детектив, приключенияРежиссер: Тони ГилройАктеры: Джереми Реннер, Рейчел Вайс, Эдвард Нортон, Джоан Аллен, Альберт Финни, Скотт Гленн, Стейси Кич, Донна Мерфи, Майкл Чернус, Кори СтоллПеревод: Одноголосый закадровый, любительский (zamez)Продолжительность: 02:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58804A2D2E819F25863CC1284D634CFAF80F576B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598214   (999960) от 04.01.2013
-
-Контроль / Kontroll (2003) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюрреалистически-мистическая драма, действия которой происходят в венгерском метро, а главный герой — Бульцу, работает там контролером. В метро он проводит все свое время, работает и спит, по непонятным причинам он изолировал себя от внешнего мира. Но, однажды среди пассажиров он встречает ту, которая все изменит…Жанр: Триллер, Драма, Мелодрама, Комедия, КриминалРежиссер: Нимрод АнталАктеры: Шандор Чани, Золтан Мучи, Csaba Pindroch, Sándor Badár, Золт Наги, Bence Mátyási, Gyözö Szabó, Эстер Балла, Ласло Надаси, Питер ШерерПеревод: Одноголосый закадровый (Антон Алексеев)Язык субтитров: РусскиеПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0F1A18C5A04011018D88851CADA9EA1F246734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597738   (999954) от 04.01.2013
-
-Джек Фрост / Jack Frost (1998) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Фрост, большая часть жизни которого проходит в разъездах, почти не видится со своим любимым сыном Чарли. Джек погибает в автомобильной катастрофе, но судьба дарит ему еще один шанс. Шанс вернуться. На этот раз в качестве… снеговика. Невероятные приключения начинаются…Жанр: Фэнтези, Комедия, СемейныйРежиссер: Трой МиллерПродюсер: Ирвинг Азофф, Мэттью Баэр, Джефф БерриАктеры: Майкл Китон, Келли Престон, Джозеф Кросс, Марк Эдди, Эндрю Лоуренс, Эли Мариентал, Уилл Ротхаар, Мика Бурем, Бенжамин Брок, Тейлор Хэндли, Камерон ФерреПеревод: Дублированный / Одноголосый закадровый А. Кашкин (Первомайский)Язык субтитров: AнглийскиеПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4EE5E83A8D36AAF98E8D41A173BF3B25F1C3B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

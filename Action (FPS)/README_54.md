@@ -1,3 +1,29 @@
+###  Публикация: 1157937   (21285) от 16.04.2025
+
+Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев.Тип издания: RepackРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Не озвученаЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E828028610CDFFF50B8E54644D1B1E91F730924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702956   (21186) от 17.04.2025
 
 Sons of the Forest (2023) [Ru/Multi] (1.0.53951) Repack Decepticon
@@ -6,7 +32,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0.53951) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21186.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21062.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Vampire Hunters (2023) [Ru/Multi] (1.3.0.CL11455) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20951.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20876.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20850.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145-gentle-wolf/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20640.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack seleZen [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20306.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack FitGirl [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20250.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19989.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Turok: Dinosaur Hunter (1997) [Multi] (kex4-3.0.1013) License GOG [Remastered]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19821.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19646.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Skin Deep (2025) [Ru/Multi] (2025.04.27.1441) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19515.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19045.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.85) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18728.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Forgive Me Father (2021) [Ru/Multi] (1.4.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18704.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14 20230201) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18688.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Battle Shapers (2024) [Ru/Multi] (1.1.2.10449) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18270.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18166.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Ex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17742.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17721.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ S.T.A.L.K.E.R. Legends of the Zone Trilogy: Shadow of Chornobyl, Clear Sky, Call
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17720.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17640.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17571.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Wizordum (2023) [Ru/En] (1.0.06.3) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17327.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Brass Brigade (2019) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17271.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Brass Brigade (2019) [En] (1.0) Scene SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4081E1B1288BBE3933622426CD9308E988AF42E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798948   (17156) от 24.05.2025
-
-Bloodshed (2024) [Ru/Multi] (1.0.4) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodshed - это захватывающий сплав элементов упрощенного рогалика с ретро-графикой и экшена от первого лица в стиле Survivors. Отражайте бесконечные волны нежити, собирайте очки опыта и улучшайте свои навыки и оружие, чтобы получить шанс пережить ночь. Заработанные тяжким трудом деньги останутся с вами даже после смерти. На них вы сможете приобрести постоянные улучшения (   Читать дальше...   )Тип издания: RepackРазработчик: com8com1 SoftwareЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292E5EBD54AD8EC5FD3A5ED452C50549F5FD18FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

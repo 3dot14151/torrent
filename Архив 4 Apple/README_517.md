@@ -1,3 +1,56 @@
+###  Публикация: 1442623   (238514) от 25.01.2021
+
+GoodNotes 5.6.34 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2021Разработчик: Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13515D7D1E3C57C652EA3B1BFDFDFD4EB5E89B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547674   (238500) от 29.04.2022
+
+Maxon Cinema 4D Studio R26.014 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих результатов быстро и без проблем. Начинающие, наравне с опытными профессионалами, могут воспользоваться широким набором инструментов и функций Cinema 4D для быстрого достижения потрясающих результатов. Легендарная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2022Разработчик: © 2022 MAXON Computer GmbHПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A6F624A2794BE7BBBBF2F38195E04456E3BB2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442732   (238492) от 26.01.2021
 
 batchRESIZE 1.70 [En]
@@ -6,7 +59,7 @@ batchRESIZE 1.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238492.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ CheckBook Pro 2.7.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238488.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Cookie 6.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238472.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ beQUIETsimple 3.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238469.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Capture All 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238452.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ eBookBinder 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238443.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Invisible 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238415.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ WiFi Explorer Pro 3 v.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238344.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ Deliver 2.6.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238342.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Dato 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238341.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Stats 2.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238327.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Duplicate Manager Pro 1.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238323.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ TunesKit Screen Recorder 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238319.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ TunesKit AceMovi Video Editor 4.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238294.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ System Toolkit 5.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238272.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ MacDroid Pro 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238269.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ ON1 HDR 2021 v15.1.0.10035 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238250.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ HitPaw Watermark Remover for Mac 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238249.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ Wondershare Recoverit 10.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238211.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ ON1 Effects 2021.1 v15.1.0.10035 CR2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238195.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ SideNotes 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238188.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ Pixelmator Pro 2.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238185.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238170.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ EdgeView 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238162.jpg" />
 </div>
 
 
@@ -625,61 +678,6 @@ EdgeView 3 - это новейший просмотрщик изображени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EFA6B562C8279B092FB4C977D384D07DB2A5E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624084   (238158) от 04.04.2023
-
-FSNotes 6.2.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238158.jpg" />
-</div>
-
-
-###  Подробнее
-
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983E32C25C0532C95DE0078E52FCED0D4E5F7D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638322   (238155) от 07.06.2023
-
-SnapMotion Unlimited 5.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238155.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
-SnapMotion имеет два режима:
-● Ручной режим, где вы можете извлекать изображения точно в установленное время.
-● Режим пакетной обработки, где вы можете извлечь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2023Разработчик: © 2012-2020 Jérémy VizziniПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CA1B69D192F711BFB5FF7038554BADFED7303B
 ```
 
 https://mybot314.ru/tekegram_catalog/

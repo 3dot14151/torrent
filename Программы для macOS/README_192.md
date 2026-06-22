@@ -1,3 +1,108 @@
+###  Публикация: 1710802   (61530) от 28.03.2024
+
+Topaz Video AI for Mac 4.2.2 U2B [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63D64FF605F54711C961C6D053DCD19D377A6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710806   (61525) от 28.03.2024
+
+Topaz Photo AI 2 for Mac 2.4.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2005 - 2024 Topaz Labs.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C1F8839FDC757E0FF7C52AB7B1048C06D2A7C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710902   (61515) от 28.03.2024
+
+DEVONthink Pro 3 Office/Server 3.9.6 U2B [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Devonthink Pro Office — программное обеспечение для хранения, организации и поиска электронных документов. Devonthink Pro Office в некотором роде можно назвать Вашим вторым мозгом, хранящим все цифровые файлы, будь то PDF-файлы, электронные письма, документы Word, или даже мультимедиа. Devonthink чрезвычайно гибок и легко настраивается под Ваши потребности. А если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2024Разработчик: © 2001-2024 DEVONtechnologies, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B1AE873EA03E7F776A4E7AFEA7F1D2E1A19EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711012   (61513) от 28.03.2024
+
+Elmedia Player Pro 8.18 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2024Разработчик: © 2024 Eltima LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F9185B6932C8F4163C4E78DBC5E934F9721242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711059   (61491) от 28.03.2024
 
 InstaBro | Instagram Browser 5.4.1 [En]
@@ -6,7 +111,7 @@ InstaBro | Instagram Browser 5.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61491.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Ghost Buster Pro 3.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61489.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Royal TSX for Mac 6.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61486.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Airbuddy for Mac 2 v.2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61485.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ Oka Unarchiver - Unzip ZIP RAR 2.1.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61484.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ TablePlus 5.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61481.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Elmedia Video Player Pro 8.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61449.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.6 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61448.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ JetBrains PyCharm Professional for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61443.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Charles Web Debugging Proxy 4.6.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61432.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ JetBrains PhpStorm for Mac 2023.3.6 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61428.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ X-Disk for Mac 1.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61405.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ Folder Icons 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61385.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ IconChamp for Mac 1.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61383.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ Pacifist 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61381.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ Allavsoft Video Downloader Converter 3.27.0.8852  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61308.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ OwlOCR Pro for Mac 6.0.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61292.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ Studies 1.8.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61290.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61277.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ BetterMouse for Mac 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61274.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ RipX DAW Pro for Mac 7.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61272.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ SiteSucker Pro 5.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61223.jpg" />
 </div>
 
 
@@ -576,113 +681,6 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD6BFB9B89A2D9C5133E70AA00967529D8EA7FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711860   (61177) от 31.03.2024
-
-Gopeed for Mac 1.5.6 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gopeed представляет собой высокоскоростной загрузчик, разработанный Golang + Flutter, поддерживает загрузку по протоколам (HTTP, BitTorrent, Magnet) и поддерживает Used. на всех платформах поддерживаются следующие платформы: Windows, Macos, Linux, Android, iOS, Web, Docker, командная строка.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2024Разработчик: © 2024 GopeedПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EE66750B4A01AE2546571C08B56481129FB0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711618   (61170) от 31.03.2024
-
-Fix My iPhone 2.4.15 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fix My iPhone — это инструмент для восстановления системы iOS. Устраняет все известные неисправности на  вашем iPhone:
-• Зависший на логотипе Apple
-• Черный / зависший экран
-• Ошибки обновления / восстановления iTunes и более 50+ сбоев обновления iOS 15(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2024Разработчик: © 2024 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A751FAEC3764F123BEEC682F08B967CC44B449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711931   (61117) от 01.04.2024
-
-Photomator for Mac 3.3.4 Patch [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photomator — это мощный инструмент для редактирования фотографий, предлагающий невероятные инструменты для улучшения, ретуширования и управления вашими фотографиями. Он включает в себя обширную коллекцию передовых настроек цвета, автоматический выбор с помощью искусственного интеллекта, мощные функции пакетного редактирования, инструменты клонирования и восстановления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2024Разработчик: © 2024 Pixelmator TeamПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280B5213D96C09A21128A297F66CD8974B01DFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712093   (61091) от 01.04.2024
-
-OmniPlayer Pro - Media Player 2.1.4 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61091.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2024Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.14+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D4B08F7CF91BB77ED116729A1CB27F517ED0D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

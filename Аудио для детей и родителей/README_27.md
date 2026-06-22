@@ -1,3 +1,61 @@
+###  Публикация: 1391839   (771641) от 22.06.2020
+
+Детский ансамбль «Гномы» - Зайцы (2019) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зайцы
+02. Старый утюг
+03. Маленькие мышки
+04. ЖуравушкаЖанр: Детские песниПродолжительность: 00:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C42157A53324A65D0935356F5D27940A9BEB86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391854   (771636) от 22.06.2020
+
+Детский ансамбль «Гномы» - А я уже большая (2018) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. День рождения
+02. Папина дочь
+03. Домовёнок
+04. Я уже большая(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123B42D362017518CDAF647BD3C1920F76DAF2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391852   (771635) от 22.06.2020
 
 Людмила Князева - Сова поёт колыбельную (2018) [MP3|320 Kbps]<Детские песни>
@@ -6,7 +64,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771635.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Musik aus Freundesland fur Kinder (1981) [MP3|320 кб/с]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770810.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770613.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770590.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770421.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769919.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769916.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769854.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769257.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769225.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768989.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768987.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768968.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768962.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768960.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768613.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768544.jpg" />
 </div>
 
 
@@ -490,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768542.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768540.jpg" />
 </div>
 
 
@@ -548,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768490.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768481.jpg" />
 </div>
 
 
@@ -606,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768438.jpg" />
 </div>
 
 
@@ -635,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768368.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767770.jpg" />
 </div>
 
 
@@ -678,64 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:794EC99608B6944A396BF47FBC3DFBE3B91765A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393525   (767769) от 30.06.2020
-
-Маргарита Хворостова - Песенки-малышки для девчонок и мальчишек (2016) [MP3|192 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мышки
-02. Рыбки
-03. Снежинки
-04. Снегурочка(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B336B100926CBEE964A30949FFB4A9661C169D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393519   (767705) от 30.06.2020
-
-Кукутики - Вкусняшки (2017) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добрая песня
-02. Пузожитель
-03. Курочка ряба
-04. Светофоры(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0193A2F470C7E97B76E51EAEE89514E6395D482A
 ```
 
 https://mybot314.ru/tekegram_catalog/

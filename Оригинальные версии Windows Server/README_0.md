@@ -1,3 +1,55 @@
+###  Публикация: 1364830   (932954) от 05.03.2020
+
+Windows Server, Version 1903 (10.0.18362.657) - Оригинальные образы от Microsoft MSDN [En/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5689933CC6728A98A99B95A1148511B2B916E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364832   (932949) от 05.03.2020
+
+Windows Server, Version 1909 (10.0.18363.657) - Оригинальные образы от Microsoft MSDN [En/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F43539997D91116868023B5C9A870C61A4E5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489847   (923461) от 17.08.2021
 
 Windows Server, Version 20H2 (10.0.19042.1165) (Updated August 2021) - Оригинальные образы от Microsoft MSDN [Ru/En]
@@ -6,7 +58,7 @@ Windows Server, Version 20H2 (10.0.19042.1165) (Updated August 2021) - Ориг�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923461.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.2114 (Updated August 2021) О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923296.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.447 (Updated Jan
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900636.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894879.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Microsoft Windows Multipoint Server 2012 (x64) [Английский]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880248.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Microsoft Windows Server 2008 R2 SP1 - Оригинальные образы с 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877027.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Microsoft Windows Server 2008 R2 SP1 - Оригинальные образы с 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874039.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.230 (Updated September 2021) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865917.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Windows Server, Version 20H2 (10.0.19042.1237) (Updated September 2021) - Ори
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864446.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Windows Server, Version 1909 (10.0.18363.778) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851004.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Windows Server, Version 20H2 (10.0.19042.1288) (Updated October 2021) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817502.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Windows Server, Version 2004 (10.0.19041.208) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812824.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.288 (Updated October 2021) О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805699.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Windows Server, Version 20H2 (10.0.19042.1348) (Updated November 2021) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790730.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.350 (Updated November 2021) �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790716.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.1884 (Updated Fe
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780003.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Windows Home Server 2011 [MSDN] [Ru]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760987.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Windows Server, Version 20H2 (10.0.19042.1526) (Updated February 2022) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720285.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.524 (Updated February 2022) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720163.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Windows Server, Version 20H2 (10.0.19042.1586) (Updated March 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669080.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Windows Server, Version 20H2 (10.0.19042.1645) (Updated April 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614575.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Microsoft Windows Server 2012 R2 with Update 3 - Оригинальные обр
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605903.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Windows Home Server 2011 - Оригинальные образы от Microsoft 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591254.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Microsoft Windows Server 2012 R2 Essentials with Update 3 - Оригинальн
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590797.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Microsoft Windows Server 2012 R2 Essentials with Update 3 - Оригинальн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03D287B5B9E5B330B8EEE3C7D1D56F47449C4685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916859   (589797) от 10.07.2015
-
-Microsoft Windows Storage Server 2012 R2 and Microsoft Windows Server 2012 R2 Foundation with Update 3 - Оригинальные образы от Microsoft MSDN [Multi/Ru]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Storage Server 2012 R2 представляет собой специализированную операционную систему для хранения данных, разработанную на платформе Windows Server 2012 R2. Данная ОС позволяет создавать надежные и производительные системы хранения данных с использованием новейших технологий Microsoft для защиты данных.Язык интерфейса: Русский, Английский и другие (Multi19)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1292ED6B446A2CE162842E749BAC67135E770403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551837   (589273) от 17.05.2022
-
-Windows Server, Version 20H2 (10.0.19042.1706) (Updated May 2022) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF758CC9CF91E69B58D92EDF2E95BD859234860
 ```
 
 https://mybot314.ru/tekegram_catalog/

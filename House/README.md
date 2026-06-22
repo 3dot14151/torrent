@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1876484   (1073471) от 
+
+VA - Black Hole House Music 06-26 (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Burns & Little Foot - I Will Follow (Extended Mix) [6:44]
+02. Robbie Rivera & Benny Camaro & Jaba - Things Are Changing (Extended Mix) [4:36]
+03. Milkwish - Golden Days (Extended Mix) [5:41]
+04. AL-Faris & Project Blue Sun - Disintegration (Extended Mix) [5:50](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 02:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C3034748A5F7C466DDE522518417CEE560C843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876663   (1073377) от 16.06.2026
+
+VA - DEEP Reflections: Summer Edition 2026 (2026) [MP3|320 Kbps] <Deep House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archi-Tech & M-Sol DEEP - Waves (Original Mix) [6:59]
+02. Duel (HU) & M-Sol DEEP - Halcyon Days (Original Mix) [7:09]
+03. Maktub In The Clouds & M-Sol DEEP - Inside Out (Original Mix) [6:28]
+04. Mortisha & Palankai & M-Sol DEEP - Miami Shaker (Original Mix) [6:02](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1BBD52C49AC6F73469A33A06C17612594B06A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876174   (1073149) от 
+
+VA - Lounge House 2022 (2022) [MP3|320 Kbps] <House, Chill House, Lounge>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Charles & Traumton - I Love To Love (Simone Vitullo Remix) (7:18)
+02. Ibiza House Party - Guitar Man (Club Mix) (3:16)
+03. Traumton & David Christie - Saddle Up (Club Mix) (7:08)
+04. Like It Deep - Get It On (Club Mix) (4:07)(   Читать дальше...   )Жанр: House, Chill House, LoungeПродолжительность: 02:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F233DEFC55306AD8078CC870C584077310EC19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874418   (1071871) от 02.06.2026
 
 VA - New York Deep Vibes 2026 (Deep House Selection) (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
@@ -7,7 +94,7 @@ VA - New York Deep Vibes 2026 (Deep House Selection) (2026) [MP3|320 Kbps] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071871.jpg" />
 </div>
 
 
@@ -36,7 +123,7 @@ VA - BC2 Summer 2026 (2026) [MP3|320 Kbps] <Progressive House, Organic House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071855.jpg" />
 </div>
 
 
@@ -65,7 +152,7 @@ VA - Deep House Summer Season (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071443.jpg" />
 </div>
 
 
@@ -94,7 +181,7 @@ VA - Summer Pool 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071442.jpg" />
 </div>
 
 
@@ -123,7 +210,7 @@ VA - Déepalma Ibiza 2026 - DJ Edition (Compiled and Mixed by Yves Murasca & Ros
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070788.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ VA - Takeover IBIZA 2026 (The Deep-House Files) (2026) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069812.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ VA - Compilation House Deep 2025 Various Artist (2026) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069514.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ VA - Black Hole House Music 05-26 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069465.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ VA - Saturday Vibes Dance Music Collection 2026 (2026) [MP3|320 Kbps] <Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068303.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ VA - Deep House Spirit 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067998.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ VA - Ibiza House Spring 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067849.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ VA - A-Mase - Deep Relax, Vol. 3 (2026) [MP3|320 Kbps] <Deep House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067460.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ VA - Sweet Dream Compilation Dream House Progressive (2026) [MP3|320 Kbps] <Prog
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067204.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ VA - 9 Years Label Anniversary, Pt. 3 (2026) [MP3|320 Kbps] <Organic House, Prog
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067046.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ VA - 9 Years Label Anniversary, Pt. 1 (2026) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067044.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ VA - 9 Years Label Anniversary, Pt. 2 (2026) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067043.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ VA - Ibiza Opening Season Deep Sampler 2026 (2026) [MP3|320 Kbps] <Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065795.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ VA - The Fifth Year of Stellar Black (2026) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065794.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ VA - Ibiza Nights 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065510.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ VA - Black Hole House Music 04-26 (2026) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065509.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ VA - PURRFECTION Compilation 2026 (2026) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065436.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ VA - UV Miami 2026 (2026) [MP3|320 Kbps] <Progressive House, Organic House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065435.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ VA - Milk & Sugar Miami Sessions 2026 (2026) [MP3|320 Kbps] <House, Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064362.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ VA - Milk & Sugar Miami Sessions 2026 (2026) [MP3|320 Kbps] <House, Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:015C3A775B66709DF2A9865A0D1738F429A03616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862080   (1064361) от 28.03.2026
-
-VA - Playa Del Carmen 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Finger - Forever (Extended Version) 05:20
-02. Krestovsky - Break the Night (Extended) 04:27
-03. Tony Finger - Izindaba (Extended) 05:03
-04. Santi Vasques - El Mundo Danza (Extended) 05:50(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 02:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22620F2DAD1C15E44D49DE7259BA6F09F705DD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862930   (1063750) от 02.04.2026
-
-VA - A-Mase - Youtube Hits (2026) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase & Alysia Sun - Drift Away (Original Mix) [5:21]
-02. A-Mase & Alysia Sun - My Desire (Original Mix) [4:59]
-03. A-Mase & Sharliz - Catch You (Extended Mix) [6:25]
-04. A-Mase & Natune - My Way (Album Version) [4:36](   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFBCBDAB26F26AEAAB63EEA1FB74F7CD0FC7576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863083   (1063729) от 02.04.2026
-
-VA - Sirup Ibiza 2026 (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Pogrebniak - Event Horizon (Extended Mix) [5:24]
-02. Dorothy - Starlight (Extended Mix) [4:43]
-03. Levasseur - Intentions (Extended Mix) [5:46]
-04. Joston - Hypnotized Heartbeat (Extended Mix) [5:16](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Afro HouseПродолжительность: 02:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FBFD58BC3C43EE2A7C121A0BC98835BA6A6687
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1146247   (614324) от 29.06.2017
+
+Solus Linux (Budgie DE) 2017.04.18.0 [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Solus — независимый Linux дистрибутив, использующий Budgie в качестве окружения рабочего стола и eopkg для управления пакетами. Согласно описанию с сайта, Solus — операционная система для современных ПК, основной целью которой является удобство в использовании. Операционная система построена с нуля и не зависит ни от каких других дистрибутивов.
+
+Для управления пакетами (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683995380AC57A54F3960247FAAFB3CF7E851358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146632   (612649) от 30.06.2017
+
+Sabayon 17.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64] 8xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен новый  релиз дистрибутива Sabayon Linux 17.07, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEE567DE968E1F0530A4C874C9417E7F9237E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146921   (612533) от 30.06.2017
+
+Maplesoft Maple 2017.1a Build 1238644 [x64] (run)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадская компания Maplesoft представила очередную версию своего флагманского пакета технических вычислений Maple. Одним из самых заметных отличий новой версии стала высочайшая скорость решения дифференциальных уравнений. Столь же значительные улучшение внесены и во все остальные математические функции, включая базовые операции и сложные алгоритмы обработки данных. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357CDD9D9A67453A98EA06DAC098E79B8A53EE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147111   (609183) от 02.07.2017
+
+Debian 9.0.0 [amd64] 2xDLBD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609183.jpg" />
+</div>
+
+
+###  Подробнее
+
+После 26 месяцев разработки Проект Debian с гордостью представляет новую стабильную версию 9 (кодовое имя Stretch), которая будет поддерживаться в течение следующих 5 лет благодаря совместной работе команды безопасности Debian и команды долгосрочной поддержки Debian.
+Firefox и Thunderbird возвращаются в Debian с выпуском Stretch и заменяют безбрендовые варианты Iceweasel (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD1538FAC8C87A91529DEF63DF1FEB4A7670E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147344   (609066) от 02.07.2017
+
+PCLinuxOS 2017.06.20 (LXDE, MATE, XFCE, KDE) [x86-64] (4xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609066.jpg" />
+</div>
+
+
+###  Подробнее
+
+PCLinuxOS - один из самых популярных на Западе вариантов операционной системы Linux. Переведённый на 85 языков (в том числе русский), с богатой коллекцией программного обеспечения (с акцентом на домашнее и офисное применение), распространяемый в виде "живого" DVD-диска (может работать без инсталляции на винчестер) PCLinuxOS ко всему прочему окружён многочисленным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24083F4DAD26D0E158FA073BFF77708FCB892A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147739   (607191) от 03.07.2017
+
+Linux Mint 18.2 Sonya (KDE, XFCE, Mate, Cinnamon) [32bit] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA6A909E556051920E4C6FD4A5B296B8D623246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297334   (604012) от 22.04.2019
 
 Ctlos Linux Openbox/i3 v2.1 — iso образ, основанный на Arch Linux 2.1 [x86-64] 1xDVD
@@ -6,7 +165,7 @@ Ctlos Linux Openbox/i3 v2.1 — iso образ, основанный на Arch L
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604012.jpg" />
 </div>
 
 
@@ -33,7 +192,7 @@ Proxmox VE 5.0 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603807.jpg" />
 </div>
 
 
@@ -62,7 +221,7 @@ Debian GNU/Linux 9.8.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601827.jpg" />
 </div>
 
 
@@ -90,7 +249,7 @@ OpenMandriva Lx 2014.2 [i586, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600981.jpg" />
 </div>
 
 
@@ -116,7 +275,7 @@ Parrot Security OS Full Edition 1.9 [amd64] ISO
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600921.jpg" />
 </div>
 
 
@@ -142,7 +301,7 @@ Debian GNU/Linux 9.9.0 + nonfree 9.9 [amd64] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600704.jpg" />
 </div>
 
 
@@ -170,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599473.jpg" />
 </div>
 
 
@@ -198,7 +357,7 @@ PDF Studio Pro 11.0.7 (13.04.17) [x86, amd64] (tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597864.jpg" />
 </div>
 
 
@@ -225,7 +384,7 @@ Komodo Edit 10-2.2.17703 [x86, amd64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596327.jpg" />
 </div>
 
 
@@ -252,7 +411,7 @@ Sabayon 15.07 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596293.jpg" />
 </div>
 
 
@@ -278,7 +437,7 @@ Tor Browser for Linux 4.5.3 [x86/x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596103.jpg" />
 </div>
 
 
@@ -304,7 +463,7 @@ JonDo 0.9.83 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591375.jpg" />
 </div>
 
 
@@ -332,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586867.jpg" />
 </div>
 
 
@@ -360,7 +519,7 @@ KolibriOS 0.7.7.0 [i386] (2xCD)
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584685.jpg" />
 </div>
 
 
@@ -394,7 +553,7 @@ Microsoft Office 2007 Professional Plus SP3 12.0.6607.1000 Repack The Hacker [x8
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582558.jpg" />
 </div>
 
 
@@ -420,7 +579,7 @@ Red Hat Enterprise Linux 8.0 [x64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582024.jpg" />
 </div>
 
 
@@ -446,7 +605,7 @@ Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580007.jpg" />
 </div>
 
 
@@ -472,7 +631,7 @@ Chromixium 1.5 [i386] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579851.jpg" />
 </div>
 
 
@@ -499,7 +658,7 @@ Mageia 4 Alpha I [i586, x86-64] 4xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577036.jpg" />
 </div>
 
 
@@ -533,7 +692,7 @@ Fedora 26 Live spins [x86-64] 6xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575926.jpg" />
 </div>
 
 
@@ -544,166 +703,6 @@ Fedora 26 Live spins [x86-64] 6xDVD, 1xCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D496D940156107E5012CB9813FB4686C2F274FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150986   (575801) от 17.07.2017
-
-Fedora 26 [x86-64] 3xDVD, 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официально представлен релиз Linux-дистрибутива Fedora 26. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server и Fedora Atomic Host, а также набор "спинов" c Live-сборками десктоп-окружений KDE Plasma 5, Xfce, MATE, Cinnamon, LXDE и LXQt. Сборки сформированы для архитектур x86, x86_64, Power64 и ARM64 (AArch64). Дополнительно поставляется (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A857F5E562E5E3D10D8EF5756287008BB2B843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150993   (575689) от 17.07.2017
-
-RFRemix [Russian Fedora Remix] 26 [i386, x86-64] 3xDVD, 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одновременно с официальным релизом Fedora 26 выпущен Russian Fedora Remix 26. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server Сборки сформированы для архитектур x86, x86_64
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF9B10959EA48CE67451E1F8488C5F687C18704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688972   (573539) от 13.08.2013
-
-Sabayon 13.08 (Multi DE) Поддержка анонимного доступа в сети [x86-64] (5xDVD, CD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
-
-Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux Kernel 3.10.4 с поддержкой BFQ iosched, обновлена поддержка ZFS file system, GNOME 3.8.4, KDE 4.10.5, MATE 1.6.2, Xfce 4.10, LibreOffice 4.1, UEFI SecureBoot для 64-bit образов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2A91B6628F5FEAEE09ECC4C7E86831E79C3A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689038   (573179) от 13.08.2013
-
-Tor Browser 2.3.25-12 [анонимный доступ в сети] [i686, x86-64] (bundle)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tor Browser for Linux - удобная и простая модификация Firefox с интегрированной (встроенной) системой TOR, устраняющая проблему установки и сложной первоначальной настройки (для малоопытного пользователя). Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное обеспечение Tor и соответствующим образом настроенный браузер Firefox.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2CC0375E0A4C28EC1B6B83B36384F9696AED2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688985   (571619) от 14.08.2013
-
-Sabayon 13.08 (Multi DE) Поддержка анонимного доступа в сети [x86] (5xDVD, CD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
-
-Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux Kernel 3.10.4 с поддержкой BFQ iosched, обновлена поддержка ZFS file system, GNOME 3.8.4, KDE 4.10.5, MATE 1.6.2, Xfce 4.10, LibreOffice 4.1, UEFI SecureBoot для 64-bit образов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21053F9F40987AF72F87F2E9D3DD790A96897974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919974   (571345) от 27.07.2015
-
-Image Uploader 1.3.1 build 4318 Stable [Multi/Ru] Repack The Hacker [x86-x64] (cxarchive)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Uploader - бесплатная программа для Windows c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C9076948F59B95DBCFBA95BDF98C4393460E70
 ```
 
 https://mybot314.ru/tekegram_catalog/

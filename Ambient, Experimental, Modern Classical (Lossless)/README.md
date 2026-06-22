@@ -7,7 +7,7 @@ Tangerine Dream - The Private Music Of Tangerine Dream (1992) Compilation [FLAC|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072594.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Agalloch - The White (2008) EP, Reissue, Remastered, 2019, Eisenwald Tonschmiede
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070432.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Tangerine Dream - Pergamon (1981) 1992, Relativity Records [FLAC|Lossless|image 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068302.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Martin Sturtzer - Discography 51 Releases (2017-2026) [FLAC|Lossless|WEB-DL|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062216.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Selected Moments II (2009) Shoreless Recordings [FLAC|Lossless|tracks+.cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057257.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Ambient Sessions Compilation vol.3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056441.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jupiter Panic - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054054.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jupiter Panic - Days of Sorrow (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054053.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - 2022 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045916.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hammock - Love in the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric, Po
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043833.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Thomas Lemmer - Ambient Nights (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electron
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039280.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eguana - Resurrected (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, F
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037539.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Human Voice - Silent Heart (2016) Cyclic Law [FLAC 2.0|48/24|tracks|WEB-DL] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036557.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Abul Mogard - Discography 15 Releases (2012-2021) VCO Records, Ecstatic, Houndst
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036549.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sabled Sun (aka Krusseldorf) - Discography 11 Releases (2012-2021) Cryo Chamber 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036481.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dahlia's Tear - Tales from a Feeble Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036410.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Giuseppe Falivene - Discography 14 Releases (2017-2021) Annulled, Oslated [FLAC|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035474.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ In The Branches | The Adaptive - Discography 27 Releases (2014-2020) [FLAC|Lossl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035415.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Syndromeda - Discography 34 Releases (1997-2020) SynGate, Luna [FLAC|Lossless|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035122.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Joachim Spieth - Ousia (2021) Affin [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Dro
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034428.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ DJ Healer - Nothing 2 Loose (2018) All Possible Worlds [FLAC|Lossless|tracks|Vin
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034230.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Peter Mergener - New Horizons (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033893.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Nicolas Jaar | A.A.L. (Against All Logic) | Ancient Astronaut - Discography 47 R
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033703.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Tim Schaufert - Haunted (2018)  [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Chill
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033293.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Tim Schaufert & Shwin - Sublime - (2017)  [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033287.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Olan Mill (Alex Smalley) - Discography 20 Releases (2010-2021) Serein, Facture, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033233.jpg" />
 </div>
 
 

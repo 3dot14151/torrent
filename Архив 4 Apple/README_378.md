@@ -1,3 +1,31 @@
+###  Публикация: 1062360   (442159) от 13.10.2016
+
+Lyn 1.8.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
+
+Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac OS X.Тип издания: OS X SoftwareРелиз состоялся: 10 октября 2016Разработчик: Mirko VivianiПоддерживаемая ОС: OS X 10.7.4 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202869727A3334BC582AAC4247A7CE2646D21DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322442   (442012) от 01.09.2019
 
 Sketch 57.1 [En]
@@ -6,7 +34,7 @@ Sketch 57.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442012.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ CheckBook Pro 2.6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441028.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ GroupsPro 5.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441027.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ MediaHuman Youtube Downloader 3.9.9.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440968.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ FontExplorer X Pro 7 v7.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440951.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ TwistedWave 24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440886.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ TablePlus 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440885.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ LaunchBar 6.13.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440881.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ BlueHarvest 8 v8.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440880.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ Integrity Pro 12.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440805.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ One Switch 1.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440800.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ Scrutiny 12 v 12.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440796.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ Theine 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440742.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Affinity Designer Beta 1.9.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440738.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ Adguard 2.5.0 (879) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440735.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ Wondershare UniConverter 12.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440725.jpg" />
 </div>
 
 
@@ -435,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440655.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ Permute 3 v 3.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440645.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ FontLab 8 v 8.0.1.8249 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440625.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ ApolloOne - Photo Video Viewer 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440491.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ DjVu Reader Pro 2.6.7 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440482.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ iFinance 4.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440190.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ Boinx FotoMagico 5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440178.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ Framer Studio v73 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440106.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ Serial Box 10-2013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440099.jpg" />
 </div>
 
 
@@ -663,35 +691,6 @@ Serial Box 10-2013 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:894E5E9B5858B7E3BE3F3DEC6062D747889287CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062758   (440095) от 14.10.2016
-
-Pacifist 3.5.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pacifist — удобная распаковка .pkg
-Если вы являетесь активным пользователем Mac OS, то вполне вероятно, что однажды вам уже было необходимо открыть файл с расширением .pkg. Сделать это можно при помощи нескольких способов, но приложение под названием Pacifist позволяет сделать это наиболее быстро и удобно.
-
-Pacifist – приложение, которое открывает пакеты Mac OS X (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 октября 2016Разработчик: CharlesSoftПоддерживаемая ОС: 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF26D8649E348C43E76EC171DF66E75AA34DCCDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

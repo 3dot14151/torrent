@@ -1,3 +1,57 @@
+###  Публикация: 1150267   (595224) от 14.07.2017
+
+Игумен Аристарх (Лоханов) | Великие русские старцы. Жития, чудеса, духовные наставления (2009) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595224.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге впервые собраны жития, чудеса и духовные наставления великих русских старцев - от первого русского старца, преподобного Нила Сорского, до великих старцев двадцатого века.
+
+Читателю предстоит встреча с теми, кто уже двести лет окормляет любовью Христовой, духовно просвещает, укрепляет и поддерживает Святую Русь. К этим великим старцам шли мудрецы и простецы, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F4A8A00DDDC8B2B3734CFDE8E8E408EBED7E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549044   (595093) от 05.05.2022
+
+Леонид Виноградов | Духовники о духовничестве. Девять бесед со священниками (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обязательно ли православному человеку иметь духовника или можно исповедоваться у разных священников? Как священник должен выстраивать отношения с прихожанами, с духовными чадами, чтобы не заслонить собой Христа? Можно ли требовать от мирян послушания, о котором написано во многих патериках? Возможна ли дружба с духовником? Могут ли муж и жена иметь разных духовников? (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC28B7F7A76EBA99B4A74019C0699B8CADE88031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232906   (595084) от 27.06.2018
 
 Священник Геннадий Фаст | С Библией в руках по Святой Земле. Богословские заметки русского паломника (2014) [FB2, PDF]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595084.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595013.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594848.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594683.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594673.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594576.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594571.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594567.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594512.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593651.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593017.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593016.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593006.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593003.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592391.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591440.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590991.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590199.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589369.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589127.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589116.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588190.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588137.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587800.jpg" />
 </div>
 
 
@@ -633,60 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6FFA214C62C742C6FE0D1CC214E04648CFEFD10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040183   (587514) от 04.08.2016
-
-Александр Кырлежев (сост.) | Сокровище в сосудах глиняных. Руководство по экуменической герменевтике (2000) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный текст был выработан в ходе трех специальных консультаций, в число участников которых входили члены комиссии ВСЦ «Вера и церковное устройство», а также специалисты в области герменевтики, представляющие разные церковные традиции.
-
-Книга рассчитана на использование ее в процессе выработки герменевтических руководств и других учебных материалов применительно (   Читать дальше...   )Жанр: Герменевтика, экуменизмФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAFD42D38599EF65CC09D4E56E90D7FCEABBD76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918692   (586038) от 16.07.2015
-
-В. К. Зайцев | Богомильское движение и общественная жизнь Северной Италии эпохи дученто (1967) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге (одном из немногих изданий на русском языке) рассказывается о средневековом болгарском еретическом учении - богомильстве, оказавшем большое влияние на западноевропейскую религиозную мысль (секты катаров, альбигойцев и др.), а также, вероятно, - и на идеологию русских средневековых религиозных сект.Жанр: История, религиоведение, искусство, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCD2AC5688E24690F5BC70724FF52CE06ACDC1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

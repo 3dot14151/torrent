@@ -1,3 +1,133 @@
+###  Публикация: 1423051   (303729) от 11.11.2020
+
+Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294/dlc) Repack Other s
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303729.jpg" />
+</div>
+
+
+###  Подробнее
+
+ObsCure II является продолжением ObsCure, в котором игроков ждет новая хоррор-история с ужасными чудовищами, стрельбой и раскрытием мистических тайн. Прошло два года после событий первой части. Те ученики, которые выжили после ужасных событий, поступили в соседний колледж и пытаются вернуться к нормальной жизни. Но и там им не будет покоя. Вскоре нашим героям предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: Hydravision EntertainmentЖанр: Adventure (Horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03CFB60162959F1FF613CE64010A4859778FADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176358   (302753) от 16.11.2017
+
+Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302753.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Стражи Галактики: The Telltale Series» рассказывает новую историю о самой экзотической команде MARVEL: отважном путешественнике Питере Квилле (известном также, как Звездный Лорд), воинственным еноте по кличке Ракета, человекоподобном дереве Груте, смертельно опасной Гаморе и одержимом жаждой мести Драксе, также известном, как Разрушитель. В ходе грандиозного сражения (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5DE631B2C1C8F770E85119EBE581D9B197790C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423047   (301657) от 12.11.2020
+
+Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301657.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе 2084 год. Будущее оказалось намного мрачнее, чем казалось раньше. Сперва появился нанофаг – цифровая эпидемия, унесшая жизни многих тысяч аугментированных людей. Затем началась война, превратившая Запад и Восток в руины. В образовавшемся вакууме к власти пришли корпорации, создав собственные империи беззакония.Тип издания: LicenseРазработчик: Bloober Team, Anshar StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017CBC4E95667854CCD087F032BAA44775D3C326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184412   (300828) от 17.11.2017
+
+Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Repack R.G. Catalyst [Episodes 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300828.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать. Но не тут-то было: в один прекрасный день рука Джесси застревает в жуткой перчатке, некогда принадлежавшей (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEADDB501A490AB122130E9F489857D9131C5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333307   (300611) от 26.10.2019
+
+Norman's Night In (2019) [En] (1.0) License TiNYiSO
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Платформенная приключенческая игра, рассказывающая историю лавочника, его шара для боулинга и рокового падения в мир Cave. Используйте механику рогатки, чтобы решать головоломки, основанные на физике, сталкиваться с незнакомыми пещерными зверями и открывать невидимый мир при свете вашего нового шара для боулинга.Тип издания: LicenseРазработчик: Bactrian GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F9F3E0E5A69B6768459F80B6D743EC49A51466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261755   (300375) от 12.11.2018
 
 TSIOQUE (2018) [En/De/Pl] (1.0.5.3) License GOG
@@ -6,7 +136,7 @@ TSIOQUE (2018) [En/De/Pl] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300375.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295132.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294696.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Perception (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294690.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294470.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Centralia: Homecoming (2019) [Ru/Multi] (1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294344.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294340.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294334.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294321.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Колле
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293378.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292559.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Slender: The Arrival (2013) [Ru/En] (2.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292317.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Between Me and The Night (2016) [Ru/Multi] (1.12) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291405.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290939.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290638.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на ф
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289344.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ The Descendant (2016) [Multi] (3.2/dlc) License PLAZA [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287577.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Tellta
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287375.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ That Dragon, Cancer (2016) [En] (1.0) License PROPER-PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285733.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ Her Majesty's SPIFFING (2016) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285416.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ To the Moon (2011) [Multi] (1.0.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285183.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ To the Moon (2011) [Multi] (1.0.0.1/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65F8E4D228ADE2D5B4FA32C4F8D32EAD787A6E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963956   (285078) от 09.12.2015
-
-Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционный для игры «в духе Индианы Джонса» сюжет. 1930-е годы. Нацисты рыщут по свету в поисках оружия невероятной силы для завоевания всего мира. Некий Фэнтон Паддок, бывший британский солдат и контрабандист-неудачник, получает предложение, от которого не может отказаться: его приглашают помочь найти пропавшую в Тибете экспедицию, отправленную в священную Шамбалу...Тип издания: RepackРазработчик: Animation ArtsЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03CC527B638F038072F0662807894BE4934908A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963890   (285072) от 09.12.2015
-
-Mind: Path to Thalamus (2014) [Ru/En] (08.12.2015) Repack R.G. Механики [Enhanced Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mind: Path to Thalamus – головоломка с видом от первого лица, действия которой развиваются в фантастическом сюрреалистическом мире. Для продвижения уровнями нужно буквально подчинять своей воле окружающую среду. Все это возможно благодаря тому, что протагонист путешествует по миру, созданному им самим в своем разуме, а локации во многом зависят от текущего эмоционального (   Читать дальше...   )Тип издания: RepackРазработчик: Carlos CoronadoЖанр: Logic (Puzzle), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A6086334816887C0324CB6EFA4B62B0E4F0F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963968   (285046) от 09.12.2015
-
-Lost Horizon 2 (2015) [En] (08.12.2015) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost Horizon 2 продолжит историю, начатую в предыдущей части. На сей раз главный герой Фентон Пэддок (Fenton Paddock) будет вовлечён в более опасную и личную круговерть событий. Опасность грозит его семье, так что придётся проявить чудеса изобретательности, разгадать массу тайн и спасти родных. Время действия - сороковые-пятидесятые годы прошлого века.Тип издания: RepackРазработчик: Animation ArtsЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFDE3710806E9F7DCD4DCE89752234A6CA9F83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964170   (283271) от 10.12.2015
-
-STASIS (2015) [Ru/Multi] (1.09.5) SteamRip Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283271.jpg" />
-</div>
-
-
-###  Подробнее
-
-STASIS – это приключенческая игра «укажи и щелкни» в жанре научной фантастики/ужасов с уникальной изометрической игровой перспективой. В игре STASIS мрачное повествование переплетается с геймплеем в приключенческом ретро-стиле. Комбинируйте предметы, взаимодействуйте с компьютерами и решайте головоломки в напряженной атмосфере.Тип издания: SteamRipРазработчик: THE BROTHERHOODЖанр: Action (Survival horror), IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197353F3B6FE8E4FF2DAB95EDCCF1C1BAD897FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264270   (282277) от 22.11.2018
-
-The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282277.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире игры персонажи известных сказок оказались перенесены в мрачный Нью-Йорк, где им пришлось волей-неволей обживаться в суровом обществе людей. Главным героем The Wolf Among Us станет Бигби Вульф (Bigby Wolf - то есть Big Bad Wolf, классический Злой серый волк из сказок о Красной шапочке и трех поросятах)Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27229CB3490D771E2274F60AEADF9AFCD8711242
 ```
 
 https://mybot314.ru/tekegram_catalog/

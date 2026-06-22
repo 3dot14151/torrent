@@ -1,3 +1,57 @@
+###  Публикация: 1635403   (241834) от 25.05.2023
+
+Motion 5.6.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Motion — это мощный инструмент анимации, созданный для видеоредакторов и позволяющий легко создавать кинематографичные титры в 2D и 3D, плавные переходы и реалистичные эффекты в режиме реального времени.Тип издания: macOS SoftwareРелиз состоялся: 23.05.2023Разработчик: Apple Inc.Поддерживаемая ОС: macOS 12.6+Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409807A5408508A0BD43E30B6E4A5A787BDC882B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376639   (241833) от 18.04.2020
+
+TextMate 2 v2.0.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241833.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextMate для Mac OS - Отличный редактор программного кода и простых текстов. С помощью TextMate вы сможете обрабатывать скрипты, создавать макросы, интерактивно заполнять поля, проверять программный код на ошибки, подсвечивать код десятков языков программирования. Удобно реализована работа с множеством файлов, навигация и поиск по ним.
+
+Быстро растущее сообщество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.04.2020Разработчик: MacroMates Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C7ECE9ED8EEE68E3F1F873D12AF5F3738E42BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459209   (241828) от 31.03.2021
 
 Password Repository 4.2.1 [En]
@@ -6,7 +60,7 @@ Password Repository 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241828.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Donemax Data Recovery 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241818.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Rogue Amoeba Farrago 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241816.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ VideoProc (former MacX Video Converter Pro) 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241805.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Viper FTP 6.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241800.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ SQLPro for SQLite 2022.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241799.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ Cascadea 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241791.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ RAR Extractor  - unzi‪p‬ 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241780.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ SQLPro Studio 2023.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241777.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ EverWeb (Standalone) 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241727.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ Sublime Merge Dev build 2009 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241701.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ Overlay 4.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241692.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Piezo 1.7.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241683.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241642.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ GroupsPro 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241638.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ MediaInfo 0.7.93 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241620.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ Xliff Editor 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241614.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ Creative Convert 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241606.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ Cookie 6.0.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241599.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ FigrCollage 2 Home Edition v2.5.18[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241574.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ Rocket Pro 1.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241566.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ Super PhotoCut Pro 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241531.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ WonderPen 2.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241519.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ Text Workflow 1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241513.jpg" />
 </div>
 
 
@@ -634,60 +688,6 @@ Text Workflow 1.0.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F595507A3EE21E86FC11B67E7B5F6CE8025143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546723   (241489) от 25.04.2022
-
-Nevercenter CameraBag Photo 2022.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241489.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
-Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2021 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7662197EB3EF80203D7819376E0AA6D099A60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114751   (241483) от 15.03.2017
-
-QR Factory 2.9.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241483.jpg" />
-</div>
-
-
-###  Подробнее
-
-QR Factory: создание QR-кода
-QR-код является незаменимым и универсальным способом быстро поделиться какой-либо текстовой информацией. Его главное достоинство — легкое распознавание — активно применяется в самых разных сферах: производстве, торговле, логистике, туризме рекламе, конкурсах, играх и др. Сканеры QR-кодов существуют практически на всех мобильных платформах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2017Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB63B83FDBFFF8CA3D8576976E5CCEC42BD2FE2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

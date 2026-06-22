@@ -1,3 +1,61 @@
+###  Публикация: 1577943   (350054) от 21.09.2022
+
+E-Type - Eurotopia (2007) [OGG Vorbis|484 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	E-Type–	True Believer	3:40
+02. 	E-Type–	The Tide	3:57
+03.	E-Type–	Eurofighter	3:47
+04. 	E-Type–	Make Us High	4:09(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F276CB696BD2A356A2E39624226B2718873E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259025   (332815) от 01.11.2018
+
+VA - 50 Chart Hits of 2018: The Winter Workout Soundtrack [MP3|320 Kbps] <Euro Dance, Future House, Club>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real System - There Is No More Love (Randy Norton edit)
+02. B.G. The Prince Of Rap - Once You Have Me (feat Timi Kullai & Nathan Reynolds III - Dolls House remix)
+03. Greg Bannis vs DJane Monique - You Sexy Thing 2018 (Dolls remix)
+04. Rinaldo Montezz - Jump (feat Gabriel Scar - radio mix)(   Читать дальше...   )Жанр: Euro Dance, Future House, ClubПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FB24DD8A108E34401E068E6FE28DD0F38E2471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580214   (331841) от 30.09.2022
 
 VA - Best Radio Tracks, Vol. 24 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
@@ -6,7 +64,7 @@ VA - Best Radio Tracks, Vol. 24 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331841.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Best Radio Tracks, Vol. 23 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327937.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The Remixed Dance Sensations (2017) [MP3|320 Kbps] <Eurodance, Eurodisco, E
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321435.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - 30 Euro Dance Pop Multibundle (2016) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315795.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Elvis Vs Spankox - Re:Versions (2008) [MP3|320 Kbps] <Electronic, Rock>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300163.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Sunshine Live - die 90er Best of 2018 (2018) [MP3|320 Kbps] <Eurodance, Har
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279402.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Die Mega - 90er Best Of (2017) [MP3|320 Kbps] <Eurodance, Euro-House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273331.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - DFM D-LUXE (2018) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269977.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Best Of Eurobeat Hi - Nrg Style (2019) [MP3|320 Kbps] <Funky, Club House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268843.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Sunshine Live - Die 90er Vol.4 (2017) [MP3|320 Kbps] 2CD <Eurodance, Euro-H
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267781.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - I love Italo Dance (Best Hits 90's Remixes) (2017) [MP3|320 Kbps] <Eurodanc
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267769.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Первый танцевальный, Vol. 14 (2017) [MP3|320 Kbps] <Pop, 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267756.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - EFFECTIVE COVERS, Vol. 4 (2023) [MP3|320 Kbps] <Eurodance, Technopop>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250069.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Club Charts Top 100 - 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245870.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Sonic Flash Vol. 3 (2023) [MP3|320 Kbps] <Dance, Dancecore, Hard Beat, Hand
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243624.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Best Radio Tracks, Vol. 25 (2023) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240501.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ DJ BoBo - Fantasy (2010) [OGG Vorbis|484 Kbps] <Electronic, Eurodance, Dance-pop
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239024.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Kim Dotcom - Good Times (2014) [MP3|320 Kbps] <Electronic, Dance, Pop>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233350.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - EFFECTIVE COVERS, Vol. 2 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227228.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - EFFECTIVE COVERS (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219334.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Workout Dance 2019 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219332.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Discotek 90's (2023) CD, Compilation [MP3|320 Kbps] <Eurodance, Club, Euro 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207157.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ E-Type - Loud Pipes Save Lives (2004) [OGG Vorbis|480 Kbps] <Electronic, Hi NRG,
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206732.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Поехали (Мелодии и ритмы для пространств 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200010.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Поехали (Мелодии и ритмы для пространств 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73EB7A887C56D21E36C64932976CBEE75CEA2EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587720   (192333) от 01.11.2022
-
-VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gigi D'Agostino - L'amour Toujour (Original Mix)
-02. Robin S. - Show Me Love (StoneBridge Radio Edit)
-03. Fragma - Toca Me (Radio Cut)
-04. Mauro Picotto - Iguana (On Air Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:56:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B990DB4438F5156C797DABF33900C13A4A681830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587716   (192326) от 01.11.2022
-
-VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delerium feat. Sarah McLachlan - Silence (Tiesto's In Search Of Sunrise Radio Edit)
-02. Rank 1 - Airwave (Original Vocal Edit)
-03. Mauro Picotto - Komodo (Radio)
-04. Dune - Hardcore Vibes (Video Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:40:25 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DAFFACE92E3815D5D2F1A284BBF76CE8D0A0A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

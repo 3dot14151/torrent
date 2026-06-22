@@ -1,3 +1,81 @@
+###  Публикация: 1433131   (162170) от 19.12.2020
+
+Юл Бриннер: Душа бродяги (2015) DVB [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок, сын знаменитого американского актёра Юла Бриннера, едет в маленькую швейцарскую деревушку, откуда ведет начало его род. Он собирается принять участие в церемонии переименования площади, которая отныне будет называться в честь Юла Бриннера. По дороге сын вспоминает проведенные с отцом годы. Мало кто знает, что актёр, сыгравший главную роль в одном из самых популярных (   Читать дальше...   )Телекомпания: Россия / КультураЖанр: Документальный, Искусство, БиографияРежиссер: Маргарита КуклинаСубтитры: Teletext SubtitleПродолжительность: ~00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DA37C024F719CFF98A7BA04A2D0F41C4860B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433074   (162052) от 19.12.2020
+
+Юл Бриннер, великолепный / Les mille et une vies de Yul Brynner (Yul Brynner, The Magnificent) (2020) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм - первая попытка рассказать об удивительной жизни главного киноковбоя 1960-х, звезды культовой «Великолепной семерки» Юла Бриннера, секс-символа и самого экстравагантного актера Голливуда. Жизнь Бриннера была полна ярких моментов: от парижских кабаре до сцен бродвейских театров и съемок в Голливуде. Он постоянно находился между вымыслом и реальностью, (   Читать дальше...   )Производство: Франция, Arte France, DarjeelingЖанр: Документальный, биография, кинематографРежиссер: Бенуа Готье, Жан-Фредерик ТибоПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9F27E7C75F6B59FE34CE86FCA97134010D7B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647581   (161760) от 04.11.2023
+
+Игорь Тальков - Фильм памяти (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незадолго до своего 35-летия 6 октября 1991 года в Санкт-Петербурге оборвалась жизнь поэта, композитора, социального певца Игоря Талькова. В памяти людей он запомнился как бунтарь, певец свободы. Один из немногих, кто со сцены начал говорить правду. Главный манифест - песня "Россия" была визитной карточкой певца и занимала главное место в его творчестве. (   Читать дальше...   )Телекомпания: "Ля-Минор"Жанр: ДокументальныйПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF4504BEA6D4DA2A0760E4C9636BFC066FACDDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674561   (160806) от 06.11.2023
 
 Слай Сталлоне / Sly (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160806.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160267.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159946.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159575.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159353.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159316.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159257.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159245.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Beatles в Индии / The Beatles and India (2021) HDTVRip [H.264/720p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157687.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157125.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155539.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155411.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155148.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155035.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154715.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154643.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154573.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154532.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154193.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154101.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154049.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153980.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153963.jpg" />
 </div>
 
 
@@ -592,87 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E6A76B292C7369BB94226A1180406091A2B388F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676854   (153961) от 15.11.2023
-
-АББА - На Концерте / ABBA - In Concert (1980) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название ABBA-In Concert, возможно, немного вводит в заблуждение, обещая нечто более "живое", чем то, что исполняется на самом деле. В то время как этот "официальный" телефильм дает захватывающее представление о турне ABBA по Северной Америке и Европе в 1979 году, первая часть 50-минутного документального фильма посвящена почти исключительно закулисным (   Читать дальше...   )01. Waterloo
-02. Eagle
-03. Take A Chance On Me
-04. Voulez Vous(   Читать дальше...   )Производство: Швеция / Sveriges Television, Polar Music & Universal MusicЖанр: Документальный, музыкаРежиссер: Urban LassonУчастники: Agnetha Fältskog, Björn Ulvaeus, Benny Andersson, Anni-Frid Lyngstad.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские, Французские, Испанские, Германские, БразильскиеПродолжительность: 0:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD36568B0E4C3A84BC4F686A635F13DADCFCE91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600979   (153782) от 29.12.2022
-
-Балабанов. Колокольня. Реквием (2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, начавшийся за два года до гибели режиссера Алексея Балабанова — как хроника производства его картины «Я тоже хочу» — и закончившийся уже через годы после его смерти — даже когда рухнула Колокольня, не взявшая в Счастье героя его последнего фильма.Производство: Россия / Мастерская «Сеанс»Жанр: документальный, биографияРежиссер: Любовь АркусПродолжительность: 01:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A92FA21E4866524864944365BF462CDBBC7B89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518737   (152851) от 21.12.2021
-
-Алиса: Волнение (2020) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152851.jpg" />
-</div>
-
-
-###  Подробнее
-
-В год своего 85-летнего юбилея Алиса Фрейндлих репетирует главную роль в спектакле «Волнение» Ивана Вырыпаева. Ее героиня – экстравагантная американская писательница польского происхождения. Вместе с Фрейндлих мы проходим этот путь – от первого разбора пьесы до официальной премьеры. Не только в театре, но и за его пределами. Вот Алиса играет в преферанс с подружками (   Читать дальше...   )Производство: Россия, Art For People, LenteatrЖанр: документальный, биография, кинематографРежиссер: Денис КлеблеевЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554DE6B4BA29A3132D6E0467A250FDAE4EC932F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

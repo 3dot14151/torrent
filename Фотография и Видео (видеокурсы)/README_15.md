@@ -6,7 +6,7 @@ Sophie Black | Мастер-класс по обработке фотограф�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457199.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Profileschool | МК Предметная съемка 2.0 (2014) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457196.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455157.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Profileschool | Мастер-класс Смешанный Свет. Практ�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448469.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Profileschool | Авторская обработка. Как это сдела�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448464.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Profileschool | МК Профессиональная работа со вспы
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439084.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437924.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437317.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437316.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437315.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437314.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437312.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437310.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437308.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437296.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437141.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Max Twain | Pro Retoucher Fatalism Start 2.0 (2019) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435640.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ CreativeLive.com | Съемка короткометражных докумен�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433616.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Firoz Khan | Learn Real Estate Photo Editing in Lightroom (2020) PCRec [En / En 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431558.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Lynda | Цвет для видеомонтажёров / Color for Video Editors
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427340.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop: замена цв�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427210.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427200.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422111.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420915.jpg" />
 </div>
 
 
@@ -648,6 +648,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065444   (415639) от 24.10.2016
+
+Ирина Калмыкова | Урок #28 Обработка осенних снимков (2016) PCRec [H.264]
+
+>>След.
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_415639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из этого урока вы узнаете об основных инсрументах управления цветом для ваших осенних снимков. Научитесь коррекции, усилении цветов и их насыщенности. Так же мы поговорим о гармонии осенних цветов.Жанр: Ретушь фотоПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338EEAC1CAA0A226CE8D1846022F2EFF9153B864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035653   (413307) от 25.10.2016
 
 Андрей Зейгарник | Оформление. Что делать с фотографиями (2016) PCRec [H.264/720p]
@@ -656,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413307.jpg" />
 </div>
 
 
@@ -668,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FC6F9BFEDA464BD76BBC48AACE71CB0B3EE97DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832074   (409709) от 19.10.2014
-
-Profileschool | Панорамная фотография (2014) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Панорамная съёмка — одна из наиболее популярных техник, применяемых в пейзажной и городской фотографии. С её помощью можно не только решить целый ряд сугубо технических задач, тем самым существенно расширив возможности своей фотокамеры, но и реализовать массу творческих идей, осознанно управляя искажениями, а также углом обзораполучаемого изображения. Вместе с тем, (   Читать дальше...   )Жанр: Мастер-классПродолжительность: 07:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E07F2FAE07D1AA4717CD1CF52C2376D377F1C32
 ```
 
 https://mybot314.ru/tekegram_catalog/

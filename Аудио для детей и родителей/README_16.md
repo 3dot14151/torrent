@@ -1,3 +1,55 @@
+###  Публикация: 1096996   (917355) от 25.01.2017
+
+Екатерина Вильмонт | Даша и Ko. Секрет убегающей тени. Книга 7 (2015) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто ли работники милиции обращаются к детям за помощью? Нет! Но лейтенант Якушев просит о помощи юных детективов Дашу и Петьку, с которыми познакомился во время предыдущего расследования. Пропала девочка. Предполагается, что ее похитили, но официально в милицию никто не обращался... Так кому же вести расследование? Тем, кто не сидит сложа руки! Тем, кто действует, (   Читать дальше...   )Жанр: Современная проза, детский остросюжетный детективПродолжительность: 05:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E695B9F78C1ACA25275FEDEF0251627BD414E410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097072   (915735) от 26.01.2017
+
+Виктор Кротов | Червячок Игнатий и его друзья (2008) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может сделать тот, на кого и внимания особого порою не обращают? Сидеть в своей норке и не высовываться? Червячок Игнатий не такой. Он успевает и поработать, и почитать, и поиграть, и напоить гостей чаем. Кроме того, с ним происходят удивительные приключения, из которых он всегда выходит с честью. А какие у него друзья!.. С червячком Игнатием и его друзьями вы (   Читать дальше...   )Жанр: СказкаПродолжительность: 02:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9D14EF68E362D0151A01DA721C795893D9A1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097312   (915579) от 26.01.2017
 
 Энид Блайтон | Великолепная пятёрка: Тайна разрушенного замка (2013) [MP3]
@@ -6,7 +58,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915579.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914109.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914076.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912486.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912037.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911594.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910524.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ VA - Давайте жить дружно (2011) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908777.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ VA - Сборник песен для детей (2010) [MP3|320 kbps]<Детс�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908513.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908489.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908407.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908132.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908078.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907912.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905124.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905037.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ VA - Колыбельные песни русских и зарубежных к
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904736.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904298.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904024.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ VA - Babydream. Spiel mit mir. vol. 16 (2003) [MP3|192 kbps]<Детская му
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903455.jpg" />
 </div>
 
 
@@ -548,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902702.jpg" />
 </div>
 
 
@@ -576,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902411.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900823.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897899.jpg" />
 </div>
 
 
@@ -642,58 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2140B21F28B0E0D1A67AA6EC753F8375C18A6C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101065   (897835) от 05.02.2017
-
-Лев Давыдычев | Жизнь и страдания Ивана Семенова, второклассника и второгодника (2014) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Жизнь и страдания Ивана Семенова, второклассника и второгодника» - это веселая история о неутомимом выдумщике, отчаянном фантазёре и мечтателе, второкласснике и второгоднике Иване Семёнове, который не любит учиться, но с которым постоянно случаются всевозможные происшествия и приключения.Жанр: Детская литератураПродолжительность: 02:28:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E09F341A05CB8EEB4FD631BF5CCA1309DB46414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101034   (897829) от 05.02.2017
-
-Эно Рауд | Муфта, Полботинка и Моховая борода (1, 2 книга из 4)  MP3 (1996) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Едва познакомившись, наши забавные герои — Моховая Борода, Полботинка и Муфта — отправились на встречу приключениям. Им предстоит проявить чудеса смекалки и изобретательности, чтобы избавить город от орды котов, прикормленных одной сердобольной старушкой. За эту книгу в 1974 году имя Э. Рауда было занесено в международный Почетный список Г.Х. Андерсена.Жанр: Детская литература, повесть-сказкаПродолжительность: 07:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037873D4B0F222D5AE6A08DF0FA94A7337DD2CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

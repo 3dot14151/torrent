@@ -1,3 +1,107 @@
+###  Публикация: 1599048   (161381) от 21.12.2022
+
+Super PhotoCut Pro 2.8.7 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super PhotoCut интерактивный инструмент для вырезки/отделения переднего плана объекта из фотографий. Собственной, лучший в своем классе алгоритм инструмент маскирования, мгновенно удалит сложные фоны и сделать их прозрачными всего лишь несколькими щелчками мыши. В отличие от существующего программного обеспечения для обработки изображений на рынке, Super PhotoCut (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 EffectMatrix Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8976334DEBFC0CA59D1C080FFD0B853D1B711EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433174   (161325) от 20.12.2020
+
+Color Wheel 4.9 [Multi/Rus]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: Roman SevastyanovПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0296C3D558D2FDE5FA59BE3C8BF865E27BC4E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598988   (161312) от 21.12.2022
+
+WidsMob Viewer Pro 2.19 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть ли способ просмотреть все изображения в одной папке на Mac? Как просмотреть несколько фотографий с быстрой скоростью? Как выбрать и экспортировать нужные фотографии? Для того чтобы иметь приятный опыт работы с фотографиями, WidsMob Viewer может быть решением, которое необходимо принять во внимание.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Арабский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033556A9359C3F3D81334BC4DCD1E81E8EF62020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674527   (161279) от 05.11.2023
+
+DMG Canvas 4.0.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161279.jpg" />
+</div>
+
+
+###  Подробнее
+
+DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат, таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2006-2023 Araelium GroupПоддерживаемая ОС: OS X 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE399C8B9DDCFBDB9D9EE0FE3787E3DD50633CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599038   (161268) от 21.12.2022
 
 Disk Space Analyzer Pro 4.0.5 [En]
@@ -6,7 +110,7 @@ Disk Space Analyzer Pro 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161268.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Mirror Magnet 1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161227.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Caps Lock Tone v1.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161206.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Affinity Publisher Beta 1.10.5.1224 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161168.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ Photo Perspective Pro 1.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161122.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ Disk Analyzer Pro 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161116.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ Smultron 12 v12.5.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161050.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ PDF Reader X - Edit Adobe PDF Pro 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161029.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ Pasta Pro 1.3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160976.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ BuhoCleaner for Mac 1.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160847.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ Living Wallpaper HD & Weather 5.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160837.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ FabFilter Total Bundle v.2023.11.31 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160815.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ Luxion KeyShot 2023.2 Pro 12 v.12.2.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160777.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ MWeb Pro 4.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160679.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ Notebooks – Write and Organize 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160664.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ FonePaw Data Recovery 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160642.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ Apple MainStage 3.6.5[Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160563.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ Transmit 5.10.3 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160551.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ Rocket Typist Pro 3.0.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160477.jpg" />
 </div>
 
 
@@ -516,7 +620,7 @@ LaunchBar 6 v.6.18.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160471.jpg" />
 </div>
 
 
@@ -542,7 +646,7 @@ NCH DrawPad Pro 10.63 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160466.jpg" />
 </div>
 
 
@@ -568,7 +672,7 @@ Mach Desktop HD 3 v.3.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160455.jpg" />
 </div>
 
 
@@ -579,113 +683,6 @@ Mach Desktop HD 3 v.3.0.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92ED43371F847B09F5A3A4F4D16F06FDD3E0F844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675205   (160446) от 08.11.2023
-
-EXIF Sync 1.9.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный инструмент для исправления EXIF ​​в изображениях из различных источников.
-Современные цифровые камеры хранят информацию о времени, когда был сделан каждый снимок,
-непосредственно в файлах изображений. Эти данные используются, например, для сортировки фотографий в правильном порядке.
-Люди часто используют несколько фотоаппаратов для съемки одного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55589CB67EE002A3FDBB2DC8655EE84A6E93B12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675238   (160430) от 08.11.2023
-
-Get Backup Pro 3 v.3.7.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Get Backup Pro - Универсальная утилита для выполнения резервного копирования, клонирования дисков/разделов и синхронизации файлов и папок. Get Backup Pro предлагает двустороннюю синхронизацию, архивирование только измененных файлов, восстановление отдельных файлов и папок, защиту архивов шифрованием.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2008-2022 BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C4A0F237B2FB60958DE1651F4ADC0691B14A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675304   (160398) от 08.11.2023
-
-Wipr – Ad and Tracker Blocker 1.49 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wipr блокирует всю рекламу, трекеры, майнеры криптовалюты, файлы cookie ЕС и уведомления GDPR, а также другие неприятности, поэтому вы можете сосредоточиться на важном для вас контенте при использовании Safari.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 Giorgio CalderollaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDBDAE46C518688CBEA4678883AF21A7338A750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675244   (160339) от 08.11.2023
-
-AweCleaner Professional for Mac 5.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160339.jpg" />
-</div>
-
-
-###  Подробнее
-
-AweCleaner - это универсальное средство для очистки Mac, которое не только помогает пользователям Mac легко и быстро очищать все ненужные файлы, но также может удалять приложения, находить / удалять большие файлы, находить / удалять дублирующиеся файлы, освобождать память, управлять жесткими дисками и т.д. Это комплексное программное обеспечение для очистки также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 MagoshareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811113BE5EFEA5A0A988860829637C56BD48D7C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

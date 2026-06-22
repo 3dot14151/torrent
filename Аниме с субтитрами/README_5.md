@@ -1,3 +1,29 @@
+###  Публикация: 1846017   (1051035) от 18.01.2026
+
+Ikoku Nikki | Дневник другой страны [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051035.jpg" />
+</div>
+
+
+###  Подробнее
+
+35-летняя замкнутая и нелюдимая писательница Макио Кодай берёт на воспитание 15-летнюю племянницу Асу, родители которой погибли в автокатастрофе. Макио никогда не было близка с сестрой и её мужем, а дочку их последний раз видела несколько лет назад, но теперь им предстоит уживаться под одной крышей, узнавая друг друга и разбираясь в себе.Производство: ShukaЖанр: повседневностьРежиссер: Ooshiro MiyukiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939D485CE0B3A4810638E88A044328572A5CAF2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846029   (1051026) от 19.01.2026
 
 Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnation: Born Blessed, So I'll Obtain Ultimate Power / Реинкарнация аристократа: Благословенный с рождения сильнейшей сил ...
@@ -6,7 +32,7 @@ Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnat
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051026.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051016.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051001.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050836.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050826.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Ма
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050825.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Monster Strike: Deadverse Reloaded | Удар монстра: Перезагру
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049951.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Shuumatsu no Walkure III | Record of Ragnarok III | Повесть о конце
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049531.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Kingdom 6th Season | Царство [ТВ-6] [2025, TV, 11 из 13] WEB-DL 1080p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049240.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ New Panty and Stocking with Garterbelt | Панти, Стокинг и Гарт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048368.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047880.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047839.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047154.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex | Доч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046410.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046390.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046383.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Eiga Go-Toubun no Hanayome | Пять невест (фильм) [2022, Movie] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046312.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Gekijouban Isekai Quartet: Another World | Isekai Quartet the Movie: Another Wor
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046198.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Bokura wa Minna Kawaisou | The Kawai Complex Guide to Manors and Hostel Behavior
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045992.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045937.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Sunohara-sou no Kanrinin-san | Miss Caretaker of Sunohara-sou | Смотрите
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045932.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Hatena Illusion | Иллюзия Хатэны [2020, TV, 12 эп.] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045667.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Soredemo Ayumu wa Yosetekuru | When Will Ayumu Make His Move? | Аюму всё 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044830.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Strike the Blood Final | Удар крови OVA-5 [2022, OVA, 4 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044807.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Itou Junji: Maniac | Junji Ito Maniac: Japanese Tales of the Macabre | Дзюн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044692.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Itou Junji: Maniac | Junji Ito Maniac: Japanese Tales of the Macabre | Дзюн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF94385E00E08891F6C9FAA047A3389DF3661CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606946   (1044222) от 24.01.2023
-
-Gekijouban Karakai Jouzu no Takagi-san | Озорная Такаги (фильм) [2022, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последнее лето Такаги и Нишикаты в младших классах вот-вот начнется, и это уже трогательное начало! Когда пара находит брошенного котенка, они решают работать вместе и заботиться о своем очаровательном новом компаньоне, пока не найдут его пропавшую мать.Производство: Студия Shin-Ei Animation / シンエイ動画Жанр: комедия, романтика, повседневностьРежиссер: Акаги ХироакиПеревод: AnilibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 75 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B88DF4E06A025AEDBF8FF6F360EC24F6FF25662
 ```
 
 https://mybot314.ru/tekegram_catalog/

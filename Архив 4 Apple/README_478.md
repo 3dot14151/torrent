@@ -1,3 +1,59 @@
+###  Публикация: 1083630   (273641) от 16.12.2016
+
+Tweetbot for Twitter 2.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый, кто активно использует Twitter с помощью устройств от Apple, давно знает, что нет ничего лучше приложения Tweetbot.
+
+Tweetbot - клиент Twitter для Mac. Этот полнофункциональный клиент имеет фантастическую поддержку нескольких учетных записей и списков. Он также имеет мощные фильтры, несколько видов столбцов, и многое другое.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 ноября 2016Разработчик: Tapbots LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED906398CFDD24822D125FA70F4A6F8006CBB0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083674   (273628) от 16.12.2016
+
+Capo 3.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capo – это музыкальный плейер, но предназначенный не столько для прослушивания композиций, сколько для их анализа!
+С его помощью возможно замедлить композицию, чтобы различить отдельные ноты, так-же Capo может автоматически сгенерировать гитарные табулатуры, что сделает процесс максимально комфортным, ибо все, что вам остается – это взять табы и разучить любимую (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: SuperMegaUltraGroovy, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010CEC2BBDA837D012CB61F21E1A8D51447A896F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337562   (273626) от 11.11.2019
 
 AirMail 3 v3.6.73 (557) [Multi/Ru]
@@ -6,7 +62,7 @@ AirMail 3 v3.6.73 (557) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273626.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ SiteSucker 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273565.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ Adguard 1.4.0 (370) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273557.jpg" />
 </div>
 
 
@@ -90,7 +146,7 @@ Adobe XD 24.1.22.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273541.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ Adobe Dreamweaver 2020 v20.0.0.15196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273532.jpg" />
 </div>
 
 
@@ -142,7 +198,7 @@ CADintosh X 8.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273508.jpg" />
 </div>
 
 
@@ -168,7 +224,7 @@ Adobe Premiere Rush CC v1.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273460.jpg" />
 </div>
 
 
@@ -194,7 +250,7 @@ Cocktail High Sierra Edition 11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273427.jpg" />
 </div>
 
 
@@ -220,7 +276,7 @@ Scrivener 2.8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273393.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ Navicat Premium 12.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273327.jpg" />
 </div>
 
 
@@ -277,7 +333,7 @@ Pixelmator Pro 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273248.jpg" />
 </div>
 
 
@@ -305,7 +361,7 @@ Boom2:Volume Boost & Equalizer 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273240.jpg" />
 </div>
 
 
@@ -332,7 +388,7 @@ Disk Drill Media Recovery 3.5.873 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273234.jpg" />
 </div>
 
 
@@ -360,7 +416,7 @@ Max Payne 3 (2012) [Ru] [macOS WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273101.jpg" />
 </div>
 
 
@@ -386,7 +442,7 @@ MiniNote Pro 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273068.jpg" />
 </div>
 
 
@@ -414,7 +470,7 @@ FSNotes 2.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273057.jpg" />
 </div>
 
 
@@ -440,7 +496,7 @@ Things 3 v3.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273045.jpg" />
 </div>
 
 
@@ -468,7 +524,7 @@ Alarm Clock Pro 11.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273034.jpg" />
 </div>
 
 
@@ -496,7 +552,7 @@ Calendar 366 II v2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273031.jpg" />
 </div>
 
 
@@ -524,7 +580,7 @@ MacPilot 10 v10.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273020.jpg" />
 </div>
 
 
@@ -551,7 +607,7 @@ ProPresenter 6 v6.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272965.jpg" />
 </div>
 
 
@@ -580,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272916.jpg" />
 </div>
 
 
@@ -606,7 +662,7 @@ Capture One Pro 12 v12.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272861.jpg" />
 </div>
 
 
@@ -633,7 +689,7 @@ ExactScan Pro 19.11 (build 19.11.11) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272711.jpg" />
 </div>
 
 
@@ -644,63 +700,6 @@ ExactScan – современное решение для сканирован�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40288BFBF02A3453C2CE04C7E3AA6B684B667724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337723   (272709) от 12.11.2019
-
-Slidepad 1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272709.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D38C492F5C8C062695BB4EDBF9728852DB2193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337835   (272708) от 12.11.2019
-
-iClip - Clipboard Recorder & ClipArt Manager 5.5.2b1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272708.jpg" />
-</div>
-
-
-###  Подробнее
-
-iClip - управляйте данными в буфере обмена.
-С iClip, вы быстро сохраните, организуете доступ к битам информации, которые просто не практично сохранять как целые документы. Утилита имеет удобный пользовательский интерфейс и приятную графику.
-
-iClip позволяет быстро заносить и хранить небольшие фрагменты текста и изображений, интернет адреса и другую информацию. Данные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2019Разработчик: Irradiated Software, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285E406D82443A754F89D6ED7175A661C967DFFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

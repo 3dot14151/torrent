@@ -1,3 +1,29 @@
+###  Публикация: 589097   (150131) от 14.12.2012
+
+Убойное Рождество Гарольда и Кумара / A Very Harold & Kumar 3D Christmas (2011) BDRip [1080p] [Вертикальная анаморфная стереопара 3D] [Hand Made 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло шесть лет после приключения в проливе Гуантанамо. На этот раз закадычные друзья Гарольд Ли и Кумар Пател сорвали праздник, случайно спалив дотла призовую рождественскую ель тестя Гарольда.Жанр: КомедияРежиссер: Тодд Штраус-ШульсонАктеры: Джон Чо,  Кэл Пенн,  Нил Патрик Харрис,  Пэттон Освальт,  Изабелла Жельняк,  Остин Бикел,  Инга Р. Уилсон,  Бобби Ли,  Томас Леннон,  Амир БлюменфилдПеревод: Многоголосый закадровый, профессиональный (Лицензия), Двугоголосый закадровый, профессиональный (Кубик в Кубе), Одноголосый закадровый, профессиональный (А. Дольский)Продолжительность: 01:29:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669302   (150102) от 18.11.2023
 
 Небесные ласточки (1976) DVDRip [H.265/1080p] (серии 1-2 из 2) [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150102.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150012.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149815.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148925.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148570.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148481.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148369.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148042.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147768.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147030.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146632.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146600.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146559.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146142.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145934.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145275.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145243.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145199.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144922.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144685.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144539.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Bad Boys Blue - Video Collection от ALEXnROCK (2018) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144228.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143575.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143343.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143311.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA92DE4492012D11CCCD8FB812551FC85DC21AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738872   (143056) от 29.12.2013
-
-Молодой детектив Ди: Восстание морского дракона / Young Detective Dee: Rise of the Sea Dragon (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара] [Hand Made 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143056.jpg" />
-</div>
-
-
-###  Подробнее
-
-В море с огромным кораблем, происходит необъяснимое, без причин, оно просто развалилось на куски. Как такое может случится, при отсутствии шторма и других фактров? Выяснить причины поручают детективу Ди. Отправившись на место крушения, он узнает, что там обитает очень древнее чудовище, похожее на морского дракона, которое уже сотни лет уничтожает всех, кто заплывает (   Читать дальше...   )Жанр: Боевик, Триллер, ДетективРежиссер: Цуй ХаркАктеры: Анджела Бейби,  Марк Чао,  Чэнь Кунь,  Уилльям Фэн,  Дун Ху,  Ким Бом,  Карина Лау,  Линь Гэн Синь,  Zhaoxu Lin,  Цзинцзин МаПеревод: Двуголосый закадровый / Green TeaПродолжительность: 02:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659833AE35BCDCEA6624ECF718DDDEA8EC96FC18
 ```
 
 https://mybot314.ru/tekegram_catalog/

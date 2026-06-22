@@ -1,3 +1,82 @@
+###  Публикация: 1831871   (212193) от 29.10.2025
+
+Александр Дитрих, Пётр Синявский | Хлопушки с сюрпризами. Самый лучший Дед Мороз (2010) [MP3, Зиновий Гердт, Евгений Весник и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Мелодия – детям».
+Вы знаете Кляксина? Петю Кляксина? Того самого Петю, с которым под Новый год случилось необычайное происшествие? Не огорчайтесь, если вы его не знаете, «вы его еще узнаете»!.. В этой забавной сказке-были многое похоже на правду. В самом деле, кому, например, не приходилось слышать про чудо-людей, не боящихся в самый лютый мороз купаться (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E4E9C82F47F2E66EB6C766517CEC851BCC9D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638313   (211869) от 09.06.2023
+
+Григорий Остер | Вредные советы, ненаглядные пособия и другие истории (2011) [MP3, Юрий Заборовский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский писатель, которого читают, в основном, взрослые. Автор юмористических "учебников" для детей, создатель нескольких популярнейших мультсериалов - в том числе о Мартышке, Попугае, Слоненке и Удаве - и многих других невероятно талантливых вещей! ...Жанр: Детская литератураПродолжительность: 05:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365FAE75F2DBD706A369A2BA80DBAA7820D8EBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640027   (211189) от 18.06.2023
+
+VA - Детская площадка (2008) 5CD [FLAC|Lossless|image + .cue] <Детская музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детская музыкаПродолжительность: 04:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB801DED8F5AC1F858339CA5E1DA26DCBA974C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640514   (211167) от 18.06.2023
 
 Чарльз Робертс | Каменный век (2023) [MP3, Павел Беседен]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211167.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ VA - 1 сентября [MP3|192 kbps] <Песенки для детей>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209554.jpg" />
 </div>
 
 
@@ -62,7 +141,7 @@ VA - 1 Сентября - Снова в школу (2012) [MP3|256 кб/с]<Де
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209549.jpg" />
 </div>
 
 
@@ -91,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209212.jpg" />
 </div>
 
 
@@ -117,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208940.jpg" />
 </div>
 
 
@@ -143,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208428.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208370.jpg" />
 </div>
 
 
@@ -197,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208321.jpg" />
 </div>
 
 
@@ -223,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205160.jpg" />
 </div>
 
 
@@ -249,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202992.jpg" />
 </div>
 
 
@@ -275,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202149.jpg" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202146.jpg" />
 </div>
 
 
@@ -330,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200550.jpg" />
 </div>
 
 
@@ -357,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200103.jpg" />
 </div>
 
 
@@ -385,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197769.jpg" />
 </div>
 
 
@@ -411,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197768.jpg" />
 </div>
 
 
@@ -437,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197079.jpg" />
 </div>
 
 
@@ -464,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_195153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_195153.jpg" />
 </div>
 
 
@@ -491,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194701.jpg" />
 </div>
 
 
@@ -519,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192722.jpg" />
 </div>
 
 
@@ -545,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192609.jpg" />
 </div>
 
 
@@ -572,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192109.jpg" />
 </div>
 
 
@@ -598,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191417.jpg" />
 </div>
 
 
@@ -611,86 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13BF62E4C2B6A25A2FD6D9FDAAD9E357DF2674A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588606   (191390) от 05.11.2022
-
-Диана Машкова, Игорь Дубинников, Денис Салтеев | Азбука счастливой семьи. 30 уроков осознанного родительства (2021) [MP3, Марина Никитина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть родителем непросто, и этому, к сожалению, не учат в школе. У взрослых нередко накоплен свой «багаж»: детские обиды, психологические травмы и другой негативный опыт, который мешает строить гармоничные отношения с супругом и детьми.
-Эта книга поможет всем, кто хочет создать счастливую семью. В ней собраны 30 уроков осознанного родительства и важные знания из области (   Читать дальше...   )Жанр: Детская психология, семейная психологияПродолжительность: 14:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961356AFA70AA15FCA5E95BABEBCD1BF54D349CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588598   (191383) от 05.11.2022
-
-Микеле д'Иньяцио | Безработный Дед Мороз. Волшебный круговорот. Книга 2 (2022) [MP3, Михаил Лукашов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавная история о летних приключениях Деда Мороза, неожиданных подарках и чудесах! Однажды Деду Морозу начинают приходить странные письма от девочки Неве, которая ничего не просит, но явно о чем-то беспокоится. Что все это значит? И как ей помочь?Жанр: СказкаПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCE379A71E21A65E0640AA7CF1982ABF1779203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588579   (191382) от 05.11.2022
-
-Геральд Хютер, Ули Хаузер | Непослушные дети добиваются успеха. Как перестать беспокоиться об оценках и разглядеть в ребенке талант (2021) [MP3, Юрий Красиков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нейробиология доказала – каждый ребенок одарен! Необходимо просто признать это.
-Профессор нейробиологии, автор множества успешных книг, в том числе инструкций по работе с человеческим мозгом, Джеральд Хютер и репортер, лауреат престижной премии в области журналистики Ули Хаузер объясняют, почему обучение через прямую передачу знаний в школе и ориентация на успеваемость (   Читать дальше...   )Жанр: Воспитание детей, детская психологияПродолжительность: 05:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8117B2AF1C91662FCDE77DB2B4922197119DE20B
 ```
 
 https://mybot314.ru/tekegram_catalog/

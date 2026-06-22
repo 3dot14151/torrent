@@ -6,7 +6,7 @@ Brad Wilson - Brad "Guitar" Wilson (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514672.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bonnie Raitt - Just Like That (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514577.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vaneese Thomas - Fight the Good Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514516.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Janiva Magness - Hard to Kill (2022) [FLAC|Lossless|tracks + .cue] <Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513617.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mick Martin & The Blues Rockers - Blues Rock U. S. A. (2002) [FLAC|Lossless]<Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508589.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Tony Testa - Back To The Basics (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508068.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ John Mayall - Jazz Blues Fusion (1972) Reissue, 2015, PolyGram Records Inc. [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507752.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ USA Gospelchor Feat. Joan Orleans - Higher And Higher (1997) [FLAC|Lossless|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506922.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sister Rosetta Tharpe - The Original Soul Sister (2002) 4CD BoxSet[FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506682.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Going for a Song: Soul (2005) BoxSet 4CD[FLAC|Lossless]<Soul, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506667.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Gary Moore - All The Best (2xCD) (2012) [FLAC|Lossless]<Rock, Hard Rock, Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506470.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ James Brown - The Ultimate Collection (2004) BoxSet 3CD [FLAC|Lossless]<Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506409.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Bruce j - Bogo (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B/Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505477.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Val McKnight - Ain't Nothing Like a Country Boy (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505475.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kokomo - Workhorse (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505473.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Vincent Bloyet - Step on Your Groove (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505391.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Sam Collie and The Roustabouts - One Eye Open (2022) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505388.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Anita Baker - Rhythm of Love & Sweet Love (1994 & 2002) [FLAC|Lossless]<Soul, R&
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504668.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Greatest Blues - Golden Greats (2002) BoxSet 3CD [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504600.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Electric Blues Bands (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504571.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - The Electric Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504567.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Bloody Mary Blues (Blues music selectuon) (2022) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504563.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - 100 Hits - Northern Soul (2009) Box Set 5xCD [FLAC|Lossless]<Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504493.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Tina Schlieske - Evil Gal Blues (2008) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503682.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Eliza Toth - Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501676.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|image + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500589.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 945666   (140144) от 30.12.2015
+
+Taimadou Gakuen 35 Shiken Shoutai / 35-й учебный взвод Антимагической Академии [2015, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этого «школьного боевого фэнтези» разворачивается в мире, где магия, в принципе, существует, но вот люди, обладающие соответствующими силами, практически вымерли. Собственно, развитие местной военной мысли шло по пути «Мечи – магия – огнестрельное оружие». Такеру Кусанаги учится в Антимагической Академии – специальном заведении, где тренируют Инквизиторов, (   Читать дальше...   )Жанр: боевик, фэнтези, школаРежиссер: Кавамура ТомоюкиПеревод: nnm-club^animeЯзык субтитров: Русский (отключаемый)Продолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4B4DE172D6D370F974DFF70F927B01AA10DB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505451   (139958) от 29.12.2021
 
 Kaginado | Кагинадо | Key и всякое [2021, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Kaginado | Кагинадо | Key и всякое [2021, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139958.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shokugeki no Souma: San no Sara | Food Wars! The Third Plate | Кулинарн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139685.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139225.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139163.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Argonavis from Bang Dream! Animation | Аргонавис из "Ура мечт�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139111.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138766.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Vinland Saga / Сага о Винланде [2019, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138583.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138165.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138117.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Noblesse | Дворянство [2020, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138107.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138067.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Magatsu Wahrheit: Zuerst | MWZ | Бедствие Вархайта [2020, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138066.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Kamisama ni Natta hi / The Day I Became a God / День, когда я стал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138029.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137986.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Santa Company | Компания Санты [2014, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137982.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Kabukichou Sherlock | Case File nº221: Kabukicho | Шерлок из Кабук
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137914.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Sword Art Online: Alicization | Мастера меча онлайн: Алиси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137834.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ TsukiPro The Animation / ЦукиПро Аниме [2017, TV, 13] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137828.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137800.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137797.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Radio City Fantasy: Machikado no Maerchen | Городская радио-ска
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137770.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137687.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137586.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Keishichou Tokumu Bu Tokushu Kyouakuhan Taisaku Shitsu Dai Nana Ka: Tokunana | S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137510.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Hoshiai no Sora | Stars Align | Небо, где встретились звёз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137475.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Hoshiai no Sora | Stars Align | Небо, где встретились звёз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD79153D693BCE43AD4D148DDBF897BB25463798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256499   (137418) от 31.12.2018
-
-Himote House | Himote House: A Share House of Super Psychic Girls | Дом Химотэ [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три сестры Химотэ: Токиё, Кинами и Кокоро живут в одном доме вместе со своими подругами и котом. И всё бы ничего, вот только все обитатели дома обладают таинственными силами.Производство: BouncyЖанр: комедияРежиссер: Исидатэ КотароПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DBFAF011A075809037A7366BC74B8629E5E8F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

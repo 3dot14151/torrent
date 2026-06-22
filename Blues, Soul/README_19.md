@@ -6,7 +6,7 @@ Davey And The Blu Dog - Wake up Call (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596616.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dane Phillip Smith - I'll Carry On (2015) [MP3|320 кб/с]<Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595202.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Betty Fox Band - Slow Burn (2015) [MP3|320 кб/с]<Funky Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595147.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sean Chambers - Ten Til Midnight (2009) [MP3|320 Kbps] <Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594698.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Milan Hendrik EXP - Applegate Drive (2016) [MP3|320 Kbps] <Blues, Roots>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594690.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gary Hoey - Dust & Bones (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594564.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Canned Heat - Friends In The Can (2003) [MP3|320 Kbps] <Blues Rock, Boogie>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593640.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ BB Lyngs Blues Band - Blues Pa Bla Resept (2015) [MP3|320 кб/с]<Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592379.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ally Venable Band - Train Wreck Blues (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592378.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Starlight Searchers - Don't Bring The Kids (2014) [MP3|320 кб/с]<Blues, Count
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590997.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ike & Tina Turner - Jazz & Blues collection (1995) [MP3|320 кб/с]<Rhythm & Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590454.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ James Brown - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590405.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ David Michael Miller - Same Soil (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589999.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tanny Mas Band - True Illusions (2015) [MP3|320 кб/с]<Jazz-Fusion, Contempora
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589997.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Apollo Cruz - … Your Blues, John (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589641.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Other Mules - Here With The Blues (2015) [MP3|320 кб/с]<Rockin' Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589604.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589585.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lightnin' Hopkins - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589131.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Louis Jordan - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jump Blues, Swin
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589130.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Magic Sam - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589126.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Roy Eldridge - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587026.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Memphis Slim - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586982.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Robert Johnson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586974.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mahalia Jackson - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586917.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Terry Et McGhee - Jazz & Blues collection (1995) [MP3|320 кб/с]<Country Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586039.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Elmore James - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586010.jpg" />
 </div>
 
 

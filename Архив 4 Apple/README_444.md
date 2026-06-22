@@ -1,3 +1,59 @@
+###  Публикация: 1421379   (319957) от 04.11.2020
+
+GrandTotal 6 v6.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319957.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3295588BC22D7CF3F04B1AF9420947B4DB68E0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421387   (319919) от 04.11.2020
+
+Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1885 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1CB460F2BE95985C321178545A7EB8AC361B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421324   (319917) от 04.11.2020
 
 Allavsoft Video Downloader Converter 3.23.0.7610 [En]
@@ -6,7 +62,7 @@ Allavsoft Video Downloader Converter 3.23.0.7610 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319917.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Amadeus Pro 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319914.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ SpamSieve 2.9.40 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319912.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ DMG Canvas 3.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319908.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ Nevercenter CameraBag Pro 2020.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319898.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ iTrash 5 v5.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319897.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ FontLab 7 v7.2.0.7608 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319895.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ Export for iTunes 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319894.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ SideNotes 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319891.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ Zoc Terminal 8.01.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319804.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ Exposure Software Eye Candy 7 v7.2.3.143 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319798.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ Total Video Converter Pro 4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319707.jpg" />
 </div>
 
 
@@ -322,7 +378,7 @@ iStat Menus 6 v6.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319693.jpg" />
 </div>
 
 
@@ -349,7 +405,7 @@ Boom 2 v1.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319630.jpg" />
 </div>
 
 
@@ -375,7 +431,7 @@ PhoneClean Pro 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319616.jpg" />
 </div>
 
 
@@ -402,7 +458,7 @@ SuperDuper! 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319333.jpg" />
 </div>
 
 
@@ -428,7 +484,7 @@ MediaHuman YouTube Downloader 3.9.8.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319330.jpg" />
 </div>
 
 
@@ -457,7 +513,7 @@ Paste 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319273.jpg" />
 </div>
 
 
@@ -485,7 +541,7 @@ iMazing 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319212.jpg" />
 </div>
 
 
@@ -512,7 +568,7 @@ Winclone Pro 6.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319206.jpg" />
 </div>
 
 
@@ -539,7 +595,7 @@ SmartAlbums 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319120.jpg" />
 </div>
 
 
@@ -568,7 +624,7 @@ Aurora HDR Pro 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318999.jpg" />
 </div>
 
 
@@ -594,7 +650,7 @@ TG Pro (Temperature Gauge Pro) 2.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318939.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ Cinemagraph Pro 1.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318861.jpg" />
 </div>
 
 
@@ -632,63 +688,6 @@ Cinemagraph Pro от студии Fixel – приложение, при пом�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:059E8FE30F8D8D8B09DC1506D5C2CCB206547014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075767   (318828) от 23.11.2016
-
-iSubtitle 3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318828.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSubtitle - субтитры в фильмах для iOS устройств
-iSubtitle - приложение позволяет создавать профессиональные субтитры в фильмах для мобильных устройств: iPad, iPhone (2G, 3G, 3GS, 4, 4S, 5C, 5S, 6, 6 plus), iPod (Touch, Classic, Nano), Apple TV или для любого QuickTime-плеера. iSubtitle является первым и единственным приложение, которое в полной мере использует технологию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 ноября 2016Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0071E22FDD7F5FA0909B75133F37CE5ACF830C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075713   (318819) от 23.11.2016
-
-Forecast Bar 2.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
-
-Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
-- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 ноября 2016Разработчик: Real Casual Games, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-* показания прогноза погоды можно сделать на русском (в настройках программы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A383E8B9F0F593339E5F9D5E8ECDEA1F6B713F26
 ```
 
 https://mybot314.ru/tekegram_catalog/

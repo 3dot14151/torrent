@@ -1,3 +1,164 @@
+###  Публикация: 1399782   (724983) от 02.08.2020
+
+Debian GNU/Linux 10.5.0 + nonfree Buster [amd64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано пятое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 101 обновление с устранением проблем со стабильностью и 62 обновление с устранением уязвимостей.
+
+Из изменений в Debian 10.5 выделяется устранение уязвимости в GRUB2, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3ED413D878CE3A3D6D50C587B84C1FDB1E2C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399784   (724858) от 02.08.2020
+
+Debian GNU/Linux 10.5.0 + nonfree Buster [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано пятое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 101 обновление с устранением проблем со стабильностью и 62 обновление с устранением уязвимостей.
+
+Из изменений в Debian 10.5 выделяется устранение уязвимости в GRUB2, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A522AA71F180A3DF34E801DBD7C99F7A9F2B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400029   (722734) от 03.08.2020
+
+Debian Edu - Skolelinux 10.5.0 Buster [Linux для школы] [i386, x86-64] 2xBD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8809286008D945F56DA3EA30D5C6B535E7226066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023892   (722032) от 06.06.2016
+
+Debian GNU/Linux 8.5.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722032.jpg" />
+</div>
+
+
+###  Подробнее
+
+На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25245CD7CEBBBAFEC143B54C8E1E177CDEC30D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218932   (717022) от 12.04.2018
+
+ArchBang 110418 beta[OpenRC] [x86-64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717022.jpg" />
+</div>
+
+
+###  Подробнее
+
+ArchBang Linux — легковесный дистрибутив Linux с плавающими релизами, основанный на Arch Linux с Openbox в качестве оконного менеджера. Благодаря этому он способен показывать высокую скорость работы даже на старом или малопроизводительном оборудовании с ограниченными ресурсами.
+Задача ArchBang — обеспечивать простую «из коробки» установку основанной на Arch Linux (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75295B566E4654EB2343A9E72582846F425F8968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893062   (715034) от 28.04.2015
+
+JonDo 0.9.78 [анонимный доступ в сети] [x86] DVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_715034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.78.  Устранены выявленные баги, обновлена пакетная база. Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. Firefox (Firefox+JonDoFox) предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4772C83E8745ED24AE79F1A5D14D90F89A034E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 892985   (714695) от 28.04.2015
 
 Mageia 5 RC [i586, x86-64] 7xDVD, 2xCD
@@ -6,7 +167,7 @@ Mageia 5 RC [i586, x86-64] 7xDVD, 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714695.jpg" />
 </div>
 
 
@@ -34,7 +195,7 @@ Debian GNU/Linux 8.5.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711957.jpg" />
 </div>
 
 
@@ -60,7 +221,7 @@ Debian GNU/Linux 8.5.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711874.jpg" />
 </div>
 
 
@@ -86,7 +247,7 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711798.jpg" />
 </div>
 
 
@@ -112,7 +273,7 @@ Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711314.jpg" />
 </div>
 
 
@@ -138,7 +299,7 @@ ZVVАнекдоты 0.2 [x86-x64] (deb)(обновляемая авторска�
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700441.jpg" />
 </div>
 
 
@@ -164,7 +325,7 @@ Debian GNU/Linux 8.8 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696876.jpg" />
 </div>
 
 
@@ -190,7 +351,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696789.jpg" />
 </div>
 
 
@@ -216,7 +377,7 @@ Kubuntu 13.10 Saucy Alpha I [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696748.jpg" />
 </div>
 
 
@@ -242,7 +403,7 @@ Lubuntu 13.10  Saucy Alpha I (легкий дистрибутив) [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696743.jpg" />
 </div>
 
 
@@ -270,7 +431,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [amd64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696601.jpg" />
 </div>
 
 
@@ -296,7 +457,7 @@ Ubuntu Gnome 13.10 Saucy Alpha I [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696516.jpg" />
 </div>
 
 
@@ -324,7 +485,7 @@ MKVToolNix v6.3.0 ('You can't stop me!') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694977.jpg" />
 </div>
 
 
@@ -350,7 +511,7 @@ Oracle Database 12c Release 1 (Standard Edition, Standard Edition One, and Enter
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694392.jpg" />
 </div>
 
 
@@ -377,7 +538,7 @@ JonDo 0.9.79 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_693934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_693934.jpg" />
 </div>
 
 
@@ -403,7 +564,7 @@ Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопаснос
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691900.jpg" />
 </div>
 
 
@@ -429,7 +590,7 @@ Fedora 19 Schrödinger's Cat Live [i686]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688809.jpg" />
 </div>
 
 
@@ -457,7 +618,7 @@ Fedora 19 Schrödinger's Cat Live [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688740.jpg" />
 </div>
 
 
@@ -485,7 +646,7 @@ Sabayon 16.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676115.jpg" />
 </div>
 
 
@@ -511,7 +672,7 @@ Debian Edu - Skolelinux 8.0 Jessie Beta I [i386, x86-64] DVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674834.jpg" />
 </div>
 
 
@@ -522,174 +683,6 @@ Debian Edu, также известный как Skolelinux, является д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D5DE865E499DF4C165AD7D287B975BC5FFB635C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030728   (671718) от 01.07.2016
-
-Phoenix OS 1.0.9 RC [x86] 1xCD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phoenix OS - проект по портированию ОС Android на персональные компьютеры с архитектурой Intel и x86, использует кодовую базу Android-x86. Позволяет запускать мобильную операционную систему от Google на ПК, будь то стационарная машина или ноутбук. Phoenix OS является отдельной веткой разработки известной системы Remix OS и проекта Android-x86, которые имеют общую (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD96F307A7DA564BCE905EB1A11DB05A72C5F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798376   (670892) от 21.06.2014
-
-Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat объявила о выпуске операционной системы Red Hat Enterprise Linux 7. Новая система закладывает основы для создания открытых гибридных облаков.
-
-Разработанная в полном соответствии с требованиями современных центров обработки данных, система Red Hat Enterprise Linux 7 усиливает весь спектр корпоративных ИТ-технологий – от контейнеров приложений до облачных служб.
-
-Как отмечают разработчики, Red Hat Enterprise Linux 7 представляет собой согласованную единую основу, которая позволит клиентам подстроиться под современные требования и в то же время использовать преимущества вычислительных инноваций, в том числе – контейнеров Linux для обмена данными больших объемов через физические системы, виртуальные машины и облачные службы, которые составляют единое открытое гибридное облако.
-
-Изменения в Red Hat Enterprise Linux 7: Релиз основан на Fedora 19;  zero-copy в сетевых операциях; Virtio-scsi - новый слой блочных устройств - папье-маше из блочных устройств; добавление AutoNuma/SchedNuma в планировщик для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DFA34DAFE3461D38566DB82C818B4869203397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224254   (666993) от 09.05.2018
-
-Openfiler 2.99.1 + 2.99.2 [x86_64] 2xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Openfiler — это операционная система, которая предоставляет возможность выделять файловые устройства NAS и блочные устройства SAN. Она была создана компанией Xinit Systems и базируется на rPath Linux. Это свободное программное обеспечение с лицензией на основе GNU General Public License v. 2. Программное обеспечение с открытым кодом от сторонних разработчиков.
-Кодовая (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9331A63FE74A3170ED9C0E5485DEC0E275CC6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138229   (664036) от 29.05.2017
-
-Rescatux 0.41b1 [i386, i486, x86-64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rescatux новый rescue GNU/Linux CD/USB основанный на Debian, с дружественным меню для управления задачами восстановления и решения ряда других проблем в операционных системах.
-
-Включает в себя следующие инструменты: Super Grub2 Disk; восстановление GRUB / GRUB2; проверяет и исправляет файловые системы; очищает пароли Windows; позволяет изменить пароли Gnu/Linux; (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A241083E73130BCC3FF250D2C824BFF6CFD8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138851   (661927) от 31.05.2017
-
-ROSA Desktop Fresh R9 GNOME Desktop Fresh R9 [i586, x86_64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661927.jpg" />
-</div>
-
-
-###  Подробнее
-
-ROSA FRESH R9  GNOME — первый релиз с окружением рабочего стола GNOME на платформе 2016.1. В этом выпуске мы постарались приблизить GNOME по эргономике к другим окружениям рабочего стола ROSA.
-GNOME - стильное и оригинальное окружение рабочего стола на GTK3. Оно настолько не похоже на все остальные, что мы не стали использовать для него фирменный стиль Росы, оригинальность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495F1F83FD3B7C1E247C3360DA9005FA36521578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226070   (655436) от 20.05.2018
-
-Rockstor 3.9.1 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux-дистрибутив Rockstor 3.9, предназначенный для развёртывания сетевых (NAS) и облачных хранилищ. Дистрибутив построен на пакетной базе CentOS и использует для локального хранения файловую систему Btrfs, а для внешнего доступа протоколы Samba/CIFS, NFS, SFTP и AFP.
-
-Особенностью Rockstor является поддержка запуска дополнительных приложений-обработчиков, упакованных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52701005C8AB5EBB4BCB7B269805B77824AAE87B
 ```
 
 https://mybot314.ru/tekegram_catalog/

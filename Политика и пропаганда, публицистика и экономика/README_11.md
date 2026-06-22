@@ -1,3 +1,107 @@
+###  Публикация: 1216863   (747721) от 01.04.2018
+
+Время - вперед! О России без грязи и лжи (2016) WEBRip [H.264/720p-LQ] (выпусков 41)
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами еженедельная программа позитивных новостей из жизни страны. Мы устали от деструктивной пропаганды, каждый день нам вдалбливают, что Россия деградирует, отстает, и у нас ничего не получится. Но мы знаем, что мы лучше, чем сами привыкли о себе думать. В наших выпусках только правда. В наших выпусках только позитив. В программу входят хорошие новости промышленности, (   Читать дальше...   )Телекомпания: Время - вперед!Жанр: Новости, Экономика, Наука, Медицина, Спорт, КультураПродолжительность: 02:34:47 (41 выпуск по ~4 мин)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797BB7FEC62BCEA2BE0B420457A361644D470FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216893   (746121) от 02.04.2018
+
+Время - вперед! О России без грязи и лжи (2015) WEBRip [H.264/720p-LQ] (выпусков 40)
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами еженедельная программа позитивных новостей из жизни страны. Мы устали от деструктивной пропаганды, каждый день нам вдалбливают, что Россия деградирует, отстает, и у нас ничего не получится. Но мы знаем, что мы лучше, чем сами привыкли о себе думать. В наших выпусках только правда. В наших выпусках только позитив. В программу входят хорошие новости промышленности, (   Читать дальше...   )Телекомпания: Время - вперед!Жанр: Новости, Экономика, Наука, Медицина, Спорт, КультураПродолжительность: 02:56:28 (40 выпусков по ~4 мин)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1750059460E9D3DEDF8A520404A1D68758C81A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216993   (746117) от 02.04.2018
+
+Время - вперед! О России без грязи и лжи (2014) WEBRip [H.264/720p-LQ] (выпусков 36)
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами еженедельная программа позитивных новостей из жизни страны. Мы устали от деструктивной пропаганды, каждый день нам вдалбливают, что Россия деградирует, отстает, и у нас ничего не получится. Но мы знаем, что мы лучше, чем сами привыкли о себе думать. В наших выпусках только правда. В наших выпусках только позитив. В программу входят хорошие новости промышленности, (   Читать дальше...   )Телекомпания: Время - вперед!Жанр: Новости, Экономика, Наука, Медицина, Спорт, КультураПродолжительность: 03:00:09 (36 выпусков по ~5 мин)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFB451B6809BD59BBCA921B8E181297DDF33446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020822   (743950) от 27.05.2016
+
+Анатолий Вассерман. Открытым текстом (27.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Александрович Вассерман — журналист, политический консультант, известен как многократный победитель интеллектуальных телеигр в программе «Новости24. Открытым текстом» за 10 минут даёт свой обзор главного в прошедшей неделе...Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7668ADD4C2CB68FAAA42880C4AB9835802C8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020607   (743871) от 27.05.2016
 
 Специальный корреспондент. Обмен (2016.05.25) SATRip
@@ -6,7 +110,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743871.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743448.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743355.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742438.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742271.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742151.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740947.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740888.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740119.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739565.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738374.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738135.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731614.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730031.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729988.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729873.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726686.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724643.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724553.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724251.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724221.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720554.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93547131512729F3EF57321170F49B649FE6424E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024447   (718252) от 08.06.2016
-
-Время покажет с Петром Толстым (08.06.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть: В студии программы «Время покажет» обсуждают военные учения НАТО на территории Польши. Идеология НАТО становится национальной идеей в Польше. Обучать ее основам начинают со школьной скамьи. Предмет, рассказывающий о роли Североатлантического альянса в судьбе Польши, появится в расписании учреждений в ближайшие месяцы. В военных маневрах на территории (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72DBD4DEF4B147520E8A1F94B8B5A7FCEE2364B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219050   (717524) от 12.04.2018
-
-Беседа с Евгением Федоровым (10.04.2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководитель Информационного штаба НОД Роман Зыков встретился с депутатом Государственной Думы России, координатором Национально-Освободительного Движения Евгением Федоровым. Темы беседы: статус взаимоотношений России и США сегодня; обвал на биржах, санкции США против олигархов; отношения Китая и США; Трамп готовит удар по Сирии; почему во времена холодной войны (   Читать дальше...   )Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаСубтитры: отсутствуютПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B9BD1B80545164A09AF9429D73E2E77778BF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024686   (716034) от 09.06.2016
-
-Время покажет с Петром Толстым (09.06.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть: В студии программы «Время покажет» обсуждают политику современной Украины, в частности деятельность Надежды Савченко. За две недели с момента появления в Киеве Надежда Савченко успела сказать и сделать столько, что другому политику хватило бы на несколько лет. Она даже заявила о своих президентских амбициях. Стремительный политический взлет бывшей наводчицы (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53C945DE587791EDF413DD74FB54A755FCBA4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219477   (713901) от 14.04.2018
-
-Вести в субботу с Сергеем Брилевым (14.04.2018) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713901.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом выпуске "Вестей в субботу" кроме самых актуальных и интересных новостей дня зрители смогут увидеть интервью Сергея Брилева с первыми лицами России и зарубежья.Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3C5A336891ED12685F6ABF4D6047C672D05689
 ```
 
 https://mybot314.ru/tekegram_catalog/

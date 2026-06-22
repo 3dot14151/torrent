@@ -1,3 +1,29 @@
+###  Публикация: 1579674   (232556) от 28.09.2022
+
+Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars | Рыцари Сидонии: Звезда, сотканная любовью [2021, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло 10 лет с событий второго сезона... Жители Сидонии смогли, наконец, отдохнуть от постоянных угроз пришельцев, именуемых Гаунами, а химере, знакомой нам, как Ширауи Цумуги, мирные дни помогли ей осознать свои чувства к Таниказе Нагате, выдающегося пилота и героя Сидонии. Однако, после стольких лет мирной жизни, Сидония вновь столкнулась с угрозой исчезновения. (   Читать дальше...   )Производство: студия Polygon Pictures / ポリゴン・ピクチュアズЖанр: приключения, фантастикаРежиссер: Сэсита ХироюкиПеревод: НеизвестноЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B2D58293B2841B8F89967C50F83A8C5048EBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636018   (232059) от 28.05.2023
 
 Senkaiden Houshin Engi | Soul Hunter | Охотник за душами [ТВ-1] [1999, TV, 26 эп.] DVDRip 480p raw
@@ -6,7 +32,7 @@ Senkaiden Houshin Engi | Soul Hunter | Охотник за душами [ТВ-1]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232059.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Bai Yao Pu 3 | Manual of Hundred Demons 3 | Руководство сотен д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231547.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Estab-Life: Great Escape | Утверждение в жизни [2022, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231502.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230988.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230913.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230850.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230804.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единств�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230782.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Для ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230755.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Mahou Tsukai no Yome: Nishi no Shounen to Seiran no Kishi | Невеста ча�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230724.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Koukyoushihen: Eureka Seven - Hi-Evolution | Эврика Семь: Высока
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230620.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ Yatogame-chan Kansatsu Nikki Yonsatsume | Заметки Ятогамэ [ТВ-4]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230303.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ One Piece Movie 3 - Chinjou Shima no Chopper Oukoku / One Piece: Chopper Kingdom
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229590.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ One Piece: Episode of Arabasta - Sabaku no Oujo to Kaizoku-tachi / One Piece: Th
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229586.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ One Piece Movie 4 - Dead end no Bouken / One Piece: Dead End / Ван-Пис: Ф
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229567.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ One Piece Movie 2 - Nejimaki Tou no Daibouken / Ван-Пис: Фильм вто
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229547.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ Fuyu ni Saku, Kiseki no Sakura / One Piece Movie 9 - Episode of Chopper Plus / �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229542.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ One Piece Movie 5 - Norowareta Seiken / One Piece - The Curse of the Sacred Swor
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229535.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ One Piece Movie 6 - Omatsuri Danshaku to Himitsu no Shima / One Piece: Baron Oma
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229529.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ Love Live! Superstar!! 2 / Живая любовь! Суперзвёзды!! 2 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229525.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ One Piece Movie 1 / Ван-Пис: Фильм первый [2000] raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229485.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ xxxHOLIC Kei | Триплексоголик (второй сезон) [2008 , TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228913.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ Healer Girl | Девушка-целитель [2022, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228893.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou / Touhou: A Summer Day's Dream / 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228430.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ One Piece TV Special 3:Mamore! Saigo no Daibutai / One Piece: Protect! The Last 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228099.jpg" />
 </div>
 
 
@@ -666,33 +692,6 @@ One Piece TV Special 3:Mamore! Saigo no Daibutai / One Piece: Protect! The Last 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C60A02A6FF142F36BC9FF82E2918A9CF8EC2878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 135560   (228067) от 29.11.2019
-
-One Piece TV Special: Umi no Heso Daiboken hen / One Piece Special: Adventure in the Ocean's Navel / Ван-Пис - спецвыпуск #1 [2000] DVDrip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228067.jpg" />
-</div>
-
-
-###  Подробнее
-
-ТВ-спэшл транслировался между 52-м и 53-м эпизодами основного ТВ-сериала.
-Смотреть желательно после 53го эпизода ТВ сериалаЖанр: приключения, комедия, фэнтези, сёнэнРежиссер: Маюми ТанакаПродолжительность: 50 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAAC04BCC6B2F673157C6AFF2D1F6FEB0018DA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

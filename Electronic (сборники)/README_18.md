@@ -1,3 +1,102 @@
+###  Публикация: 613439   (981679) от 05.02.2013
+
+VA - Euphoric Emotions Vol.42 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981679.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex M.O.R.P.H. ft. Sylvia Tosun - An Angel's Love (Vocal Mix)
+002. Gaia - Tuvan (Original Mix)
+003. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
+004. Alex Kunnari feat. Emma Lock - You & Me
+005. Armin van Buuren - Birth Of An Angel (Original Mix)
+006. FKN feat. Jahala - Why (D-Mad Remix)
+007. Arksun - Arisen (Original Mix)
+008. Grace - Not Over Yet (Max Graham feat. Protoculture Remix)
+009. Global Illumination - Tremble (Original Mix)
+010. Fabio XB & Ronnie Play feat. Gabriel Cage - Inside of You (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 02:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12DF297E1BB2713DBB6A06ADB60A22B2C1CB4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614245   (981603) от 05.02.2013
+
+VA - Private Room- the Winter Lounge Session (2013) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Watching - Michael E
+02. Free Ride - Peter Pearson
+03. The Observer - Northbound
+04. Pacifica - Euphonic Traveller
+05. The Big Greec - Leon Ard
+06. Betrayed (The Day After) - Simon Le Grec
+07. Black & White - Man In A Room
+08. Temple Air - Lemongrass
+09. Naked Soul - Syusi & Lilli
+10. Serve Chilled - Peter PearsonЖанр: Chillout, LoungeПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24734D633F8CBB3E0007CC4B1ECF9F42E22CC6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356153   (980555) от 29.01.2020
+
+VA - Beatport Progressive House Pack 03 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giusvab - Happyness (Original Mix)
+002. Deepness & Enzo Paradiso - Paysandu (Original Mix)
+003. Cyberx - Cut Off (Original Mix)
+004. Eqra - Library (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494DCA7D28855AB8619EBD9BF7192781A9300AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356268   (980543) от 29.01.2020
 
 VA - Heaven With You: Chill House Mixtape (2020) [MP3|320 Kbps] <Chill, Deep House>
@@ -6,7 +105,7 @@ VA - Heaven With You: Chill House Mixtape (2020) [MP3|320 Kbps] <Chill, Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980543.jpg" />
 </div>
 
 
@@ -35,7 +134,7 @@ VA - Blissful Journey: Vocal Chillout (2019) [MP3|320 Kbps] <Chillout, Ambient, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980541.jpg" />
 </div>
 
 
@@ -64,7 +163,7 @@ VA - Beauty Interior Lounge Music (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980529.jpg" />
 </div>
 
 
@@ -93,7 +192,7 @@ VA - Ladies Night Festival (2016) [MP3|320 кб/с] <House, Progressive, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980330.jpg" />
 </div>
 
 
@@ -122,7 +221,7 @@ VA - The Biggest Trance Classics Of All Time (2016) [MP3|320 кб/с] <Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980320.jpg" />
 </div>
 
 
@@ -151,7 +250,7 @@ VA - Dance Empire 3 (2016) [MP3|320 кб/с] <Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980287.jpg" />
 </div>
 
 
@@ -180,7 +279,7 @@ VA - Extra Lounge (New year edition) (2016) [MP3|320 кб/с] <Lounge, Chill Out
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980246.jpg" />
 </div>
 
 
@@ -209,7 +308,7 @@ VA - Club Hits (2016) [MP3|320 кб/с] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979215.jpg" />
 </div>
 
 
@@ -238,7 +337,7 @@ VA - Best Of Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979208.jpg" />
 </div>
 
 
@@ -267,7 +366,7 @@ VA - Keep Growing: Deep Techno Electronic (2020) [MP3|320 Kbps] <Techno, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979190.jpg" />
 </div>
 
 
@@ -296,7 +395,7 @@ VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979162.jpg" />
 </div>
 
 
@@ -325,7 +424,7 @@ VA - Drum and Bass Pro V.6 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978873.jpg" />
 </div>
 
 
@@ -360,7 +459,7 @@ VA - Deep Sound Icons (2016) [MP3|320 кб/с] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978178.jpg" />
 </div>
 
 
@@ -389,7 +488,7 @@ dj Sasha Tyson - 90-X REBOOT 2 rus (ПЕРЕЗАГРУЗКА) (2016) [MP3|320 к
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978126.jpg" />
 </div>
 
 
@@ -418,7 +517,7 @@ VA - Dubstep 100 Top Hits Bass Massive DJ Mix (2016) [MP3|320 кб/с] <Dirty Du
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978115.jpg" />
 </div>
 
 
@@ -445,7 +544,7 @@ VA - Hits of My Soul Vol. 53 (2020) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977651.jpg" />
 </div>
 
 
@@ -477,7 +576,7 @@ VA - Sunrise Avenue, Vol. 7 (20 Lounge & Chill-Out Pearls) (2016) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976969.jpg" />
 </div>
 
 
@@ -506,7 +605,7 @@ VA - Coming Home - Pop Lounge Music Deluxe (2015) [MP3|320 кб/с] <Lounge, Eas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976946.jpg" />
 </div>
 
 
@@ -535,7 +634,7 @@ VA - 20 Trance Hits (2005-2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976899.jpg" />
 </div>
 
 
@@ -570,7 +669,7 @@ VA - Consolidated DnB Party (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976774.jpg" />
 </div>
 
 
@@ -599,7 +698,7 @@ VA - Лучшие Trance треки Ver.13 (2020) [MP3|320 Kbps] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976759.jpg" />
 </div>
 
 
@@ -628,7 +727,7 @@ VA - Drum and Bass Pro V.7 from AGR (2013) [MP3|320 кб/с]<Drum&Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976736.jpg" />
 </div>
 
 
@@ -663,7 +762,7 @@ VA - Dubstep Planet 4 - Official Promo Mix (by Profit) (2013) [MP3|320 kbps]<Dub
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976410.jpg" />
 </div>
 
 
@@ -683,102 +782,6 @@ VA - Dubstep Planet 4 - Official Promo Mix (by Profit) (2013) [MP3|320 kbps]<Dub
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D825D1EB86B9E3BCCB4CCD9A7FAFB3AF5CAE5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614867   (976394) от 09.02.2013
-
-VA - Record Super Chart № 276 (2013) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Deorro - For President  (4:54)
-02. Movetown & Ray Horton - Here Comes The Sun  (3:32)
-03. Sunstroke Project - Walking In The Rain  (4:37)
-04. Will.I.Am & Britney Spears - Scream & Shout  (4:45)
-05. Tonic & Knife Party - Bitch Please Internet Friends (BL3ND Mashup)  (4:35)
-06. Alex Clare - Too Close (Slider & Magnit Remix)  (5:34)
-07. Dani B. & Jonathan Carey & Ari - Fire To The Floor  (4:28)
-08. Krewella - Come & Get It  (3:26)
-09. Fly Project - Back In My Life  (5:15)
-10. Fady & Mina - Kepler 22 (Andrew Rayel Aether Remix Edit)  (3:09)Жанр: TranceПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FA7E422CBC8B74E2A647FB39A14C6BC8BE2D95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356771   (976240) от 01.02.2020
-
-VA - Hits of My Soul Vol. 54 (2020) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Damian Wasse - The Nature Of Love (Original Mix) (03:42)
-02. Damian Wasse - Colours Of The World (Intro Mix) (07:38)
-03. Damian Wasse - Jeanne (Original Mix) (07:43)
-04. Damian Wasse - Rise Of Nation (Brad Ashtar Remix) (08:44)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71B461D6F1DEEF17D3CBF3C0AB7D9E5D5327002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356940   (976180) от 01.02.2020
-
-VA - Top50: Tracks Deep House Ver.17 (2020) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A. Rassevich & Susie Johnson - The Dice (Mike Drozdov & VetLove Remix) 5:52
-02. Faruk Sabanci feat. Mingue - Your Call (Alex Keen & Art Golubitskiy Remix) 3:20
-03. Nikko Culture - Something's Gone (Original Mix) 6:36
-04. Pascal Junior & Minelli - Done (Extended) 4:38(   Читать дальше...   )Жанр: House, Deep House, Club House, ProgressiveПродолжительность: 04:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51BFA3FAD07632AEB35539031ABC02C13DD54445
 ```
 
 https://mybot314.ru/tekegram_catalog/

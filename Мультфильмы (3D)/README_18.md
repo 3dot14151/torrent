@@ -1,3 +1,110 @@
+###  Публикация: 1336578   (206550) от 04.10.2022
+
+Король Лев / The Lion King (2019) BDRemux [H.264/1080p] [3D/2D] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206550.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об отважном львенке по имени Симба. Знакомые с детства герои взрослеют, влюбляются, познают себя и окружающий мир, совершают ошибки и делают правильный выбор.Производство: США / Fairview Entertainment, Walt Disney PicturesЖанр: Мультфильм, Мюзикл, Драма, Приключения, СемейныйРежиссер: Джон ФавроАктеры: Джеймс Эрл Джонс, Дональд Гловер, Чиветел Эджиофор, Джон Оливер, Джон Кани, Элфри Вудард, Джейдон Маккрэри, Шахади Райт Джозеф, Пенни Джонсон, Кигэн-Майкл КиПеревод: ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE7AC695A4480951F7642AF496CAC8C34D03EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614982   (206542) от 24.02.2023
+
+Душа / Soul (2020) WEB-DL 3D [H.264/1080p] [Локализованный видеоряд] [Горизонтальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Пит Доктер, Кемп ПауэрсПеревод: дублированныйЯзык озвучки: русский, казахский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432E87E91DE02DE529D8D545A7F0B262503E0B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615322   (206486) от 25.02.2023
+
+Тачки / Cars (2006) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неукротимый в своем желании всегда и во всем побеждать гоночный автомобиль «Молния» Маккуин вдруг обнаруживает, что сбился с пути и застрял в маленьком захолустном городке Радиатор-Спрингс, что находится где-то на трассе 66 в Калифорнии.
+Участвуя в гонках на Кубок Поршня, где ему противостояли два очень опытных соперника, Маккуин совершенно не ожидал, что отныне (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, комедия, семейный, спортРежиссер: Джон Лассетер, Джо РэнфтПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русские (хардсаб)Продолжительность: 01:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C670747DA29CBB83CBE7BDA5FBBCE33574C8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615543   (206349) от 26.02.2023
+
+Тачки 3 / Cars 3 (2017) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте самого знаменитого гонщика всех времен, легенду гоночного трека Молнию Маккуина!
+
+Герой все еще продолжает показывать лучшие результаты на всех турнирах, однако победы даются ему не так легко, а конкуренция становится все жестче. Молнию Маккуина ждут захватывающие приключения, где он встретит новых друзей, а также поймет, что не только скорость и мощность (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, комедия, приключения, семейный, спортРежиссер: Брайан ФиПеревод: дублированныйЯзык озвучки: русский, казахский, английскийСубтитры: отсутствуютПродолжительность: 01:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4D31355B2A3C0AF2BE24F702E66185FD44A836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585998   (204858) от 24.10.2022
 
 Человек-паук: Через вселенные / Spider-Man: Into the Spider-Verse (2018) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -6,7 +113,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204858.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201538.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198836.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198818.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198754.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197639.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191343.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188759.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187548.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176400.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172042.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170305.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163115.jpg" />
 </div>
 
 
@@ -345,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_159986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_159986.jpg" />
 </div>
 
 
@@ -372,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155632.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149116.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148131.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147961.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145157.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144516.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144439.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144316.jpg" />
 </div>
 
 
@@ -566,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84D7D0B843F5B6BB164CAFDFC228E8BB27ECFA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589719   (144179) от 16.12.2012
-
-Феи: Тайна зимнего леса / Secret of the Wings (2012) [1080p] BDRip [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динь-Динь и ее подруги всегда боялись пересекать границу с Зимним лесом, ведь существует поверье, что там очень опасно. В один прекрасный день Динь-Динь, сгорая от любопытства, подходит вплотную к лесу, и ее крылья неожиданно начинают блестеть и переливаться. Завороженная Динь, желая узнать тайну волшебных крыльев, кутается в теплое пальто и отправляется в глубь (   Читать дальше...   )Производство: DisneyToon Studios / Walt Disney PicturesЖанр: Мультфильм, фэнтези, семейныйРежиссер: Роберт Ганнавей, Пегги ХолмсАктеры: Тимоти Далтон, Люси Хейл, Меган Хилти, Анжелика Хьюстон, Мэтт Лантер, Джесси МакКартни, Мэй Уитман, Люси Лью, Рэйвен, Дебби РайанПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (форсированные, полные), английский (полные, SDH)Продолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9633C5A8B515C88AAA00AAB96B7176CB9DB8E6CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272382   (144100) от 27.12.2018
-
-Смолфут / Smallfoot (2018) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США / Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигАктеры: Ченнинг Татум, Джеймс Корден, Зендая Колеман, Коммон, Леброн Джеймс, Дэнни ДеВито, Джина Родригез, Яра Шахиди, Эли Генри, Джимми ТатроПеревод: Дублированный (iTunes)Субтитры: Русские (full, forced), английские (full)Продолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5CC6EAD8942EFB2D1C900E78DC115C4E75BB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272459   (144002) от 27.12.2018
-
-Смолфут / Smallfoot (2018) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара] [handmade 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США / Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигАктеры: Ченнинг Татум, Джеймс Корден, Зендая Колеман, Коммон, Леброн Джеймс, Дэнни ДеВито, Джина Родригез, Яра Шахиди, Эли Генри, Джимми ТатроПеревод: Дублированный (iTunes)Субтитры: Русские (full, forced), английские (full)Продолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F309C2D81861D4C2E35E7C2D272BB5BAD1F059E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590344   (143932) от 16.12.2012
-
-Феи: Тайна зимнего леса / Secret of the Wings (2012) [1080p] Blu-ray 3D [3D/2D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динь-Динь и ее подруги всегда боялись пересекать границу с Зимним лесом, ведь существует поверье, что там очень опасно. В один прекрасный день Динь-Динь, сгорая от любопытства, подходит вплотную к лесу, и ее крылья неожиданно начинают блестеть и переливаться. Завороженная Динь, желая узнать тайну волшебных крыльев, кутается в теплое пальто и отправляется в глубь (   Читать дальше...   )Производство: DisneyToon Studios / Walt Disney PicturesЖанр: Мультфильм, фэнтези, семейныйРежиссер: Роберт Ганнавей, Пегги ХолмсАктеры: Тимоти Далтон, Люси Хейл, Меган Хилти, Анжелика Хьюстон, Мэтт Лантер, Джесси МакКартни, Мэй Уитман, Люси Лью, Рэйвен, Дебби РайанПеревод: ДублированныйСубтитры: (PGS, 3D): English, РусскийПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31A41D12D477091EBE464E2CE5DFE53E36916A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

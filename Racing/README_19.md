@@ -1,3 +1,107 @@
+###  Публикация: 1793383   (20408) от 24.04.2025
+
+Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (1.54.1.0s/dlc) Repack seleZen
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа Euro Truck Simulator 2 - постоянные контракты, которые будут у вас из под носа воровать более опытные игроки, управляемые искусственным интеллектом. Длинные маршруты до столицы Германии, Нидерландов, Англии, Франции и Бельгии - ваша основная дорога во время поездки с опасным или просто дорогим грузом. Основная задача водителя - доставить вовремя, доставить (   Читать дальше...   )Тип издания: RepackРазработчик: SCS SoftwareЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF50E4EE5DCEDC59E0472BB4C164008FDA57A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730036   (20241) от 26.04.2025
+
+Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Scene Rune [Premium Edition]
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forza Horizon 5 – продолжение популярной гоночной серии Forza Horizon, в котором вам ждет еще более разнообразный и обширный открытый мир. За рулем величайших автомобилей вы промчитесь по невероятно красивому миру Мексики. Вас ожидает масштабная кампания с сотнями испытаний на любой вкус. Вы посетите пустыни, затерянные руины, густые джунгли, покрытый снегом вулкан (   Читать дальше...   )Тип издания: SceneРазработчик: Playground GamesЖанр: Racing, Arcade, Simulator, Open World, 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EFDA3005522EB067C26B610CD2122AC20EEE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786135   (19011) от 08.05.2025
+
+Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Repack Wanterlude [Premium Edition]
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forza Horizon 5 – продолжение популярной гоночной серии Forza Horizon, в котором вам ждет еще более разнообразный и обширный открытый мир. За рулем величайших автомобилей вы промчитесь по невероятно красивому миру Мексики. Вас ожидает масштабная кампания с сотнями испытаний на любой вкус. Вы посетите пустыни, затерянные руины, густые джунгли, покрытый снегом вулкан (   Читать дальше...   )Тип издания: RepackРазработчик: Playground GamesЖанр: Racing, Arcade, Simulator, Open World, 3DЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0E0572874E8BC0731075D4E4097D28994C748A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769141   (18883) от 09.05.2025
+
+Super Woden GP II (2) (2023) [Ru/Multi] (1.31b) License GOG
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Woden GP 2 - это любовное письмо в мир автоспорта, предлагающее уникальный опыт. Изометрические гонки в аркадном стиле сочетаются с непревзойденной глубиной кампании и огромным разнообразием транспортных средств, которые можно покупать, продавать и разблокировать. Чемпионаты, ралли, соревнования выходного дня, аркадный режим, гонки на выносливость... В Super (   Читать дальше...   )Тип издания: LicenseРазработчик: ViJuDaЖанр: Инди, Гонки, СпортЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4660D1B5C02763160D1EEB18C3A02BD9FD64D472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796864   (18457) от 13.05.2025
 
 Dakar Desert Rally (2022) [Ru/Multi] (2.3.0/dlc) Repack Let'sРlay [Digital Deluxe]
@@ -6,7 +110,7 @@ Dakar Desert Rally (2022) [Ru/Multi] (2.3.0/dlc) Repack Let'sРlay [Digital Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18457.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17639.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.684.745/dlc) Repack seleZen [Premium Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15916.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.00/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14911.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Heading Out (2024) [Ru/Multi] (1.040) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14488.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BallisticNG (2018) [En] (1.4.0.1b/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14468.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11831.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1s/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11826.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Rally Mechanic Simulator (2025) [Ru/Multi] (1.0.236/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11653.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Chasers Dash & Bash (2020) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9444.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack FitGirl [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8875.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8858.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Le Mans Ultimate (2024) [Multi] (1.0) Scene Rune [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8845.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.40.1) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6377.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5881.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Automobilista 2 (2020) [Multi] (1.6.7.0.2953.AVX/dlc) Repack Let'sРlay [IMSA Bu
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5055.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Update 12/dlc) Repack Let'sРla
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3994.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Chaos on Wheels (2023) [Ru/Multi] (1.0/dlc) Repack Yaroslav98 [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3976.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.1/dlc) Repack Let'sРlay [Complete]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3793.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.9/dlc) Repack Let'sРlay [Ultimate Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3687.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ CarX Street (2024) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3683.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2434.jpg" />
 </div>
 
 
@@ -563,58 +667,6 @@ American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3442D2FA5CD405119457D482DB9AC7006E7BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735791   (2416) от 17.09.2025
-
-American Truck Simulator (2016) [Ru/Multi] (1.56.1.0s/dlc) Repack dixen18
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2416.jpg" />
-</div>
-
-
-###  Подробнее
-
-В American Truck Simulator нет типичного «возьми-доставь-вернись». Это стратегический и экономический симулятор в одном лице: мы будем прокачивать наши грузовики, покупать новые, решать за какие контракты браться, а что оставлять в стороне. Важной составляющей в процессе составляет именно сама езда, потому что выполнена она от первого лица, из кабины водителя. Соблюдение (   Читать дальше...   )Тип издания: RepackРазработчик: SCS SoftwareЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABA0B86C5EEA37384E7F30513BF389468327746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819211   (1673) от 21.09.2025
-
-TRAIL OUT (2022) [Ru/Multi] (5.0/dlc) Repack FitGirl [Complete]
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на фестиваль ТРЕЙЛ АУТ! Бесшабашные гонки по всему миру! Аварии, взрывы, разрушения и бесконечные крики водителей! Вас ожидают безбашенные гонки в разных уголках планеты, ваша главная цель дожить до финиша и взять главный кубок фестиваля! Аварии машин, крики вылетающих водителей, хайп от фанатов и невиданное разрушение всей трассы - всё это ожидает (   Читать дальше...   )Тип издания: RepackРазработчик: GOOD BOYSЖанр: Экшены, Казуальные игры, Инди, ГонкиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E436B3A4C6024A7058A22E7B5669261290CB2977
 ```
 
 https://mybot314.ru/tekegram_catalog/

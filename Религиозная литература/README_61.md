@@ -1,3 +1,55 @@
+###  Публикация: 1234417   (569314) от 06.07.2018
+
+П. Троицкий | Афонские встречи. Святая Гора глазами современного русского паломника (2015) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги — наш современник — Павел Троицкий (диакон Пётр Пахомов). Он более десяти раз был на Афоне, много путешествовал, посещая монастыри и скиты, беседуя с монахами. Эта книга с большим количеством фотографий — описание его впечатлений, увлекательные рассказы о наиболее ярких страницах истории Афона, о тайнах и легендах Святой Горы, о великих старцах прошлого (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA6912AE0819A1944AA7C9294222F447B1EEA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303671   (569036) от 23.05.2019
+
+А.В. Храмов | Обезьяна и Адам. Может ли христианин быть эволюционистом? (2019) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библейский рассказ о сотворении мира на первый взгляд противоречит научным представлениям об истории Земли и жизни на ней. Попытки «подружить» Библию и теорию эволюции предпринимались не раз, однако нельзя сказать, что они были успешны. Возможно ли совместить веру и науку без ущерба для той и другой? Палеонтолог Александр Храмов предлагает неожиданный подход к разрешению (   Читать дальше...   )Жанр: Наука и религия,Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76C71E667750661BAF30413B602A84087AE7F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151839   (568685) от 21.07.2017
 
 Паисий Величковский (пер.) | Славянское Добротолюбие [Неизданный 3-ий том с параллельным русским переводом] (2017) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568685.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568357.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568352.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567450.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567360.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566005.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565715.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565701.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565683.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565676.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565669.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565555.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565550.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564190.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564097.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563160.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562266.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562149.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562091.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562089.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560520.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560518.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560093.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560090.jpg" />
 </div>
 
 
@@ -628,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF6B788CFED65EECB37AFDCE2ABC2020F77F70F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556140   (559858) от 09.06.2022
-
-Е. Игонина (сост.) | Христианин и одиночество (2013) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель составителей сборника — побудить читателя задуматься о духовном смысле чувства одиночества и помочь преодолеть одиночество сердца тем, кто ищет в этом христианских советов и наставлений. В книге собраны фрагменты рассуждений различных христианских писателей — святителя Николая Сербского, митрополита Антония (Блума), архимандрита Рафаила (Карелина) и других.Жанр: РелигияИздательство: Слово и делоФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089DF096F70B399A48D89013C171CA087A2C8B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045275   (559822) от 23.08.2016
-
-В. Ф. Зыбковец | Дорелигиозная эпоха (1959) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главным вопросом, который более двухсот лет обсуждается в зарубежной литературе о происхождении религии, является вопрос о том, каковы были первичные религиозные верования. На этот счет выдвинуто несколько гипотез: монотеистическая, прамонотеистическая, аниматическая, преанимистическая, анимистическая, натуралистическая, этическая и многие другие.
-
-Трудно сказать, (   Читать дальше...   )Жанр: Религиоведение, История религийФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6627D6765571144223FA3FF7DE969A3816F52716
 ```
 
 https://mybot314.ru/tekegram_catalog/

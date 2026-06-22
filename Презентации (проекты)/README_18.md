@@ -1,3 +1,161 @@
+###  Публикация: 1386823   (793286) от 30.05.2020
+
+Проекты - VideoHive - Logistic Company Box Opener - 21975877 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для рекламы транспортной компании, удобства и условия грузоперевозок, для презентации транспортно-логистической инфраструктуры и т.п.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AC4551355F25AC96677B8804DF62047BF91B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386628   (793280) от 30.05.2020
+
+Проекты - VideoHive - Travel Map USA - United States of America - 25922874 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект предназначен для построения маршрута путешествия по США... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0273E059D86ED91A52EAD0EE252652BB5769148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387364   (791755) от 01.06.2020
+
+Проекты - VideoHive - Motor Sport - Triler - 24834380 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный, динамичный, наполненный энергией и драйвом проект для анонсирования предстоящих событий в мире моторов и скоростей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B93871F71F3BC0ED9C54B02A9220C0CAA712E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387366   (791753) от 01.06.2020
+
+Проекты - VideoHive - Auto Moto Salon - 24924253 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон "Auto Moto Salon" разработан и оформлен так, что бы выделить и подчеркнуть различные детали и отличительные особенности авто-мото техники. Для презентации автомобилей и мотоциклов, этот проект - незаменимый вариант.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA92597D8E7C8B5D7304C2CF19C92F4A3A0CD6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387611   (791135) от 02.06.2020
+
+Проекты - VideoHive - Broadcast Flag Lights - 25288301 [AEP, MOGRT]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791135.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Broadcast Flag Lights» - стильный элегантный пакет для создания телевизионного подкаста на фоне развивающего флага.
+Многие оценят его по достоинству.Формат: AEP, MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0BB0BBB22C76AF85A72AFDB4F5295621909E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203489   (787923) от 02.02.2018
+
+Проекты - VideoHive - Rhythmic Website Presentation - 19561718 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rhythmic Website Presentation - это проект, подходящий для различных презентаций и рекламных роликов. Этот шаблон может успешно разрекламировать веб-сайт или продукт вашей компании.
+По сути, это простой, но красивый и динамичный макет. Используйте его, чтобы показать свои веб-проекты и фотографии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB6151BCA32E2176FD8EED91137C980EBCAF7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388361   (786809) от 05.06.2020
 
 Проекты - VideoHive - Violin and Guitar - Musical Opener - 26993985 [AEP]
@@ -6,7 +164,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786809.jpg" />
 </div>
 
 
@@ -34,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786644.jpg" />
 </div>
 
 
@@ -60,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785881.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785702.jpg" />
 </div>
 
 
@@ -113,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784150.jpg" />
 </div>
 
 
@@ -141,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783849.jpg" />
 </div>
 
 
@@ -167,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783841.jpg" />
 </div>
 
 
@@ -193,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783586.jpg" />
 </div>
 
 
@@ -219,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783001.jpg" />
 </div>
 
 
@@ -245,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780952.jpg" />
 </div>
 
 
@@ -271,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778280.jpg" />
 </div>
 
 
@@ -297,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778226.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778216.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777927.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777537.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777535.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777489.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777131.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777104.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777052.jpg" />
 </div>
 
 
@@ -517,162 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:712DDC92AEF9AD690288C80CACF5C50BD75C5985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014094   (776677) от 06.05.2016
-
-Проекты - VideoHive - Colourful Party/Event - Disco Night Club Promo - 8178215 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colourful Party/Event - Disco Night Club Promo - проект для музыкальных клубов и вечеринок, а также подойдет для рекламы.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D025204071EA14DEFC2DA75444C23DE185A536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013973   (776653) от 06.05.2016
-
-Проекты - VideoHive - Glitch Intro - 15530184 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitch Intro - кинематографическое слайд-шоу, идеально подойдет под ваши заставки, ТВ-шоу, фото-видео слайд-шоу, специальные мероприятия или любой медиа-контент. Вы можете использовать изображения вместо видео. Очень простой и хорошо организованный проект. Вы можете легко изменить цвета всего за один простой шаг. Измените текст, забросьте медиа, аудио и нажмите для (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800EA88178E74C6B66CBA3F735E7FC63BCE05371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014050   (776645) от 06.05.2016
-
-Проекты - VideoHive - Business of the Future – Modern Corporate Presentation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Business of the Future – Modern Corporate Presentation - "Бизнес будущего - Современная Корпоративная презентация" - это хороший шаблон для презентации компании. Среди основных преимуществ: модный дизайн, модульная структура, позволяющая дублировать, переставить или удалить сцены, и что еще более важно - дружественный интерфейс для конфигурации проекта. (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D55FE4C0D5367761DB5117BCA43E289CC6E71EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014620   (776062) от 08.05.2016
-
-Проекты - VideoHive - Particle Formation [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8754F58A5E5E14A82456B75B050996B8A91306A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014608   (775996) от 08.05.2016
-
-Проекты - VideoHive - Animated Company Promotion [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775996.jpg" />
-</div>
-
-
-###  Подробнее
-
-С этим красочным, ярким и высококонтрастным проектом, вы можете рассказать свою промо историю о своей компании.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931504AEF0B41EBAB564CB73F4170F0B9168202A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015071   (775717) от 09.05.2016
-
-Проекты - RocketStock - Sorbee [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный, минимальный и модульный проект, идеально подходит для внедрения функции поиска для вашего веб-сайта или выводить ваше последнее созданное видео! Шаблон включает в себя 3 отдельных анимации.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC0BED7A01080C86231735F19CFAD6B5D029887
 ```
 
 https://mybot314.ru/tekegram_catalog/

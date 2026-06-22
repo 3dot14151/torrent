@@ -1,3 +1,430 @@
+###  Публикация: 1518970   (151627) от 22.12.2021
+
+VA - Calm Down: Urban Chillout Music (2021) [AAC|~340 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael e - Infinite Beauty (Original Mix) (4:54)
+02. Frank Neo - Waves (Original Mix) (5:55)
+03. Martin Hiska, Michael Moses - Sandy (4:48)
+04. Chris le Blanc - The Beauty and the Beach (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09592F20AE44D523FC3A7F8D3B67FEDA422C53E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347382   (151619) от 23.12.2019
+
+Джокер / Joker (2019) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада / Warner Bros., Village Roadshow Pictures, DC Entertainment, DC Comics, 22 & Indiana PicturesЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Джоли Чань, Марк Мэрон, Фрэнсис Конрой, Мэри Кейт Малат, Ши Уигхэм, Брайан Коллен, Бретт Каллен, Билл КэмпПеревод: Дублированный, профессиональный многоголосый, любительский многоголосый, авторский одноголосыйСубтитры: Русские (forced, full Enigma, full iTunes), английские (full, SDH)
+Присутствует ненормативная лексика!Продолжительность: 02:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862B3112C56982F369D7ECB4619013D43A72C2DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518968   (151618) от 22.12.2021
+
+VA - Space Cafe, Vol. III (Finest Chillout & Lounge Tracks) (2018) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Space Ensemble Project - Atmosphere (V.T.I. Virus Space Night Mix) (5:15)
+02. Jean Mare - Blinded by the Lights (Deep Lounge Cut) (4:16)
+03. Alexel - Recipe for Flyness (3:42)
+04. Richard Bonnee - Strong Colours (Gravity Chillout Mix) (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A3B121F43CEED8A55C5F676340509E8E8077D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518738   (151599) от 22.12.2021
+
+VA - RAM Drum & Bass Annual 2022 (2021) [AAC|~325 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy C, DJ Rae - Ghost (2:46)
+02. Sub Focus, Culture Shock - Airplane (Culture Shock Remix) (4:25)
+03. Culture Shock - Rise (3:17)
+04. Calyx & Teebee - Set the Tone (4:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593F804FA0DCB3A324596BDA441CBB721C4053F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518967   (151592) от 22.12.2021
+
+VA - Space Cafe, Vol. II (Finest Chillout & Lounge Tracks) (2017) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Space Ensemble Project - Galileo in Minds (Great Chillout Mix) (5:48)
+02. Jean Mare - Deep Layers (Downbeat Sphere Mix) (5:14)
+03. Artenovum - Enter Space (Odyssey Ambient Mix) (4:52)
+04. Richard Bonnee - Abstract Matrix (Deep Sphere Sky Mix) (4:18)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA440E0DE36A9E1CA58D5EB1829836846FC33A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518965   (151554) от 22.12.2021
+
+VA - Space Cafe, Vol. I (Finest Chillout & Lounge Tracks) (2016) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzy System - Another World (Abstract Vision Cut) (5:05)
+02. CiYou - Sphere City (Lounge Input Mix) (4:08)
+03. Soundset City - Space Key (Lounge Mix) (3:57)
+04. Jean Mare - Insani (Sound Modify Downbeat Mix) (5:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03A6C920F16811356FEC6399B826D4FF628489E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518973   (151537) от 22.12.2021
+
+VA - ZYX Italo Disco: Hits & Rarities Vol. 6 (2021) [AAC|~336 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. Lion - Dream (Vocal Version) (6:04)
+02. Ken Laszlo - Hey Hey Guy (Us Remix) (5:49)
+03. Frank Tavaglione - Tumidanda (English Version) (5:48)
+04. Clock On 5 - Take It (Mayerling) (The "One" Remix) (6:23)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E040BB6B37373C0C2E979C2AD9619E36AC5955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086218   (151531) от 24.12.2016
+
+Хороший мальчик  (2016) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная, казалось бы, неделя из жизни ничем не примечательного школьника Коли Смирнова превращается в череду невероятных происшествий: Коля влюбляется в учительницу английского, кто-то поджигает школьную пристройку с новыми компьютерами, а папа Коли заявляет семье о необходимости отказа от ночного сна, из-за чего никому в доме не удается выспаться и собраться с мыслями. (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Оксана КарасАктеры: Семен Трескунов, Константин Хабенский, Михаил Ефремов, Александр Паль, Анастасия Богатырева, Василий Буткевич, Иева Андреевайте, Ирина Денисова, Татьяна Догилева, Ирина ПеговаПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890C006A041BACD008D1B96F589F1DC2145FE2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518972   (151518) от 22.12.2021
+
+VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [AAC|~351 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Authokino - Raszmatazz (Remix) (5:45)
+02. 'Lectric Workers - Robot Is Systematic (Vocal Version) (8:52)
+03. Stella Steevens - Butterfly (5:30)
+04. Phil Grant - Hey Girl (Vocal) (5:41)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C22864803C1C63E90CD22C27E666F9ED410E16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518964   (151508) от 22.12.2021
+
+Lara Fabian - Lockdown Sessions (2021) [AAC|~314 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen to the Silence (4:15)
+02. I Remember (4:26)
+03. Song for a Child (4:18)
+04. Le Passage (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF635C1EED764C473E7A14F9816672498427C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519077   (151348) от 22.12.2021
+
+Любовь и 45 калибр / Love and a .45 (1994) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уотти и Старлин проворачивают одно ограбление за другим, правда, каждый раз злоумышленники угрожают людям незаряженным оружием, не желая случайных жертв. Но все меняется, когда к компании воришек присоединяется новый напарник по имени Билли. Молодой парень во время очередного дела умышленно убивает кассиршу супермаркета, которая по стечению обстоятельств увидела (   Читать дальше...   )Производство: США / Trimark PicturesЖанр: Триллер, мелодрама, криминалРежиссер: Си-Эм ТокингтонАктеры: Джил Беллоуз, Рене Зеллвегер, Рори Кокрейн, Джеффри Комбс, Джейс Александр, Энн Уэджуорт, Питер Фонда, Тэмми Ле Бланк, Уайли Уиггинс, Джек НэнсПеревод: Двухголосый профессиональный, авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 01:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7264275A1BAB04CC47A347358D350D2A4AFD848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519261   (149981) от 23.12.2021
+
+VA - Centum (2021) [AAC|~331 Kbps] <Progressive House, Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Addo - Everything (D-Nox & Flow & Zeo Remix) (7:23)
+02. Stefan Addo - Weltschmerz (7:11)
+03. Ed Steele - Savour the Moment (7:36)
+04. Ed Steele - Fruit & Nut (7:41)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F83724E7186AD4C3901964DE4991A8FF61998F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519177   (149967) от 23.12.2021
+
+VA - Connecting The Dots (Alex Paterson) (2021) [AAC|~306 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Paterson - Connecting The Dots, Continuous Mix (1:31:21)
+02. Mohn - Schwarzer Schwan (6:17)
+03. Klimek - Milk (Edit) (6:39)
+04. Michael Mayer - Pensum (Markus Guentner Mix) (5:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0D8F4FDFEDCD8549E76B4A905A438B11B33D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519189   (149953) от 23.12.2021
+
+VA - Best of 2021 3rd Avenue (2021) [AAC|~335 Kbps] <Progressive House, Deep House, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mango Cult - Sequoia (Mass Digital Remix) (7:32)
+02. Analog Jungs - Punilla (Mariner + Domingo Remix) (8:00)
+03. Fabian Balino - Endless Story (8:41)
+04. Subnode - Levels (8:30)(   Читать дальше...   )Жанр: Progressive House, Deep House, DowntempoПродолжительность: 06:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51DBBA55E3EE88ED00D7A5F5A7592ADB327CF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519175   (149951) от 23.12.2021
+
+VA - Connecting The Dots (Jonathan Kaspar) (2021) [AAC|~324 Kbps] <House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonathan Kaspar - Connecting The Dots, Continuous Mix (1:48:45)
+02. Jens-Uwe Beyer - Hands (2:22)
+03. Closer Musik - One Two Three (No Gravity) (7:40)
+04. Superpitcher - Moon Fever Remixe (Gluteus Maximus Mix) (9:34)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE67C6FA378F85FD4B8A8729C58B630B4295FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519174   (149932) от 23.12.2021
 
 VA - Connecting The Dots (Tobias Thomas) (2021) [AAC|~316 Kbps] <House>
@@ -6,7 +433,7 @@ VA - Connecting The Dots (Tobias Thomas) (2021) [AAC|~316 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149932.jpg" />
 </div>
 
 
@@ -35,7 +462,7 @@ VA - FROZEN Purple (2021) [AAC|~305 Kbps] <Dub Techno, Deep House, Deep Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149920.jpg" />
 </div>
 
 
@@ -64,7 +491,7 @@ VA - Connecting The Dots (Robag Wruhme) (2021) [AAC|~305 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149905.jpg" />
 </div>
 
 
@@ -93,7 +520,7 @@ VA - Classy Lounge (2021) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149892.jpg" />
 </div>
 
 
@@ -122,7 +549,7 @@ VA - 5 Years of Delights: Earthly Reflections (2021) [AAC|~321 Kbps] <Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149887.jpg" />
 </div>
 
 
@@ -151,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149857.jpg" />
 </div>
 
 
@@ -177,7 +604,7 @@ VA - Connecting The Dots (Denis Stockhausen) (2021) [AAC|~297 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149850.jpg" />
 </div>
 
 
@@ -206,7 +633,7 @@ VA - New Year’s Eve Songs - NYE Party 2022 (2021) [AAC|~324 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149805.jpg" />
 </div>
 
 
@@ -234,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149804.jpg" />
 </div>
 
 
@@ -260,7 +687,7 @@ Laura Pausini - Laura Xmas (2016) [AAC|256 Kbps]<Christmas, Pop, Jazz, Easy List
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149732.jpg" />
 </div>
 
 
@@ -289,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149212.jpg" />
 </div>
 
 
@@ -300,411 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848D4B4D9A6D526583C6EA9BE12A7B8248BAAB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086477   (149172) от 25.12.2016
-
-Плохой Санта 2 / Bad Santa 2 (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение новогодних приключений проходимца Вилли, который в канун Рождества, как всегда, переодевается в Санта-Клауса. Ограбить очередной супермаркет в этом наряде не представляет никаких проблем. Но в Рождество случаются всякие чудеса. Каким оно будет для Вилли на этот раз?Производство: СШАЖанр: Драма, комедия, криминалРежиссер: Марк УотерсАктеры: Билли Боб Торнтон, Кэти Бейтс, Тони Кокс, Кристина Хендрикс, Бретт Келли, Райан Хансен, Дженни Зигрино, Джефф Скоурон, Кристина Розато, Майк СтаррПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60234890AF4B29C0BFE653453CB7C42CC49EF117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271572   (148700) от 24.12.2018
-
-Чёрная сутана / Black robe (1991) BDRip [1080p] ATV [AVO]
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в XVII столетии в Новом Свете. Отец Лафорг — священник, которого Шамплен, основатель и губернатор Квебека, посылает в пограничную зону, чтобы обращать индейцев племени гуронов в истинную веру.
-Поклявшись быть проводником и защитником Лафорга, в путь отправляется и вождь алгонкинов Хомина, взявший с собой жену, юного сына и очень красивую дочь (   Читать дальше...   )Производство: Канада, Австралия, США / Alliance Communications Corporation, Australian Film Finance Corporation (AFFC), First Choice Canadian Communication CorporationЖанр: Драма, Приключения, ИсторияРежиссер: Брюс БересфордАктеры: Танту Кардинал, Сандрин Холт, Жан Бруссо, Лоуренс Бэйн, Огаст Шелленберг, Эден Янг, Лотэр Блюто, Билли Ту Риверс, Хэррисон Лиу, Уэсли Коут, Фрэнк УилсонПеревод: Авторский одноголосыйСубтитры: Английские (хардсабы на речь индейцев)Продолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F1427A6AB7476D601E421BA997C97B4A5C0DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271691   (148664) от 24.12.2018
-
-Лукас / Lukas (2018) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148664.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что ты готов ради дочери? Герою придется ответить на этот вопрос, столкнувшись лицом к лицу с полицией, мафией и Интерполом.Производство: Франция, БельгияЖанр: Боевик, драмаРежиссер: Жюльен ЛеклеркАктеры: Жан-Клод Ван Дамм, Свева Альвити, Сами Буажила, Сэм Лаувейк, Каарис, Кевин Янссенс, Alice Verset, Димитри Тивайос, Карлос Шрам, Christian BronchartПеревод: Многоголосый закадровый (iTunes)Субтитры: НетПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB816579FAC72757A498D11C7A83C79E734FA502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271685   (148625) от 24.12.2018
-
-Лукас / Lukas (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148625.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что ты готов ради дочери? Герою придется ответить на этот вопрос, столкнувшись лицом к лицу с полицией, мафией и Интерполом.Производство: Франция, БельгияЖанр: Боевик, драмаРежиссер: Жюльен ЛеклеркАктеры: Жан-Клод Ван Дамм, Свева Альвити, Сами Буажила, Сэм Лаувейк, Каарис, Кевин Янссенс, Alice Verset, Димитри Тивайос, Карлос Шрам, Christian BronchartПеревод: Многоголосый закадровый (iTunes)Субтитры: НетПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DC07C8571DD2568B70BE20C4EBE40F40D962AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347687   (148399) от 24.12.2019
-
-Райские холмы / Paradise Hills (2019) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в дивный новый мир. Здесь создан высокотехнологичный остров, имя которому — Райские холмы. Богатые семьи отправляют сюда «несовершенных» дочерей, чтобы преобразить их по своему желанию. Ведь если ты принадлежишь к высшему обществу, даже в далеком будущем брак по любви — непозволительная роскошь. Красота, покорность и непорочность — вот путь к новой (   Читать дальше...   )Производство: Испания / Nostromo Pictures, Colina Paraiso AIE, Radio Televisión EspañolaЖанр: Фантастика, фэнтези, триллерРежиссер: Элис ВэддингтонАктеры: Эмма Робертс, Даниэль Макдональд, Аквафина, Милла Йовович, Эйса Гонсалес, Джереми Ирвин, Арно Валуа, Дэниэл Хорват, Джои Сордил, Нэнси ДжекПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AFC26484E7C9A7B0D9E70C45190AFBA41D849F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347660   (148349) от 24.12.2019
-
-Плохой Санта 2 / Bad Santa 2 (2016) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение новогодних приключений проходимца Вилли, который в канун Рождества, как всегда, переодевается в Санта-Клауса. Ограбить очередной супермаркет в этом наряде не представляет никаких проблем. Но в Рождество случаются всякие чудеса. Каким оно будет для Вилли на этот раз?Производство: США / Broad Green Pictures, Ingenious Media, MiramaxЖанр: Драма, комедия, криминалРежиссер: Марк УотерсАктеры: Билли Боб Торнтон, Кэти Бейтс, Тони Кокс, Кристина Хендрикс, Бретт Келли, Райан Хансен, Дженни Зигрино, Джефф Скоурон, Кристина Розато, Майк СтаррПеревод: Дублированный, авторский одноголосыйСубтитры: Русские (forced), английские (SDH)
-Присутствует ненормативная лексика!Продолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8BF31C76A237CC0FA492721344513B820C50D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347658   (148333) от 24.12.2019
-
-Плохой Санта / Bad Santa (2003) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вилли - необычный Санта-Клаус. Раз в год на Рождество он вместе со своим напарником грабит очередной универмаг. К тому же в прошлом он отсидел в тюрьме, был не единожды женат, а ныне Вилли - злостный бабник и пропойца. Он по-настоящему плохой, невыносимый Санта! Но нашелся мальчуган, который все-таки в него поверил. И Вилли придется творить настоящие чудеса, чтоб (   Читать дальше...   )Производство: Германия, США / Blixa Zweite Film Produktion GmbH & Co. KG, Columbia Pictures Corporation, Dimension FilmsЖанр: Драма, комедия, криминалРежиссер: Терри ЦвигоффАктеры: Билли Боб Торнтон, Тони Кокс, Бретт Келли, Лорен Грэм, Лорен Том, Берни Мак, Джон Риттер, Аджай Найду, Лорна Скотт, Харрисон Бикер, Алекс БорштейнПеревод: Дублированный, авторский одноголосыйСубтитры: Русские (forced, full), английские (full)
-Присутствует ненормативная лексика!Продолжительность: 01:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D80DA2D448101E2A318146E41807861CEA534E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271617   (148166) от 24.12.2018
-
-Ужастики 2: Беспокойный Хэллоуин / Goosebumps 2: Haunted Halloween (2018) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148166.jpg" />
-</div>
-
-
-###  Подробнее
-
-В заброшенном доме парочка ребят находит странную книгу «Беспокойный Хэллоуин» Р. Л. Стайна. Друзья быстро понимают, почему книгу спрятали подальше от всех, когда небольшой городок заполняют монстры разной степени ужасности.Производство: США, Великобритания / Columbia Pictures Corporation, Sony Pictures AnimationЖанр: Ужасы, Фэнтези, Комедия, Приключения, CемейныйРежиссер: Эри СанделАктеры: Мэдисон Айсмен, Джереми Рэй Тейлор, Калил Харрис, Мик Вингерт, Кен Жонг, Венди МакЛендон-Кови, Крис Парнелл, Брайс Касс, Пейтон Уич, Шэри ХидлиПеревод: Дублированный (iTunes)Субтитры: Русские (Full-length, Forced ), украинские (Full-length), английскиеПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F89754278CF285FF1DE2F479100CCAFFB8D638D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519369   (148150) от 24.12.2021
-
-Не время умирать / No Time to Die (2021) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Бонд оставил оперативную службу и наслаждается спокойной жизнью на Ямайке. Все меняется, когда на острове появляется его старый друг Феликс Лейтер из ЦРУ с просьбой о помощи. Миссия по спасению похищенного ученого оказывается опаснее, чем предполагалось изначально. Бонд попадает в ловушку к таинственному злодею, вооруженному опасным технологическим оружием.Производство: Великобритания, США, / Metro-Goldwyn-Mayer (MGM), Universal Pictures, Eon ProductionsЖанр: Боевик, триллер, приключенияРежиссер: Кэри Дзёдзи ФукунагаАктеры: Дэниэл Крэйг, Рами Малек, Леа Сейду, Лашана Линч, Бен Уишоу, Наоми Харрис, Билли Магнуссен, Ана де Армас, Кристоф Вальц, Рэйф ФайнсПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосыйСубтитры: Русские, украинские, английскиеПродолжительность: 02:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8140C2D424E2F3A131A94588F1DDC61E9E18D8CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739088   (147860) от 27.12.2013
-
-Я плюю на ваши могилы 2 / I Spit on Your Grave 2 (2013) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавица Кэти только что переехала в Нью-Йорк, чтобы сделать карьеру модели. Но девичьи мечты о роскошной жизни разбиваются: ее насилуют, пытают, а вскоре похищают и увозят в непонятном направлении. Кэти оказывается одна в чужой стране, где ее почти что похоронят заживо. Чудом избежав смерти, девушка решает жестоко отомстить обидчикам…Жанр: ужасы, триллер, криминалПродюсер: Лиза М. Хансен, Пол Хертцберг, Билл БерриВ ролях: Джемма Даллендер, Явор Бахаров, Джо Эбсолом, Александр Алексеев, Мэри Стокли, Валентин Пелка, Георг Златарев, Питер Сильверлиф, Майкл Диксон, Кейси БарнфилдПеревод: Профессиональный (многоголосый закадровый)Язык субтитров: РусскийПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C901F57D4B5F040F0BD0B28A72A2B34984F91FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434257   (147584) от 26.12.2020
-
-Гренландия / Greenland (2020) BDRip [480p] iPod [FRA Transfer]
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всех СМИ твердят о приближающейся к Земле комете, а инженера-строителя Джона Гэррити больше волнует, как сохранить разваливающийся брак. Сегодня у них намечена вечеринка с соседями, и, отправившись в супермаркет за продуктами, Джон внезапно получает президентское сообщение, что он и его семья выбраны для спасения в секретном бункере. Поначалу он не придаёт этому (   Читать дальше...   )Производство: США, Великобритания / STX Films, Anton, Thunder Road PicturesЖанр: БоевикРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Морена Баккарин, Роджер Дэйл Флойд, Скотт Гленн, Рендал Гонсалес, Рик Паскуалоне, Никола Ламбо, Алан Петрушевски, Скотт Пойтресс, Клер БронсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), Английские (Full)Продолжительность: 01:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3038E8645F71CFE377EA4F463E9E1418DB6E3F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519567   (147446) от 25.12.2021
-
-VA - Balance Presents Sunsetstrip (Hernan Cattaneo) (2019) [AAC|~343 Kbps] <Deep House, Downtempo, Progressive House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hernan Cattaneo - Balance Presents Sunsetstrip (Continuous Mix 1) (1:19:13)
-02. Hernan Cattaneo - Balance Presents Sunsetstrip (Continuous Mix 2) (1:19:14)
-03. Dar Pan - Blessing (1:50)
-04. Navar - Zion (8:14)(   Читать дальше...   )Жанр: Deep House, Downtempo, Progressive HouseПродолжительность: 06:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6C584DA0D4022F59AC15E95D467FD37F0E3906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519584   (147441) от 25.12.2021
-
-VA - Purobeach Essentials 2021 (2021) [AAC|~322 Kbps] <Deep House, Soulful House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Javi Cascales - Purobeach Palma Essentials (Continuous Mix) (1:16:33)
-02. Victor Soriano - Purobeach Denia Essentials (Continuous Mix) (1:12:52)
-03. Maxime Groove - All Right (7:29)
-04. ColorJaxx - Something After This (5:21)(   Читать дальше...   )Жанр: Deep House, Soulful HouseПродолжительность: 05:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9206BFC823FD1FE6E1F3DB2C67BEC9052D95217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519404   (147433) от 25.12.2021
-
-VA - When Friday Comes – Feel Good Friday Feeling (2021) [AAC|~322 Kbps] <Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Dawe, KSI - Lighter (3:02)
-02. Clean Bandit, Topic, Wes Nelson - Drive (2:59)
-03. Joel Corry, Jax Jones, Charli XCX, Saweetie - OUT OUT (2:43)
-04. Alex Hosking, Majestic - Need Your Love (2:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D45D2CC07AED033949415894276A409D50D67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519581   (147398) от 25.12.2021
-
-VA - B2B Best of 2021 (2021) [AAC|~332 Kbps] <Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelina Manuhutu - Takes a Little Something (6:45)
-02. Manuel De La Mare - Evil (Knober Remix) (6:24)
-03. Moreno Pezzolato - Tunnel (5:36)
-04. Luigi Rocca, RUDE (IT) - Temptation (6:10)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 05:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3851CFA9591C660D334D46129EF69942808110F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

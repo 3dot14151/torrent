@@ -6,7 +6,7 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178888.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178883.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joe Bonamassa - Blues Deluxe (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178809.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bri Bradley - Covers at The Roost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178214.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ D. K. - Above The Clouds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178202.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Karma Jack - Lights Out Ep. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178163.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nidaros Blueskompani - Live in Nidaros studio (2022) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178161.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sara Bae - Deep South (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178159.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Wicked Lo-Down - We Hot (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178139.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mutter Slater Band - The Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178134.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kai Strauss - Night Shift (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178125.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sandra Malta - Empty Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178123.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Durham County Poets - Out of the Woods (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178114.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Blue Mountain Tribe - Oh Great Warrior (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178105.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Gerry Jablonski & The Electric Band - 105 (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178101.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Steven Taylor - Touch & Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178096.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The True Blues Band - TBB & Friends (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178092.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Famous Dogs - Famous Dogs (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178083.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sofia Perhomaa - Temppuja (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178056.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Joe Louis Walker - 27 Albums (1986 - 2023) 29 CD [FLAC|Lossless|image + .cue|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177933.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (Live) (2023) [F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177516.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kenny Wayne Shepherd - Trouble Is... 25 (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177267.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Andrew Riverstone - Andrew Riverstone (2020) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176577.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Miguel Montalban - And The Southern Vultures (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176546.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Carey Bell - 15 Albums (1969 - 2007) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176540.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Phil Manca - Dancing Spirits (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176528.jpg" />
 </div>
 
 

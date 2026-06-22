@@ -1,29 +1,3 @@
-###  Публикация: 1773993   (71653) от 18.01.2025
-
-Генри Хаггард | Дочь Монтесумы (2024) [MP3, Илья Акинтьев]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиостудия «Ардис» предлагает вашему вниманию историко-приключенческий роман Генри Райдера Хаггарда «Дочь Монтесумы», опубликованный в 1893 году. Действие в книге происходит на фоне завоевания Мексики Кортесом, во времена правителя Монтесумы.Жанр: Зарубежная литература, классика, историко–приключенческий романИздательство: АрдисПродолжительность: 07:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083BDDEA7A9EB1CB07DFD8F7EDBB10F1BC6D1717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785327   (69337) от 15.03.2025
 
 Екатерина II Великая | Записки Екатерины II. Избранные главы (1992) [MP3, Роза Балашова]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69337.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69336.jpg" />
 </div>
 
 
@@ -89,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69317.jpg" />
 </div>
 
 
@@ -117,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68270.jpg" />
 </div>
 
 
@@ -146,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68183.jpg" />
 </div>
 
 
@@ -174,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67477.jpg" />
 </div>
 
 
@@ -200,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65114.jpg" />
 </div>
 
 
@@ -226,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63431.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63424.jpg" />
 </div>
 
 
@@ -281,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63421.jpg" />
 </div>
 
 
@@ -308,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62911.jpg" />
 </div>
 
 
@@ -334,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62906.jpg" />
 </div>
 
 
@@ -362,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62877.jpg" />
 </div>
 
 
@@ -390,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62876.jpg" />
 </div>
 
 
@@ -418,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62665.jpg" />
 </div>
 
 
@@ -446,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62381.jpg" />
 </div>
 
 
@@ -473,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61426.jpg" />
 </div>
 
 
@@ -499,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60908.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60895.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60134.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60132.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60126.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58470.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56628.jpg" />
 </div>
 
 
@@ -692,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56275.jpg" />
 </div>
 
 
@@ -704,6 +678,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38CACAFE25D05F5C39DED974C573E9A8CFAD780D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317712   (54528) от 03.06.2024
+
+Руслан Скрынников | Борис Годунов (1989) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Страницы истории нашей Родины.
+Автор рисует широкую панораму событий, происходивших в Русском государстве в конце XVI – начале XVII в., Анализирует явления экономического, социального и политического характера. В центре повествования – фигура Бориса Годунова, одного из крупных деятелей русского средневековья.Жанр: Русская литература, историческая проза, биографияИздательство: Нигде не купишьПродолжительность: 08:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B344B6A1478B3466E433B5AC500DE192B8A9D94
 ```
 
 https://mybot314.ru/tekegram_catalog/

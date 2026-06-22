@@ -1,3 +1,29 @@
+###  Публикация: 1633040   (252254) от 14.05.2023
+
+Странный дом (2023) WEBRip [H.264/1080p]
+
+>>След.
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252254.jpg" />
+</div>
+
+
+###  Подробнее
+
+После лечения жены от психического расстройства семейная пара отдыхает в загородном доме. Каждое утро молодая женщина, просыпаясь, обнаруживает, что дом переместился в другое место. Муж пытается успокоить супругу, но ее «сумасшествие» обостряется, пока она не понимает истинные причины происходящего.Производство: Беларусь / Синема Сервис, MediacrewЖанр: триллер, фантастикаРежиссер: Макс МаксимовАктеры: Владимир Яглыч, Ирина Кобзева, Станислав Бондаренко, Ирина Безряднова, Оксана ЛеснаяПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5050780067C5F3E914E71B56DDAFBCE574A8732C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351074   (252105) от 22.05.2023
 
 Фокстер и Макс / Foxter & Max (2019) WEB-DL [H.264/1080p] [UKR / UKR Sub]
@@ -6,7 +32,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252105.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250238.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248582.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247641.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247368.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247167.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Zero (2022) WEB-DL [H.264/1080p] [KAZ / RU, KAZ SUB]
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246010.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245906.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245154.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244643.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244338.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244049.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243517.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_243063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_243063.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241007.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240870.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240847.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240361.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240299.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239202.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239154.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238043.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237738.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235695.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235031.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF26495728D6FE2069FE6A5A70D568EB66AD1068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446771   (234681) от 17.05.2022
-
-Жаным, ты не поверишь! (2019) WEBRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё начинается банально - ссорой молодой семейной пары. Супруги находятся в ожидании своего первенца, с каждым днём обстановка накаляется, и главный герой Дастан, не выдержав постоянного натиска жены, решает сбежать хотя бы на один денек к своим друзьям: горе-бизнесмену и участковому полицейскому. Мужчины решают поехать на рыбалку и всё прошло бы гладко, если бы (   Читать дальше...   )Производство: Казахстан / Art DealersЖанр: КомедияРежиссер: Ернар НургалиевАктеры: Данияр Алшинов, Асель Калиева, Еркебулан Дайыров, Рустем Жаныаманов, Ерлан Примбетов, Дулыга АкмолдаПеревод: Не требуется (русский)Субтитры: Русские (Forced), казахские, английскиеПродолжительность: 01:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA4A2922FB45B47DB083C968361CC8CB725108D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Imperator: Rome (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555772.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555708.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF Expert 2.4.24 (617) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555707.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Weedcraft Inc (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555312.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Sims 4 v1.44.88.1020 (2014) [Eng] [macOS WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554615.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Europa Universalis IV v.1.28 (2013) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554573.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sketch 51.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554226.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553821.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Swinsian 2.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553735.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Mate: Universal Tab Translator 6.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553717.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CleanMyMac X 4.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553702.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ CleanMyMac 3.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553581.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553205.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Figment v.1.1.5 (2017) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553152.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Permute 2.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552193.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Mitti 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552148.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Polarr Photo Editor Pro 5.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552142.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Adobe Zii 2019 - Universal Patcher v4.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552061.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Notability 3.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552060.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Blocs 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551982.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ SMART Utility 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551968.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Luminar 3 v3.1.1 (3789) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551898.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ DjVu Reader Pro 2.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551887.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Adguard Premium 2.0.6 (559) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551710.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Airmail 3 v3.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551482.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Spillo 1.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551243.jpg" />
 </div>
 
 

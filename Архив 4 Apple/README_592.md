@@ -1,3 +1,60 @@
+###  Публикация: 1430246   (174518) от 09.12.2020
+
+Downie 4 v4.1.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CF4BA05A2563E0FB89C5EB7971F81EEC9F092D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430346   (174480) от 09.12.2020
+
+MediaHuman Youtube Downloader 3.9.9.50 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174480.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+• Закачка нескольких файлов одновременно
+• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0B7BB411B3B1B7A4A1A75636EC590BD7C10CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430175   (174439) от 09.12.2020
 
 Pixelmator Classic 3.9.2 [Multi]
@@ -6,7 +63,7 @@ Pixelmator Classic 3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174439.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174427.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ Rhinoceros 7 v7.1.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174371.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ Microsoft Office 2021 for Mac LTSC v.16.78 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174304.jpg" />
 </div>
 
 
@@ -114,7 +171,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174174.jpg" />
 </div>
 
 
@@ -141,7 +198,7 @@ Codepoint for Mac 1.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174172.jpg" />
 </div>
 
 
@@ -168,7 +225,7 @@ Amadine 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174147.jpg" />
 </div>
 
 
@@ -195,7 +252,7 @@ Rocket Typist Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174136.jpg" />
 </div>
 
 
@@ -224,7 +281,7 @@ BetterTouchTool 4.212 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174081.jpg" />
 </div>
 
 
@@ -250,7 +307,7 @@ DxO FilmPack 7 for Mac v.7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174022.jpg" />
 </div>
 
 
@@ -276,7 +333,7 @@ Multitouch 1.20.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173981.jpg" />
 </div>
 
 
@@ -304,7 +361,7 @@ Mic Drop 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173977.jpg" />
 </div>
 
 
@@ -330,7 +387,7 @@ Topaz Photo AI for Mac 2.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173976.jpg" />
 </div>
 
 
@@ -356,7 +413,7 @@ File List Export 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173972.jpg" />
 </div>
 
 
@@ -382,7 +439,7 @@ Piezo 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173969.jpg" />
 </div>
 
 
@@ -411,7 +468,7 @@ Perfect Horizon Full 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173950.jpg" />
 </div>
 
 
@@ -438,7 +495,7 @@ USBclean 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173947.jpg" />
 </div>
 
 
@@ -464,7 +521,7 @@ DVD-Cloner 2020 v7.40.719[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173943.jpg" />
 </div>
 
 
@@ -490,7 +547,7 @@ Blocs 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173940.jpg" />
 </div>
 
 
@@ -517,7 +574,7 @@ DxO PureRAW 3 for Mac v.3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173931.jpg" />
 </div>
 
 
@@ -544,7 +601,7 @@ Storyist 4 v4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173923.jpg" />
 </div>
 
 
@@ -570,7 +627,7 @@ Swift Publisher 5 v5.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173914.jpg" />
 </div>
 
 
@@ -596,7 +653,7 @@ AnyTrans for iOS 8.8.0.20201208 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173909.jpg" />
 </div>
 
 
@@ -624,7 +681,7 @@ Get Backup Pro 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173906.jpg" />
 </div>
 
 
@@ -635,62 +692,6 @@ Get Backup Pro - Универсальная утилита для выполне
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7127C7DB52406D1C5527D75A30322839DFC843EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430664   (173904) от 10.12.2020
-
-Omni Recover 2.9.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
-
-Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083FADFF4DAB26645F0F1E173ED96FE6D355A9EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430449   (173902) от 10.12.2020
-
-Audio Playr 2.3  [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Playr (был Little Audio) представляет собой удобный инструмент для воспроизведения и экспорта практически любого файла, который содержит аудио.
-
-Audio Playr App может обрабатывать почти все, если файл содержит аудио в той или иной форме. Все, начиная от аудио форматов для контейнеров файлов фильмов, вы можете экспортировать в AAC или Apple Lossless. Вот Некоторые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD873EEFBAD02C2A4E50C8847B4F7CA7D4EBF72
 ```
 
 https://mybot314.ru/tekegram_catalog/

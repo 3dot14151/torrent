@@ -1,241 +1,3 @@
-###  Публикация: 1760775   (37119) от 16.11.2024
-
-AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.113 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37119.jpg" />
-</div>
-
-
-###  Подробнее
-
-AdGuard — лучший способ избавиться от навязчивой рекламы и онлайн-отслеживания, а также защитить свое устройство от вредоносных программ. Сделайте свой веб-серфинг быстрее, безопаснее и комфортнее с AdGuard!
-AdGuard — уникальный блокировщик рекламы без root для Android, который удаляет рекламу в приложениях и браузерах, защищает вашу конфиденциальность и помогает (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 15.11.2024Разработчик: AdGuard Software LimitedПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6E2D0CBB7125A997A014FCB6027BE7A6BC5A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760771   (37114) от 16.11.2024
-
-exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш Android не распознаёт подключенный к нему USB-носитель? Вероятно, файловая система внешнего накопителя не поддерживается устройством. Установите приложение Microsoft exFAT/NTFS for USB by Paragon Software, чтобы монтировать систему внешнего USB-накопителя и управлять файлами прямо с вашего Android-устройства.Тип издания: Pro / Extra ModРелиз состоялся: 16.11.2024Разработчик: Paragon Technologie GmbHПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F1FCD0467CFEE366B63F65FA9C5D0DDA0046A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760853   (37089) от 16.11.2024
-
-DIGI Clock Widget Plus 3.4.0 (ARM64) Mod by Number one' [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37089.jpg" />
-</div>
-
-
-###  Подробнее
-
-DIGI Clock - отличный способ персонализировать виджет часов на рабочем столе мобильного устройства. Проект предлагается широкий выбор размеров, внешнего вида, цветов, шрифтов, форм и всего прочего, что поможет получить идеально подходящий вариант. Что будет целиком и полностью отвечать запросам самых требовательных людей. При этом сама программа во многом может быть (   Читать дальше...   )Тип издания: ModРелиз состоялся: 29.10.2024Разработчик: ForestTreeПоддерживаемая ОС: Android 6.0+ (Только для ARM64)Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EBA724C44F1AEAD7846E880EFC3037EE002BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760796   (37075) от 16.11.2024
-
-Keepsafe: Защита Фото и Видео v13.3.1 Premium Mod by DEXUNPACKER [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Keepsafe надёжно хранит личные фото и видео применяя PIN-блокировку, авторизацию по отпечатку пальца, а также шифрование секретного memories # уровня. Это лучшее место для хранения ваших личных фото и видео. С Keepsafe вы можете защитить свою приватность, надёжно хранить файлы и даже сэкономить место на телефоне.Тип издания: PremiumРелиз состоялся: 16.11.2024Разработчик: KeepsafeПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B6495BAB6AE64F2D0163F944D4BE973326CA42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760803   (37070) от 16.11.2024
-
-Средства защиты v4.1 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документы по средствам защиты: Правила обеспечения работников СИЗ, Инструкция по применению и испытанию средств защиты, используемых на электросустановках, Приказы №1105, №766н и письмо №05-312.Тип издания: AdfreeРелиз состоялся: 02.11.2024Разработчик: Instruktag KnigaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B31B09F0913C6F5C89D577AAAFF923D9BDC2384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760963   (37017) от 17.11.2024
-
-Гимнастика для глаз - VisionUp v3.3.32 Mod by frolickof [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37017.jpg" />
-</div>
-
-
-###  Подробнее
-
-VisionUp: Ваш Окончательный Тренер по Упражнениям для Глаз для Более Четкого Зрения и Повышенной Продуктивности! 👀✨ Улучшите здоровье своих глаз и продуктивность с VisionUp – вашим ежедневным гидом по уходу за глазами и упражнениям. 📈Тип издания: ModРелиз состоялся: 16.11.2024Разработчик: VisionUpMe Inc.Поддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726706   (37010) от 17.11.2024
-
-Fishing Knots Pro / Рыбацкие узлы Pro v8.7.42 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37010.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Рыбацкие узлы" - это программа, показывающая как надо вязать узлы. Среди множества узлов рыбаку необходимо выбрать и использовать правильный. В каждом случае - он свой. Как сильно конкретный узел ослабляет леску? Какие узлы использовать для тонких рыболовных лесок, а какие - для толстых? Какие узлы вязать на плетенках? В справочнике собраны узлы для: связывания (   Читать дальше...   )Тип издания: Paid / FullРелиз состоялся: 27.06.2024Разработчик: MP FishПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B4877524CF7360B4604260B54C4D4B4979E9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760968   (36998) от 17.11.2024
-
-Справочник электрика v79.0 Mod by derrin [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для всех тех, чья деятельность связана с электричеством. Для профессионалов и любителей. Данное приложения является своеобразным трамплином для дальнейшего изучения электротехники.
-В приложении присутствуют 4 категории:
-1. Теория
-2. Схемы(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 16.11.2024Разработчик: SergeiVПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E79760A5DE218B8BE6A373F4FEDA58CAFA7809A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760990   (36985) от 17.11.2024
-
-Узлы 3D / Knots 3D v9.5.0 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Mod / FullРелиз состоялся: 17.11.2024Разработчик: Nynix LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CA96D93398AE63807D10BE756E9A497330A633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761145   (36932) от 18.11.2024
 
 Duolingo: изучай языки 6.7.3 Mod by Balatan [Ru/Multi]
@@ -244,7 +6,7 @@ Duolingo: изучай языки 6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36932.jpg" />
 </div>
 
 
@@ -270,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36913.jpg" />
 </div>
 
 
@@ -296,7 +58,7 @@ Image to text - Text scanner / OCR сканер текста v1.5.8 Premium Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36912.jpg" />
 </div>
 
 
@@ -322,7 +84,7 @@ Speedtest от Ookla 5.5.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36892.jpg" />
 </div>
 
 
@@ -348,7 +110,7 @@ meteoblue weather & maps Cirrus Uncinus 2.8.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36882.jpg" />
 </div>
 
 
@@ -374,7 +136,7 @@ Fit AI / Планы Тренировок. Спортзал v1.3.7 Mod by vadj [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36877.jpg" />
 </div>
 
 
@@ -400,7 +162,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.5 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36828.jpg" />
 </div>
 
 
@@ -426,7 +188,7 @@ Netmonitor: 5G, Cell & WiFi v1.25.15 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36817.jpg" />
 </div>
 
 
@@ -452,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36802.jpg" />
 </div>
 
 
@@ -481,7 +243,7 @@ SHINE – Journey Of Light 1.90.13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36774.jpg" />
 </div>
 
 
@@ -510,7 +272,7 @@ INKredible PRO v3.0.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36772.jpg" />
 </div>
 
 
@@ -536,7 +298,7 @@ Magnifying Glass / Увеличительное стекло v3.9.1 (от Pony M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36690.jpg" />
 </div>
 
 
@@ -565,7 +327,7 @@ Grab Photos From Videos / Фото из видео v11.3.2 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36671.jpg" />
 </div>
 
 
@@ -591,7 +353,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36583.jpg" />
 </div>
 
 
@@ -618,7 +380,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.142 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36530.jpg" />
 </div>
 
 
@@ -645,7 +407,7 @@ Vanced Tube v5.2.80.154 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36518.jpg" />
 </div>
 
 
@@ -671,7 +433,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36496.jpg" />
 </div>
 
 
@@ -683,6 +445,240 @@ OsmAnd+ является приложением с открытым исходн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8001D032491E93C1C81D9BA43DD81EFDA9FD2F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762192   (36291) от 24.11.2024
+
+Truecaller: AI Call Blocker / Oпределитель номера v14.31.7 Gold Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Определяйте звонки с неизвестных номеров с помощью мощного идентификатора вызывающего абонента в России. 400 миллионов пользователей полагаются на Truecaller при общении — будь то определение неизвестных номеров, с которых вам звонят, или блокировка СМС-спамеров. Приложение отфильтровывает ненужные звонки и сообщения и соединяет вас только с теми, кто действительно (   Читать дальше...   )Тип издания: Gold / ExtraModРелиз состоялся: 24.11.2024Разработчик: TruecallerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37DD3FD46E5E79C743C008554EC52145D1A058F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752019   (36282) от 24.11.2024
+
+Colorize Images v4.0.93 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colorize Images - это сервис, основанный на автоматическом машинном обучении, для раскрашивания черно-белых, полутоновых или ночных изображений. Обратите внимание: если у вас есть какие-либо вопросы или проблемы, отправьте мне сообщение об отладке с помощью функции Сообщить об ошибке в приложении. Сообщение включает в себя информацию, чтобы помочь в решении проблем.Тип издания: ProРелиз состоялся: 23.11.2024Разработчик: Colorize ImagesПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0275E42AC31D23606D31BF0AED28511C0EE9A131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762226   (36274) от 24.11.2024
+
+AirBrush: ИИ Фоторедактор v7.4.600 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактируйте снимки в нашем фоторедакторе и получайте совершенные результаты! AirBrush предоставляет вам самые естественные, простые в использовании инструменты для редактирования фотографий, разработанные, чтобы придать вашим снимкам идеальный стиль.Тип издания: ProРелиз состоялся: 23.11.2024Разработчик: PIXOCIAL TECHNOLOGY (SINGAPORE) PTE. LTD.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1FE211699B2E57F6AC07BEDFD61178099F31C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762489   (36191) от 25.11.2024
+
+NewPipe v0.27.3 Free + Mod by Alex.Strannik  [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый легковесный клиент YouTube. Удобно. Работа в фоне с выключенным экраном. Подписка без аккаунта на каналы. Присутствует возможность скачивания видео (или аудио) с выбором качества. Следуя инструкциям, возможно получить доступ к вашим подпискам на YouTube. Комментарии видны.Тип издания: Free + ModРелиз состоялся: 25.11.2024Разработчик: Christian SchabesbergerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B937B69AA78DA873216C4C1366FBFEDF2950B793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762488   (36169) от 25.11.2024
+
+Magic Eraser / Магический ластик v2.12.4 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 25.11.2024Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE9D51B582ED1BB25D6A6C29EED710280CB4D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757654   (36157) от 25.11.2024
+
+ГдеПосылка v3.47 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36157.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГдеПосылка — это универсальный и удобный сервис для отслеживания почтовых отправлений. Достаточно знать лишь трекинг-номер, чтобы легко найти посылку как в России, так и в США, Германии, Украине, Китае или Казахстане.Тип издания: AdfreeРелиз состоялся: 25.11.2024Разработчик: PackageRadarПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C44B92921850CB1D7C7C1C8C9FE3F5BFD4849C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762497   (36136) от 25.11.2024
+
+Менеджер Паролей / SafeInCloud 2 v24.17.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер паролей SafeInCloud позволяет хранить ваши логины, пароли и другую личную информацию в безопасности в зашифрованной базе данных. Вы можете синхронизировать данные с другим телефоном, планшетом, маком или ПК через ваш собственный аккаунт в облаке. SafeInCloud — это не просто хранитель паролей, но и 2FA-аутентификатор, генерирующий одноразовые коды для любого (   Читать дальше...   )Тип издания: Pro / Extra ModРелиз состоялся: 25.11.2024Разработчик: SafeInCloud S.A.S.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762958   (35850) от 28.11.2024
+
+Строительные расценки Pro v39.0 by Timozhai [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вы строитель, или же собираетесь строить дом или заняться ремонтом, то Вам не обойтись без знаний цен на строительные работы. В этом Вам поможет приложение "Строительные расценки Pro". При помощи данного приложения Вы в мгновение ока сможете узнать цены на строительные работы, составить смету, и произвести строительные расчеты. При помощи раздела "Строительные (   Читать дальше...   )Тип издания: ProРелиз состоялся: 27.11.2024Разработчик: Flash-GПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D849F6C17D2537A6BC58CEB11B5213B039E5A41F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761870   (35849) от 28.11.2024
+
+Photo Sherlock v1.123 Mod by Mixroot  [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение предоставляет поиск по фото из камеры или галереи. Можно использовать чтобы найти информацию о картинке в Интернете, например чтобы проверить кому действительно принадлежит фото из социальной сети (проверка на фейк). Есть возможность сразу обрезать фото.Тип издания: Pro / ModРелиз состоялся: 28.11.2024Разработчик: HippeisПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A2CBAA2CBEB635E6025C9AA7782AA49F9AD95F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1845355   (1050720) от 31.12.2025
+
+Процесс (1989) SATRip (1-2 серии из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, созданный на основе материалов реальных уголовных дел, о судебном процессе над торговой мафией. На скамье подсудимых директор продуктового магазина Рунич и его сослуживцы.Производство: СССР, Мосфильм, ТО "Товарищ"Жанр: драмаРежиссер: Алексей СимоновАктеры: Рим Аюпов, Владимир Самойлов, Владимир Стеклов, Галина Щепетнова, Владимир Качан, Александр Феклистов, Любомирас Лауцявичус, Александр Павлов, Вера АлентоваСубтитры: украинские (full, hardsub)Продолжительность: 02:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9BF24581BD1193E82FE039E2B7E228A92438BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845286   (1050575) от 30.12.2025
+
+Прости нас, сад... (1988) DVBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050575.jpg" />
+</div>
+
+
+###  Подробнее
+
+В годы своей комсомольской юности первостроители города заложили общественный сад. И теперь они решительно возражают против решения горкома разделить сад на садовые участки...Производство: СССР, ТО «Экран»Жанр: драмаРежиссер: Анатолий НиточкинАктеры: Вера Алентова, Георгий Тараторкин, Игорь Горбачёв, Валерий Баринов, Светлана Головина, Михаил Жигалов, Наталия Потапова, Александр Пашутин, Наталья Попова, Андрей Болтнев, Вадим Лобанов, Константин Лукашов, Алиса Зыкина, Владимир Виноградов, Виктор ГавриловПродолжительность: 01:05:15+01:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECA7426E1F2E6AC0044996DDF2A0EA87AD418D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845103   (1050516) от 29.12.2025
 
 Время для размышлений (1982) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050516.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050362.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050198.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049564.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049558.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049502.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049320.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049130.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048919.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048747.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047146.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046576.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046351.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045567.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044867.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044517.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043740.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042709.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042139.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041125.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040546.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040281.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039274.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038694.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EDCE58A1DFFB30B96D87FD419DB6C578EA04AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440954   (1038205) от 19.01.2021
-
-Воскресная ночь (1976) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038205.jpg" />
-</div>
-
-
-###  Подробнее
-
-В деревне произошла трагедия. Пьяный тракторист Степан в порыве ревности направил трактор на дом Алены, а ее жених Михась преградил ему дорогу своим трактором. При столкновении погиб Степан. Тяжело ранена Алена. Прокурор решает превратить дело в показательный процесс. Потрясенный случившимся Михась не снимает с себя вины. Но выездной суд оправдал подсудимого и вынес (   Читать дальше...   )Производство: СССР / БеларусьфильмЖанр: Драма, криминалРежиссер: Виктор ТуровАктеры: Пётр Вельяминов, Всеволод Платов, Людмила Зайцева, Ольга Лысенко, Анатолий Ромашин, Юрий Горобец, Леонид Дьячков, Альгимантас Масюлис, Елена Водолазова, Сергей ТюминСубтитры: ОтсутствуютПродолжительность: 01:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CA591EF6634A03AF89B6B1E8B19EB885D37561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615340   (1037835) от 25.02.2023
-
-Трое вышли из леса (1958) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037835.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как партизаны Юлия, Павел и Сергей ушли на боевое задание, отряд был окружен и уничтожен карателями. Спустя много лет, после окончания Второй мировой войны, следственные органы обнаружили документ, указывающий на то, что отряд был уничтожен по наводке одного из оставшихся в живых...Производство: СССР / МосфильмЖанр: драма, военныйРежиссер: Константин ВоиновАктеры: Лидия Смирнова, Валентин Зубков, Михаил Погоржельский, Борис Смирнов, Евгений Буренков, Зоя Степанова, С. Морозов, Геннадий Горохов, Ольга СуминаСубтитры: отсутствуютПродолжительность: 01:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8626FFA1D40550391B083B1C8221440C54563E97
 ```
 
 https://mybot314.ru/tekegram_catalog/

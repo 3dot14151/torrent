@@ -6,7 +6,7 @@ Nevercenter CameraBag Pro 2021.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005491.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MacX Video Converter Pro 6.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005489.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Boxy SVG 3  v3.58.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005484.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hookshot 1.22.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005480.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tower 7 v7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005477.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Grids for Instagram 7.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005466.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005463.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Capture One 21 Pro Pro 4 v14.3.0.260 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005462.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ TechTool Pro 14 v14.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005460.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Luminar AI 1.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005449.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ EaseUS Todo Backup for Mac 3.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005446.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Disk Drill Enterprise 4.4.356 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005433.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ ABBYY FineReader PDF for Mac 15.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005403.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Microsoft Office Standard 2019 for Mac v16.51 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005377.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Smultron 12 v12.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005352.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Feeder 4 v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005351.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Boxy SVG 3  v3.59.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005350.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Stats 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005348.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Disk Xray 2.7.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005345.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ ProFind 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005334.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Wondershare UniConverter 13.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005333.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ PhoneRescue for iOS 4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005328.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Money Pro - Personal Finance 2.7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005327.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ AirMail Pro 5 v5.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005325.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Commander One PRO - FTP client 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005323.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ PhoneRescue for Android 3.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005322.jpg" />
 </div>
 
 

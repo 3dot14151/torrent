@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072375.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072030.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Led Zeppelin - Live at the Royal Albert Hall (1970) [H.265/1080p] [handmade Upsc
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071778.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071540.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070722.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Lady Gaga - Apple Music Live: MAYHEM Requiem (2026) WEB-DLRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069599.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069408.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067897.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067270.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066207.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066182.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Unlucky Morpheus - Live 2017 (2017) DVDRip [AV1/1080p] [hand made Upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066178.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064934.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064310.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063379.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Fuki & Unlucky Morpheus - Fuki Fes Live (2016) [AV1/1080p] [hand made upscale AI
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062458.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062019.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061611.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061457.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061377.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061226.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061116.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060807.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059992.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057980.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057718.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1181834   (321789) от 08.11.2017
+
+От парада до «Оскара». История одного фильма (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм об истории создания первого отечественного фильма получившего «Оскар»: «Разгром немецких войск под Москвой».
+В ноябре 1941 года Сталин решил начать снимать документальный фильм о боях под Москвой. Были определены два режиссёра: Леонид Варламов и Илья Копалин. В съёмках участвовали пятнадцать фронтовых операторов, в том числе Роман Кармен и А. Крылов.
+23 февраля (   Читать дальше...   )Телекомпания: Россия, АО ТПО «Киностудия им. М. Горького»Жанр: Документальный, история, война, кинематографРежиссер: Елена ДемидоваПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8BB349383AF07522628ABAE9CB08FDA2812BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958594   (321756) от 22.11.2015
+
+Джерри Вайнтрауб. Голливудская Легенда / His Way (2011) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная биография Джерри Вайнтрауба, легендарного продюсера и музыкального промоутера, рассказанная им самим, его близкими и его коллегамиТелекомпания: США, HBO Documentary Films, Polsky Films, Consolidated DocumentariesЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (AMedia)Продолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C0C92DB0D097858D57222222BE27A68B0F6F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259417   (321089) от 03.11.2018
+
+В двух шагах от славы / Twenty Feet from Stardom (2013) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оскароносный документальный фильм о бэк-вокалистах. Миллионы знают их голоса, но никто не знает их имена. Режиссер выводит из тени суперзвезд тех, кто привносит форму и стиль в популярную музыку и лучше других знает закулисье вокального мира. Для каждого из них – это шанс рассказать свою уникальную историюПроизводство: США, Gil Friesen Productions, Tremolo ProductionsЖанр: Документальный, история, музыкаРежиссер: Морган НевиллПеревод: Одноголосый закадровый, профессиональный (24ДОК)Субтитры: АнглийскиеПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDDBF5FA21D014169B6D0E3F72831574949D71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331867   (320873) от 17.10.2019
 
 Мелодии комуза (1960) VHSRip
@@ -6,7 +86,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320873.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318857.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318615.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316822.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316669.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315433.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315431.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313155.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313056.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313046.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311880.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311656.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310804.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309051.jpg" />
 </div>
 
 
@@ -371,7 +451,7 @@ Lil Peep: всё для всех / Everybody's Everything (2019) WEBRip [H.264/1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307947.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307880.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307846.jpg" />
 </div>
 
 
@@ -453,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306037.jpg" />
 </div>
 
 
@@ -479,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305306.jpg" />
 </div>
 
 
@@ -505,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304170.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301021.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298652.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/720p] (Documentary+Bonus)
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298452.jpg" />
 </div>
 
 
@@ -597,84 +677,6 @@ Rammstein - In Amerika (2015) BDRip [H.264/720p] (Documentary+Bonus)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EBDF91F538AF59599E67716038683345D710C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078996   (298062) от 02.12.2016
-
-Смерть на съемочной площадке (2016) HDTV [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто актёры повторяют – хочу умереть на съёмочной площадке, до последней минуты сниматься в кино, служить своим зрителям. Иногда так и происходит. Жизнь кумиров трагически прерывается на съёмках прямо во время работы над новыми картинами… Зачем Евгений Урбанский шёл на риск, исполняя в фильме "Директор" опасный трюк без дублёра? Почему легенду о романе (   Читать дальше...   )Телекомпания: Россия, ТВ ЦентрЖанр: Документальный, ИсторияПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14416832454D837189BCE4BD5FCD771C5311F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078656   (297797) от 02.12.2016
-
-Битлз: восемь дней в неделе – гастрольные годы / The Beatles - Eight Days a Week - The Touring Years (2016) BDRip [H.264/720p] [EN / RU Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый документальный фильм Рона Ховарда, приглашающий поклонников группы The Beatles на гастрольные туры с 1963 по 1966 год, от дебюта в ливерпульском клубе до прощального выступления в Сан-Франциско. С помощью эксклюзивных записей, хроник, воспоминаний воссоздается история легендарной четверки – как они работали над будущими хитами, решали повседневные вопросы (   Читать дальше...   )Телекомпания: Великобритания, США / Apple Corps, Apple Corps, Imagine Entertainment, OVOW Productions, Universal Music Group International, White Horse PicturesЖанр: ДокументальныйРежиссер: Рон ХовардПеревод: ОтсутствуетЯзык субтитров: русскийПродолжительность: 01:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191FF9DC1F40C7D8034D4B521DA9250C77E65DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961362   (297097) от 03.12.2015
-
-Последняя гастроль Джо Дассена (2006) IPTVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297097.jpg" />
-</div>
-
-
-###  Подробнее
-
-После знаменитого телевизионного выступления артистов французской эстрады голос Джо Дассена зазвучал по всему Советскому Союзу. Его партнерами на том концерте были Жильбер Беко, Саша Дистель, Далида. Однако соперничать с Джо Дассеном никто из них так и не смог. Он завоевал прочную позицию в советском эфире. Его пластинки выпускали миллионными тиражами, но их не хватало (   Читать дальше...   )Телекомпания: ВГТРКЖанр: ДокументальныйПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4F5EAF25AFEEA9908DD43E3711596D6A70C929
 ```
 
 https://mybot314.ru/tekegram_catalog/

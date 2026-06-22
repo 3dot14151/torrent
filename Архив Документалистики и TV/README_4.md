@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986069.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986016.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985948.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985929.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ NG.Запреты: Уродство (сезон 9, серия 3 из 11)/ NG.Tab
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985920.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985854.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ NG.Запреты: Интимные пристрастия (сезон 9, сер
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985460.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984783.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984687.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ NG. Семейное оружие: Хочу джип / NG. Marital weapons: I wa
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984540.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ NG. Семейное оружие: Машина смерти / NG. Marital weapo
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984345.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983854.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983846.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983788.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983606.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983604.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AMA Supercross Championship: St. Louis (12.01.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983538.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ WRC: Rallye Monte-Carlo, Super Stage (25.01.2020) WEB-DL [H.264/1080p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983528.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WRC: Rallye Monte-Carlo, Power Stage (26.01.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983456.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983213.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983168.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982983.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982451.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982178.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982177.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982176.jpg" />
 </div>
 
 

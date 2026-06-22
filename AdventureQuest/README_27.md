@@ -1,3 +1,107 @@
+###  Публикация: 1217110   (744442) от 03.04.2018
+
+Bear With Me (2016) [Ru/Multi] (1.1.0) Repack alivedeath
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bear With Me – это эпизодическая приключенческая игра с нуарной стилистикой. Девочка Эмбер пытается найти своего пропавшего брата, а помогает ей верный плюшевый медвежонок по имени Тед И. Медведь. Эмбер просыпается посреди ночи из-за кошмара и узнает, что ее брат Флинт пропал. За помощью она обращается к своему верному плюшевому медвежонку по имени Тед И., сварливому (   Читать дальше...   )Тип издания: RepackРазработчик: Exordium GamesЖанр: Аркады, Приключения, КвестыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0695009BF92C644CEBD5D33848F0BA17898253E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127045   (740494) от 20.04.2017
+
+Late Shift (2017) [Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Late Shift – криминальный FMV-триллер, рассказывающий историю студента-математика Мэтта, которого заставили ограбить прибыльный аукционный дом, и теперь он вынужден доказывать свою невиновность. От начала и до конца игры все принятые вами решения, даже самые, казалось бы, незначительны, будут иметь последствия. Все, что вы сделаете, приведет вас к одной из семи концовок.Тип издания: LicenseРазработчик: CtrlMovieЖанр: Movie, Action, Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50B30A3BA33451360B3D7F04683A767527756BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397456   (740298) от 20.07.2020
+
+Paws and Soul (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paws & Soul — это приключенческая игра о перерождении, в которой вам предстоит в образе волка посетить загадочный лес. Историю жизни человека, которую вы увидите глазами хищника, дополняет увлекательный геймплей, основанный на исследовании окружающего мира и поиске предметов. Находите подсказки о своей прошлой жизни, открывайте бонусные истории о других людях (   Читать дальше...   )Тип издания: RepackРазработчик: Arkuda Inc., ELECTROSTALIN ENTERTAINMENTЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A59C2802345E3E73641487D919FEB8164B2DE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397452   (740295) от 20.07.2020
+
+Outer Wilds (2019) [Ru/Multi] (1.0.7) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outer Wilds - приключения в открытом мире, попытка разгадать тайну неведомой солнечной системы в бесконечно повторяющейся петле времени. Добро пожаловать в космическую программу! Вы - новобранец Outer Wilds Ventures, начатой недавно программы космических исследований, которая призвана найти ответы на загадки странной, непрестанно меняющейся солнечной системы.Тип издания: RepackРазработчик: Mobius DigitalЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4AB3C611BB0FB823B316E3CCF546ACC36687E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526149   (738694) от 23.01.2022
 
 Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) License GOG [18+]
@@ -6,7 +110,7 @@ Re;Lord 1 ~The witch of Herfort and stuffed animals~ (2018) [En] (1.00/dlc) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738694.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Seventh Sign -Mr.Sister- (2019) [Multi] (1.2.03/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738666.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738381.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Silent Age (2015) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737752.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Whispering Willows (2014) [Ru/Multi] (1.6.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736362.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Creaks (2020) [Ru/Multi] (1.0) License GOG [Collector's Edition] (обновля
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735955.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Life is Strange: Remastered Collection (2022) [Ru/Multi] (2.0.392.645158/dlc) Li
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733473.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Into A Dream (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733299.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732307.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Tiny Knight (2016) [En] (1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731271.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Eastshade (2019) [Ru/Multi] (1.07) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730509.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Detective Gallo (2018) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729704.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ STEINS;GATE ELITE (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729578.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729575.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) R.G. Catalyst [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729235.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728014.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Don't Starve Together (2016) [En] (214437) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725742.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ What Remains of Edith Finch (2017) [Ru] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725740.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724903.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) License CPY [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724062.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ The Alien Cube (2021) [Ru/Multi] (Build 8187558) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723975.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ INFERNIUM (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722836.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Infernium — нелинейный хоррор-выживание с видом
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB4FE103A3A08C5C22C19014CCF084B7D112F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285252   (722318) от 25.02.2019
-
-Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1-2]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удостоенная наград Life is Strange от студии DONTNOD Entertainment наконец получила продолжение. Братья Шон и Даниэль Диас, 16 и 9 лет, вынуждены оставить дом в Сиэтле после произошедшей там трагедии. Они опасаются преследования полиции и бегут в Мексику, по пути разбираясь с внезапно появившимися сверхспособностями. Вдали от дома, преодолевая тяготы и невзгоды, (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742B91771810CAC7BC61B7AD2B8E3C0F97CAF690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285459   (720518) от 26.02.2019
-
-Pacify (2019) [Multi] (1.0/upd1) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот дом был построен более чем 100 лет назад, владельцы которого управляли похоронным бюро. Ходили слухи, что они также предлагали совершенно особую услугу-ритуал, позволяющую пообщаться с умершим. После одного из ритуалов случилось непоправимое - человек из города и владельцы дома исчезли и никогда более не появились снова. Несколько детей, прогуливающихся вокруг (   Читать дальше...   )Тип издания: LicenseРазработчик: Shawn HitchcockЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557110BA7967E310E63A586B7EB1029C2D6B61E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284656   (720389) от 26.02.2019
-
-Devotion (2019) [Multi] (1.0.5) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Devotion — это атмосферная игра ужасов от первого лица, изображающая жизнь семьи в тени религиозных убеждений. Исследуйте тайваньский жилой комплекс 1980-х годов, постепенно теряющийся в адском кошмаре. Окунитесь в обеты, которые сделал каждый член семьи, и станьте свидетелями их преданности.Тип издания: LicenseРазработчик: RedCandleGamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский, Японский и другиеЯзык интерфейса: Английский, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE15FBC74D33C5B2C87888C853759CC23440F23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531135   (720145) от 16.02.2022
-
-Lust from Beyond (2022) [Ru/Multi] (01.02.2022) License GOG [M Edition] [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lust from Beyond: Издание M - новая версия культового ужаса выживания «Lust from Beyond». Это издание адаптировано к предпочтениям игроков, которые любят жанр ужасов Лавкрафта за его загадочность, повествование и атмосферу, а не явный контент. Мы приглашаем Вас в другой мир. Мир, наполненный желанием, очарованием и страхом. Мир, вдохновленный поражающими работами (   Читать дальше...   )Тип издания: LicenseРазработчик: Movie Games LunariumЖанр: Экшн, Приключение, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE04B51E5AC16308ACF7DD2F9D62698B192935F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Vampire Hunter: The Animated Series | Night Warriors: Darkstalkers' Revenge | Н
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072092.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blue Seed Beyond | Blue Seed 2: Operation Mitama | Голубое семя 2: О
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071393.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Blue Seed | Голубое семя [1994, TV, 26 + 14] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071392.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hotaru no Haka / Grave of the Fireflies / Могила светлячков [198
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068810.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Seihou Bukyou Outlaw Star | Outlaw Star | Звёздные рыцари с Во�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061525.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Guilty Crown / Корона греха [2011, TV, 22 ep] BDRip Hi10p 720p Raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057149.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055390.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Slayers Gorgeous | Великолепные Рубаки [1998, Movie] BDRip 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055389.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Lodoss-tou Senki | Record of Lodoss War | Летопись войн остров
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051339.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Gekijouban Slayers | Slayers: The Motion Picture | Рубаки на больш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048817.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Slayers Special | Slayers: The Book of Spells | Особые Рубаки [1996,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048816.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Slayers Return | Возвращение Рубак [1996, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048815.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048814.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Jungle Taitei: Yuuki ga Mirai o Kaeru | Jungle Emperor: Courage Changes the Futu
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048345.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047833.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Cheburashka Arere? / Фу ты, Чебурашка какой! | Это что �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045121.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-2) [2019, Web, 10 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032249.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-1) [2018, Web, 10 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032244.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ijiranaide, Nagatoro-san 2nd Attack | Don't Toy with Me, Miss Nagatoro 2nd Attac
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031992.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + Special] BDRip 720p ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031494.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Le Chevalier D'Eon | Шевалье Д'Эон [2007, TV, 24 эп.] HDTVRip 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026540.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018334.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Saiyuuki | Alakazam the Great | Путешествие на Запад | Вел�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013988.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004248.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 из 23] HDTVrip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996554.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Blade | Блэйд [2011, TV, 12] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991250.jpg" />
 </div>
 
 

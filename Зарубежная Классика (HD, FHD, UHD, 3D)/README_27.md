@@ -1,3 +1,56 @@
+###  Публикация: 1382062   (784160) от 11.06.2020
+
+Омен / The Omen (1976) BDRemux [H.264/1080p] [Remastered]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был рождён в 6 часов 6 июня. Как предсказано в Книге откровений, настанет конец света, последнее противостояние сил добра и зла, и началом его будет рождение сына Сатаны в облике человеческом.
+У жены американского дипломата Роберта Торна рождается мёртвый ребенок, но мужчина неспособен сообщить ей трагическую новость, поэтому усыновляет младенца с родимым пятном (   Читать дальше...   )Производство: Великобритания, США / 20th Century Fox Film CorporationЖанр: УжасыРежиссер: Ричард ДоннерАктеры: Грегори Пек, Ли Ремик, Дэвид Уорнер, Билли Уайтлоу, Харви Стивенс, Патрик Тротон, Мартин Бенсон, Роберт Ритти, Томми Дагган, Джон СтрайдПеревод: Профессиональный (многоголосый, двухголосый закадровый), авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (full x2), английскиеПродолжительность: 01:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAAD445307381CC53675D7A0A61E7226D8ADBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203200   (783998) от 08.02.2018
+
+Частный детектив / L'alpagueur (1976) BDRip [H.265/1080p-LQ ] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роже Пиляр - секретный агент, профессионал экстракласса, выполняющий особо сложные и высокооплачиваемые задания. Его заветная мечта - купить себе маленький остров в океане с пальмами на белом песке. Но это мечты. А в действительности ему предстоит найти и разоблачить серийного убийцу по кличке «Ястреб», который использует молодых людей для ограбления банков и ювелирных (   Читать дальше...   )Производство: Франция / Cerito FilmsЖанр: Боевик, ДетективРежиссер: Филипп ЛаброАктеры: Жан-Поль Бельмондо, Бруно Кремер, Мюриэль Бельмондо, Жан-Люк Бутте, Патрик Фьерри, Жан-Пьер Жорри, Виктор Гарривье, Жан Негрони, Марсель Имхофф, Роже Бенаму, Патрис Шаплен-Миди, Жак Дестоп, Мишель Делакруа, Клод Броссе, Морис ОзельПеревод: Дублированный, Многоголосый закадровый x4Субтитры: русскиеПродолжительность: 01:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47DB09D953FF04268A540E586C2E114424C03D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488506   (783980) от 08.02.2018
 
 Девушка на мотоцикле / The Girl on a Motorcycle (1968) [1080p] BDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783980.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783868.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783730.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783606.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783588.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782919.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782908.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782612.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782363.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781970.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781895.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781795.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781554.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781359.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781123.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780509.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780213.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780171.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780156.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780152.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780035.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779860.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779732.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779221.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F233FE21CD7BB1D696FA33929C318DF24BA1FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209101   (779194) от 27.02.2018
-
-Итальянская работа (Ограбление по-итальянски) / The Italian Job (1969) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сразу после выхода из тюрьмы Чарли Крокер разработал гениальный план ограбления, который должен был стать преступлением столетия! С помощью короля преступного мира мистера Бриджера Чарли собирает звездную команду уголовников-профессионалов, которая безупречно «проворачивает дело». Банда Чарли на трех «мини-куперах» лихо угоняет четыре миллиона долларов прямо из-под (   Читать дальше...   )Производство: Великобритания, Oakhurst ProductionsЖанр: Боевик, триллер, комедия, криминалРежиссер: Питер КоллинсонАктеры: Майкл Кейн, Ноэл Коуард, Бенни Хилл, Раф Валлоне, Тони Бекли, Россано Брацци, Маргарет Блай, Айрин Хэндл, Джон Ле Мезюрье, Фред ЭмниПеревод: МногоголосыйСубтитры: Английские, русскиеПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C982852D515B1A3FAF1407056498A71D3F7E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761826   (778897) от 01.03.2018
-
-Убийство в Восточном экспрессе / Murder on the Orient Express (1974) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из наиболее классических случаев преступления в поезде, которое расследуется по ходу движения, представлен в экранизации знаменитого детектива Агаты Кристи «Убийство в Восточном экспрессе», осуществлённой американским режиссёром Сидни Люметом. Он привлёк для участия в этой английской картине 1974 года поистине звёздный ансамбль исполнителей — от британца Альберта (   Читать дальше...   )Жанр: детектив, драмаРежиссер: Сидни ЛюметАктеры: Альберт Финни, Ванесса Редгрейв, Жаклин Биссет, Лорен Бэколл, Ингрид Бергман, Мартин Болсам, Шон Коннери, Майкл Йорк, Жан-Пьер Кассель, Джон Гилгуд, Уэнди Хиллер, Ричард Уидмарк, Энтони Перкинс, Рейчел Робертс, Колин Блейкли, Джордж Кулурис, Денис Куилли, Вернон Добчефф, Джереми Ллойд, Джон Моффатт, Джордж СильверПеревод: дублированныйПродолжительность: 02:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BC97EE5C88723F2254AAC0CD7192E237814AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Forza Horizon 4 (2018) [Ru/Multi] (1.478.564.0/dlc) Repack seleZen [Ultimate Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072608.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Forza Horizon 3 (2016) [Ru/Multi] (1.0.125.2/dlc) Repack FitGirl [Ultimate Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072606.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Need For Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s/dlc) Repack FitGirl [Limite
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068899.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ FlatOut (2004) [Multi] (1.01 Build 14940243) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067856.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FlatOut 2 (2006) [Multi] (1.2) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067855.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FlatOut: Ultimate Carnage (2008) [Multi] (1.0) Scene TiNYiSO [Collector's Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067834.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Burnout Paradise Remastered (2018) [Ru/Multi] (1.0) Repack Wanterlude
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067719.jpg" />
 </div>
 
 
@@ -181,6 +181,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867910   (1067217) от 27.04.2026
+
+Crashday (2006) [Ru] (1.1) License
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crashday – это своего рода «все-в-одном» для любителей аркадных гонок. Взяв лучшее у множества самых разных гоночных игр, Crashday предлагает разнообразие режимов, среди которых каждый найдет то, что ему по душе: обычные гонки, каскадерское вождение с захватывающими дух прыжками и трюками, веселые состязания вроде «Передай бомбу», яростные бои с другими машинами (   Читать дальше...   )Тип издания: LicenseРазработчик: Moon Byte Studios, Replay StudiosЖанр: Гонки, АркадыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5523AE1CB0DD34E084554589F6DC6C54324871A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867294   (1067023) от 25.04.2026
+
+Demolition Racer (1999) [Multi] (1.0) License
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжатель идей дилогии Destruction Derby – гоночная игра редкого «разрушительного» поджанра, после выхода в свет не получившая практически ни одного положительного отзыва. Главные претензии у большинства «рецензентов» были к графической составляющей, и на фоне потоков грязи, выливавшихся на «убогость картинки» (с этими грязевыми потоками наверняка не сравнятся (   Читать дальше...   )Тип издания: LicenseРазработчик: Pitbull SyndicateЖанр: Гонки, АркадыЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C811343BC64EE3A7BD9C34390431CABE8BCA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867310   (1067002) от 25.04.2026
+
+Insane / Безумие (2000) [Ru] (2.01) License
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра "Insane" предлагает Вам попробовать свои силы за рулем различных внедорожников, включая разнообразные джипы, грузовики и военные машины, где все модели абсолютно реалистичны и имеют свои индивидуальные особенности. Гонки в режиме мультиплеер подарят Вам море невероятных ощущений. Вы почувствуете всю опасность бездорожья, когда колеса машины поднимают (   Читать дальше...   )Тип издания: LicenseРазработчик: InvictusЖанр: Гонки, АркадыЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EA56EB14F25248AFF1566443A9247E33E8EA13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863596   (1063357) от 05.04.2026
 
 L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.0.0) Repack Other s
@@ -189,7 +267,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063357.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063356.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Wreckreation (2025) [Ru/Multi] (1.4.4.149571) Repack Let'sРlay
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061089.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060094.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060088.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Carmageddon: Rogue Shift (2026) [Ru/Multi] (1.3.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059990.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ World of Outlaws: Dirt Racing 24 (2025) [En] (1.0) Scene Tenoke [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059183.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ FlatOut: Ultimate Carnage (2008) [Ru] (1.0) Repack R.G. ReCoding
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058586.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ FlatOut: Ultimate Carnage (2008) [Multi] (1.0) License RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058564.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Need for Speed: Underground (2003) [Multi] (1.4.0) Scene Spirity
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058563.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Juiced 2: Hot Import Nights (2007) [Multi] (1.0) License DETONATiON
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058557.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ FlatOut 2 (2006) [Ru] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058395.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ FlatOut (2004) [Ru] (1.1) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058181.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Driver: San Francisco (2011) [Ru/En] (1.04) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058126.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Need for Speed: Underground 2 (2004) [En] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057979.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ DiRT 3 (2012) [Ru] (1.2.0.0/dlc) Repack R.G. Freedom [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057870.jpg" />
 </div>
 
 
@@ -590,85 +668,6 @@ DiRT 3 (2012) [Ru] (1.2.0.0/dlc) Repack R.G. Freedom [Complete Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C20E46E694935EC2DE032C638A971012F7D3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854531   (1057672) от 20.02.2026
-
-Juiced (2005) [En] (1.0) License
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная цель игры - завоевать уважение восьми гоночных команд и всю территорию этих команд. Для этого нужно участвовать в уличных гонках. По задумке, для участия в них игрок должен иметь свою машину и свою команду - для командных заездов. Для участия во всех видах гонок нужно иметь команду, машины из каждого класса и уважение всех команд. Действие игры происходит (   Читать дальше...   )Тип издания: LicenseРазработчик: Juice GamesЖанр: Аркады, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D932C813FCEBF45E7DD3812069A6DF280A08D958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851050   (1054837) от 31.01.2026
-
-TRAIL OUT (2022) [Ru/Multi] (1.1/dlc) License GOG [Complete Edition]
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на фестиваль TRAIL OUT! Бесшабашные гонки по всему миру! Аварии, взрывы, разрушения и бесконечные крики водителей! Вас ожидают безбашенные гонки в разных уголках планеты, ваша главная цель дожить до финиша и взять главный кубок фестиваля! Аварии машин, крики вылетающих водителей, хайп от фанатов и невиданное разрушение всей трассы - всё это ожидает (   Читать дальше...   )Тип издания: LicenseРазработчик: GOOD BOYSЖанр: Экшены, Казуальные игры, Инди, ГонкиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC29E32E205FC75EB97F2016762573D92E606148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847930   (1052425) от 15.01.2026
-
-JDM: Japanese Drift Master (2025) [Ru/Multi] (1.2.157.1/dlc) Repack FitGirl
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте родину дрифта и погрузитесь в культовую автомобильную культуру Японии!
-JDM: Japanese Drift Master сочетает в себе реалистичную, тщательно выверенную физику в симуляторе, который работает так же плавно на контроллере, как и на гоночном оборудовании. Пройдите сотни километров дорог с открытым миром и откройте для себя сюжетные события и квесты. Оттачивайте (   Читать дальше...   )Тип издания: RepackРазработчик: Gaming FactoryЖанр: Казуальные игры, Гонки, Симуляторы, СпортЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9523199A7B713F0A636888473D29EF8A3869848B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568698.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549854.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540358.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519689.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_517835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_517835.jpg" />
 </div>
 
 
@@ -156,6 +156,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374228   (516666) от 11.08.2011
+
+Алексей Ильич Осипов | Социальная концепция РПЦ [2005] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_516666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо, если эту раздачу послушает человек, не знакомый с РПЦ или даже ее противник. Поймите меня правильно - чисто в утилитарных целях. Каких только вопросов о Церкви иногда выслушивать не приходится! Устаешь как-то отвечать... Как правило, в голове нецерковного собеседника вместо Церкви обитает некое невообразимое чучело, не имеющее ничего общего с действительностью, и вот эта вымышленная Церковь собеседником изничтожается. Например, опровергаются мысли, которые никогда и не приходили нам в голову и которых мы, естественно, никогда не высказывали; нам показывают, что мы болваны и глубоко заблуждаемся, приводя в примеры действительно глупые и ошибочные тезисы, которые, однако, нам не принадлежат.
+Социальная концепция - это выраженное Церковью отношение к внешнему миру. Во всяком случае, официально сформулированную позицию Церкви по отношению к социуму может оказаться полезным узнать и верующему, и неверующему.Жанр: основное богословие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97A09B8165D6FF13BA9062B0E8BB79713E81DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561012   (516653) от 03.07.2022
 
 Новый Завет. Евангелие от Марка (2022) [MP3, Роман Ильин]
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516653.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516070.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514456.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504527.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440218.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436244.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421128.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327535.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317421.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314118.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306024.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300009.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_300002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_300002.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298054.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282167.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269909.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246163.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244448.jpg" />
 </div>
 
 
@@ -647,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244407.jpg" />
 </div>
 
 
@@ -660,34 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB44B17F5F699E07D1996A675AB1A833ED8AD4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571508   (239459) от 24.08.2022
-
-Студия "Свет на Востоке" | Библия, Ветхий Завет (2018) [MP3, Владимир Виноградов]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239459.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издание включены все канонические книги Ветхого Завета Священного Писания в синодальном переводе.
-Первая часть Библии — Ветхий Завет состоит из 39 книг, которые дошли до нашего времени благодаря тщательной работе книжников, которые поколение за поколением сохраняли и переписывали текст оригинала. К VI веку по Р.Х.
-Эстафету в сохранении и передаче Писания приняли (   Читать дальше...   )Жанр: ПовествовательныйЯзык озвучки: РусскийПродолжительность: 82:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA258265E5D6E7D40DEA9DD3446CB3F56086914
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1354814   (986118) от 24.01.2020
+
+Рейчел Бердж | Корявое дерево (2020) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все это началось в тот день, когда я упала с дерева у бревенчатого домика Мормор. В тот день, когда я ослепла на один глаз.
+Я напишу обо всем случившемся на этих страницах, какой бы сумасшедшей это, быть может, ни выставило меня перед теми, кто будет читать мое послание.
+Почему мама просто не рассказала мне все как есть?
+Эта мысль, она словно тугой узел, и как я (   Читать дальше...   )Жанр: Зарубежное фэнтези, Книги для подростков, ТриллерПеревод: Елена С. ТатищеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263EB679759A05EB395099C3DF118EC66C54634E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354805   (986029) от 24.01.2020
+
+Екатерина Лесина | Цикл "Хельмова дюжина красавиц" [6 книг] (2014 - 2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странные дела творятся в Цветочном павильоне. В зеркалах обитают призраки, да и сами эти зеркала ведут себя вовсе не так, как зеркалам положено. И красавицы все как одна с тайнами: кто проклята, кто одержима, кто и вовсе с беспокойниками дело имеет да Хельму проклятому поклоняется. И как Себастьяну понять, которая из них колдовка, ежели все подозрительны? Тут еще (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Юмористическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FD8B3D91DFAE0794EE7A2B5A77041FC801E5F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612675   (985999) от 02.02.2013
+
+Галина Романова | Как начать карьеру [2012] [FB2][TXT][JAVA(jar+jad)]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плох тот студент, который не мечтает стать ректором. Плох тот некромант, который не мечтает стать Темным Властелином. Выпускнику Колледжа Некромагии Згашу Груви не грозит ни то ни другое. Ему предложили работу помощника некроманта в маленьком городке. Здесь живут маленькие люди со своими маленькими проблемами. Здесь не творится история, не вершатся судьбы мира. Но даже здесь есть место подвигу, чести, дружбе и… любви.Формат: FB2,TXT,JAVA(jar+jad).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DB83EEDF073776B6946C3B0A799445E37F1BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612594   (985832) от 02.02.2013
 
 Александр Авраменко | Падальщик [2013] [FB2,RTF]
@@ -6,7 +87,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985832.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985760.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985544.jpg" />
 </div>
 
 
@@ -91,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985277.jpg" />
 </div>
 
 
@@ -118,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985263.jpg" />
 </div>
 
 
@@ -146,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985176.jpg" />
 </div>
 
 
@@ -172,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984673.jpg" />
 </div>
 
 
@@ -198,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984611.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984468.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984222.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984210.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983520.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983447.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983446.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982149.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981954.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981868.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981813.jpg" />
 </div>
 
 
@@ -491,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981806.jpg" />
 </div>
 
 
@@ -519,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981035.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980581.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980546.jpg" />
 </div>
 
 
@@ -602,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980533.jpg" />
 </div>
 
 
@@ -616,88 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F31DC140ED91202EB6F318E98929155FF9174F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356095   (980525) от 29.01.2020
-
-Вероника Крымова | Вредная ведьма для дракона (2020) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше семейство всегда любило влипать в неприятности. Взять хотя бы бабушку, которая превратила короля в крысу (бедняга до конца дней не мог оправиться от шока!). Бабулю отправили в ссылку, а род покрыли позором. Сейчас вот мой брат решил соблазнить девушку, предназначенную в жены единственному дракону и стражу королевства, графу де Отерону. Возлюбленная оказалась (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8781D95CF0C20B70D2BBB095B717B19C03E3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356191   (980446) от 29.01.2020
-
-Филип К. Дик | Симулякры (2020) [EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980446.jpg" />
-</div>
-
-
-###  Подробнее
-
-В опустошенном мире XXI века судьба сводит разрозненную группу людей: фашиста, мечтающего о путче, композитора, который играет на пианино с помощью силы мысли, Первую леди, стоящую в тени президента-симулякра, и последнего в мире практикующего психотерапевта. И все они должны успокоить граждан, которые начинают задавать слишком много вопросов.
-Филип Дик в своем классическом (   Читать дальше...   )Жанр: Научная фантастикаПеревод: Николай РоманецкийФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBB304A1CF75BB75111E9C2D6731A8D5867FE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973127   (980206) от 08.01.2016
-
-Дэвид Зинделл | Экстр (2003) [PDF]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами — «Реквием по Homo Sapiens».
-Грандиозная, увлекательная и поразительно поэтичная «опера» — однако опера не космическая, но — «космологическая».
-Слушайте. Слушайте...
-Слушайте надменную, гордую, чеканную сагу Будущего...(   Читать дальше...   )Жанр: Научная фантастика, Фантастический романПеревод: Н. И. ВиленскаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498CC496A6B18C470B5AD66337AB489C073DDBA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

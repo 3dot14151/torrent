@@ -1,3 +1,55 @@
+###  Публикация: 658045   (806888) от 19.05.2013
+
+Шаблоны сайта - Jarida - WordPress тема для новостного блога или журнала
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jarida - адаптивный шаблон для Wordpress. Подойдёт для новостного сайта, блога или журнала. Включает конструктор главной страницы, 5 предустановленных скинов, систему отзывов, 28 редактируемых виджетов и многое другое. В качестве инструментария используется TiePanel.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24648EE2D8B3D0F0AA7A171DE3D48D335C6FACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386755   (793129) от 30.05.2020
+
+Шаблоны сайта - Elegant Themes - Divi v.4.4.6 [PHP, CSS]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Divi Theme v4.4.6 - универсальный шаблон для WordPress, имеет 46 элементов для настройки страниц, что делает ее универсальной и выводит на первое место среди самых удобных тем для создания сайтов.Формат: PHP, CSS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EFC40C24C34DD10E11D98DF388AC247DA16BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386742   (793113) от 30.05.2020
 
 WordPress plugin - Elementor PRO v2.9.4 [PHP, SVG, CSS, JS]
@@ -6,7 +58,7 @@ WordPress plugin - Elementor PRO v2.9.4 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793113.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738842.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_717137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_717137.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666283.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634509.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628319.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622144.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622098.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561446.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559451.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542832.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498111.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_398959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_398959.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388298.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ WordPress plugin - Interactive 3D FlipBook (Lite version) [PHP, HTML, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265957.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ Ui Kits - UI8 - Enefty - NFT Website UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213477.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ Ui Kits - UI8 - FindWork - Job Finder App Ui Kits [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212178.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ Ui Kits - UI8 - Carsova - Electric Cars Website [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212137.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ Ui Kits - UI8 - Convert [PDF]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202414.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ Ui Kits - UI8 - Camero - CRM Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193342.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ Ui Kits - UI8 - Beesign - e-Signature Document Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173554.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141074.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ WordPress plugin - Rank Math SEO PRO 3.0.49 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127538.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ WordPress plugin - Advanced Custom Fields PRO 6.2.4 [PHP, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127533.jpg" />
 </div>
 
 
@@ -628,60 +680,6 @@ Advanced Custom Fields (ACF) – превращает сайты WordPress в п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57083F29F3602C3350B7C4A5D09C69F1DA060D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557676   (127530) от 17.12.2023
-
-WordPress plugin - Oxygen 4.8 [PHP, SVG, CSS, JS]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный плагин конструктор страниц, который дает Вам полный контроль над визуальными макетами веб-страниц на основе WordPress. Oxygen - самый гибкий и мощный визуальный конструктор сайтов для WordPress. Oxygen – просто лучший инструмент для разработки сайтов WordPress с идеальной отзывчивостью и Pixel Perfect вёрсткой. Плагин даёт возможность контролировать каждый (   Читать дальше...   )Формат: PHP, HTML, CSS, JS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E4D23A96805ABBA4CB6B11BA53D77AC5124C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823132   (117610) от 10.10.2025
-
-Ui Kits - UI8 - The Folio - Portfolio, Blog, and Personal Website Template [FIG, HTML]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон включает в себя более 48 потрясающих и современных экранов для личных сайтов, блогов и портфолио, охватывая все: от дизайна домашней страницы до отдельных записей в блоге и частей портфолио.
-
-В дополнение к яркой и веселой светлой теме, шаблон также включает в себя элегантную и изысканную темную тему для пользователей, которые предпочитают более минималистичную (   Читать дальше...   )Формат: FIG, HTML
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFB731324251B6678D23D6E77D931425AF2EC1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

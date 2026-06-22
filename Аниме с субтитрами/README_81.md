@@ -1,3 +1,29 @@
+###  Публикация: 1314926   (380375) от 22.09.2019
+
+Joshikousei no Mudazukai | Wasteful Days of High School Girl | Бездельные дни старшеклассницы [2019, TV, 12] WEBRip 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380375.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования три девочки: Танака по прозвищу Дура (из-за низких оценок), Кикучи по прозвищу Отаку (из-за одержимости сёнен-аем) и Сагиномия по прозвищу Робот (потому что гениальная, но бесчувственная). Вместе с другими яркими персонажами они прожигают свою жизнь в старшей школе.Производство: Студия Passione / パッショーネЖанр: комедияРежиссер: Такахаси ТакэоПеревод: SpellSubsЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAD98ABE61739C670B31FCBE098FD41C2C6B061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573017   (380265) от 10.11.2012
 
 Highlander: The Search for Vengeance / Горец: В поисках мести [2007, MV, 1 из 1] HDTVRip 720p raw
@@ -6,7 +32,7 @@ Highlander: The Search for Vengeance / Горец: В поисках мести 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380265.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ghost in the Shell: Stand Alone Complex 2nd GIG / Призрак в доспех
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379748.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Liz to Aoi Tori | Liz and the Blue Bird | Лиз и синяя птица [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378643.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Asagao to Kase-san. | Kase-san and Morning Glories. | Сияние утра и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378642.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378213.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377859.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Eiga Odd Taxi: In the Woods | Необычное такси (фильм) [2022, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376925.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376746.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Aggressive Retsuko: We Wish You a Metal Christmas | Aggretsuko: We Wish You a Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376703.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Aggressive Retsuko (2019) | Агрессивная Рэцуко (2019) [2019, We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376618.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Aggressive Retsuko (2018) | Aggretsuko | Агрессивная Рэцуко (20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376608.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Under the Dog | Побитые псы [2016, OVA] BD-rip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376259.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1993-1996
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372470.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Mahou Yuugi / Magical Witchland / Magical Play / Волшебная страна
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372195.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Suzumiya Haruhi-chan & Nyoron Churuya-san / Меланхолия Суздуми 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371792.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Karakai Jouzu no Takagi-san 2 | Озорная Такаги [ТВ-2] [2019, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371749.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? | Влюбишься ли т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371738.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Tsukumogami Kashimasu | We Rent Tsukumogami | Цукумогами напрок�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370135.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Granbelm | Гранбелм [2019, TV, 13 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369606.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Sangatsu no Lion S1+S2 | March Comes in like a Lion S1+S2 | Мартовский
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368006.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367865.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Fukumenkei Noise | Anonymous Noise | Не скрывая крик [2017, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367662.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Konbini Kareshi | Convenience Store Boy Friends | Парни из магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367658.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! | High School 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367342.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366495.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8F328C09970BE272AC03146B55E144D1A955113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070399   (366418) от 07.11.2016
-
-Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV, 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о Коконоцу, который отнюдь не горит желанием наследовать конфетный магазин в глухой провинции, как того хочет его отец. Хотару, души не чающая в маленьких кондитерских, как-то объявляется в заведении Коконоцу и, узнав ситуацию, начинает регулярно наведываться с единственной целью — убедить парня изменить решение.Жанр: комедия, повседневностьРежиссер: Такаянаги Сигэхито / Takayanagi Shigehito / 高柳滋仁Продолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841205EF2F6D59E224BEF99B8684EB53BD5BA0E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

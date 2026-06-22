@@ -1,3 +1,29 @@
+###  Публикация: 956742   (328963) от 15.11.2015
+
+Миньоны / Minions (2015) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миньоны живут на планете гораздо дольше нас. У них одна навязчивая идея - служить самой Гадкой личности из имеющихся в наличии. Динозавры, фараоны, Дракула, Наполеон - все они оказались недолговечны. И тогда миньоны рванули в Нью-Йорк. Их ждут деньги, власть, роковая суперзлодейка Скарлет Оверкилл и, конечно же, вкуснейшая «банана»! Во всяком случае, так им кажется.Производство: США / Illumination EntertainmentЖанр: Мультфильм, Комедия, СемейныйРежиссер: Кайл Балда, Пьер КоффанАктеры: Сандра Буллок, Джон Хэмм, Майкл Китон, Эллисон Дженни, Джеффри Раш, Дженнифер Сондерс, Стив Куган, Дэйв Розенбаум, Пьер Коффан, Кэти Миксон, Майкл Битти, Хироюки Санада, Стив Карелл, Алекс Доудинг, Пол Тонли, Ава Акрес, Карлос Аласраки, Лори Алан, Кайл Балда, Дэниэл Баркер, Боб Берген, Мелани БондПеревод: Дублированный (Blu-ray CEE)Язык субтитров: Русский (Forced)Продолжительность: 01:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1C7D59F5E806F91924DEDC620C70F2CA8AD1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580993   (328724) от 03.10.2022
 
 Суперпитомцы / DC League of Super-Pets (2022) HDRip [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328724.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327270.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326296.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326141.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324431.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323467.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323416.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322977.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322717.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322129.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321807.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321371.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318185.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318118.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317596.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317097.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315942.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315461.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314820.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314804.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313885.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313289.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312485.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312442.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309433.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8D24C24E4118C5F9FCFF82F01B8E127D8BAE14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418785   (309128) от 04.12.2011
-
-Ледниковый период: Рождество мамонта / Ice Age: A Mammoth Christmas (2011)  WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Сид случайно разрушает рождественскую скалу, Мэнни говорит ему, что Сид попал в черный список Санты, и что ленивцу придется лететь на северный полюс просить извинения у Санты. На северном полюсе Сид хотел все сделать как лучше, но только усугубил ситуацию . Теперь дело за Мэнни и компанией, только они объединившись сохранят Рождество для всего мира!Жанр: Комедия, мультфильм, семейныйРежиссер: Карен ДишерПерсонажи: Куин Латифа, Дэнис Лири, Джон Легуизамо, Рэй Романо, Джошуа РашПеревод: Многоголосый закадровый (2вида) + одноголосый закадровыйСубтитры: нетПродолжительность: 00:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ABF2EE24FA56921FEE07834A7CBE92276DCA1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

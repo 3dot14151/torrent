@@ -1,32 +1,3 @@
-###  Публикация: 778960   (771053) от 22.04.2014
-
-Браво - 30 лет. Концерт в Stadium Live (2014) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добрый вечер, Москва
-02. Мода
-03. Мне грустно и легко
-04. Если бы на Марсе(   Читать дальше...   )Жанр: Rock, Beat, County RockПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C6A5E2CE97C78B1541BB1A49D7CA4727F06246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392738   (769079) от 27.06.2020
 
 Квартирник НТВ у Маргулиса. Наргиз Закирова (26.06.2020) WEB-DL [H.264/1080p-LQ]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769079.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769049.jpg" />
 </div>
 
 
@@ -88,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769048.jpg" />
 </div>
 
 
@@ -115,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768944.jpg" />
 </div>
 
 
@@ -141,7 +112,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768470.jpg" />
 </div>
 
 
@@ -167,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768325.jpg" />
 </div>
 
 
@@ -196,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768323.jpg" />
 </div>
 
 
@@ -222,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768286.jpg" />
 </div>
 
 
@@ -248,7 +219,7 @@ Depeche Mode - Live Spirits / Spirits in the Forest (2020) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768252.jpg" />
 </div>
 
 
@@ -274,7 +245,7 @@ King Diamond - Songs for the Dead Live (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767563.jpg" />
 </div>
 
 
@@ -300,7 +271,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767559.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767327.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766748.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766735.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766670.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Alestorm - Концерт в Тилбурге / Alestorm - Live in Tilburg (2021
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766104.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Karnivool - Концерт в театре Хита Леджера / Karnivool -
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765140.jpg" />
 </div>
 
 
@@ -495,7 +466,7 @@ Epica - Концертное шоу Omega Alive / Epica - Omega Alive (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765088.jpg" />
 </div>
 
 
@@ -524,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765080.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765062.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764572.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764265.jpg" />
 </div>
 
 
@@ -636,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763225.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ A MusiCares' Tribute to Paul McCartney (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762377.jpg" />
 </div>
 
 
@@ -693,7 +664,7 @@ Mylene Farmer - Avant que l'ombre... A Bercy (2006) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760571.jpg" />
 </div>
 
 
@@ -707,6 +678,35 @@ Mylene Farmer - Avant que l'ombre... A Bercy (2006) BDRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E6242F7131C76CCD54571F5FB203EE02FBD8ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280518   (760321) от 03.02.2019
+
+Лев Лещенко - Концерт в день рождения (2019 ) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трансляция концерта Льва Лещенко "День рождения с друзьями". Выдающемуся советскому и российскому исполнителю исполняется 77 лет! Со сцены "Крокус Сити Холла" в исполнении виновника торжества и гостей вечера звучат популярные композиции.01. Лев Лещенко — Мне интересно жить
+02. Лев Лещенко — Создан для тебя
+03. Лев Лещенко, Оксана Богословская, Александр Корецкий и Детский хор радио и телевидения России — Пока горит свеча
+04. Лев Лещенко и Юрий Антонов — Зеркало(   Читать дальше...   )Производство: Россия, Первый КаналЖанр: Pop, КонцертСубтитры: отсутствуютПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B4A640F37F36857B92C384D43A53F30B487488
 ```
 
 https://mybot314.ru/tekegram_catalog/

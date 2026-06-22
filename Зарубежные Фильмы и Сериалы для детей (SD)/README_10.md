@@ -1,3 +1,29 @@
+###  Публикация: 1311175   (539613) от 30.06.2019
+
+Дамбо / Dumbo (2019) BDRip [H.264] [PR]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цирковой импресарио Макс Медичи назначает бывшую звезду цирка Холта Фэрриера и его детей Милли и Джо опекунами новорожденного слонёнка, чьи невероятно большие уши сразу становятся предметом для постоянных шуток и насмешек коллег Холта по цеху. Внезапно узнав, что Дамбо умеет летать, владелец цирка решает нажиться на необычных способностях слонёнка. К делу подключается (   Читать дальше...   )Производство: США / Walt Disney Pictures, Tim Burton Productions, Infinite DetectiveЖанр: фэнтези, семейныйРежиссер: Тим Бёртон / Tim BurtonАктеры: Колин Фаррелл, Майкл Китон, Дэнни ДеВито, Ева Грин, Алан Аркин, Нико Паркер, Finley Hobbins, Рошан Сет, Ларс Айдингер, Деобиа Опарей, Джозеф Гатт, Мигель Муньос СегураПеревод: Дублированный (iTunes)Субтитры: русские (форсированные, полные)Продолжительность: 01:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA0DF6F363E61EB3D619A5D73367838BE321190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311208   (539491) от 30.06.2019
 
 Дамбо / Dumbo (2019) BDRip [H.264] [PR]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539491.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534117.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530543.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530156.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526994.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525903.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524938.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524697.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523369.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_523010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_523010.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516601.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_513287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_513287.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_513174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_513174.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511174.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509025.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505195.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501485.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501465.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497184.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494502.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493678.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492520.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492124.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491375.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491115.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0ECF4C1917CF0E82C6EA14574D1682B412C5C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319267   (486328) от 10.08.2019
-
-Дамбо / Dumbo (2019) BDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цирковой импресарио Макс Медичи назначает бывшую звезду цирка Холта Фэрриера и его детей Милли и Джо опекунами новорожденного слонёнка, чьи невероятно большие уши сразу становятся предметом для постоянных шуток и насмешек коллег Холта по цеху. Внезапно узнав, что Дамбо умеет летать, владелец цирка решает нажиться на необычных способностях слонёнка. К делу подключается (   Читать дальше...   )Производство: США, Walt Disney Pictures, Tim Burton Productions, Infinite DetectiveЖанр: фэнтези, семейныйРежиссер: Тим БёртонАктеры: Колин Фаррелл, Майкл Китон, Дэнни ДеВито, Ева Грин, Алан Аркин, Нико Паркер, Финли Хоббинс, Рошан Сет, Ларс Айдингер, Деобиа ОпарейПеревод: Дублированный (лицензия)Субтитры: РусскиеПродолжительность: 01:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DCFDC2CDD826D327688A13DD424C2AB504EB09
 ```
 
 https://mybot314.ru/tekegram_catalog/

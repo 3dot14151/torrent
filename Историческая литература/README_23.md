@@ -1,3 +1,112 @@
+###  Публикация: 1111273   (848855) от 05.03.2017
+
+Меньшевики интервенты (1931) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848855.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Обвинительная речь Н. В. Крыленко
+
+2. Приговор по делу контрреволюционной организации меньшевиков
+(   Читать дальше...   )Жанр: История, политология, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33228ABD85CE39FCF9DC13654D2328BB45FA11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111264   (848847) от 05.03.2017
+
+М. Меклер | О победе социализма в одной стране (1926) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848847.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Давно уже сказано, что без революционной теории не может быть и революционного движения, и в настоящее время вряд ли есть надобность доказывать подобную истину» (В. И. Ленин. Задачи русских социал-демократов (конец 1897 г.).— ПСС, 5-е изд, т. 2, с. 462).Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6D916FA6D91B3509939C8EBC767118523A9046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111267   (848780) от 05.03.2017
+
+Г. В. Плеханов | О войне (1917) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848780.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 августа 1914 началась Первая Мировая Война, и закончилась эпоха II Интернационала в истории всемирного рабочего движения. Георгий Плеханов несёт свою долю ответственности за бесславный крах этой организации. Подобно своим французским, немецким и английским коллегам Плеханов с началом мировой войны стал ярым оборонцем и сторонником войны с Германией до победного (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B3FFBEC75AFD81B6698DFCAB3AFDDBD991AE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002321   (848486) от 31.03.2016
+
+Лев Прозоров | Мифы о Древней Руси (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848486.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Работа историка сильно напоминает работу следователя, имеющего дело с показаниями свидетелей и уликами (данные археологии)…»
+В своей НОВОЙ книге ведущий историк Языческой Руси проводит такое расследование, опровергая самые расхожие, навязчивые и вредные мифы о нашем прошлом.
+Знаете ли вы, что «непобедимые викинги», якобы «наводившие ужас на всю Европу», на самом (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0FAA36A0E41058A6359EC409F9067C1D41698B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002634   (846836) от 01.04.2016
 
 Хелен Раппапорт | Дневники княжон Романовых. Загубленные жизни (2014) [FB2]
@@ -6,7 +115,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846836.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846684.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846536.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845525.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845190.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844801.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844049.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843486.jpg" />
 </div>
 
 
@@ -216,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843415.jpg" />
 </div>
 
 
@@ -242,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843414.jpg" />
 </div>
 
 
@@ -268,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843322.jpg" />
 </div>
 
 
@@ -294,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842489.jpg" />
 </div>
 
 
@@ -323,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841639.jpg" />
 </div>
 
 
@@ -349,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841391.jpg" />
 </div>
 
 
@@ -375,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841238.jpg" />
 </div>
 
 
@@ -401,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840189.jpg" />
 </div>
 
 
@@ -427,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840185.jpg" />
 </div>
 
 
@@ -453,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840011.jpg" />
 </div>
 
 
@@ -479,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839881.jpg" />
 </div>
 
 
@@ -505,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838396.jpg" />
 </div>
 
 
@@ -531,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838394.jpg" />
 </div>
 
 
@@ -557,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837390.jpg" />
 </div>
 
 
@@ -568,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A2797028986F7E9B3180F3782E588422FD42922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379465   (836263) от 01.05.2020
-
-А.С. Абрамов | Мавзолей Ленина [4 издания] (1963,1980,1987,1988) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836263.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о строительстве Мавзолея В. И. Ленина, его архитектуре, истории почетного караула, о Революционном некрополе у Кремлевской стены и о связанных с ними важнейших событиях на Красной площади.Жанр: История ОтечестваФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118CB97D1F1D18DC8A8A444DBFB904363D8E9B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379462   (836111) от 01.05.2020
-
-Вся Украина на 1926/27 год [в 5 частях] (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся Украина на 1926/27 год Адресно-справочная книга в пяти частях.
-Справочник охватывает все стороны административной, хозяйственной и общественной жизни Украины. Содержет небольшое количество рекламных страниц.Жанр: Отечественная история, экономическая историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79D63802471F39A299FF8A9469F62FFAB18DDE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379461   (836091) от 01.05.2020
-
-Ф.И. Полярный (общ. ред.) | Вся Украина и Крым (1924) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся Украина и Крым - справочное издание о государственном устройстве Украины и Крыма, их территории и населении, экономике, адресам жителей и другим вопросам согласно состоянию на 1924 год.Жанр: История ОтечестваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FF3852488297EC23940109A2D24C293CAC9AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379463   (835904) от 01.05.2020
-
-Подборка книг | Вся Москва, Адресные, справочные, памятные книги, Адрес-календари, Указатели, Табели, Справочники, Алфавиты [179 книг] (1793-1939) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка справочников о городе Москва, из которых можно почерпнуть сведения об административном устройстве, транспорте, коммерции, образовании, здравоохранению, правоохранительных органах, алфавитный указатель жителей города Москвы и прочая, и прочая, и прочая.Жанр: История Отечества, история МосквыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C192B8D2519581E73DEAC3360CE5F7F1C7EF367E
 ```
 
 https://mybot314.ru/tekegram_catalog/

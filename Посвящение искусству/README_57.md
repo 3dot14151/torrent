@@ -1,3 +1,81 @@
+###  Публикация: 1767069   (33463) от 21.12.2024
+
+Мажор 10 лет (2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33463.jpg" />
+</div>
+
+
+###  Подробнее
+
+В декабре 2024 года сериал про наследника бизнес-империи и по совместительству полицейского Игоря Соколовского отмечает десятилетие. Команда проекта вновь собирается на площадке, чтобы вспомнить, как все начиналось, поговорить о феномене популярности франшизы, поделиться любимыми моментами со съемок и разобраться, как изменились герои «Мажора» за 10 лет.Производство: Россия / ХотелВмедиа, Плюс СтудияЖанр: документальныйРежиссер: Максим Полинский, Георгий Сарсеков, Роман ГловаУчастники: Павел Прилучный, Павел Чинарёв, Игорь Жижикин, Александр Обласов, Денис Шведов, Анна Цуканова-Котт, Дмитрий Шевченко, Владимир Селезнев, Александр Цекало, Максим ПолинскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2846DFE228B4201EE91B0E56B9F3ACE9D0EEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769416   (32729) от 28.12.2024
+
+Эрмитаж: Экскурсия по музею (2006) BDRip [AV1/2160p] [handmade upscale AI]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Государственный Эрмитаж принадлежит к числу величайших музеев мира. Почти за два с половиной столетия в нем собрана одна из крупнейших коллекций памятников мировой культуры, насчитывающая около трех миллионов экспонатов. Этот фильм - самая полная, увлекательная экскурсия по бывшей царской резиденции с ее неповторимыми интерьерами и грандиозными парадными залами, (   Читать дальше...   )Производство: Россия, "Государственный Эрмитаж", ООО "ТехноПром"Жанр: документальный, искусство, история, экскурсияРежиссер: Игорь ЛебедевУчастники: Геннадий СмирновСубтитры: отсутствуютПродолжительность: 03:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E3FF3FFD878767D60BB006999A188B77F87803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364058   (25693) от 05.03.2025
+
+Кино о кино (2013-2025) DVB (серии 1-88 из ?) (обновляемая)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документально-развлекательный проект "Кино о кино" рассказывает об истории создания легендарных и всеми любимых фильмов. Автор и ведущий - Александр КазакевичТелекомпания: Россия / КультураЖанр: Документальный, ИскусствоРежиссер: Константин ГоленчикСубтитры: русские, телетекст (888)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D715777250D9B3255DA3B946420F80A0DDCCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683800   (21679) от 12.04.2025
 
 Вызов. О фильме, покорившем космос (2023) WEBRip [H.264] (сезон 1, серии 0-8 из 8)
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21679.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20974.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20689.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20054.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19671.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19308.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18645.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18165.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18086.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17123.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15240.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14028.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13873.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13617.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13168.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12977.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12960.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12856.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11938.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11931.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11751.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11730.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ Simple Plan: Дети в толпе / Simple Plan: The Kids in the Crowd (2025) 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11314.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ Simple Plan: Дети в толпе / Simple Plan: The Kids in the Crowd (2025) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F38506135E1AFAE38A4BC9679183C8EF40376A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807789   (10895) от 20.07.2025
-
-Брюс Ли: Выход клонов / Enter the Clones of Bruce (2023) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брюс Ли появился, казалось бы, из ниоткуда, и штурмом стал захватывать сначала китайскую, а затем и мировую киноиндустрию. Фильм за фильмом он становился все большей звездой, продюсеры бились за него, а деньги текли рекой. Но актер умер неожиданно для всех, всего лишь в тридцать два года. Индустрия была совсем не готова так просто отпустить восходящую звезду, и перед (   Читать дальше...   )Производство: США / Severin FilmsЖанр: документальный, боевик, историяРежиссер: Дэвид ГрегориУчастники: Брюс Ле, Брюс Лай, Драгон Ли, Брюс Люн, Christophe Champclaux, Рене Шато, Дэвид Цзян, Чи Ли, Дон Вон, Стефани ДердерьянПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: русские (forced, full)Продолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9506E4B84289BD968D9C80A55D3FCAA94B4F5CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807722   (10885) от 20.07.2025
-
-Брюс Ли: Выход клонов / Enter the Clones of Bruce (2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брюс Ли появился, казалось бы, из ниоткуда, и штурмом стал захватывать сначала китайскую, а затем и мировую киноиндустрию. Фильм за фильмом он становился все большей звездой, продюсеры бились за него, а деньги текли рекой. Но актер умер неожиданно для всех, всего лишь в тридцать два года. Индустрия была совсем не готова так просто отпустить восходящую звезду, и перед (   Читать дальше...   )Производство: США / Severin FilmsЖанр: документальный, боевик, историяРежиссер: Дэвид ГрегориУчастники: Брюс Ле, Брюс Лай, Драгон Ли, Брюс Люн, Christophe Champclaux, Рене Шато, Дэвид Цзян, Чи Ли, Дон Вон, Стефани ДердерьянПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (forced, full)Продолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73BCF99D2FE8D99208CDE6358CCF75C54D6B775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807993   (10665) от 22.07.2025
-
-Avicii. Я - Тим / Avicii - I'm Tim (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о взлёте и трагическом падении шведского диджея и продюсера Тима Берглинга, известного как Avicii. В картине показаны его стремительный успех, напряжённые гастроли, проблемы со здоровьем и борьба с депрессией, вызванные переутомлением и давлением индустрии. Фильм заканчивается его уходом из музыки в 2016 году, но, к сожалению, не затрагивает его (   Читать дальше...   )Производство: Швеция / Candamo FilmЖанр: документальный, биография, музыкаРежиссер: Хенрик БурманУчастники: Авичи, Алоэ Блэк, Крис Мартин, Найл Роджерс, Филип Акессон Салем Аль Факир, Кэти Бейн, Клас Берглинг, Джон Бон Джови, Сандро КаваццаПеревод: Многоголосый любительский (Гослинг на Гусе)Язык озвучки: русский, английскийСубтитры: русские, английские (forced, SDH), немецкие, испанские, португальские, французские, украинскиеПродолжительность: 01:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7E57AD9425EE267D5FAF589B8FE6CD24D32C2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

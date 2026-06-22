@@ -1,3 +1,119 @@
+###  Публикация: 977448   (965681) от 21.01.2016
+
+VA - Nonplusultra: Rock (2007) 5CD Box-Set [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник самых популярных рок песен прошлого столетия01. Mr. Mister - Broken wings (05:33)
+02. Reo Speedwagon - Keep on loving You (Album Version) (03:22)
+03. Bad English (Bass ''Ricky Phillips'') - When I see you smile (Album Version) (04:18)
+04. Toto (Bass ''David Hungate'') - Hold the line (Album Version) (03:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DD2670B59340E970A07323D741ED23614E248C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977623   (965608) от 21.01.2016
+
+VA - Nonplusultra: Melodic Rock (2008) 5CD Box-Set [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник самых популярных мелодичных рок песен прошлого столетия01. Europe - The final countdown (05:08)
+02. Journey - Wheel in the sky (04:12)
+03. Mother's Finest - Baby love (04:20)
+04. Steve Perry - Oh sherrie (03:49)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2AFA47DED888BFC90F8CD4209AFAD98A064E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359360   (965114) от 11.02.2020
+
+Тінь Сонця - На небесних конях (2020) [MP3|320 kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Запорізький марш (02:32)
+02. Тримайся, козак (03:11)
+03. Мчать козаки (04:36)
+04. Вітер з Січі (03:41)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310C89AEE18C088C8B9403D92026F9ABC7CDBF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978764   (962046) от 24.01.2016
+
+VA - Covered In Blues (2014) [MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Russell - We Will Rock You (3:27)
+02. Robin Zander - Stone Cold Crazy (3:36)
+03. Mickey Thomas - Play The Game (4:54)
+04. Joe Lynn Turner - Fat Bottomed Girls (4:25)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AE6D28007CD4E713AB2B9C74198ED1DC417EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360117   (961856) от 14.02.2020
 
 David Bowie - Is It Any Wonder? (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +122,7 @@ David Bowie - Is It Any Wonder? (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961856.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957069.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Vinnie Moore - Aerial Visions (2015) Japanese Edition [OGG|463-511 кб/с] <Ins
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956165.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Now That's What I Call Rock (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954596.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ TNT - A Farewell To Arms (2011) [MP3|201~295 кб/с (V0) ] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953047.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Ultimate Rock - 4CDs of great rock music (2015) [MP3|320 кб/с] <Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952607.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Alpha To Omega - A Life (1976) Reissue CD, 1997, Black Rills Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952447.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Chris Rea - Still So Far To Go...The Best Of (2009) 2CD [MP3|140~234 кб/с (V2
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951302.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Beat City Tubeworks - Top Rock (2020) [MP3|320 Kbps] <Rock'n'Roll, 70's>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951011.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Creedence Clearwater Revival - (Collected) (2008) [MP3|192-320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948748.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ Elton John - Wonderful Crazy Night (2016) Deluxe Edition  [MP3|320 кб/с] <Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946658.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Gov't Mule - 2016-12-31 The Beacon Theatre, New York, NY (2017) 3CD Live [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945977.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ David Bowie - No Plan (2017) EP [MP3|320 Kbps] <Art Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944487.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ The Detroit Cobras - Life, Love And Leaving (2001) [MP3|320 Kbps] <Garage Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943024.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Cold Body Radiation - The Orphean Lyre (2017) [MP3|320 Kbps] <Post-Rock, Shoegaz
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943020.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Tedeschi Trucks Band - Let Me Get By (2016) [MP3|320 кб/с] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942351.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Erin Evermore - Erin Forever …And Ever …And Ever (1998) Reissue, 1999, King 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941683.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Hozier - Hozier (2014) Deluxe Edition [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940066.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Edgar Winter - Live On Stage (Feat. Leon Russell) (2019) [MP3|320 Kbps] <Rock, B
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939241.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ VA - Pigs and Pyramids (An All Star Lineup Performing the Songs of Pink Floyd) (
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938743.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Omega - Дискография (16 альбомов + сингл)(1968-1998) [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938290.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ Factory - A Tribute to Pink Floyd (Best of Remix) (2015) [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937743.jpg" />
 </div>
 
 
@@ -625,128 +741,6 @@ Factory - A Tribute to Pink Floyd (Best of Remix) (2015) [MP3|320 Kbps] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0312AB08FF484DE9461A4279817A0DB5323B519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176100   (935848) от 17.02.2010
-
-VA - Deuses da Guitarra (2009) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Clapton – Crossroads
-02. Santana – Samba Pa Ti(Live)
-03. J J Cale – Cocaine
-04. BB King – My Lucille
-05. Steve Vai – For the Love of God
-06. George Benson – The Ghetto
-07. Jonny Lang – Lie to Me
-08. Buddy Guy – My Time After a While
-09. John Lee Hooker – One Bourbon, One Schotch, One Beer
-10. Robert Cray – Nothig but a Woman(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093177   (935154) от 14.01.2017
-
-The xx - I See You (2017) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous
-02. Say Something Loving
-03. Lips
-04. A Violent Noise(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23768D2AF976F4226C6062E902A873B237013B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985835   (934115) от 12.02.2016
-
-Blues Dimension - 2 Original Albums (2014) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Get Ready (2:11)
-02.  Wonderland (3:12)
-03.  The One And Only Man (3:36)
-04.  Things I Remember (2:45)(   Читать дальше...   )Жанр: Rock|Продолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FF7D19A06C96F064341FB9CA3424D149ECDBB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093594   (933968) от 15.01.2017
-
-Platonick Dive - Overflow (2015) [MP3|320 Kbps] <Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoken Noise (03:59)
- 02. Please Dance Slowly (03:09)
- 03. Above You (04:11)
- 04. From Seattle to Berlin (03:00)(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495D0C8F645DD13F3D20EB981BE1DEC49BEBCF9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

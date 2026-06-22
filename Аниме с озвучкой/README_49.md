@@ -1,3 +1,84 @@
+###  Публикация: 1444226   (159046) от 11.11.2023
+
+Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титанов [ТВ-2] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди и гиганты. Кто из них охотник, а кто жертва? Для того, чтобы понять это, был создан корпус разведки под командованием Эрвина Смита. Но последние загадочные события, во многих из которых были замешаны кадеты 104 корпуса, поставили командира разведки в трудное положение.
+
+Кто же такие эти гиганты? Откуда они явились? Есть ли еще люди, которые могут превращаться (   Читать дальше...   )Производство: Wit StudioЖанр: приключения, фэнтези, драмаРежиссер: Араки ТэцуроЯзык озвучки: Японский, русский (AniDub, AniLibria, KANSAI, NewComers, Wakanim)Субтитры: Русские (Crunchyroll, Nesitach & Stan WarHammer, Firegorn Team)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582532   (158783) от 26.12.2022
+
+Принцесса-библиофил | Mushikaburi Hime | Bibliophile Princess [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Больше всего на свете Элиана Бернштайн любит книги. Всю свою жизнь она предпочитала общество книг балам, турнирам, кулуарным интригам и всему тому, чем обычно любят заниматься аристократы её возраста. В то же время статус аристократки пусть и позволял ей наслаждаться чтением без всяких ограничений, однако и обязывал Элиану обзавестись женихом. К счастью, нашёлся (   Читать дальше...   )Производство: Япония / Студия MadhouseЖанр: Драма, исторический, романтикаРежиссер: Ивасаки ТароЯзык озвучки: Русский двухголосый, закадровый, Японский
+- Kroxxa, WhiteCrow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DF0300C529644645B8409FC93414226A2076CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853201   (158138) от 26.12.2014
+
+Donten ni Warau / Laughing Under the Clouds / Смех под облаками [2014, TV, 12 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расцвет эпохи Мэйдзи. Земля Ямато стремительно осваивает западный стиль жизни, освобождаясь от застывшего прошлого. Третий год действует закон о запрете ношения мечей, и самурайская вольница уходит в историю. Кто умнее – приспособился, а буйные головушки еще сопротивляются – от открытых бунтов до злостного хулиганства. Для таких власти создали спецтюрьму на острове посреди огромного озера Бива – но поди, доставь туда опасных преступников, уследи за ними по дороге. Тут в дело и вступает клан Кумо – лучшие во (   Читать дальше...   )Жанр: приключения, комедия, мистика, сёдзёРежиссер: Харагути ХиросиПеревод: YakuSub StudioФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118991225EBFF1180B42C10096D7D98D08426055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174335   (157986) от 23.12.2017
 
 Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, TV, 10 ep + SP] HDTV 720p Raw+Rus
@@ -6,7 +87,7 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157986.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157427.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156386.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156319.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Ousama Game The Animation / King's Game The Animation / Королевская �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156185.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ Juuni Taisen / Война Двеннадцати [2017, TV, 12 ep] WEB-DL 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156172.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156161.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Н�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155680.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154940.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154836.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154540.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Поро
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154501.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154466.jpg" />
 </div>
 
 
@@ -348,7 +429,7 @@ Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153872.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153381.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Просла
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153351.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прослав�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153344.jpg" />
 </div>
 
 
@@ -452,7 +533,7 @@ Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Пр
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152818.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ Tejina Senpai | Фокусница-старшеклассница | Magical Semp
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152654.jpg" />
 </div>
 
 
@@ -505,7 +586,7 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152651.jpg" />
 </div>
 
 
@@ -531,7 +612,7 @@ Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshin
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152141.jpg" />
 </div>
 
 
@@ -557,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152093.jpg" />
 </div>
 
 
@@ -583,7 +664,7 @@ Absolute Duo / Абсолютный Дуэт [2015, TV, 12 ep] BDRip Hi10p 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151923.jpg" />
 </div>
 
 
@@ -595,86 +676,6 @@ Absolute Duo / Абсолютный Дуэт [2015, TV, 12 ep] BDRip Hi10p 720p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DCE888027C86D39B31D7E9291DF58241DD0A9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580866   (151271) от 30.12.2022
-
-Ворона императорского гарема | Ворона в гареме | Koukyuu no Karasu | Raven of the Inner Palace [2022, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоко во внутреннем дворце живет загадочная императорская супруга, по имени Цзюйсэтсу Рюу, больше известная как Императрица-Ворона. Никто не знает её истинного облика. Одни видели её как дряхлую старуху, другие же как юную красавицу. Говорят, что она владеет тайными магическими искусствами, и если попросить, то она исполнит любое желание: найдёт потерянную вещь, (   Читать дальше...   )Производство: Япония / Студия BN PicturesЖанр: Исторический, магия, фэнтезиРежиссер: Мияваки ТидзуруЯзык озвучки: Русский многоголосый закадровый, Японский
-- HectoR, Hoopoe, NeoNoir, Night Shift (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2C6272ACC7974E892765B418542D72BB799594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271106   (150857) от 22.12.2018
-
-Chio-chan no Tsuugakuro | Дорога в школу Чио-чан [2018, TV, 12 из 12] [HEVC] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чио Миямо — обычная стеснительная девочка, которая обожает видеоигры и из-за того, что часто играет до поздней ночи, постоянно опаздывает в школу. Но даже идя по «обычному» пути туда, Чио регулярно попадает в разнообразные ситуации, иногда обычные, а иногда и не очень. Ей приходится иметь дело с бандой байкеров, строительными работами, острым желанием посетить уборную (   Читать дальше...   )Производство: студия Studio Barcelona / ディオメディアЖанр: комедияРежиссер: Инагаки ТакаюкиПеревод: Язык озвучки: Русский
-TV-1 (AniDub), (Anilibria), - внешними файламиЯзык субтитров: Русский, Английский, Испанский, ПортугальскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE03195036C2D0E159D81C6D277AC1117B4FAAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677459   (150184) от 18.11.2023
-
-Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отгремела Вторая мировая война, и нации теперь мирно соревнуются в автогонках, одним из участников которых является Шимамура Джо. В решающий момент вырвавшись вперед, Джо попадает в аварию, которую подстроили агенты тайной международной организации «Чёрный призрак» (Black Ghost). Похитив его тело на «скорой помощи», злодеи прибывают на секретную базу. Там профессор (   Читать дальше...   )Производство: Япония / Toei AnimationЖанр: приключения, фантастикаРежиссер: Сэрикава ЮгоПеревод: Кинозал МаанишаЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый) + Японский (оригинал)Субтитры: Русские ( софтсаб на песню и полные внешние Ass. )  , Английские (софтсаб полные)Продолжительность: 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7CE17ED4A75FC011EF5D6E674BBB94E1C3B44A
 ```
 
 https://mybot314.ru/tekegram_catalog/

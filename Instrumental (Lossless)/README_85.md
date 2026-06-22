@@ -6,7 +6,7 @@ Mick Kolassa - Slow Blues Essentials (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241271.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Johnny King and Friends - Call It Confusion (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241261.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Terry Donaghue - Shades of Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241110.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Rock and a Hard Place (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240865.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Big Matt Wallace - Stereo Stereo Stereo (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240698.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chris Kramer feat Jens Filser - Roots Music (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240690.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Joe Bonamassa - Tales Of Time (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240689.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Marcus Malone and the Motor City Hustlers - Interstate 75 (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240684.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hurts Like Hell - In Through the Eye (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240681.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Andreas Diehlmann Band - Long Way To Go (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240675.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Hellbilly Playboy - Hellbilly Playboy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240665.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Maria Muldaur - Maria Muldaur (1973) [FLAC|Lossless|image + .cue] <Blues, Jazz, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240352.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pistol Pete Wearn - Blues, Ballads & Barnstormers (2023) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240221.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Marshals - Le Ptit Cham Session (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240205.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Loveless Blue Jazz Quintet - Loveless Blue Jazz Quintet (2023) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240191.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ E&B Haircut - Blues Camp (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240180.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Hudspeth & Taylor - Ridin' the Blinds (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240115.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Para acompañar (acompanar) la calma (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240071.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sonny Landreth - 15 albums, 18CD (1981-2020) [FLAC|Lossless|image + .cue|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239686.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ JW-Jones - Everything Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239634.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Calvin Duncan Jr - Come Along (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239624.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Robert Hokum - Personal Experience and Downright Lies (2023) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239618.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ John Haydock - Straight Line on a Curved Road (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239601.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Gary Moore - Still Got the Blues (1990) Japanese Edition, Reissue, 2023, Univers
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239435.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Platospheremusic - First Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238609.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jason Lane Band - Stone in the Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238588.jpg" />
 </div>
 
 

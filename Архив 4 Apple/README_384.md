@@ -1,3 +1,32 @@
+###  Публикация: 1063695   (432382) от 17.10.2016
+
+Postico 1.0.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой, но мощный менеджер PostgreSQL баз данных для Mac
+Цель - сделать работу с базами данных PostgreSQL немного проще с помощью  коллекции интуитивно понятных инструментов в удобном интерфейсе. PostgreSQL является одним из самых мощных и комплексных систем управления базами данных, поэтому работать с ним не так просто, как может показаться.
+
+Postico - рациональный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 октября 2016Разработчик: Jakob EggerПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28710B2DE8D1E8CD84D4BD315565372D94DDCC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063740   (432380) от 17.10.2016
 
 Usher 1.1.14 [En]
@@ -6,7 +35,7 @@ Usher 1.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432380.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Macgo Mac Blu-ray Player Pro 3.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432331.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ iLife '11 (2012-2013) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432183.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ iSkysoft iMedia Converter Deluxe 5.5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432157.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ GraphicConverter 11 v.11.6.3 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431846.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ Synalyze It! Pro 1.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431843.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Nova 9.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431766.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ Wondershare PDFelement Pro OCR 9.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431756.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ NCH WavePad Audio Editor Pro 16.65 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431691.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ Wondershare Filmora Х 11.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431676.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Tri-BACKUP Pro 9.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431460.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Omni Recover 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431392.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Feeder 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431391.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ IconJar 1.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431389.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Network Radar 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431385.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ xScope 4 v4.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431379.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Get Backup Pro 3.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431378.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ Elmedia Video Player Pro 6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431201.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ BlueHarvest 7.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431189.jpg" />
 </div>
 
 
@@ -519,7 +548,7 @@ Winclone Pro 7 v7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431047.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ Paste 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431034.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ Things 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430902.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ SuperDuper! 2.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430583.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ Feeder 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430368.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ DropDMG 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430364.jpg" />
 </div>
 
 
@@ -666,33 +695,6 @@ DropDMG — это очень простая, но функциональная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D136E45B249AB7D81CCC2A2605A8A098F1EF6432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064004   (430251) от 18.10.2016
-
-Timing 1.7.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timing — следи за своим временем
-Приложение, которое разработал Thomas Osthege, будет особенно полезно фрилансерам и людям, которые много работают за компьютером. Уже давно не секрет, что многие пользователи ПК отвлекаются от работы для того, чтобы посмотреть любимый сериал или почитать Twitter. Но сколько на самом деле времени вы тратите на перерывы? Узнать это (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 октября 2016Разработчик: Thomas Osthege und Daniel AlmПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96F7293518ABAFF31C8F47753DE4EEC7DF5FFF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

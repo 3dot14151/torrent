@@ -1,3 +1,56 @@
+###  Публикация: 1592978   (182217) от 24.11.2022
+
+Приключения маленького Бахи (2022) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три новеллы о мальчике из дагестанского села. Удивительно взрослый характер восьмилетнего ребенка приносит много хлопот семье. Но благодаря ему Баха побеждает там, где взрослые сдаются.Производство: Россия / ВГИК-ДебютЖанр: комедия, семейныйРежиссер: Александр ГалибинАктеры: Амир Магомедов,  Зенаб Гамзатова, Заур Алиев, Беневша Девлетханова, Арсен Хирамагомедов, Патимат Малаева, Магомед-Шамиль Шамилов, Магомед Багомидов, Нариман Алиев, Магомед АбулнадировСубтитры: отсутствуютПродолжительность: 01:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B457BACF0294562551E48E8FB8AEFDC874D6296A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662346   (181948) от 30.09.2023
+
+Руслан и Людмила (1972) WEBRip [VP9/2160p] (2 серии) [Реставрация МФ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноименной поэме Александра Пушкина.
+Доблестный Руслан, отправившийся на поиски похищенной невесты, одолевает коварство, обман, злое колдовство - и, в конце концов, в жестоком бою побеждает Черномора...Производство: СССР, Киностудия "Мосфильм"Жанр: сказка, фэнтезиРежиссер: Александр ПтушкоАктеры: Наталья Петрова, Валерий Козинец, Олег Мокшанцев, Руслан Ахметов, Вячеслав Невинный, Андрей Абрикосов, Владимир Федоров, Наталья Хренникова, Мария Капнист, Игорь Ясулович, Виктор Шульгин и др.Субтитры: отсутствуютПродолжительность: 01:16:34 + 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319E4FCBF18028DFD11E37120429F00813515A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665035   (181161) от 01.10.2023
 
 Золотые рога (1972) BDRip [H.264/720p] [GER Transfer]
@@ -6,7 +59,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181161.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180938.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180806.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180699.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180188.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178131.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173122.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172947.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171450.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170596.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168678.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168438.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167430.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167065.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162993.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162015.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161977.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161544.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161062.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160811.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159517.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159509.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158842.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154958.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57B1BF0A725312FC5581F22B98D9DFA592D73E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676932   (154028) от 15.11.2023
-
-Руслан и Людмила (1972) WEBRip [H.264/1080p] (2 серии) [Реставрация МФ] [Handmade correction AI]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поставленный по мотивам знаменитой поэмы А. С. Пушкина, фильм погружает зрителя в мир волшебной сказки. Героем фильма является богатырь Руслан, который отправляется на поиски похищенной невесты Людмилы. По пути его ждут опасные приключения, ему придётся сразиться с колдуном Черномором, колдуньей Наиной и спасти свою любимую.Производство: СССР, киностудия "Мосфильм"Жанр: сказка, фантастика, поэмаРежиссер: Александр ПтушкоАктеры: Наталья Петрова, Валерий Козинец, Олег Мокшанцев, Руслан Ахметов, Вячеслав Невинный, Андрей Абрикосов, Владимир Федоров, Наталья Хренникова, Мария Капнист, Игорь Ясулович, Виктор Шульгин, Сергей Мартинсон, Ээве Киви, Шавкат Газиев, Николай КутузовЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:16:34 + 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5676A1B4C99C25299B54E48A18E4175E7586FCF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825451   (150659) от 18.10.2025
-
-Лесные качели (1975) WEBRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятнадцатилетние Настя и Зуев свое последнее лето детства проводят в пионерском лагере. Это лето подарило героям первую любовь и нежную дружбу. Известно, что детям больше всего мешают взрослые. Взрослые и помешали, а их поддержало и большинство ребят. Настя не поняла, почему ей нельзя дружить с мальчиком, Зуев устыдился. Не готовый отстаивать свои чувства по-взрослому (   Читать дальше...   )Производство: СССР / БеларусьфильмЖанр: детский, мелодрама, семейныйРежиссер: Михаил ПташукАктеры: Олег Ефремов, Нинель Мышкова, Марина Матвеенко, Борис Лазарев, Анна Каменкова, Станислав Франио, Саша Трацевский, Костя Максимчик, Леня Морозов, Володя Смирнов, Ира ГорбачеваСубтитры: отсутствуютПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515AEB85790864C9643AB3631DB0F2F81E4636B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

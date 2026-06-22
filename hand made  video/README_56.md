@@ -1,3 +1,30 @@
+###  Публикация: 812029   (576206) от 11.08.2014
+
+Тройной форсаж: Токийский Дрифт / The Fast and the Furious: Tokyo Drift (2006) BDRip [720p] [hand made 48fps]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шон Босуэлл — одинокий парень, который хочет казаться профи уличных гонок. Он бесшабашно гоняется по улицам города, пытаясь убежать от жизненных невзгод и наживая себе врагов среди местных властей. Когда Шону грозит тюрьма, его от греха подальше отсылают к отцу — профессиональному военному, который служит на военной базе в Японии.
+В незнакомой стране, живущей по (   Читать дальше...   )Производство: США, Германия / Universal Pictures, Original FilmЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Джастин ЛинАктеры: Лукас Блэк, Бау Вау, Санг Кенг, Брайан Ти, Натали Келли, Брайан Гудман, Джейсон Дж. Тобин, Кейко Китагава, Сонни Чиба, Леонардо НамПеревод: Профессиональный (полное дублирование)Субтитры: вшитые не отключаемые форсированныеЯзык субтитров: РусскийПродолжительность: 01:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E446E2F094A6B0CBF2B4A41837CBEBF54D14FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916570   (573591) от 26.07.2015
 
 Пражский студент / Der Student von Prag (1913) HDTVRip [H.264/720p] [hand made colored]
@@ -6,7 +33,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573591.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571825.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571240.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570141.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569676.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569029.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568532.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566305.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564887.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564333.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563592.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561187.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560879.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560411.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [720p]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552626.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551820.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_550769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_550769.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550767.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549115.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548287.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548273.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547404.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547397.jpg" />
 </div>
 
 
@@ -614,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546724.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545870.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5858FFF6EBC0EF21D645376578A4C55C090FC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846414   (545284) от 03.09.2016
-
-Черепашки-ниндзя / Teenage Mutant Ninja Turtles (2014) BDRip [1080p] 3D [Вертикальная анаморфная стереопара] [Hand Made 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город нуждается в героях. Тьма окутала Нью-Йорк в виде Шреддера и его зловещего Клана Футов, у которого имеется железный контроль над всеми, от полицейских до политиков. Будущее выглядит мрачным, пока из канализации не поднимается и не раскрывает своё предназначение четвёрка отверженных братьев — Черепашки-ниндзя. Черепашки должны работать вместе с бесстрашным репортёром (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Фантастика, Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Джонатан ЛибесманАктеры: Меган Фокс,  Уилл Арнетт,  Уильям Фихтнер,  Алан Ричсон,  Ноэль Фишер,  Пит Пложек,  Джонни Ноксвил,  Джереми Ховард,  Дэнни Вудберн,  Тони ШэлубПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемые / Отдельным файломЯзык субтитров: Русский (forced)Продолжительность: 01:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465C589314BDD140E2607E786604E948E0AA805B
 ```
 
 https://mybot314.ru/tekegram_catalog/

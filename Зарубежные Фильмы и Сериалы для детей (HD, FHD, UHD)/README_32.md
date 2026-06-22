@@ -1,3 +1,81 @@
+###  Публикация: 1718926   (57048) от 10.05.2024
+
+Наклз / Knuckles (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) HDRezka Studio, LostFilm, Red Head Sound
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ехидна Наклз обучает помощника шерифа Уэйда Уиппла способам воина-ехидны, чтобы они могли сражаться с Ежом Шэдоу.Производство: США, Япония, Paramount Pictures, Sega Sammy Group, Original Film, Blur Studio, Marza Animation PlanetЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кэрол Бенкер, Брэндон Трост, Ged WrightАктеры: Идрис Эльба, Адам Палли, Джейми Барбакофф, Alice Wren Tregonning, Tony Coughlan, Бен Шварц, Дэниэл Сингх, Коллин О’Шонесси, Альфредо Таварес, Adam KerrПеревод: Дублированный (Red Head Sound) Многоголосый профессиональный (HDRezka Studio, LostFilm)Язык озвучки: русский, английскийСубтитры: Русские (Forced), Английские (SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BE152D10504981177BE35BFE762774A9C7213E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720641   (56997) от 10.05.2024
+
+Наклз / Knuckles (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ехидна Наклз обучает помощника шерифа Уэйда Уиппла способам воина-ехидны, чтобы они могли сражаться с Ежом Шэдоу.Производство: США, Япония / Paramount Pictures, Sega Sammy Group, Original Film, Blur Studio, Marza Animation PlanetЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кэрол Бенкер, Брэндон Трост, Ged WrightАктеры: Идрис Эльба, Адам Палли, Джейми Барбакофф, Alice Wren Tregonning, Tony Coughlan, Бен Шварц, Дэниэл Сингх, Коллин О’Шонесси, Альфредо Таварес, Adam KerrПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (full, SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858C9F0D72EAAFD7B6014B830C93920F3AEFF93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718846   (56940) от 11.05.2024
+
+Наклз / Knuckles (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-6 из 6) RHS, TVShows, HDRezka Studio
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал Наклз спин-офф серии фильмов "Соник в кино" красная ехидна Наклз вступает в неожиданное партнёрство с полицейским Уэйдом Уипплом. Наклз соглашается стать наставником Уэйда и делится с ним своими уникальными приёмами воина. Вместе они принимаются за разгадывание сложных преступлений и борются с преступностью, в которую они втянуты из-за их совместных (   Читать дальше...   )Производство: США, Япония, Paramount Pictures, Sega Sammy Group, Original Film, Blur Studio, Marza Animation PlanetЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кэрол Бенкер, Брэндон Трост, Ged WrightАктеры: Идрис Эльба, Адам Палли, Джейми Барбакофф, Alice Wren Tregonning, Tony Coughlan, Бен Шварц, Дэниэл Сингх, Коллин О’Шонесси, Альфредо Таварес, Adam KerrПеревод: Дублированный (Red Head Sound), многоголосый профессиональный (TVShows, HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced), английские (SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1DA1127ABBB4671398235347F9DF10778C0D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723013   (56580) от 14.05.2024
 
 Дети шпионов / Spy Kids (2001) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56580.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56335.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56103.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55815.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54718.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54591.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53244.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53160.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52951.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52346.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52315.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52312.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52308.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52189.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52116.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51934.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51898.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51587.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50656.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50639.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49781.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48921.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47971.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B95075C8DE81EFB9EFADB2DBD2A36511DFFD63EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741631   (47579) от 07.08.2024
-
-Воображаемые друзья / IF (2024) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что если выдуманные приятели детей существуют на самом деле и никуда не исчезают, когда ребенок взрослеет? В таком мире живет Беа — похоронившая мать 12-летняя девочка, которая однажды замечает огромного фиолетового монстра, гуляющего по улицам Нью-Йорка. Девочке быстро объясняют, как на самом деле устроен мир, поэтому Беа решает напоминать скучным взрослым о тех, (   Читать дальше...   )Производство: США, Канада, Paramount Pictures, Maximum Effort, Platinum DunesЖанр: мультфильм, фэнтези, драма, комедия, семейныйРежиссер: Джон КрасинскиАктеры: Кэйли Флеминг, Райан Рейнольдс, Джон Красински, Фиона Шоу, Стив Карелл, Фиби Уоллер-Бридж, Луис Госсет мл., Алан С. Ким, Лиза Колон-Зайас, Бобби МойнаханПеревод: ДублированныйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, АнглийскиеПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB4BC1250AF493ED90AF1D1219B2894873041B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741989   (47383) от 09.08.2024
-
-Русалочка / The Little Mermaid (2023) UHD BDRemux  [H.265/2160p] [4K, HDR, 10-bit, Dolby Vision] [Hybrid]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русалочку Ариэль, одну из дочерей морского царя Тритона, ужасно интересует человечество. Несмотря на неодобрение отца, она поднимается к поверхности и спасает попавшего в кораблекрушение принца Эрика. Узнав об этом, Тритон приходит в ярость и навсегда запрещает дочери покидать морское дно — этим и решает воспользоваться морская ведьма Урсула. В обмен на голос она (   Читать дальше...   )Производство: США / Walt Disney Pictures, Lucamar Productions, Marc Platt ProductionsЖанр: фэнтези, мелодрама, мюзиклРежиссер: Роб МаршаллАктеры: Холли Бейли, Джона Хауэр-Кинг, Мелисса Маккарти, Хавьер Бардем, Нома Думезвени, Арт Малик, Давид Диггс, Джейкоб Тремблей, Аквафина, Джессика АлександрПеревод: Дублированный, Многоголосый профессиональныйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские, АнглийскиеПродолжительность: 02:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03FEA504B7DAE6225ABB31698050923F5ABD3483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741635   (46469) от 18.08.2024
-
-Воображаемые друзья / IF (2024) BDRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беа заводит знакомства с воображаемыми друзьями, которых бросили их хозяева.Производство: США, Канада / Paramount Pictures, Maximum Effort, Platinum DunesЖанр: мультфильм, фэнтези, драма, комедия, семейныйРежиссер: Джон КрасинскиАктеры: Кэйли Флеминг, Райан Рейнольдс, Джон Красински, Фиона Шоу, Стив Карелл, Фиби Уоллер-Бридж, Луис Госсет мл., Алан С. Ким, Лиза Колон-Зайас, Бобби МойнаханПеревод: дублированный (Videofilm Int., HDRezka Studio, Red Head Sound),  профессиональный многоголосый (Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497A34196D1F2EDE5AE6ED63EE9062CB1681C199
 ```
 
 https://mybot314.ru/tekegram_catalog/

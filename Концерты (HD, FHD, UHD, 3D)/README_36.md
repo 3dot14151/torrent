@@ -6,7 +6,7 @@ eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220603.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220409.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Queen: A Night At The Odeon - Hammersmith (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219859.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218488.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ ZZ Top - Live From Texas  (2008)  BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218374.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Katy Perry - The Prismatic World Tour (2015) BDRip[H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217765.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217716.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217664.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217330.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217232.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_216540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216540.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216052.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215436.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214830.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214808.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214707.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214188.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214055.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213735.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Depeche Mode - Live at VOLT Festival, Sopron, Hungary (2018) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211328.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210519.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210477.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210453.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210363.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210129.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209961.jpg" />
 </div>
 
 

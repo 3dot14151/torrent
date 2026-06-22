@@ -1,3 +1,109 @@
+###  Публикация: 1104194   (881871) от 14.02.2017
+
+VI (Пражская) Всероссийская конференция РСДРП [январь 1912 г.] (1952) [DJVU, PDF, DOCX]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881871.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 января 1952 года исполняется 40 лет со времени созыва Пражской партийной конференции, имевшей величайшее значение в истории большевистской партии и всего международного революционного рабочего движения. На этой конференции были изгнаны из партии меньшевики, навсегда было покончено с формальным объединением большевиков в одной партии с меньшевиками. Пражская конференция (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU, PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B087EDAE9E4236DDD4DE7C4ADE0B3FEDE1199DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996363   (880842) от 13.03.2016
+
+Кэтрин Харгрейв | История игральных карт (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страсть человечества к карточным играм и гаданиям не ослабевает на протяжении многих веков, возможно, именно это и заставляет исследователей вновь и вновь обращаться к изучению истории столь таинственного и увлекательного предмета. Известно, что для определения явлений, не поддающихся пониманию, люди прибегали к колдовству. Современные азартные игры представляют (   Читать дальше...   )Жанр: История культурыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F250D91287526F33C38364CA13C4A35D43613DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104191   (879945) от 15.02.2017
+
+Л.Д. Троцкий | Сочинения [12 томов в 15 книгах + Каталог] [Раритет] (1924-1927) [JPG]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое прижизненное издание собрания сочинений Льва Давидовича Троцкого (Имя при рождении Лейба Давидович Бронштейн).
+Выпускалось в 1924-1927 гг.
+Планировалось издать 23 тома в 27 книгах. Издано только 12 томов в 15 книгах плюс каталог. Каталог содержит рекламу многих других изданий того же автора. Некоторые с краткими аннотациями.Жанр: Историография, Политика, Собрание сочиненийФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F8A6D95751B9B4661C8263DF2E4639642D287F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996433   (879405) от 14.03.2016
+
+Павло Роберт Магочий | Народ ниоткуда (2006) [PDF, DJVU] [Uk]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читателя ждет увлекательное путешествие сквозь века истории карпатских русинов - истории, насыщенной драматическими событиями, малоизвестными фактами, впечатляющими открытиями. Эта книга - о народе, который с давних времен выбрал колыбелью своего существования на Земле божественной красоты Карпаты и на своем пути в современный мир выдержал немало испытаний судьбы, (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E05D6E754ACBE3254EAD59A137379141AF322C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996559   (879403) от 14.03.2016
 
 С.С. Петров | Оборонительные сооружения Киева Х-ХІХ в. (2012) [PDF, DJVU] [Uk]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879403.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_877423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_877423.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877313.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877308.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876558.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876351.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875839.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875819.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_875733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875733.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875732.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875725.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875032.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875015.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874183.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874137.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873837.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873737.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873650.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872635.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872216.jpg" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871974.jpg" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871959.jpg" />
 </div>
 
 
@@ -570,111 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2C67C5C44C2A9DCCC9E072BD8285E9E41E3D0E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106540   (871554) от 20.02.2017
-
-Л.Д. Троцкий | Моя жизнь Опыт автобиографии [В двух томах] (1930) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше время снова сильно обильно мемуарами, может быть более, чем когда-либо. Это потому, что есть о чём рассказывать. Интерес к текущей истории тем напряжённее, чем драматичнее эпоха, чем богаче она поворотами. "Пересечённые" эпохи, как наша, порождают потребность взглянуть на вчерашний и уже столь далёкий день глазами его активных участников.
-Может быть (   Читать дальше...   )Жанр: Мемуары, АвтобиографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138172A441222E264B072ED5E890A985AF2F65AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106561   (871047) от 20.02.2017
-
-В.И. Ленин | Сочинения (Издание четвертое) [48 книг] (1941-1967) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871047.jpg" />
-</div>
-
-
-###  Подробнее
-
-По постановлению ЦК ВКП(б) (1940) начало выходить 4-е издание Сочинений Ленина. Объем его вначале был определен в 35 томов, затем увеличен до 45. В него было включено много новых документов, в т. ч. последние работы Ленина по важнейшим вопросам социалистического строительства и политики партии: «Письмо к съезду», «О придании законодательных функций Госплану», «К (   Читать дальше...   )Жанр: история, философия, социология, политология, политэкономия, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E559A6D1645072115089A645C56AF41FF4CC141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374820   (870770) от 11.04.2020
-
-A.M. Стриннгольм | Походы викингов (2003) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами одна из самых известных книг, рассказывающих о походах викингов, государственном устройстве, нравах и обычаях древних скандинавов. С момента её издания она многократно переиздавалась и продолжает оставаться одним из авторитетнейших исследований по истории Скандинавии эпохи викингов Стриннгольма имеет большую ценность и как исторический труд, и как популярная (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0F4FBD3763D0AAD108462C3AC86C9113747C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374650   (870516) от 11.04.2020
-
-Джоэл Харрингтон | Праведный палач. Жизнь, смерть, честь и позор в XVI веке (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды профессор истории Университета Вандербильда Джоэл Харрингтон на пыльных полках букинистического магазина в Германии обнаружил дневники Мейстера Франца Шмидта, написанные в XVI веке в городе Нюрнберге. В течение 45 лет господин Шмидт убил и искалечил сотни людей. Он работал палачом. Уникальный исторический документ не должен был просто пропасть. Так родилась (   Читать дальше...   )Жанр: История Средних веков, Популярно об историиПеревод: Тимофей РаковФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD562EDC5B98A6B7F84CD45ACB4D9BA70A38DE65
 ```
 
 https://mybot314.ru/tekegram_catalog/

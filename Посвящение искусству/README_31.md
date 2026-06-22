@@ -1,3 +1,81 @@
+###  Публикация: 940933   (464880) от 26.09.2015
+
+История голливудского кинематографа / The First 100 Years: A Celebration of American Movies (1995) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название ленты говорит само за себя. С огромной любовью к кинематографу снял Чак Уоркмэн этот фильм, чрезвычайно удачно подобрав сюжеты, кадры, отрывки из картин от немого кино до фильмов последних лет.Телекомпания: США, American Film Institute (AFI), Calliope Films, Home Box Office (HBO)Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6217A22425141664A500FD13A497136113770D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407603   (463996) от 08.09.2020
+
+Эрмитаж (Эрмитаж - 250, Мой Эрмитаж) (2019-2020) WEBRip, IPTVRip (30 выпусков)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Пиотровский, директор Государственного Эрмитажа, рассказывает о сокровищах Эрмитажа. За два с половиной столетия в Эрмитаже собрана одна из крупнейших коллекций, насчитывающая около трех миллионов произведений искусства и памятников мировой культуры, начиная с каменного века и до нашего столетия.Производство: Россия, ГТРК Культура, Студия «Государственный Эрмитаж»Жанр: Документальный, история, искусствоРежиссер: Ольга Высоцкая, Михаил Трофимов, Сергей Ермоленко, Наталья СергееваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 30 x ~00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28A912A9CD71E516D92934A72130EB3C62BB3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568480   (462091) от 08.08.2022
+
+День, когда умерла музыка: история создания «Американского пирога» Дона Маклина / The Day the Music Died: The Story of Don McLean's 'American Pie' (2022) WEB-DL [H.264/720p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя 50 лет после ее выпуска Дон Маклин делится секретами своей культовой песни «Американский пирог», одного из величайших музыкальных произведений 20-го века.Производство: СШАЖанр: Документальный, музыкаРежиссер: Mark MoormannПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653432B805399679326A557A985CE9DE7A223032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059352   (461833) от 04.10.2016
 
 Невообразимое зло / Starz Inside: Unforgettably Evil (2009) HDTV [H.264/1080i]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461833.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461167.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458120.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458051.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457928.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457910.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457815.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457615.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456382.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Rammstein - In Amerika (Disc 2) (2015)  BDRip [H.264/1080p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455447.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454102.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453541.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_452228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_452228.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449150.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448855.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447878.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446375.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445820.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445167.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445061.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445004.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444643.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444547.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17CA75EFC376A2F32C40589AF14CFEAF9D6EBCF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838939   (442378) от 18.09.2020
-
-В поисках Сахарного Человека (В поисках Шугармена)/ Searching for Sugar Man (2012) BDRip [720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о попытке найти исчезнувшего фолк-рок певца, звезду 70-х Родригеса. После ряда неудач он словно растворился во мраке, оставив о себе лишь городские легенды об ужасном самоубийстве на сцене. Несколько десятилетий спустя два поклонника музыканта решают заняться собственным расследованием и попытаться выяснить, что стало с рокером. Оно и положит начало целой (   Читать дальше...   )Жанр: Документальный, биографияРежиссер: Malik Bendjelloul / Малик БенджеллульАктеры: Стивен «Шугар» Сегерман, Дэннис Коффи, Майк Теодор, Дэн ДиМаджио, Джером Ферретти, Стив Роулэнд, Уильям Мёллер, Крэйг Бартоломью Стридом, Ильзе Ассманн, Стив М. ХаррисПеревод: Одноголосый закадровый, озвучка Д. ЕсаревСубтитры: Вшитые, отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A01386CCD4E96925C440608AB2BC017B922392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248538   (442241) от 20.09.2018
-
-Тайны кино. Обыкновенное чудо (2018) WEBRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442241.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Обыкновенное чудо" Марка Захарова стало уже второй экранизацией одноименной пьесы Евгения Шварца. За 12 лет до Марка Анатольевича ее поставил другой режиссер – Эраст Гарин. Захарову предстояло снять совсем другое кино, чтобы избежать сравнения. Предложение же поставить "Обыкновенное чудо" поступило к Марку Захарову от руководства Мосфильма. Картину (   Читать дальше...   )Телекомпания: Россия, "Москва-медиа"Жанр: Документальный, ТелепередачаСубтитры: отсутствуютПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A577A2C51CB299A7C58B69E0C3D64C7C2B196B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062456   (442155) от 13.10.2016
-
-Олег Ефремов. Голос внутри меня (2012) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этого человека любили все: министры и домохозяйки, работяги и академики, взрослые и дети. Любили и думали, что в жизни Олег Николаевич Ефремов такой же, как в кино.Телекомпания: Россия, Первый каналЖанр: ДокументальныйПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF74F5D5AB0A9700F27B07C5395702B194605637
 ```
 
 https://mybot314.ru/tekegram_catalog/

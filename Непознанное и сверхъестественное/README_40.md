@@ -1,3 +1,55 @@
+###  Публикация: 1700699   (116875) от 18.02.2024
+
+Экстрасенсы. Реванш (17.02.2024) WEBRip [H.264/1080p] (сезон 1, выпуск 6)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое шоу с участием пока экстрасенсов, которые когда-то вылетели из легендарной «Битвы». Настал их черёд реванша: пришло время доказать, что поражение было случайностью. Для того, чтобы заново доказать свою состоятельность, им необходимо будет разгадать истории 10 незнакомцев, которых они увидят в студии.Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B032E8CE8A23C7A6E6C939AF432B85203BAE259B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673143   (116565) от 20.02.2024
+
+В погоне за чудом (2019) HDTVRip [H.264/720p] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество всегда верило в чудеса и боялось чудовищ. Необычные случаи, редкие и неизученные явления, которые выглядят как нарушение известных законов природы, с начала времён вызывали любопытство и ужас. Из жажды понять мир вокруг нас и родилась наука. В фильме мы поговорим о чудовищах и монстрах, страхах и кошмарах, НЛО и марсианах, демонах и духах. Где правда, (   Читать дальше...   )Производство: Россия / ООО "Единая Медиа Группа"Жанр: документальныйРежиссер: Иван ДемчукУчастники: Алексей ЕгоровЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD7F91646351F54758DFCF2E2AD44D3E6E92F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702489   (115722) от 25.02.2024
 
 Экстрасенсы. Реванш (24.02.2024) WEBRip [H.264/1080p] (сезон 1, выпуск 7)
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115722.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114514.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110190.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108886.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104031.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102213.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102204.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102181.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102158.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102156.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102154.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101827.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101315.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101181.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100614.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96720.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87583.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87518.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83073.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81191.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80686.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78018.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77513.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63268.jpg" />
 </div>
 
 
@@ -638,58 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47763B28B5C97FC7E1DDDABD9184E54344CB304C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707538   (62746) от 16.03.2024
-
-Экстрасенсы. Реванш (16.03.2024) WEBRip [H.264/1080p] (сезон 1, выпуск 10)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое шоу с участием пока экстрасенсов, которые когда-то вылетели из легендарной «Битвы». Настал их черёд реванша: пришло время доказать, что поражение было случайностью. Для того, чтобы заново доказать свою состоятельность, им необходимо будет разгадать истории 10 незнакомцев, которых они увидят в студии.Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10ADDE911A9AC176CDD68EEC6DEE64E8416A5609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709321   (61961) от 24.03.2024
-
-Новая Битва экстрасенсов (23.03.2024) WEBRip [H.264/1080p] (сезон 24, выпуск 01)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сезон одного из самых популярных проектов на российском ТВ. Зрители увидят 24-й сезон “Новой Битвы экстрасенсов”, который поклонники ждали целых 2 года. Новые лица, новые испытания, новые эмоции, а также сюрпризы и неожиданности. Примет ли участие в проекте кто-то из “звезд” прошлых сезонов и приведет ли кто-то своего преемника?Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52E0AEB5F6B2574BA284CB3541DF991E1CE3D37
 ```
 
 https://mybot314.ru/tekegram_catalog/

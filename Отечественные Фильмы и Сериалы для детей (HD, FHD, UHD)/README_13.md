@@ -1,3 +1,56 @@
+###  Публикация: 1742514   (47030) от 12.08.2024
+
+Новые похождения кота в сапогах (1958) DVDRip [H.264/1080p] [hand made Upscale AI] [PR]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с традиционными сказочными персонажами в картине действуют и обычные школьники, участвующие в школьном спектакле по сказке «Кот в сапогах». ..Любе приснился сон. Она, дочь шахматного короля, становится жертвой коварного заговора и похищена колдуньей. На ее поиски отправляется сын мельника Ваня и его друг - волшебный кот. Много трудностей пришлось им испытать, (   Читать дальше...   )Производство: CCCP, Киностудия им. М. ГорькогоЖанр: фэнтези, семейныйРежиссер: Александр РоуАктеры: Мария Барабанова, Анатолий Кубацкий, Георгий Милляр, Степан Каюков, Тамара Носова, Лидия Вертинская, Владимир Володин, Лев Потемкин, Ирина Асмус, Ольга Горелова и др.Субтитры: русские, английскиеПродолжительность: 01:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EC832D2CFC1D054C97E2CAF3B5ED9B9BD79192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742818   (46922) от 13.08.2024
+
+Там, на неведомых дорожках... (1982) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по сказке Эдуарда Успенского "Вниз по волшебной реке"
+Школьник Митя, приехав на каникулы в деревню, попадает в волшебную страну, где вместе с героями любимых книжек вступает в борьбу со всеми сказочными злодеями: Кащеем Бессмертным, Соловьем-Разбойником. И даже Лихо Одноглазое удалось одолеть смельчакам!Производство: СССР / Киностудия имени М. Горького (Ялтинский филиал)Жанр: фэнтези, семейныйРежиссер: Михаил ЮзовскийАктеры: Роман Монастырский, Татьяна Пельтцер, Леонид Харитонов, Татьяна Аксюта, Александр Кузнецов, Александр Филиппенко, Юрий Чернов, Юрий Медведев, Леонид Каневский, Олег АнофриевСубтитры: русские, английскиеПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAAC7922A1AB45C0DE53408AFECDF3B32B2A0D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743033   (46869) от 14.08.2024
 
 Приключения Электроника (1979) WEB-DLRip [H.264/1080p] (серии 1-3 из 3)
@@ -6,7 +59,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46869.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46853.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46762.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45572.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44651.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44270.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44239.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44109.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42899.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42886.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42751.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42060.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41799.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41414.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40299.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38619.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37954.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36263.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35657.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35425.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35162.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35060.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35015.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33912.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D93F8596560DF7ED5C810FC5C77D20C5385924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769315   (32782) от 28.12.2024
-
-Манюня: Приключения в деревне (2024) WEBRip [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Манюня, Наринэ и Каринка в сопровождении Ба отправляются на летние каникулы в настоящую русскую деревню к бабушке Насте. Сначала они очень увлечены непривычной атмосферой нового места, но достаточно быстро начинают скучать. Решив ускорить время до отъезда домой, девочки по наводке местных мальчишек обращаются к бабке-колдунье, которая якобы исполняет любые желания. (   Читать дальше...   )Производство: Россия / All Media Company, К.Б.А. / Кинокомпания братьев АндреасянЖанр: комедия, приключенияРежиссер: Денис ГулярАктеры: Екатерина Темнова, Карина Каграманян, Карина Мнацаканян, Джульетта Степанян, София Петрова, Ольга Волкова, Ольга Тумайкина, Оскар Кучера, Олег Комаров, Марк АндреасянЯзык озвучки: РусскийСубтитры: Русские (Full AI)Продолжительность: 01:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2658EEC566FC9E951D85821C7316DB437B03101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770136   (32511) от 30.12.2024
-
-Манюня: Приключения в деревне (2024) WEBRip [H.264/2160p] [4K, SDR, 8-bit] [PR]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Манюня, Наринэ и Каринка в сопровождении Ба отправляются на летние каникулы в настоящую русскую деревню к бабушке Насте. Сначала они очень увлечены непривычной атмосферой нового места, но достаточно быстро начинают скучать. Решив ускорить время до отъезда домой, девочки по наводке местных мальчишек обращаются к бабке-колдунье, которая якобы исполняет любые желания. (   Читать дальше...   )Производство: Россия / All Media Company, К.Б.А. / Кинокомпания братьев АндреасянЖанр: комедия, приключенияРежиссер: Денис ГулярАктеры: Екатерина Темнова, Карина Каграманян, Карина Мнацаканян, Джульетта Степанян, София Петрова, Ольга Волкова, Ольга Тумайкина, Оскар Кучера, Олег Комаров, Марк АндреасянЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C4F33F853B3F09E2ADC536FC3971409E9728E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

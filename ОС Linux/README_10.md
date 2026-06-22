@@ -1,3 +1,187 @@
+###  Публикация: 1040785   (584143) от 07.08.2016
+
+Runtu XFCE 16.04 [x86] 1xCD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступна для загрузки версия дистрибутива Runtu XFCE 16.04, основанная на пакетной базе релиза  Xenial Xerus 16.04.1 LTS. Дистрибутив собран с помощью debootstrap, установлена базовая система и рабочее окружение XFCE 4.12. В состав ПО включены средства для воспроизведения аудио- и видео-файлов, офисный пакет LibreОffice, подсистема печати. Для работы с Интернет предустановлены (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427EA644EF73B1567E9E318F99425F7092FEE879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041084   (583115) от 08.08.2016
+
+ROSA Desktop Fresh (Plasma 5) R8 [i586, x86_64] 2xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583115.jpg" />
+</div>
+
+
+###  Подробнее
+
+ROSA - российская компания, занимающаяся разработкой различных дистрибутивов на базе Linux.
+ROSA Desktop Fresh R8 - дистрибутив для энтузиастов постоянно меняющегося мира Linux. Он имеет относительно короткий жизненный цикл, но включает новейшие версии программ и поддержку современных аппаратных компонентов. Plasma 5 - пятая версия рабочего стола KDE, основанная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB916A9C427458ACD786960F50DE4A2F710864B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300896   (582024) от 14.05.2019
+
+Red Hat Enterprise Linux 8.0 [x64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat опубликовала релиз дистрибутива Red Hat Enterprise Linux 8. Установочные сборки подготовлены для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30249402F9FBBE0E3AEC45796EBFBC42EC1FB6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920407   (580007) от 22.07.2015
+
+Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен Calculate Linux Desktop MATE (CLDM), третий десктоп в семействе Calculate Linux, предоставляющий полноценное рабочее место для применения, как в офисе, так и дома. Дистрибутив обратно совместим с Gentoo и кроме портежей использует общие репозитории Calculate Linux, которые на сегодняшний день насчитывают 2000 бинарных пакетов.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94698E3F8F20796B41C99067822479E2CB2AEA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919537   (579851) от 22.07.2015
+
+Chromixium 1.5 [i386] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел стабильный выпуск проекта Chromixium, в рамках которого развивается Linux-дистрибутив, похожий по оформлению и принципам работы на ChromeOS, но основанный на пакетной базе Ubuntu Linux и позволяющий использовать все приложения из репозиториев Ubuntu 14.04 LTS наряду со свойственными ChromeOS web-приложениями.
+Из доступных в Chromixium 1.5 возможностей отмечается (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6650829A1F83F0CAAAA0F401FB2A7B6350827A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150988   (575926) от 17.07.2017
+
+Fedora 26 Live spins [x86-64] 6xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официально представлен релиз Linux-дистрибутива Fedora 26. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server и Fedora Atomic Host, а также набор "спинов" c Live-сборками десктоп-окружений KDE Plasma 5, Xfce, MATE, Cinnamon, LXDE и LXQt. Сборки сформированы для архитектур x86, x86_64, Power64 и ARM64 (AArch64). Дополнительно поставляется (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D496D940156107E5012CB9813FB4686C2F274FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150986   (575801) от 17.07.2017
+
+Fedora 26 [x86-64] 3xDVD, 3xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официально представлен релиз Linux-дистрибутива Fedora 26. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server и Fedora Atomic Host, а также набор "спинов" c Live-сборками десктоп-окружений KDE Plasma 5, Xfce, MATE, Cinnamon, LXDE и LXQt. Сборки сформированы для архитектур x86, x86_64, Power64 и ARM64 (AArch64). Дополнительно поставляется (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A857F5E562E5E3D10D8EF5756287008BB2B843D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150993   (575689) от 17.07.2017
 
 RFRemix [Russian Fedora Remix] 26 [i386, x86-64] 3xDVD, 3xCD
@@ -6,7 +190,7 @@ RFRemix [Russian Fedora Remix] 26 [i386, x86-64] 3xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575689.jpg" />
 </div>
 
 
@@ -32,7 +216,7 @@ Sabayon 13.08 (Multi DE) Поддержка анонимного доступа 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573539.jpg" />
 </div>
 
 
@@ -60,7 +244,7 @@ Sabayon 13.08 (Multi DE) Поддержка анонимного доступа 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571619.jpg" />
 </div>
 
 
@@ -88,7 +272,7 @@ OpenSuse Leap 15.1 [x86_x64] 3xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566854.jpg" />
 </div>
 
 
@@ -114,7 +298,7 @@ Debian GNU/Linux 9.1.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565166.jpg" />
 </div>
 
 
@@ -140,7 +324,7 @@ Xubuntu 17.04 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564875.jpg" />
 </div>
 
 
@@ -166,7 +350,7 @@ Debian GNU/Linux 9.1.0 + nonfree Stretch [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564742.jpg" />
 </div>
 
 
@@ -192,7 +376,7 @@ PCLinuxOS 2013.08 KDE FullMonty [x32, x64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564030.jpg" />
 </div>
 
 
@@ -222,7 +406,7 @@ Arch Linux 2015.08.01 [i686, x86-64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562368.jpg" />
 </div>
 
 
@@ -250,7 +434,7 @@ OS4 OpenLinux 13.7 KDE  [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559735.jpg" />
 </div>
 
 
@@ -278,7 +462,7 @@ openSUSE Leap 42.3 [x86_64] 1xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559196.jpg" />
 </div>
 
 
@@ -304,7 +488,7 @@ openSUSE-Tumbleweed 20170725 [x86-64] 3xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557701.jpg" />
 </div>
 
 
@@ -332,7 +516,7 @@ BlackArch Linux 2016.08.19 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557578.jpg" />
 </div>
 
 
@@ -358,7 +542,7 @@ Gentoo Linux 20160704 LiveDVD [x86, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557577.jpg" />
 </div>
 
 
@@ -384,7 +568,7 @@ Oracle Linux 6.7 Server [i386, x86-64] 2xDVD,2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557309.jpg" />
 </div>
 
 
@@ -410,7 +594,7 @@ Sabayon 17.08 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556732.jpg" />
 </div>
 
 
@@ -436,7 +620,7 @@ Debian Live GNU/Linux 9.5.0 + nonfree Stretch [amd64] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553802.jpg" />
 </div>
 
 
@@ -464,7 +648,7 @@ Manjaro Linux 0.8.7 (Arch + XFCE, openbox, net: легкий дистрибут�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549072.jpg" />
 </div>
 
 
@@ -492,7 +676,7 @@ Q4OS 1.6.1 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548919.jpg" />
 </div>
 
 
@@ -505,194 +689,6 @@ Q4OS - дистрибутив операционной системы Linux, с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4491C6785792ECBCA0955B890E2DCBF7C5E2D8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048189   (547153) от 01.09.2016
-
-BlackArch Linux 2016.08.31 [Хакинг, аудит, безопасность] [i686, x86-64] 2xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547153.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlackArch Linux — специализированной Live модификации Arch Linux, созданной для проведения тестирования на возможность проникновения (пен-тестинга приложений) специалистами по безопасности. BlackArch Linux является функциональным аналогом проекта BackTrack (в марте 2013 года был переименован в Kali Linux), но основанный на наработках дистрибутива Arch Linux и полностью (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA361AD2BEE000243364A62325444E0E34D2DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817362   (545952) от 30.08.2014
-
-Slackel Fluxbox 1.0 Live (Легкий дистрибутив) [x86, x86-64] 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновился Slackel Live – использующий последнюю стабильную версию рабочей среды Fluxbox,  GNU/Linux на базе current-ветки Slackware, а также на Salix. Поддерживается установка на жесткий диск, клонирование. В этом релизе включена поддержка загрузки UEFI и CSM (legacy / BIOS).
-
-В версию дистрибутива включены  браузер Firefox, Claws-Mail, Transmission, PCmanFM file manager, Openjre, rhino, icedtea-web, Pidgin, Gftp, Wicd, а также много других приложений - см. скриншоты.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7267693054C66CD3F6F1B810B72F9D0ADE350D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238508   (544353) от 01.08.2018
-
-ArchLabs Linux 2018.07.28 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544353.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArchLabs - это дистрибутив, основанный на Arch Linux и использующий менеджер окон Openbox в качестве основного интерфейса рабочего стола. ArchLabs - это 64-битный дистрибутив, который поддерживает rolling release, обеспечивает live DVD. Дистрибутив может быть установлен с помощью установщика системы AL-Installer.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5857E0F6143F891D3B69936B5E127FAE607D2645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925097   (543000) от 05.08.2015
-
-Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [amd64] 2xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики представили третью версию дистрибутива Tanglu под кодовым именем «Chromodoris willani». Обновление включает последние версии KDE и GNOME и множество обновлений прикладного ПО.
-
-Дистрибутив Tanglu основан на Debian: наиболее важные пакеты из Testing-ветки, но большая часть ПО из Unstable. Однако дистрибутив развивает собственные репозитории. Задача проекта (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF7CB5B8BDA89FC38876B2997591F3E6E1CC720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925101   (542998) от 05.08.2015
-
-Tanglu 3.0 Chromodoris willani Live [Plasma KDE 5] [i686] 2xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики представили третью версию дистрибутива Tanglu под кодовым именем «Chromodoris willani». Обновление включает последние версии KDE и GNOME и множество обновлений прикладного ПО.
-
-Дистрибутив Tanglu основан на Debian: наиболее важные пакеты из Testing-ветки, но большая часть ПО из Unstable. Однако дистрибутив развивает собственные репозитории. Задача проекта (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D257459372DAAC68A0CF705A48BDC1ED75EA0E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925661   (538635) от 07.08.2015
-
-Kubuntu 14.04.3 LTS [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Canonical объявили сегодня о выпуске Ubuntu 14.04.3,  и разместили на серверах первое из  обновлений в течение всего жизненного цикла продукта Ubuntu LTS. Одновременно с Ubuntu до версии 14.04.3 обновлены все продукты семейства LTS, включая Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D469CD2785B4DE20E67D0AC50FFDB6E3A49A8CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925745   (538633) от 07.08.2015
-
-Xubuntu 14.04.3 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xubuntu — дистрибутив Linux, основанный на проекте Ubuntu. Использует «лёгкую» графическую среду Xfce и приложения на GTK. Цель проекта — возможность использования легковесной альтернативы рабочим средам GNOME и KDE. Xubuntu имеет минималистичный интерфейс пользователя, экономно использующий память и другие аппаратные ресурсы компьютера, что позволяет комфортно работать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E04732D742BB1596FAF822E1B57CE2D8F417512
 ```
 
 https://mybot314.ru/tekegram_catalog/

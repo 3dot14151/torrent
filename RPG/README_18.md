@@ -1,3 +1,107 @@
+###  Публикация: 1214877   (762749) от 23.03.2018
+
+Ash of Gods: Redemption (2018) [Ru/Multi] (1.0.7) Repack xatab
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ash of Gods — это история трех разных героев, столкнувшихся с древней напастью, считавшейся не более, чем мифом. Сюжет игры нелинеен и постоянно меняется в зависимости от выбора игрока, иногда приводя к смерти персонажей. Но даже смерть героя не станет концом игры.Тип издания: RepackРазработчик: AurumDustЖанр: Strategy, RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFF5C496F3D26B08FCD9E5328847C69C88077C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215095   (761021) от 24.03.2018
+
+Ni no Kuni II: Revenant Kingdom (2018) [Ru/Multi] (1.0/dlc) License CODEX [The Prince's Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в прекрасный мир Ni no Kuni! Свергнутый юный король Эван отправляется в путешествие, чтобы основать новое государство, объединить мир и побороть силы зла. В Ni no Kuni II от студии LEVEL-5 стирается грань между компьютерной игрой и мультфильмом. Незабываемый дизайн персонажей от Ёсиюки Момосэ и чарующая музыка от Дзё Хисаиси не оставят вас равнодушными.Тип издания: LicenseРазработчик: Level-5Жанр: RPG, Adventure, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B232E4E950D2B9C19BA2F5C58C6C8ADC8730885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215318   (759457) от 25.03.2018
+
+Enoch: Underground (2018) [Ru/En] (1.0.0) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энох: Подземелье - хардкорная экшен-RPG. Вы - Пробудившийся, один из немногих выживших жителей города. Спасайте только свою жизнь, прорубайте себе путь через вселяющие ужас и очень опасных противников. Здесь все против вас, и все подлежит уничтожению.Тип издания: LicenseРазработчик: Unwhale StudioЖанр: Action (Top-Down), RPG, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA93225E35558B324FC5276F4D99057361DFCF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215418   (759368) от 25.03.2018
+
+Enoch: Underground (2018) [Ru/En] (1.0.0) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энох: Подземелье - хардкорная экшен-RPG. Вы - Пробудившийся, один из немногих выживших жителей города. Спасайте только свою жизнь, прорубайте себе путь через вселяющие ужас и очень опасных противников. Здесь все против вас, и все подлежит уничтожению.Тип издания: RepackРазработчик: Unwhale StudioЖанр: Action (Top-Down), RPG, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4570EDBD687E526BDBBE593CCE75E96075EDB570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018195   (756958) от 19.05.2016
 
 Sword Coast Legends (2015) [Ru/Multi] (1.0/upd9/dlc) Repack Other s
@@ -6,7 +110,7 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0/upd9/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756958.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752506.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751193.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.B258.R57446) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749379.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747583.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746432.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Victor Vran (2015) [Ru/Multi] (2.07.20190131/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746087.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Two Worlds - Epic Edition / Два Мира (2008) [Ru/Multi] (1.7) License PROP
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745926.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Crowntakers - Undead Undertakings (2015) [Ru/Multi] (1.0) SteamRip ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744430.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Final Fantasy IX / Final Fantasy 9 (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744351.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Pharaonic (2016) [En/Es] (1.0 u1) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742922.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Kenshi (2018) [Ru/Multi] (1.0.50) Repack xatab (обновляемая)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742354.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Darkwood (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741863.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru/Multi] (1.0.0.2/dlc) Repack R.G. Cataly
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741616.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740489.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Monster Hunter World: Iceborne (2020) [Ru/Multi] (1.0) License PARADOX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739633.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737676.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Bloody Spell (2022) [Multi] (1.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735276.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Monster Hunter: World (2018) (14.00.00/dlc) [Ru/Multi] Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734104.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Xuan-Yuan Sword VII (2020) [Ru/Multi] (1.26/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733009.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Reverie Knights Tactics (2022) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733003.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Mary Skelter 2 (2022) [En] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732999.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Mary Skelter 2 (2022) [En] (1.05) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38AEC3EB08B4BFE54D0E92FFDFF29B62CCF5FBAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009166   (731270) от 30.05.2016
-
-Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь погрузиться в мир где магия и технология схлестнулись в вечном антагонизме! Совершенно безумный сплав RPG, RTS и неповторимого обаяния 80-х. А что у нас отвечает за обаяние? Музыка, так? А кто у нас тут? Бааа да это же легенда легенд Mitch Murder, композитор музыки к Kung Fury и Hotline Miami 2.Тип издания: LicenseРазработчик: BeautiFun GamesЖанр: RPG, IsometricЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C2A87AC384B1C87EE3EE445D93273EBCB5547F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092831   (730469) от 19.02.2019
-
-Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.4) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hero Defense - Haunted Island приглашает всех любителей MOBA, RPG и TD проверить себя на способность к стратегическим маневрам в борьбе с ордами зловещих крипов. Hero Defense - Haunted Island предоставляет игроку пять уникальных героев, проходящих через различные арены, чтобы победить Графа Некросиса.Тип издания: RepackРазработчик: Happy TuesdayЖанр: Strategy, RPG, Tower Defence, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16819F69B65FF5DA0E500A7FD88A15AC2227423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010944   (729164) от 01.06.2016
-
-Cornerstone: The Song of Tyrim (2016) [En] (3.1.7) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cornerstone: The Song of Tyrim – приключенческая игра в открытом мире, полная удивительных открытий и напряженных боев. Однажды все воины-викинги пропали с вашего острова, и с тех пор мир и гармония покинули эти края. Тем, кто остался, с каждым днем становится все труднее. Тайрим – обыкновенный юноша, чей отец, как и многие другие, отправился в тот злосчастный поход. (   Читать дальше...   )Тип издания: LicenseРазработчик: Overflow GameЖанр: RPG (Rogue,Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00164F91B2B0B1AF44A21BBF4E63E0794BACB844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324959   (729068) от 18.04.2011
-
-Disciples III Дилогия [Ru] (Lossless Repack) 2009-2010 | R.G. Catalyst
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая веха в истории Невендаара, где в главной роли выступит безжалостная и беспощадная раса – Орды Нежити. Это история самоотверженной любви и неувядающей славы, в которой лишённые жизни, но не лишившиеся способности чувствовать герои вершат страшную месть во имя богини смерти Мортис..Тип издания: RepackЖанр: Add-on (Standalone) / Strategy (Turn-based) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AE4575E21FC10294D7A1F5868EDDD93C3E8259
 ```
 
 https://mybot314.ru/tekegram_catalog/

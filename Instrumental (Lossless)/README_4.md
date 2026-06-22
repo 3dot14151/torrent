@@ -6,7 +6,7 @@ March Larch - The Blues of March (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056256.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Muskogee Hotel, Knut Roppestad & Richard Gjems - Rory at The Hotel (2026) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056254.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Revelationary Recordings - WE BE THE BLUES "Songs From The Soil" (2026) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056252.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Turner Cody feat. The Soldiers of Love - Out for Blood (2026) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056251.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Aelix Mie - Where the Whiskey Sings (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056057.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Alex Lopez - Retro Revival (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056056.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Armano - I Hate To Leave (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056054.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Black Dog Otis - Fire Hazard (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056053.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charles Tiner - Good Soul (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056052.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brooks Milgate - Roll With the Punches (2026) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053253.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Debra Power - Unapologetically Me (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053252.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eric Madis - Six (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053251.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Little Quills - Strong Bold Brave (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053247.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nathan James - Intuition (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053246.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Oreo Blue - Given Notice (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053245.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Teresa James & The Rhythm Tramps - Bad at Being Good (2026) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053243.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Terry Robb - Howlin' Waters (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053242.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Blues Nite Revue - Tap Your Foot (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052115.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Alexandra Wright - Bartering with the Mirror (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052114.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Deltar - Vol. 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052111.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Doc Downs & The Next Round - A Shot of Wisdom (2025) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052110.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ J.T. Lauritsen & The Buckshot Hunters - Still Be Friends (2025) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052109.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lucky Lloyd - Old School Blues (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052108.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Matthew Curry - One for the Ride (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052107.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Otis Walker Band - Forward (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052105.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Paul Boddy - Soul Gone Blu’ (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052104.jpg" />
 </div>
 
 

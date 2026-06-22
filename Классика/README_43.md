@@ -6,7 +6,7 @@ Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (199
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285853.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282675.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kriemhild Maria Siegel - Schwanensee (Swan Lake) (2013) [FLAC|Lossless|image + .
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282393.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Handel - L'Allegro, il Penseroso ed il Moderato (1995) 2CD,  [FLAC|Lossless|imag
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282192.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Wolfgang Amadeus Mozart - Symphonies Nos. 21-41:  Josef Alois Krips & Royal Conc
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279092.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ New London Chorale - Celebration: 25 Years The New London Chorale (2004) [FLAC|L
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277338.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Jose Carreras, Placido Domingo, Natalie Cole - A Celebration of Christmas (1996)
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276947.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ New London Chorale - Het Mooiste Van (2006) [FLAC|Lossless|image + .cue] <Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276246.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ New London Chorale - The Collection  Vol.1 (2000) [FLAC|Lossless|image + .cue] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276223.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ New London Chorale - Christmas with the New London Chorale (1994) [FLAC|Lossless
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276106.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276069.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Andrea Bocelli - Si Forever (2019) The Diamond Edition [FLAC|Lossless|WEB-DL|tra
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276028.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ New London Chorale - The Collection Vol.2 (2003) [FLAC|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273624.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Annie Haslam - Still Life (1985) Limited Edition, Reissue, 1999, Kankard [FLAC|L
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270187.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Peter Hahn & Anna Maria Kaufmann - CD1 Musical (2010) [FLAC|Lossless|image + .cu
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269689.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Katherine Jenkins - Guiding Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269147.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268122.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Peter Hahn & Anna Maria Kaufmann - CD2 Opera (2010) [FLAC|Lossless|image + .cue]
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266082.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Vanessa Mae - The Violin Player [1995][APE]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265538.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Relaxing Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Music>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264397.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Stoa - 4 albums (1993-2008) [FLAC|Lossless] <Neoclassical, Ethereal>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259928.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ophelia's Dream - 3 albums (1997-2004) [FLAC|Lossless] <Neoclassical, Ethereal, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259870.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Víkingur Ólafsson, Beethoven, Bach, Schubert - Opus 109 (2025) [FLAC 24/192|Lo
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259868.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Dargaard - 4 albums (1998-2004) [FLAC|Lossless] <Darkwave, Ethereal, Neoclassica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259384.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ VA - Золотая классика. Популярные версии (5CD) (2
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258955.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258824.jpg" />
 </div>
 
 

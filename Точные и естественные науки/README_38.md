@@ -1,3 +1,29 @@
+###  Публикация: 1680407   (134184) от 29.11.2023
+
+Луи де Бройль | Электромагнитные волны в волноводах и полых резонаторах (1948) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного французского физика-теоретика содержит изложение основных вопросов теории волноводов и полых резонаторов, которые находят широкое применение в такой важной области техники, как радиолокация. Отличаясь простотой и ясностью изложения, книга, несомненно, будет полезна для физиков и инженеров, работающих в области ультракоротких волн.Жанр: ФизикаИздательство: Государственное издательство иностранной литературыФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B2E56C9CBFC3A778C8E6F5EFDEB97117B2BD94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680422   (134163) от 29.11.2023
 
 Д. Хирс, Г. Паунд | Испарение и конденсация (1966) [PDF]
@@ -6,7 +32,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134163.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133464.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133457.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133337.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133227.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132996.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132961.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132350.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132335.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132065.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131457.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131433.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131094.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131042.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128560.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127648.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ J.R. Waldram | The Theory of Thermodynamics (1987) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125867.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123601.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121490.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121488.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121201.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120851.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120832.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119566.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119507.jpg" />
 </div>
 
 
@@ -646,33 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4429ADF604C9C664157DBD4426F2E0BA5B45FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697336   (118960) от 06.02.2024
-
-И.М. Коренман | Микрокристаллоскопия (1955) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является учебным пособием по качественному микрокристаллоскопическому анализу. Она предназначена для студентов химических высших учебных заведений, может служить пособием для химиков-аналитиков, работающих в исследовательских и заводских лабораториях.
-Книга рассчитана на лиц, знакомых с качественным химическим анализом и с основными понятиями из области кристаллографии (   Читать дальше...   )Жанр: ХимияИздательство: ГосхимиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BAA4D72326A449DE551D5423F00F4F14233B89
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 871140   (880991) от 21.02.2015
+
+Журнал | Maxim [Россия] №3 (Март 2015) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Maxim является абсолютно уникальным изданием с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Максим радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1041C4558FE47A9CC0FBE5E3D5CB047B6FAFF7B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871728   (877374) от 23.02.2015
+
+Журнал | GQ [Россия] №3 (164) (Март 2015) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877374.jpg" />
+</div>
+
+
+###  Подробнее
+
+GQ - это уникальный формат мужского журнала, сочетающий в себе наивысшие стандарты качества глянцевого издания и интеллектуальный потенциал репортажной и аналитической журналистики. На его страницах представлены последние новости от ведущих дизайнеров, тенденции науки, техники и культуры, гастрономические изыски и лучшие отели мира.Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B810A4777435C4BAC6496E6EA670CED9735CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871755   (877267) от 23.02.2015
 
 Журнал | Playboy [USA]. Коллекционное издание. Country Girls (февраль 2015) [PDF]
@@ -6,7 +58,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877267.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876949.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875575.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874892.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871941.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869277.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869146.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869071.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869067.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867582.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867375.jpg" />
 </div>
 
 
@@ -284,6 +336,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766983   (867286) от 16.03.2014
+
+Журнал | Men's Health [Россия] №4 (апрель 2014) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_867286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. Русскоязычный Men’s Health — самый успешный из международных. (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF8AAEC6248812EEECC4B53C64490F5FA6EB726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 767693   (865548) от 17.03.2014
 
 Журнал | Playboy [USA]. Коллекционное издание "Girls & Cars" (февраль 2014) [PDF] [En]
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865548.jpg" />
 </div>
 
 
@@ -311,6 +389,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767696   (865332) от 17.03.2014
+
+Журнал | Playboy [USA]. Коллекционное издание "The Butt" (январь 2014) [PDF] [En]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_865332.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Playboy" — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.
+Темв спецвыпуска - ... Посмотрите на обложку, этим все сказано. Издание представляет из себя фотоальбом (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB04BAC20A6B1D12447F1B57A9C64FB3BEF080B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497455   (864463) от 22.09.2021
 
 Журнал | Men's Health [Россия] №10-11 (октябрь-ноябрь 2021) [PDF]
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864463.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861539.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857265.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856294.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854886.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854421.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853096.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849027.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847309.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847192.jpg" />
 </div>
 
 
@@ -565,116 +670,6 @@ XXL – информационно-развлекательный журнал �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C288A8410B231CC24C90E55FF0317907EDED196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308715   (841028) от 16.03.2011
-
-Подборка журналов | Esquire [USA] (2010-2011) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Esquire в американской версии на английском языке.
-
-Журнал Esquire предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде. Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.
-(   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6911C3514DBE6B0CE305A4ED33DE7D9E12D40217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772870   (836717) от 02.04.2014
-
-UALinux | UserAndLinuXXX v14.04 (2014) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тема номера - «Такого Linux вы еще не видели!» В номере Вас ждут красивые фотографии эротического содержания и их много )
-
-Дорогие читатели!
-Мы рады представить вам эксклюзивный номер журнала UserAndLINUX посвященный 1-му апреля, в котором не требуются слова. В этом номере как всегда вас ждет множество интересного материала. Оставайтесь с нами! Мы стараемся подбирать (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3994E108C7B8D3CCBE425A9AC995E144A218B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773311   (834253) от 03.04.2014
-
-Журнал | Playboy [Россия] №4 (апрель 2014) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy (Плейбой) — имя, ставшее легендой. Популярнейший во всем мире глянцевый мужской журнал появился в России в 1995 году и очень быстро стал самым востребованным изданием в своей категории. Playboy охватывает очень широкий тематический спектр: самые красивые женщины мира, эффектные пикториалы и эксклюзивные съемки знаменитостей, яркие фоторепортажи со светских (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1EEB759F9E0851456497117C65481278ED8C91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880041   (833195) от 20.03.2015
-
-Журнал | Maxim [Россия] №4 (апрель 2015) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Максим радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3483C045ECB70296909C6A3A11F0795DCF01E39D
 ```
 
 https://mybot314.ru/tekegram_catalog/

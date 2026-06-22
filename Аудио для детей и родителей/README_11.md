@@ -1,3 +1,29 @@
+###  Публикация: 597379   (999260) от 06.01.2013
+
+Н.С. Лесков, А.И. Куприн | Рождество. Чудесные истории (2007) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все маленькие дети верят в чудеса. И в то, что с ними непременно случится что-нибудь сказочно-волшебное. А уж Рождество для этого самое подходящее время... Искрящийся снег, яркие звёзды и даже ласковая улыбка в этот день наполняют душу радостью и тихим счастьем. И счастье это пахнет ёлкой и мандарином, а ещё оно завёрнуто в красивую подарочную бумагу и сверкает на (   Читать дальше...   )Жанр: детская классикаПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F3635A1210B305987167CDA801F7D9C233D52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602067   (997739) от 12.01.2013
 
 Алексей Толстой | Сорочьи сказки (2006) [MP3, Любовь Чекмарева, Владимир Смирнов]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997739.jpg" />
 </div>
 
 
@@ -36,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997730.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997385.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996909.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996663.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Rockabye Baby! - Lullaby Renditions of Red Hot Chili Peppers (2012) [MP3|320 к�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996655.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ VA - Песни для детей (2010) [MP3|320 кб/с]<Песни для д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996653.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996003.jpg" />
 </div>
 
 
@@ -232,7 +258,7 @@ VA - Бибика (2012) [MP3|~202 кб/с]<Детские песенки и м�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995457.jpg" />
 </div>
 
 
@@ -261,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992232.jpg" />
 </div>
 
 
@@ -290,7 +316,7 @@ VA - Михаил Казиник - Музыка для мамы, которая 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992162.jpg" />
 </div>
 
 
@@ -316,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991975.jpg" />
 </div>
 
 
@@ -342,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991938.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991560.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Barbara Bailey Hutchison - Bedtime Lullabies From Johnson's (2006) [MP3|320 kbps
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990977.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Bronn Journey - Harp For Baby (2011) [MP3|320 kbps]<Детская музыка/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990843.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Midori - Sleepy Time (2011) [MP3|320 kbps]<Детская музыка/ Relax>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990833.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990802.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ VA - Piano Portraits Lullaby (2009) [MP3|320 kbps]<Детская музыка/ 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990717.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989838.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989820.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989052.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988611.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988013.jpg" />
 </div>
 
 
@@ -672,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987395.jpg" />
 </div>
 
 
@@ -683,33 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63997C6368AF9E0B1D6B3BBFAEBEE0AE84B2D4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354668   (987025) от 23.01.2020
-
-Анна Быкова | Развивающие занятия «ленивой мамы» (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987025.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге Анна Быкова – педагог, психолог и автор бестселлера «Самостоятельный ребенок, или Как стать „ленивой мамой“» – предлагает свой взгляд на проблему развития детей. Многие родители беспокоятся: «Достаточно ли я вкладываюсь в своего ребенка? Своевременно ли? Не опоздал ли в чем-то?».
-Между тем каждая наша прогулка, каждый момент общения с детьми может стать (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 05:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFFD6E7369C33E1D505DB458D3A46E76BA02999
 ```
 
 https://mybot314.ru/tekegram_catalog/

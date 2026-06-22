@@ -1,3 +1,29 @@
+###  Публикация: 1657098   (7554) от 16.08.2025
+
+Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытайте радость от ведения собственного уютного малого бизнеса: создавайте стикеры, упаковывайте заказы и слушайте истории своих клиентов. Пришло время создать самый симпатичный магазин в Интернете! Если вы когда-либо мечтали окунуться в мир, где главная валюта - это не золото или доллары, а именно клейкая субстанция, то вас ждет нечто особенное. Разработчики представляют (   Читать дальше...   )Тип издания: LicenseРазработчик: Spellgarden GamesЖанр: Казуальные игры, СимуляторыЯзык субтитров: Английский, Французский, Китайский, Японский и другиеЯзык интерфейса: Английский, Французский, Китайский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F74BDE77B2A9C14D00808D461C2587056AF259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815475   (5182) от 30.08.2025
 
 LEGO Builder's Journey (2021) [Ru/Multi] (4.0.0) Repack FitGirl
@@ -6,7 +32,7 @@ LEGO Builder's Journey (2021) [Ru/Multi] (4.0.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5182.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Monument Valley 3 (2025) [Ru/Multi] (1.3.19596) Repack FitGirl [Game & Soundtrac
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4998.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Shrink Rooms (2025) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3260.jpg" />
 </div>
 
 

@@ -1,3 +1,116 @@
+###  Публикация: 1492020   (907297) от 27.08.2021
+
+The Neal Morse Band - Innocence & Danger (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Do It All Again (08:53)
+ 02 - Bird on a Wire (07:23)
+ 03 - Your Place in the Sun (04:12)
+ 04 - Another Story to Tell (04:50)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C889EA44288CB72EB6B9401C97D1CAB4CCDD479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181729   (906690) от 09.03.2010
+
+VA -  Gothic Rock (Cleopatra Rec) (2001) [MP3|320 kb/s]<Gothic Rock / Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Gothic Rock / Post PunkПродолжительность: 06:31:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369023   (905545) от 22.03.2020
+
+VA - Live Sounds Of Rock (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss - Black Diamond (Live)
+02. Aerosmith - Livin' On The Edge (Live)
+03. Blue Oyster Cult - Hot Rails To Hell (Live)
+04. Girlschool - Play Dirty (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E6F3DEEA71FB91FB78D130964B7E5800C035B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369026   (905370) от 22.03.2020
+
+VA - Glam Party Supermix the Glam Rock Allstars (2014) [MP3|320 Kbps] <Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Glitter - Hello Hello, I'm Back Again? / I'm the Leader of the Gang / Glisten Yeah / Rock and Roll / I Didn't Know I Loved You / Do You Wann (Medley)
+02. Sweet - Blockbuster! / Teenage Rampage / Wig-Wam Bam / The Ballroom Blitz / Hell Raiser / Fox on the Run (Medley)
+03. Suzi Quatro - Daytona Demon / Can the Can / Devil Gate Drive / 48 Crash (Medley)
+04. (   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB3860D40BF3927B3901C408A23542F27467578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866867   (904928) от 07.02.2015
 
 Jimi Hendrix - The Cry Of Love (1971) Remastered 2014 [MP3|320 кб/с]<Psychedelic Rock, Blues Rock>
@@ -6,7 +119,7 @@ Jimi Hendrix - The Cry Of Love (1971) Remastered 2014 [MP3|320 кб/с]<Psychede
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904928.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Jimi Hendrix - Rainbow Bridge (1971) Remastered 2014 [MP3|320 кб/с]<Blues Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904859.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Andy Logan & The O.C. 75s - Transistors of Mercy (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904445.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ Smash Hits Cover Band - A Tribute To AC DC - We Salute You (2011) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903495.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Deep Purple - Best Of (2013) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903129.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ The Champs - 25 All Time Greatest Recordings (2000) [MP3|320 кб/с] <Rock, Ins
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902777.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Play: 70's Music (2020) [MP3|320 Kbps] <Classic Rock, Soft Rock, Other>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901942.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ Slade - B-Sides (2007) 2CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901026.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ Hank Marvin - Marvin At The Movies (2000) [MP3|320 кб/с] <Rock, Pop Rock, Ins
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900982.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ The Immediate Family - The Immediate Family (2021) [MP3|320 Kbps] <Classic Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900462.jpg" />
 </div>
 
 
@@ -299,7 +412,7 @@ The Don Harrison Band - The Don Harrison Band (1976) Reissue, 2006, FruitGum Cor
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899787.jpg" />
 </div>
 
 
@@ -328,7 +441,7 @@ U2 - Live At The Apollo (For One Night Only) (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898918.jpg" />
 </div>
 
 
@@ -357,7 +470,7 @@ Stray - Saturday Morning Pictures (1972) Remastered, 2006, Castle Music [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897976.jpg" />
 </div>
 
 
@@ -386,7 +499,7 @@ Green Grey - Спичка (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897497.jpg" />
 </div>
 
 
@@ -415,7 +528,7 @@ Slade - Gospel According To Noddy (2006) [MP3|320 кб/с] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897242.jpg" />
 </div>
 
 
@@ -444,7 +557,7 @@ VA - Soft Rock Classics (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896832.jpg" />
 </div>
 
 
@@ -473,7 +586,7 @@ Richard Page - Peculiar Life (2010) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895248.jpg" />
 </div>
 
 
@@ -502,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895187.jpg" />
 </div>
 
 
@@ -530,7 +643,7 @@ Downtown Association - Urban Legends (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894237.jpg" />
 </div>
 
 
@@ -559,7 +672,7 @@ Hank Marvin - Heartbeat (1993) [MP3|320 кб/с] <Pop Rock, Classic Rock, Instru
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894188.jpg" />
 </div>
 
 
@@ -588,7 +701,7 @@ Theander Expression - Wonderful Anticipation (2016) [MP3|320 кб/с] <Melodic H
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894181.jpg" />
 </div>
 
 
@@ -617,7 +730,7 @@ VA - Brown Acid: The First Trip (2015) [MP3|320 кб/с] <Psychedelic Rock, Hard
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894143.jpg" />
 </div>
 
 
@@ -631,121 +744,6 @@ VA - Brown Acid: The First Trip (2015) [MP3|320 кб/с] <Psychedelic Rock, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC25495C23F49EBDE63FED51A95800C49747BC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493695   (894119) от 04.09.2021
-
-The Mission - A Garden Of Earthly Delights: The Mercury Years (2021) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like A Hurricane (Extended Version) [00:07:05]
-02. The Crystal Ocean (Extended Version) [00:07:33]
-03. Dream On [00:03:54]
-04. Stay With Me (Extended Mix) [00:07:30](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 2CD, 02:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6C025D98441B821F9CBD6B6D4810BD00710A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994043   (893667) от 06.03.2016
-
-Friday Story - Cheerful (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paper Boat (3:33)
- 02.  Bite Me (3:45)
- 03.  Red Hood (4:08)
- 04.  Фурiя (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD85CD72D6477D4163B3DFF2F5A58F568F7DCA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370828   (893643) от 29.03.2020
-
-Mr. Mister - 2 альбома (1984-1985) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1984 - I Wear The Face
-1985 - Welcome To The Real WorldЖанр: RockПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2606AB19084D8025280DCF866A06D6622A19D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493900   (892560) от 05.09.2021
-
-Елена Войнаровская (ex-Flёur) - Паломники (2021) [MP3|320 Kbps] <Rock, Artrock,, Indie, Cardiowave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро [00:01:01]
-02 - Песня паломников [00:05:48]
-03 - Танго-карантин [00:04:17]
-04 - Вавилонская башня [00:05:29](   Читать дальше...   )Жанр: Rock, Artrock,, Indie, CardiowaveПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F539FD587489F17CA6970241999F2E6A05232B
 ```
 
 https://mybot314.ru/tekegram_catalog/

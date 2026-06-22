@@ -1,3 +1,59 @@
+###  Публикация: 1682639   (131120) от 08.12.2023
+
+Роберт Льюис Стивенсон | Похищенный (2011) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Приключения Дэвида Бэлфура.
+Роберт Льюис Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
+Труднее всего рассказывать о мастерах чье творчество почти совершенно. Роберт Льюис Стивенсон обладал поистине моцартовским талантом. У него нет слабых (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: МедиаКнигаПродолжительность: 09:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0862B278CC22CDC519EBC490CB1825EEE3396A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682768   (131108) от 08.12.2023
+
+Роберт Льюис Стивенсон | Приключения Дэвида Бэлфура (Книга 1). Похищенный (2013) [MP3, Юрий Васильев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл: Приключения Дэвида Бэлфура.
+Роберт Льюис Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
+Первая книга дилогии Роберта Луиса Стивенсона, вошедшей в золотой фонд мировой историко-приключенческой литературы. Увлекательная история юного Дэвида Бэлфура, (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: ИП Сергей ГригорянПродолжительность: 08:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4C29B00D34280DC536F223230669F74ECCDB42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682885   (129964) от 09.12.2023
 
 Роберт Льюис Стивенсон | Владетель Баллантрэ (2012) [MP3, Валентин Морозов]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129964.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129300.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129149.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128875.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128823.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128695.jpg" />
 </div>
 
 
@@ -173,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128619.jpg" />
 </div>
 
 
@@ -200,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128618.jpg" />
 </div>
 
 
@@ -227,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128501.jpg" />
 </div>
 
 
@@ -255,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128484.jpg" />
 </div>
 
 
@@ -282,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128455.jpg" />
 </div>
 
 
@@ -310,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128383.jpg" />
 </div>
 
 
@@ -339,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128382.jpg" />
 </div>
 
 
@@ -368,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128361.jpg" />
 </div>
 
 
@@ -396,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128352.jpg" />
 </div>
 
 
@@ -424,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128340.jpg" />
 </div>
 
 
@@ -451,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128325.jpg" />
 </div>
 
 
@@ -477,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128292.jpg" />
 </div>
 
 
@@ -504,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128244.jpg" />
 </div>
 
 
@@ -531,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128238.jpg" />
 </div>
 
 
@@ -559,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128236.jpg" />
 </div>
 
 
@@ -587,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128216.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128213.jpg" />
 </div>
 
 
@@ -642,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128100.jpg" />
 </div>
 
 
@@ -654,62 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:360F39E4E031FC0B05CFF984F098504B8E044903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684037   (128094) от 13.12.2023
-
-Томас Майн Рид | Пропавшая гора (2023) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас Майн Рид (1818–1883) – английский  писатель, автор приключенческих романов и произведений для детей и юношества, часть из которых была опубликована под псевдонимом Капитан Майн Рид.
-Томас Майн Рид прославился как автор увлекательных приключенческих романов «Белый вождь», «Оцеола, вождь семинолов», «Всадник без головы». Лучшие его книги, выходя за рамки приключенческой (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 05:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9357ECE0CA0791A51172197314B9D4EBC8451C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683880   (128092) от 13.12.2023
-
-Михаил Лермонтов | Герой нашего времени (2003) [MP3, Юрий Заборовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская классика.
-Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
-Потомок выходца из Шотландии Георга Лермонта, взятого в плен при осаде крепости Белой в начале XVII в.
-В творчестве М.Ю. Лермонтова, как раннем, так и более зрелом, преобладают темы лирического и философского (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 07:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412DB937CD2F36A3E50DED67F26623BF89389B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

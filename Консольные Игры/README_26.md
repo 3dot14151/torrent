@@ -1,3 +1,111 @@
+###  Публикация: 518269   (642746) от 03.07.2012
+
+[PS2] Bloody Roar 4 [Мультиязычный] (2003)
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloody Roar 4 — четвёртая часть серии консольных файтингов от компаний Eighting/Hudson Soft. Игра единственная в серии получила рейтинг M из-за наличия крови в игре. Эта игра стала последней из игр серии выпущенных на PlayStation 2.
+Игра стала еще более кровавой, мрачной и жестокой. К 14 персонажам, пришедшим из предыдущих частей, добавилось еще трое. Для каждого из бойцов написана собственная история и, разумеется, неизменной осталась фирменная черта сериала: возможность превращать бойцов в свирепых животных.Жанр: FightingЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA9366E956B1D528FE9227A55A5840B5B2B126D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518569   (642434) от 03.07.2012
+
+[PS2] Twisted Metal Black [RUS] (2001)
+
+>>Консольные Игры
+>>PS2
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоигра в жанре гонок на выживание, разработанная компанией Incog Inc. Entertainment в 2001 году. Первая игра в серии, вышедшая на PlayStation 2.
+Основной сюжетной линией игры является турнир, и ставка на этом турнире, не много не мало - жизнь… Побороться за главный приз съезжаются самые отъявленные бандиты и маньяки, ищущие новых жертв, убийства и крови, герои, грезящие славой, и отвергнутые жизнью люди, жаждущие мести… В этой битве насмерть выживет только один, только один получит главный приз, побороться за который стоит, даже ценой собственной жизни… Уникальная по своей красоте графика не оставит равнодушными даже далеких от таких мрачных игр людей. Огромное количество всеразличных интерактивных объектов на уровнях, интересное освещение и озвучание показывают истинную мощь движка игры. Высококачественный продукт, не имеющий себе равных. Гениальное творение современной игровой индустрии, достойное продолжение легендарной серии.
+Oтличное звуковое сопровождение и достойная графика.
+Окунитесь с головой в жестокую (   Читать дальше...   )Жанр: Гонки на выживаниеЯзык интерфейса: RUS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7D68C087C238BF6535879F3823A2CDDB47EA66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541733   (642255) от 04.04.2022
+
+PAW Patrol The Movie: Adventure City Calls / Щенячий патруль в кино: Город приключений зовет (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой город - большие приключения! Когда Райдер и Щенячий патруль узнают, что мэр Хамдингер захватил шумный мегаполис, они должны броситься в бой, чтобы спасти Город приключений от его эгоистичных планов. Щенкам нужно, чтобы ВЫ присоединились к Четырехлапой команде! Итак, Город приключений, вот и мы! Станьте своими любимыми щенками, включая Чейза, Скай, Маршала (   Читать дальше...   )Тип издания: LicenseРазработчик: DRAKHAR STUDIOЖанр: AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D914A8BBD95B05D2457EFD78B274ACB315803134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680618   (642118) от 17.07.2013
+
+Cocoto Festival [Wii] [PAL] [Multi 5] (2009)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642118.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре  Cocoto Festival вы обнаружите до 150 совершенно новых игр-стрелялок с возможностью совместной игры до 4 человек одновременно. С новым аксессуаром, эксклюзивной винтовкой Wii™, вам останется только наслаждаться  этой лёгкой, быстрой и забавной игрой.Разработчик: Neko Entertainment, Kylotonn EntertainmentЖанр: Party/ShooterЯзык интерфейса: Multi 5 (EN, FR, DE, ES, IT)Формат: WBFS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B34236CC423E2C8047BB95E6A517E1BE59712BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292948   (640492) от 01.04.2019
 
 The Tomb Raider Trilogy (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru] | R.G.DShock
@@ -6,7 +114,7 @@ The Tomb Raider Trilogy (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO ISO] [Un
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640492.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ Cocoto Kart Racer [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640230.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Crash Time 5: Undercover (2013) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [U
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639476.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Death Track: Resurrection (2010) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639473.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Tank Battles (2009) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.0.1] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639370.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ Saints Row IV + DLC (2013) [Xbox360] [Region Free] [Freeboot] [Repack] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639171.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638438.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ HISTORY Great Battles Medieval (2011) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637651.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Mouse Craft (2014) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.0.1] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637644.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ Onechanbara Z: Kagura with NoNoNo! (2013) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637643.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ El Shaddai: Ascension of the Metatron (2011) [PS3] [USA] 3.56 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637641.jpg" />
 </div>
 
 
@@ -299,7 +407,7 @@ Bloodborne: Game of the Year Edition (2015) [PS4] [EUR] 4.05 [HEN] [Repack / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637083.jpg" />
 </div>
 
 
@@ -325,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637014.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Cars 3: Driven to Win (2017) [PS3] [USA] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636668.jpg" />
 </div>
 
 
@@ -383,7 +491,7 @@ Black (2006) [Xbox] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634828.jpg" />
 </div>
 
 
@@ -409,7 +517,7 @@ Baldur's Gate: Dark Alliance (2002) [Xbox] [RegionFree] FreeBoot [Unofficial] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633220.jpg" />
 </div>
 
 
@@ -437,7 +545,7 @@ Dreamfall: The Longest Journey (2006) [Xbox] [RegionFree] FreeBoot [Unofficial] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633114.jpg" />
 </div>
 
 
@@ -463,7 +571,7 @@ Sid Meier's Pirates! (2005) [Xbox] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633109.jpg" />
 </div>
 
 
@@ -489,7 +597,7 @@ Spider-Man 3 [PSP] [ENG] (2007)
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630349.jpg" />
 </div>
 
 
@@ -515,7 +623,7 @@ Street Fighter III: Third Strike Online Edition (2011) [PS3] [EUR] 4.21 [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626076.jpg" />
 </div>
 
 
@@ -541,7 +649,7 @@ LEGO Harry Potter: Years 5–7 (2011) [PS3] [EUR] 3.55 [Unofficial] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625918.jpg" />
 </div>
 
 
@@ -567,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624178.jpg" />
 </div>
 
 
@@ -579,110 +687,6 @@ Grand Knights History представляет собой пошаговую с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E388F0DF2615CC74D6404F40E590D918BB2555E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404321   (623321) от 14.04.2022
-
-RAGE 2 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.09 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Упавший на Землю астероид уничтожил 80% населения. По дорогам скитаются кровожадные банды, а Правительство пытается утвердить своё господство. Вас ждёт настоящий хаос: неописуемые перестрелки с видом от первого лица, разнообразный транспорт и скатывающийся в безумие открытый мир пустошей. Признанные мастера по созданию открытых миров Avalanche Studios и гуру шутеров (   Читать дальше...   )Тип издания: LicenseРазработчик: id Software, Avalanche StudiosЖанр: Action, Shooter, 1st Person, Open WorldЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8405D5E0C7174E7D4ACF9C52D2763E13D235CADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909611   (623182) от 19.06.2015
-
-MotoGP 15 (2015) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623182.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotoGP 15 — спортивный гоночный мото-симулятор, разрабатываемый студией Milestone. Это продолжение популярной серии игр с более расширенными возможностями. В MotoGP 15 был расширен режим карьеры с внедрением обширного опыта в персональные группы. Улучшена физика ремонта, обработка байков и общее взаимодействие. В этой части доступно около 20-ти байков, разделенных (   Читать дальше...   )Тип издания: UnofficialРазработчик: Milestone S.r.l.sЖанр: RacingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C0F758D6C93338632BF2401BC576956BC273A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144501   (623175) от 24.06.2017
-
-Steredenn (2017) [PS3] [EUR] 3.41 [PSN] [Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steredenn — это хаотический и динамичный космический шутер с безумными боями против боссов в стильной крупнопиксельной графике. Отправься в путь на своем корабле и сразись с ужасными космическими пиратами в нескончаемом бою на выживание.Тип издания: PSNРазработчик: Plug In DigitalЖанр: Action, Shooter, Shoot-'Em-Up, HorizontalЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6896867F1A345A17DFFAB58030D933DC44E8BEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684336   (621597) от 27.07.2013
-
-Zeno Clash 2 [XBOX360] [En/Ru] [XBLA] [Freeboot] (2013)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621597.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Гата далека от завершения: Zeno Clash 2 продолжает историю с того интригующего момента, на котором первая игра была прервана. После 4 лет ожидания - продолжение сюрреалистической игры от первого лица, куда ACE Team вносит больше разнообразия в боях и уровнях, потрясающие визуальные обновления и даже более причудливые повествования в привлекательном мире Стоун-панк (   Читать дальше...   )Тип издания: XBLAРазработчик: ACE TeamЖанр: Action / Adventure / Fighting / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

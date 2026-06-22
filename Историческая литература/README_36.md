@@ -1,3 +1,109 @@
+###  Публикация: 1128507   (727434) от 25.04.2017
+
+С. Г. Шаумян | Избранные произведения [2 тома] (1978) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727434.jpg" />
+</div>
+
+
+###  Подробнее
+
+В "Избранные произведения" включены статьи, речи, доклады, письма, раскрывающие революционную, пропагандистскую и публицистическую деятельность С. Г. Шаумяна. В них отражена сложнейшая политическая обстановка, в которой большевики вели борьбу против царизма, врагов партии и рабочего класса, за победу и укрепление Советской власти в Закавказье.
+
+Материалы (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706D7952D5A9AC272218BEAA8724062E446D3141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023134   (726732) от 04.06.2016
+
+Николай Шмелев | В лучах прожекторов (1962) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «В лучах прожекторов» — живой рассказ о боевых друзьях автора — смелых, мужественных людях, о крепкой солдатской дружбе, которая помогала им громить врага.Жанр: Биографии и Мемуары, О войнеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8D66F3B8EF6EC58CDE0B767EA4CA6B2EDE34ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128562   (726564) от 26.04.2017
+
+А. И. Матюшенский | От воровства к анархизму (1908) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нас побуждает взяться за эту работу назревшее новое течение в тех общественных слоях, к которым публика привыкла прикладывать шаблоны, построенные тысячи лет назад, и которые теперь явно разрушаются и становятся непригодными для определения действительно существующих отношений между так называемыми лояльными группами с одной стороны и профессиональными ворами и грабителями (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31560C2E0E6D75BE81A6C7C495AF16BF979963A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284785   (726534) от 23.02.2019
+
+Библиотека революционных мемуаров [8 книг] (1982-1987) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726534.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1982 году Лениздат начал выпуск «Библиотеки революционных мемуаров» «Из искры возгорится пламя», составленной из воспоминаний участников революционного движения в Петербурге — Петрограде. Цель этого издания — рассказать о славных революционных традициях нашего народа и их преемственности, дать читателям возможность увидеть революционное движение в России глазами (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37241156EE00BFCF131F0B522DFFDED9BB1A8446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285128   (724786) от 24.02.2019
 
 П. С. Желтиков | Краткий очерк деятельности городского самоуправления в Бендерах за последнее 20-тие (1894-1912 гг.) (1912) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724786.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724665.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723406.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723219.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722579.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722015.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721734.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721727.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721726.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721636.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721626.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721261.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720804.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720710.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720451.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720411.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720228.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719520.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719328.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718837.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716800.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716798.jpg" />
 </div>
 
 
@@ -573,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D40B55A2AF3EB19E47ED5455AF619DF2A0DCE8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400651   (716723) от 06.08.2020
-
-Александр Никонов | Исчезнувшие цивилизации. Взаимосвязь культур и парадоксы истории (2020) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо ли человечеству известно его собственное прошлое? История нашей цивилизации, которую мы все изучали в школе, представляется нам в виде увесистого академического тома, успокаивающего душу. Она просматривается вся – от палки-копалки до покорения атома. Но что, если у нас позади больше неизвестного, чем известного? Тогда этот том превращается в несколько жалких (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20941C6D0F743B89BC8AD8ADF79A441FCF432B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130306   (716146) от 01.05.2017
-
-И.А. Ильф, Е.П. Петров | В краю непуганых идиотов (2017) [FB2, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716146.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Обязательно записывайте, – часто говорил Ильф своему соавтору, – все проходит, все забывается. Я понимаю – записывать не хочется. Хочется глазеть, а не записывать. Но тогда нужно заставить себя». Факты, события, мельчайшие детали, а главное, портреты странных, чудаковатых, нелепых и недалеких соотечественников – все это, взятое из записных книжек и вроде бы написанное (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7662EFB99C22D8E6335131824311007E498A209C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024544   (716032) от 09.06.2016
-
-Б.В. Базаров (гл. ред.) | История Бурятии в 3-х томах (2011) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский коллектив подготовил «Историю Бурятии» в трех томах - красочных, объемных и информативно насыщенных. В них удалось изложить основные вехи и события региональной истории и важнейшие, определившие их суть факты.Жанр: История, Краеведение, ЭтнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE4863D36BD5C28DC3B0C305276DA2771EAEEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024844   (713667) от 10.06.2016
-
-А. А. Тюняев | Москва: Чертоги Мокоши (2011) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713667.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу исследования положены археологические, антропологические, лингвистические, мифологические, религиоведческие, топонимические, географические и другие данные. Города великих держав, главной из которых являлась Древнейшая Русь, получали свои названия от имён великих предков. Точно по этому принципу Москва получила своё название от великой богини Космоса, самой (   Читать дальше...   )Жанр: ИсториографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA68D315A61B4365531A93CCD426AA7A0D1CBD49
 ```
 
 https://mybot314.ru/tekegram_catalog/

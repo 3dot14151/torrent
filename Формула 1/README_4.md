@@ -1,3 +1,114 @@
+###  Публикация: 1394314   (764640) от 04.07.2020
+
+Формула 1. Сезон 2020. Этап 1. Гран-при Австрии. Свободная практика 3 (04.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арена: Ред Булл Ринг (Шпильберг, Австрия)
+04 июля 2020, суббота. 13:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FCF9AFA5C206FA13746106131338D2CC6E11A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394210   (764632) от 04.07.2020
+
+Формула 1. Сезон 2020. 1-й Этап. Гран-при Австрии. Свободная практика 2 (03.07.2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764632.jpg" />
+</div>
+
+
+###  Подробнее
+
+71-й сезон Формулы-1 2020 года
+03 июля 2020, пятница. 16:00 МСК
+1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
+Свободная практика 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA47E4FBB2907A6E0672FB687C15548F0A2EBA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394375   (764586) от 04.07.2020
+
+Формула 1. Сезон 2020. Этап 1. Гран-при Австрии. Квалификация (04.07.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арена: Ред Булл Ринг (Шпильберг, Австрия)
+04 июля 2020, суббота. 16:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D67679B0ECDD1175CBA3123B2EC8FA081794E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394583   (763681) от 05.07.2020
+
+Формула 1. Сезон 2020. Этап 1. Гран-при Австрии. Гонка (05.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 1, Шпильберг, Австрия
+Арена: Ред Булл Ринг (Шпильберг, Австрия)
+05 июля 2020, воскресенье. 16:10 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812FF2165C61C11822F3ADCE06914A60A53A41AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215292   (759545) от 25.03.2018
 
 Формула 1. Сезон 2018. 1-й Этап. Гран-при Австралии. Гонка (25.03.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +117,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759545.jpg" />
 </div>
 
 
@@ -35,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757866.jpg" />
 </div>
 
 
@@ -63,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753811.jpg" />
 </div>
 
 
@@ -92,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753800.jpg" />
 </div>
 
 
@@ -121,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753799.jpg" />
 </div>
 
 
@@ -150,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753794.jpg" />
 </div>
 
 
@@ -178,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753741.jpg" />
 </div>
 
 
@@ -206,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752021.jpg" />
 </div>
 
 
@@ -234,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751570.jpg" />
 </div>
 
 
@@ -262,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744139.jpg" />
 </div>
 
 
@@ -291,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744131.jpg" />
 </div>
 
 
@@ -317,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742733.jpg" />
 </div>
 
 
@@ -343,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742697.jpg" />
 </div>
 
 
@@ -372,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742690.jpg" />
 </div>
 
 
@@ -401,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741957.jpg" />
 </div>
 
 
@@ -427,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741299.jpg" />
 </div>
 
 
@@ -456,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740118.jpg" />
 </div>
 
 
@@ -485,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733331.jpg" />
 </div>
 
 
@@ -513,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732955.jpg" />
 </div>
 
 
@@ -541,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732954.jpg" />
 </div>
 
 
@@ -569,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732948.jpg" />
 </div>
 
 
@@ -597,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732942.jpg" />
 </div>
 
 
@@ -610,118 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D34373824F9589415A7B8261C818EC289FF457A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021526   (732544) от 29.05.2016
-
-Формула 1. Гран-При Монако. Гонка (2016) HDTV [H.264/1080i]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автодром используется с 1929 года, а в календаре Ф1 присутствует с 1950. Трасса проложена по дорогам общего пользования, которые на время проведения гран-при Монако перекрываются. Местные жители, чья квартира расположена в непосредственной близости трека, зарабатывают сдавая в аренду свои балконы (а так же яхты) на время проведения этапа. Очень узкая и опасная трасса, (   Читать дальше...   )Телекомпания: МАТЧ! АренаЖанр: Чемпионат Мира, АвтоСпорт, "открытые колеса"Продолжительность: 02:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C6A38679C431D94BF4565E7DE84013078A9F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021519   (732509) от 29.05.2016
-
-Формула 1. Гран-При Монако. Гонка (2016) HDTVRip [H.264/720p] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий гонщик "Мерседеса" Нико Росберг в ближайший уикэнд попробует в четвертый раз подряд выиграть Гран-при Монако "Формулы-1".
-
-Росберг после пяти этапов возглавляет личный зачет, набрав 100 очков. Ближайшими преследователями немца являются финн Кими Райкконен из "Феррари" (61) и партнер по "Мерседесу" британец Льюис Хэмилтон (   Читать дальше...   )Телекомпания: МАТЧ! АренаЖанр: Спорт, автоПродолжительность: 02:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF12092FBFC331E05194660CD9FDDDF538029D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218354   (725020) от 08.04.2018
-
-Формула 1. Сезон 2018. 2-й Этап. Гран-при Бахрейна. Гонка (08.04.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725020.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 апреля 2018 года, воскресенье. 18:10 МСК
-Формула 1. Сезон 2018 года. 2-й Этап. Гран-при Бахрейна. Сахир (Бахрейн)
-Гонка (57 кругов, 308.2 км)
-Арена: Международный автодром Бахрейна (Сахир, Бахрейн)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BEF6C80EE18766CF6F37DA58398E5B37A45AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399996   (723048) от 03.08.2020
-
-Формула 1. Сезон 2020. 4-й Этап. Гран-при Великобритании. Гонка (02.08.2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723048.jpg" />
-</div>
-
-
-###  Подробнее
-
-71-й сезон Формулы-1 2020 года
-02 августа 2020, воскресенье. 17:10 МСК
-4-й Этап. Гран-при Великобритании. Сильверстоун (Великобритания)
-Гонка(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D8CF8307C92B604D4678AE921E4C572B7E422B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1877236   (1073797) от 
+
+Аэропорт (2026) WEBRip [H.264]
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девять пассажиров рейса Пермь — Анталья оказываются в зоне пограничного контроля аэропорта. Двери заблокированы, связь с внешним миром отсутствует. На первый взгляд — случайное стечение обстоятельств. Но опытный трукрайм-энтузиаст Владимир уверен, что совпадений быть не может.Производство: Россия / КлёвафильмЖанр: детектив, триллерРежиссер: Иван КульневАктеры: Роман Курцын, Камиль Ларин, Валентина Мазунина, Олег Тактаров, Диана Милютина, Майя Вознесенская, Анастасия Стежко, Максим Радугин, Никандр Кирьянов, Дарья ПетриченкоСубтитры: ОтсутствуютПродолжительность: 01:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF75634778DB7F606A4E687A4E4881A97CD5F1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876054   (1072958) от 
+
+Коммерсант (2025) WEBRip [H.264]
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва, 1996 год. У молодого и предприимчивого банкира Андрея Рубанова есть жена Ирма и маленький ребенок. А ещё — больше миллиона долларов на двоих с другом Мишей. Видя себя будущей элитой нового государства, олигархами, они вписываются в крупную сделку, но оказывается, что друзей втянули в масштабную аферу по хищению миллиардов из казны. После ареста Андрей попадает (   Читать дальше...   )Производство: Россия / Gonzo Film, ON студия, КИОН, ВГИКЖанр: драмаРежиссер: Фёдор Кравчук, Никита КравчукАктеры: Александр Петров, Елизавета Базыкина, Михаил Тройник, Артур Иванов, Хаски, Иван Фоминов, Никита Павленко, Рамиль Сабитов, Александр Кудин, Карэн БадаловСубтитры: отсутствуютПродолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA6C0FFF2FEFBEBCAD5B26AA0ADB51C6ED06721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874941   (1072208) от 
 
 Твое сердце будет разбито (2026) WEBRip [H.264]
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072208.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071534.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068521.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068485.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068437.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068397.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067620.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067559.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067506.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067040.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066949.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066503.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065943.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064704.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063961.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063951.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063920.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063884.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062697.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062409.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062408.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062398.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062397.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062109.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B963D55A29FAF5404FCE2A73941EFA6807390CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860814   (1062108) от 22.03.2026
-
-Здесь был Юра (2025) WEBRip
-
->>Горячие новинки
->>Отечественные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое парней, живущих в московской квартире, десять дней вынуждены присматривать за дядей одного из них. Его зовут Юра, и у него ментальные особенности.Производство: Россия / Босфор, ВольгаЖанр: драма, приключенияРежиссер: Сергей МалкинАктеры: Константин Хабенский, Денис Парамонов, Кузьма Котрелёв, Александр Поршин, Василий Михайлов, Даша Котрелёва, Юлия Черепнина, Елена Моисеева, Лев Малишава, Мила ИсаеваСубтитры: Русские (отдельно)Продолжительность: 01:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7B4D8941B4570F03764A8B86E25BDDD266E061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860813   (1062107) от 22.03.2026
-
-Здесь был Юра (2025) WEBRip [H.264]
-
->>Горячие новинки
->>Отечественные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое парней, живущих в московской квартире, десять дней вынуждены присматривать за дядей одного из них. Его зовут Юра, и у него ментальные особенности.Производство: Россия / Босфор, ВольгаЖанр: драма, приключенияРежиссер: Сергей МалкинАктеры: Константин Хабенский, Денис Парамонов, Кузьма Котрелёв, Александр Поршин, Василий Михайлов, Даша Котрелёва, Юлия Черепнина, Елена Моисеева, Лев Малишава, Мила ИсаеваСубтитры: РусскиеПродолжительность: 01:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FD01EB6638003EDEA5FFC897DD5B89EE105B6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

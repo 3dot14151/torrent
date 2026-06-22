@@ -1,3 +1,133 @@
+###  Публикация: 1771089   (31900) от 05.01.2025
+
+The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великое завершение трилогии «Дома Да Винчи» грядет! Вас ожидает множество новых загадок, захватывающая история и высокое качество исполнения, за которое все и полюбили эту серию игр. Время финала пришло: в последний раз станьте Джакомо, другом и учеником великого мастера наук и искусств Леонардо да Винчи. Исследуйте наполненный загадками мир эпохи Возрождения, находите (   Читать дальше...   )Тип издания: RepackРазработчик: Blue Brain GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28950A3CEF5F867CDA0C931C9DC2334159958231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771321   (31826) от 06.01.2025
+
+Satellite Odyssey: Prologue (2024) [Ru/En] (1.0.1.2) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Satellite odyssey: Рrologue - открывающая часть серии игр. Короткометражное (1час) сюжетное приключение с элементами хоррора от первого лица. Погрузитесь в атмосферу классической научной фантастики и ретро футуризма, вдохновленную советскими научно-фантастическими художественными фильмами и стремлением человека к науке и покорению космоса.Тип издания: RepackРазработчик: Antifreeze GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339890C04B7ADD981ED192F0BB82489D447F884F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771410   (31816) от 06.01.2025
+
+Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец света произошел 37 минут назад. Пора начинать. Йогтон (Yaughton), Шропшир, Англия. 06:37 утра 6 июня 1984. Среди просторов Шропшира стоит опустевшая деревушка Йогтон. Во дворах брошены детские игрушки, ветер уныло разносит карантинные листовки по церковному кладбищу. На ферме Апплтона колосится неубранный урожай. Птицы лежат там, где упали. Эта история о том, (   Читать дальше...   )Тип издания: RepackРазработчик: The Chinese RoomЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C595D88A4438E415DB584A31C7C273048F180E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771345   (31782) от 06.01.2025
+
+DREAMERS (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31782.jpg" />
+</div>
+
+
+###  Подробнее
+
+DREAMERS позволит тебе погрузиться в увлекательную историю о приключениях, дружбе и взрослении. Присоединяйся к трем главным персонажам в их эмоциональном путешествии по красочному миру, полному неизведанных стран и сюжетных линий, мини-игр и головоломок, в том числе в коллаборативном режиме на разделенном экране.Тип издания: RepackРазработчик: PlaySysЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Китайский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468DDC91D00E89DE573171320E46910FA85C6236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771566   (31747) от 07.01.2025
+
+Joyville 2 (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joyville 2 - это хоррор-головоломка от первого лица, действие которой происходит в заброшенном детском лагере. Исследуйте два мира, где радость прошлого пересекается с ужасами настоящего. Раскройте мрачные тайны лагеря, сразитесь с опасными магическими существами и узнайте правду событий прошлого.Тип издания: SceneРазработчик: KudPlay GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9516A6FBBD3EE39027B700DBF43612D3D4D1B9E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738930   (31729) от 07.01.2025
 
 Conscript (2024) [Ru/Multi] (107/dlc) License GOG
@@ -6,7 +136,7 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31729.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31728.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31697.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31687.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31671.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31627.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31608.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31493.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31404.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (Build 1374323) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31378.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31328.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31306.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31294.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ HELLSEED: All Chapters (2022) [Ru/Multi] (Build 16646433) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31285.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31253.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Undead Realm: Ego (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31214.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31212.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31205.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31192.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31184.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31174.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AD8374214052A5B98B1B2B6EE5C5CA0D24E5402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772832   (31163) от 12.01.2025
-
-Dropsy (2015) [Ru/Multi] (1.5) License GOG [Warm Damp Hug Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь клоуна Дропси круто меняется, после того как пожар уничтожает его родной цирк и оставляет пепел от его репутации. Оставшись на пепелище с тяжелобольным отцом на руках, он отправляется в непростое путешествие, в котором ему предстоит наглядно продемонстрировать, что есть доброта и любовь, и обрести себя. После того как все отворачиваются от когда-то жизнелюбивого (   Читать дальше...   )Тип издания: LicenseРазработчик: Tendershoot, A Jolly CorpseЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC188DB5AE063B3AB45035D410C9EDA3C800474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766630   (30994) от 14.01.2025
-
-Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ответив на необычный экстренный вызов с удалённой шахтёрской базы, Джек прибывает в мрачный и безлюдный Fort Solis. Несмотря на надвигающуюся грозу, он отправляется внутрь и отчаянно пытается установить контакт. Ночь никак не заканчивается, ситуация накаляется. События выходят из-под контроля, а завеса над тайной исчезновения персонала базы начинает приподниматься.Тип издания: RepackРазработчик: Fallen Leaf, Black Drakkar GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C680A152997D93819CF561AE6041EDA0CB14D1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773409   (30907) от 15.01.2025
-
-Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack FitGirl [Terra Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Solis - сюжетный триллер от третьего лица, рассчитанный на одиночное прохождение, события которого разворачиваются на дальней стороне Марса. Инженер Джек Лири получает сигнал тревоги, поступивший с форта Солис. Прибыв на станцию, герой не находит членов персонала, зато встречает нечто, что явно ему не радо. Помогите Джеку спастись, сохранив то, что он обнаружил, (   Читать дальше...   )Тип издания: RepackРазработчик: Fallen Leaf, Black Drakkar GamesЖанр: Adventure (Thriller), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAE088A454F54588796C38BB6B5A93A364A12AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773438   (30897) от 15.01.2025
-
-Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в темный, суровый мир Лос-Анджелеса 2019 года, где вы станете и охотником и жертвой. Вооружившись своими навыками расследования и инструментами из Blade Runner, вы погрузитесь в мир, который живет и дышит вокруг вас с помощью революционного освещения и визуальных эффектов. Ваша способность выживать будет проверена в самой богатой игровой среде из когда-либо (   Читать дальше...   )Тип издания: RepackРазработчик: Nightdive Studios, Westwood StudiosЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDDC7C4E799DA9F3A221E49F22BDC62EABCE0D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773497   (30766) от 16.01.2025
-
-The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30766.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Lies We Tell Ourselves - психологический экшен от первого лица, который познакомит игроков с миром, окутанным жуткими тайнами и душевными проблемами. Находясь в пределах огромного зловещего замка, игра ставит пользователя на место протагониста, который должен перемещаться по его лабиринтообразным коридорам, решая головоломки и раскрывая секреты. Само окружение (   Читать дальше...   )Тип издания: RepackРазработчик: PoopsyЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A25C2D8DB07C211C89FD5392E8F8974EFA810A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

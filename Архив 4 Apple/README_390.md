@@ -1,3 +1,30 @@
+###  Публикация: 1250802   (422769) от 29.09.2018
+
+PrefEdit 4.0 (Build 180917) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422769.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrefEdit - утилита для изменения настроек программ, путем редактирования их plist-файлов.
+PrefEdit - уникальное приложение для просмотра и редактирования скрытых настроек системы и приложений Mac OS X, в том числе и в файлах plist. Для облегчения задач редактирования, в приложении доступен полнотекстовый поиск по любым критериям. Встроенный браузер обеспечивает удобную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCF2828628AC6DC9513FFF9ECCF8CBF81B7BB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250735   (422768) от 29.09.2018
 
 DupeZap 4.0.6 [En]
@@ -6,7 +33,7 @@ DupeZap 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422768.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Principle 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422652.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ Money Pro 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422554.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ MacClean 3 v3.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422462.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ Pixelmator 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422412.jpg" />
 </div>
 
 
@@ -145,7 +172,7 @@ AnyToISO Pro 3.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421923.jpg" />
 </div>
 
 
@@ -174,7 +201,7 @@ BookReader 5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421912.jpg" />
 </div>
 
 
@@ -195,6 +222,37 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246536   (421876) от 19.10.2010
+
+TextMate 1.5.9  [Eng] (UB)
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_421876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Textmate — отличный инструмент для работы с кодом. Он поддерживает работу с регулярными выражениями и бережёт время разработчика, поскольку позволяет автоматизировать рутинные операции. Для экономии времени используются сниппеты, макросы, команды и автозавершение:
+
+бандлы. Textmate стандартно предоставляет несколько десятков бандлов — наборов тегов или кода. Но бандлы могут быть полезны не только разработчику — есть бандлы для ведения ToDo-списка и даже для публикации в блог!
+сниппеты. Сниппеты — простая форма автоматизации. Вы можете задать ввод какого-то куска кода или текста по хоткею. Например, можно ввести супер пупер фигня мирового масштаба, нажав всего лишь пару клавиш и tab.
+макросы. Ну это и так понятно, с макросами знакомы и Windows-пользователи
+Главный недостаток приложения — не работает с отечественным зоопарком кодировок (все эти Windows 1251, Koi-8r и т.п.), так что только UTF.2009Название программы: TextMate 1.5.9Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167078   (421765) от 18.09.2017
 
 Downie 3.0 [Multi/Ru]
@@ -203,7 +261,7 @@ Downie 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421765.jpg" />
 </div>
 
 
@@ -232,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421596.jpg" />
 </div>
 
 
@@ -260,7 +318,7 @@ Softorino YouTube Converter 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421478.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ SteerMouse 5.2.0 Rel2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421267.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ PDF Expert 2.4.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420969.jpg" />
 </div>
 
 
@@ -343,7 +401,7 @@ Iridient Developer 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420784.jpg" />
 </div>
 
 
@@ -369,7 +427,7 @@ Cisdem Document Reader 5 v5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420772.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420683.jpg" />
 </div>
 
 
@@ -423,7 +481,7 @@ URL Manager Pro 5.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420638.jpg" />
 </div>
 
 
@@ -451,7 +509,7 @@ Default Folder X 5.5b3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420635.jpg" />
 </div>
 
 
@@ -477,7 +535,7 @@ MacX MediaTrans 7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420627.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Capture One Pro 12 v12.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420477.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ liquivid Video Improve 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420404.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ NetWorker - Network Info App 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420403.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Intensify CK (Pro) 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420390.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Wondershare PDFelement Pro 7.6.7.3180 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420294.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ GraphicConverter 10 10.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420275.jpg" />
 </div>
 
 
@@ -651,60 +709,6 @@ GraphicConverter 10 — полнофункциональный графичес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E4D1F36C2211FADCBEEF5CD8BE4A31E92723A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947248   (420256) от 16.10.2015
-
-Noiseless CK (Pro) 1.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое простое и продвинутое программное обеспечение шумоподавления. Получите яркие, естественно выглядящие изображения без шума, сохраняя детали и цвет Ваших фотографий.
-Noiseless CK (Pro) вдыхает новую жизнь в каждую фотографию! Делая фотографии при слабом освещении, каждый смартфон, компактная камера или DSLR создают "шум", маленькие цветные или легкие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 октября 2015Разработчик: MacPhun LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73059E8E361795E3287A0416BBE4DBDA89C54197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251115   (420197) от 30.09.2018
-
-CodeRunner 3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420197.jpg" />
-</div>
-
-
-###  Подробнее
-
-CodeRunner - универсальный редактор для программиста
-CodeRunner - отличный редактор для программиста с возможностью тестирования и запуска приложений написанных на любом из 22 языков программирования: AppleScript, C, C++, С#, Objective-C/Objective-C++, Java, Javascript (Node.js), jQuery, LaTeX, Lua, Perl, PHP, Python/Python 3, Ruby, Shell script или Swif.Тип издания: macOS SoftwareРелиз состоялся: 25.09. 2018Разработчик: Nikolai KrillПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52E8AF68D5C12D25F247F599645B131BB081140
 ```
 
 https://mybot314.ru/tekegram_catalog/

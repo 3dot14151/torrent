@@ -1,3 +1,107 @@
+###  Публикация: 1503034   (822690) от 17.10.2021
+
+Eliza (2019) [Ru/Multi] (08.31.2020) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822690.jpg" />
+</div>
+
+
+###  Подробнее
+
+После отказа от высокотехнологичной карьеры и таинственного трёхлетнего отсутствия, Evelyn Ishino-Aubrey появляется вновь в роли прокси для виртуального консультационного приложения под названием Eliza. Ее работа заключается исключительно в чтении скрипта получаемого в режиме реального времени через ИИ, что не оставляет ей никакой автономии в произносимом.Тип издания: LicenseРазработчик: ZachtronicsЖанр: Приключение, Визуальные новеллы, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE781A2F304654F22CDD35A5C26EC50BC90443DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196737   (820420) от 04.01.2018
+
+Death Gate (1994) [En/Ge] (1.2) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Death Gate (Врата смерти) - компьютерная видеоигра, созданная Legend Entertainment в 1994 году. Яркий богатый сюжет, изысканная для того периода SVGA-графика, простота управления, возможность голосового сопровождения, красочные анимационные вставки сделали эту игру одним из классических квестов. Игра получила множество наград и отличий. Сюжет Death Gate основан на (   Читать дальше...   )Тип издания: LicenseРазработчик: Legend Entertainment CompanyЖанр: Приключение, Головоломка, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A302564B8195C1D0262C84591713793E26D62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070162   (820139) от 21.03.2017
+
+Black Mirror 2 / Черное зеркало 2 (2010) [Ru/En] (1.01) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда одинокий Даррен Майклс подружился с прекрасной Анджелиной, он и не предполагал, к чему приведет это знакомство. Красавицу Анджелину не обошли вниманием и другие мужчины, поэтому её внезапное исчезновение, совпавшее с началом жутких ночных кошмаров у Даррена, заставило его серьезно задуматься, что же произошло с девушкой.Тип издания: LicenseРазработчик: Cranberry ProductionЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF40E4111FEE9DB61C8E97D2962791761A2FEF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503542   (818913) от 19.10.2021
+
+The Alien Cube (2021) [Ru/Multi] (1.0) License DOGE
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818913.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Alien Cube - это приключенческий хоррор в стиле Лавкрафта и духовный наследник игры The Land of Pain. Вы играете за Артура - одинокого мужчину, чья жизнь в скором времени кардинально изменится. После известия об исчезновении его дяди Эдгара начинают разворачиваться странные события. Мир вокруг вас хранит мрачную тайну, тёмную и оккультную реальность, в которой, (   Читать дальше...   )Тип издания: LicenseРазработчик: Alessandro GuzzoЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337FA5C59357537D13D69E99E8AB9A1D201AA19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 312329   (818611) от 28.03.2011
 
 The Curse of monkey Island  / Проклятие острова обезьян [Ru] (P) 1997
@@ -6,7 +110,7 @@ The Curse of monkey Island  / Проклятие острова обезьян [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818611.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818552.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818467.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Alone in the Dark 3 (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818457.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ White Night (2015) [Ru/En] (1.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818369.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Impostor Factory (2021) [Ru/Multi] (1.0) License GOG [The Screw-It-Just-Gimme-Ev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817490.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (1.0.0.1) Unofficial Fairl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816429.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815561.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Poppy Playtime (2021) [Multi] (7543327) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813347.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Outpost 13 (2015) [Ru/Multi] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812961.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Goetia (2016) [En/Fr] (1.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812945.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное ус
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812629.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ The Witness (2016) [Ru/Multi] (964-Ansel(A)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812558.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Samorost 3 (2016) [Ru/Multi] (1.4.465) License GOG [Cosmic Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812544.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810738.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809496.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ Mutazione (2019) [Ru/Multi] (1.84) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807813.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ Corpse Party (2021) (2021) [Multi] (2021-10-20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807679.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ DYING: Reborn (2018) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807633.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (1.8/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807414.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ Bottle (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807187.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ The Lost Souls (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805240.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ The Lost Souls (2016) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A814F360B3671E0A620D599FE3451017CFA20EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119920   (804893) от 29.03.2017
-
-Has-Been Heroes (2017) [Multi] (1.00.9762) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Has-Been Heroes — двухмерная стратегия с ролевыми элементами, действие которой разворачивается в магическом мире. Сюжет игры рассказывает об отважных героях, которым необходимо спасти королевство от сил зла. Отправьтесь в эпичное путешествие вместе с Has-Been Heroes, группой легендарных чемпионов, которые раньше были широко известны во всём королевстве за их героические (   Читать дальше...   )Тип издания: LicenseРазработчик: FrozenbyteЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A9F15A68972D4B01BCC7775DC3269156631FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198886   (804223) от 13.01.2018
-
-TheNightfall (2018) [Multi] (1.0) Repack MAXSEM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктория нашла работу в другом городе и перебирается туда со своей семьей. Но первая же ночь в новом доме оказывается совсем не такой, как можно ожидать. Ее муж и их двое детей приезжают днем позже, и первую ночь ей приходится провести в новом доме одной. Ночь начинается с бессонницы и легкого недомогания, но вскоре наступает настоящий кошмар. Доживете ли вы до рассвета?Тип издания: RePackРазработчик: VIS-GamesЖанр: Adventure, Horror, 1st Person, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3967EC4E75640BFDAA6EDD90699A0A68D1FA0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198852   (803990) от 13.01.2018
-
-TheNightfall (2018) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктория нашла работу в другом городе и перебирается туда со своей семьей.Но первая же ночь в новом доме оказывается совсем не такой, как можно ожидать. Ее муж и их двое детей приезжают днем позже, и первую ночь ей приходится провести в новом доме одной. Ночь начинается с бессонницы и легкого недомогания, но вскоре наступает настоящий кошмар. Доживете ли вы до рассвета?Тип издания: LicenseРазработчик: VIS-GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4870DB3DDF7D7396C648D69BE00EDAA0B1E714E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198802   (803975) от 13.01.2018
-
-The Talos Principle (2014) [Ru/Multi] (326589/dlc) Repack R.G. Механики [Gold Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803975.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything). Словно пробудившись от глубокого сна, вы оказываетесь в странном, диковинном мире, полном древних руин и сложных машин.Тип издания: RepackРазработчик: CroteamЖанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDEC417028800CFD7316AAC2CB30BDB0E7C7770
 ```
 
 https://mybot314.ru/tekegram_catalog/

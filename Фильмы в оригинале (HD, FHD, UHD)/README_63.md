@@ -1,3 +1,133 @@
+###  Публикация: 1732310   (52316) от 24.06.2024
+
+Фуриоса: Хроники Безумного Макса / Furiosa: A Mad Max Saga (2024) WEB-DL [H.265/2160p] [4K, 10-bit] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52316.jpg" />
+</div>
+
+
+###  Подробнее
+
+История похищения юной воительницы Фуриосы из Зелёных Земель, в результате которого девушка попадает в руки орды байкеров под предводительством Военачальника Дементуса. Пробираясь через Пустошь, они натыкаются на Цитадель, которой управляет Бессмертный Джо, и пока два тирана борются за господство, Фуриосе предстоит пережить множество испытаний, пытаясь найти путь (   Читать дальше...   )Производство: Австралия /  Warner Bros., Kennedy Miller MitchellЖанр: фантастика, боевикРежиссер: Джордж МиллерАктеры: Крис Хемсворт, Аня Тейлор-Джой, Алила Браун, Том Бёрк, Нэйтан Джонс, Джош Хелман, Чарли Фрейзер, Лейчи Халм, Джон Ховард, Джордж ШевцовПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, корейские, испанские, норвежскиеПродолжительность: 02:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2214327FD8FCA8EE5BF0BF30A21BB22D0DCA4BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732549   (52003) от 25.06.2024
+
+Ребёнку дают слабительное / On purge bebe (1931) BDRip [H.264/720p] [FR / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённой пьесы французского комедиографа Жоржа Фейдо... У господина Фоллавуана, владельца фарфоровой фабрики, появился шанс стать несметно богатым. Он узнал, что правительство решило облегчить участь солдат, создав им максимальные удобства и, в частности, обеспечить каждого персональным ночным горшком. Чтобы получить крупный контракт на поставку в (   Читать дальше...   )Производство: Франция / Les Établissements Braunberger-RichebéЖанр: комедияРежиссер: Жан РенуарАктеры: Жак Лувиньи, Маргерит Пьерри, Мишель Симон, Фернандель, Ольга Валери, Николь Фернандес, Саша ТарридПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские, английскиеПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48567F9F37ED770F203B08E47561EFE2F876BD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740756   (48023) от 03.08.2024
+
+Мятежная Луна, часть 1: Дитя огня / Rebel Moon - Part One: A Child of Fire (2023) WEB-DL [H.264/1080p] [EN / RU, EN, Sub] [Director's Cut]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48023.jpg" />
+</div>
+
+
+###  Подробнее
+
+В галактической империи Праматерь после убийства королевской семьи власть узурпировал коварный сенатор. На окраинах зарождается революция, поэтому среди планет курсирует боевой корабль под руководством безжалостного адмирала Нобла. Когда ищущие повстанцев прибывают на захолустную луну Велдт, чтобы пополнить запасы пищи, а также убивать и насиловать, они неожиданно (   Читать дальше...   )Производство: США / Grand Electric, The Stone QuarryЖанр: фантастика, боевик, драма, приключенияРежиссер: Зак СнайдерАктеры: София Бутелла, Эд Скрейн, Михил Хёйсман, Чарли Ханнэм, Стаз Нэйр, Пэ Ду-на, Джимон Хонсу, Рэй Фишер, Клеопатра Коулмэн, Фра ФиПеревод: субтитрыЯзык озвучки: английскийСубтитры: Русские, английские (Forced, SDH)Продолжительность: 03:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EE509217B536CBC8ACE5D5919265647091A69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740757   (48011) от 03.08.2024
+
+Мятежная Луна, часть 2: Оставляющая шрамы / Rebel Moon - Part Two: The Scargiver (2024) WEB-DL [H.264/1080p] [EN / RU, EN Sub] [Director's Cut]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48011.jpg" />
+</div>
+
+
+###  Подробнее
+
+События фильма разворачиваются во вселенной, контролируемой коррумпированным правительством Праматери. Кора и выжившие воины готовятся пожертвовать всем, сражаясь плечом к плечу с народом Вельдта. Накануне битвы героям предстоит взглянуть в лицо своему прошлому и понять за что они должны биться.Производство: США / Grand Electric, The Stone QuarryЖанр: фантастика, боевик, драмаРежиссер: Зак СнайдерАктеры: София Бутелла, Эд Скрейн, Михил Хёйсман, Джимон Хонсу, Пэ Ду-на, Стаз Нэйр, Стюарт Мартин, Рэй Фишер, Энтони Хопкинс, Фра ФиПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, английские (SDH)Продолжительность: 02:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAEC7B3053194D8B918105E893ED8D63D232519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743478   (46658) от 16.08.2024
+
+Джекпот! / Jackpot! (2024) WEB-DL [H.264/1080p] [EN / EN, Multi Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее. В Калифорнии, где экономика в упадке, проводят Большую лотерею. Но, чтобы законно претендовать на награду, надо убить победителя до захода солнца.Производство: США / Amazon Studios, Feigco Entertainment, Roth/Kirschenbaum FilmsЖанр: боевик, комедия, фантастикаРежиссер: Пол ФигАктеры: Аквафина, Джон Сина, Симу Лю, Эйден Майери, Колсон Бэйкер, Дональд Уоткинс, Шонн Уильям Скотт, Бекки Энн Бейкер, Сэм Асгари, Мюррэй ХиллПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, SDH), арабские, испанские и др.Продолжительность: 01:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C001EF8D7F51DEC329BE21F25C908F6AF3955C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745027   (45808) от 24.08.2024
 
 Наёмный убийца / The Killer (2024) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45808.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45466.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45380.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44447.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_41025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41025.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35446.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35303.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35225.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33166.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33025.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32359.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32261.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32231.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32101.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32051.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31029.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28691.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25382.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22883.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21671.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21037.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC356B87F2FD3130ED6F54D1EFBF816D3A363C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793800   (20216) от 26.04.2025
-
-Дольче! / The Opera! / The Opera! Arias for an Eclipse (2024) WEBRip [H.264/1080p] [EN / RU, EN, ITA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жених, потерявший невесту в день свадьбы, отправляется за ней в загробный мир в сопровождении загадочного таксиста.Производство: Франция, Италия / Digilife Movie, Dolce & Gabbana, Rai CinemaЖанр: мюзикл, фэнтези, драмаРежиссер: Паоло Джеп Кукко, Давиде ЛивермореАктеры: Венсан Кассель, Фанни Ардан, Катерина Мурино, Росси де Пальма, Анджела Финоккьяро, Мариам Баттистелли, Линда Дженнари, Валентино Буцца, Эрвин Шротт, Turi MoriccaПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, английские, итальянскиеПродолжительность: 01:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6708DB08005E6DDAB0AB66E2D1B8046D991E7C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795396   (19388) от 04.05.2025
-
-Аист надежды / Stork of Hope (2024) WEBRip [H.264/1080p] [HEB, BEL, RU, GER]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первые дни Второй мировой войны. Два маленьких брата, Илья и Саша, теряют в Минске своих родителей и остаются наедине с ужасами войны. Единственной связью с прошлым для мальчиков становится лишь семейная фотография, которую они разрывают пополам, оставляя каждому по кусочку на память о родителях. Очень скоро война разводит братьев в разные стороны: Илью укрывает (   Читать дальше...   )Производство: Израиль, Германия, Россия / Asiofilm, 2-Team ProductionsЖанр: драма, военныйРежиссер: Александр Франскевич-ЛайеАктеры: Йозеф Аш, Мария Муха, Лев Бохан, Андрей Давыдюк, Александр Абрамович, Анна Южакова, Яир Хельман, Сар Алон, Нахаль Шалев, Яэль ЙекельЯзык озвучки: Иврит, белорусский, русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECB65576B7B58AB31FAD96C40006C2CB12FE677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800025   (16127) от 31.05.2025
-
-Игра вдовы / La viuda negra / A Widow's Game (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безупречный образ женщины дает трещину, когда ее мужа находят мертвым. Этот триллер о тайной двойной жизни основан на реальных событиях.Производство: Испания / Bambú ProduccionesЖанр: драма, криминалРежиссер: Карлос СедесАктеры: Ивана Бакеро, Тристан Ульоа, Кармен Мачи, Марта Беленгер, Джоэль Санчез, Педро Касабланк, Пабло Молинеро, Пепе Осио, Инма Санчо, Хуан Мануэль БаррейроПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 02:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED16ADA8A9021791F04D9E06CDD040362B515749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800843   (15530) от 06.06.2025
-
-Хищник: Убийца убийц / Predator: Killer of Killers (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимационная антология состоит из трёх новелл, действие которых разворачивается в разные эпохи. Нас ждут истории трёх самых свирепых убийц в истории человечества: женщины-викинга, рассказывающей сыну историю о таинственном монстре, убивающем всё живое; ниндзя в феодальной Японии, который готов убить собственного брата-самурая в борьбе за право наследования; пилота (   Читать дальше...   )Производство: США / 20th Century Studios, Davis Entertainment, Third Floor, TheЖанр: мультфильм, фантастика, боевик, ужасыРежиссер: Дэн Трахтенберг, Joshua WassungАктеры: Майкл Бин, Рик Гонсалес, Луис Одзава, Линдсэй ЛаВаншиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 01:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673E557D8145D8B372D1B0A8E9A40BD1230D4417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803617   (13640) от 24.06.2025
-
-Финикийская схема / The Phoenician Scheme (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13640.jpg" />
-</div>
-
-
-###  Подробнее
-
-1950 год, где-то на Ближнем Востоке. Экстравагантный магнат Жа-Жа Корда переживает череду покушений и затевает грандиозный трансконтинентальный проект «Финикийская схема». В стремлении защитить свою империю, Корда назначает единственной наследницей дочь Лисл, вытащив её из монастыря. Им предстоит столкнуться с многочисленными врагами, государственными интригами и (   Читать дальше...   )Производство: США, Германия / American Empirical Pictures, Focus Features, Indian Paintbrush, Studio BabelsbergЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Уэс АндерсонАктеры: Бенисио Дель Торо, Миа Триплтон, Майкл Сера, Риз Ахмед, Том Хэнкс, Брайан Крэнстон, Матьё Амальрик, Ричард Айоади, Уиллем Дефо, Скарлетт ЙоханссонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177CA71970A73CA494B38C3047E1E103A0AA2D3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

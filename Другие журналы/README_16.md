@@ -1,3 +1,81 @@
+###  Публикация: 978126   (939563) от 11.01.2017
+
+Подшивка журналов | 100 ответов юристов (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячное приложение к газете "Народный совет". В каждом номере можно найти ответы опытных юристов на многие вопросы читателей по темам: жилищный вопрос, работа и зарплата, пенсии и льготы, земля и люди, наследство, семейное право, образование, товары и услуги, налоги, туризм. Журнал является прекрасным юридическим помощником в различных жизненных ситуациях. (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396F1EE1250D5289D687B65B2EDBC062DD8CB6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364160   (939507) от 01.03.2020
+
+Журнал | Forbes [Россия] №3 (192) (март 2020) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939507.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Forbes" - ведущий деловой журнал в мире. Миссия журнала – обеспечивать читателей информацией, гарантирующей им успех. Журнал Forbes - независимое бизнес-издание. Forbes не публикует информацию, которая уже вышла в других СМИ. Каждый материал в журнале - эксклюзивный. В журнале: статьи экономистов и политиков специально для Forbes, экономические новости, (   Читать дальше...   )Жанр: Деловой журнал, Бизнес и ПолитикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7223DC118372EAACF18B92E7D4B5154F91A124E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349587   (939144) от 01.03.2020
+
+Подшивка газет | Тайны ХХ века. Секретные архивы (2017-2020) [PDF] [Обновлено 01.03.2020]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редакция подготовила для вас захватывающие сюжеты о людях и событиях, до недавнего времени известных только узкому кругу лиц. В основе всех статей - документы, с которых лишь несколько лет назад был снят гриф "секретно" - деятельность спецслужб, тайны жизни и смерти людей, вершивших судьбы планеты, неизвестные страницы Второй мировой войны и многое другое.Жанр: популярная газетаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C357659E99CAD0C349481FC82D8B38BD9D586A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 860312   (938914) от 17.01.2015
 
 Журнал | Свой бизнес №12 (декабрь 2014) [PDF]
@@ -6,7 +84,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938914.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938656.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938605.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938513.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937949.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937158.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935945.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935549.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935539.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935233.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934742.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934396.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934107.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934083.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933340.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932619.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931437.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929653.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929271.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929141.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928989.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928832.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927910.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8D2AADC7DBA46204A9D380711FE06DC3E69588B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987144   (927870) от 16.02.2016
-
-Журнал | Тайны ХХ века №6 (Февраль 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927870.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Тайны ХХ века" - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278DA5F6054B398356088AE132771AA02AC30AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987233   (927797) от 16.02.2016
-
-Журнал | Загадки истории №7 (Февраль 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7ED545D0040BF69FAC86793B199013070755921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986648   (927672) от 16.02.2016
-
-Подшивка журналов | Оружие №1-16 [13 журналов] (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал адресован широкому кругу читателей, интересующихся стрелковым, охотничьим и холодным оружием. В каждом номере - достоверная и авторитетная информация о разработках, выпускаемых образцах, производителях и конструкторах оружия. Основное внимание уделено современным отечественным и зарубежным моделям, эволюции видов и образцов стрелкового оружия. Ряд страниц (   Читать дальше...   )Жанр: Техника и вооружениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61804CA46E81170ADC955B4F573FDDD8041B646
 ```
 
 https://mybot314.ru/tekegram_catalog/

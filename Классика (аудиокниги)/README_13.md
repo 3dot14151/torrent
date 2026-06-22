@@ -1,3 +1,55 @@
+###  Публикация: 1120416   (802014) от 31.03.2017
+
+Владимир Набоков | Подвиг (2015) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802014.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Подвиг" (1930, опубл. 1931-1932) повествует о судьбе Мартына Эдельвейса - молодого русского эмигранта со швейцарскими корнями, чей жизненный путь пролегает едва ли не через всю Европу, отчасти совпадая с эмигрантскими маршрутами автора и заставляя вспомнить старинное значение слова "подвиг" - путешествие, странствие, движение. Мартын упорно ищет (   Читать дальше...   )Жанр: Классика, романИздательство: Нигде не купишьПродолжительность: 08:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8CE7D866B54CA0BC2BFD12AB82289DDDAC6C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120092   (802003) от 31.03.2017
+
+Александр Блок | Стихотворения (2007) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий русский поэт, ярчайший представитель Серебряного века отечественной культуры, Александр Блок оставил бесценное творческое наследие. Проникновенный лиризм, завораживающая страстность и музыкальность поэтической речи привлекли внимание знаменитых современников блока — ему посвящала свои стихи Марина Цветаева, о нем писали Владислав Ходасевич и Анна Ахматова (   Читать дальше...   )Жанр: ПоэзияПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C12FD4E6218B3742352DFC25DD7C347C332949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120169   (802002) от 31.03.2017
 
 Фёдор Достоевский | Белые ночи (2016) [MP3, Василий Дахненко]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802002.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802001.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801937.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801912.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801255.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800557.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800096.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800095.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799630.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799622.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798841.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798839.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796904.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796830.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796367.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796079.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794951.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793894.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793579.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793560.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792558.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790364.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788108.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788065.jpg" />
 </div>
 
 
@@ -624,61 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2E614E1956F67E4C823AE5768E67FD5566A2E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184898   (786488) от 07.06.2020
-
-Джек Лондон | Полное собрание сочинений [ИДДК, 31 том, 46 СD] [2008] [MP3]
-
->>След.
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во все файлы добавлены тэги (ID3v1 и ID3v2.3), содержащие название произведения, имена автора и исполнителя, а так же небольшое изображение обложки диска.Жанр: классика, собрание сочиненийФормат: MP3, 128 кбит/с
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A70A4E3679F70E19436D2AEFA747CEB41899D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123747   (785946) от 10.04.2017
-
-Антон Чехов | 7 страниц Чехова (2010) [FLAC]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы перестали читать друг другу. Рассказы А.П. Чехова в исполнении Андрея Бурлуцкого немного восполняют эту утрату.
-В героях Чехова вы можете увидеть страдающих, несчастных и комичных людей ("Исповедь", "Сапоги").
-Многие рассказы А.П. Чехова представляют собой практически готовые сценки. Слушая их представляешь все живьем.
-Вот, посланный с печальной (   Читать дальше...   )Жанр: ПрозаПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A48CC7D7C29A583CAA35B1F57B789F1FAA05D84
 ```
 
 https://mybot314.ru/tekegram_catalog/

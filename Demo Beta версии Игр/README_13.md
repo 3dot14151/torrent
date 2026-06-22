@@ -6,7 +6,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.2.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4259.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Universe Sandbox (2015) [Ru/Multi] (35.3.3) License GOG [Early Access] (обно
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4255.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sunkenland (2023) [Ru/Multi] (0.7.04) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3520.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ STORROR Parkour Pro (2025) [En] (0.1 Hotfix) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3032.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2890.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Captain of Industry (2022) [Ru/Multi] (0.7.9) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2810.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ inZOI (2025) [Ru/Multi] (20250910.7320.W) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2715.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ TerraTech Worlds (2024) [Ru/Multi] (0.6.6.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1737.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SCP: 5K / SCP: Pandemic (2022) [Multi] (0.17.0.154) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1729.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.2.0.18718) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1539.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (0.8.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1379.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1371.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157915-S35) Repack seleZen [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1335.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157967) Repack Wanterlude [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1236.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.5.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1081.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_201.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Temtem: Swarm (2024) [Ru/Multi] (0.8.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135.jpg" />
 </div>
 
 

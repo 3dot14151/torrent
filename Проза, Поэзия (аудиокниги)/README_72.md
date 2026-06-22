@@ -1,3 +1,83 @@
+###  Публикация: 1071097   (357366) от 11.11.2016
+
+Надежда Дурова | Кавалерист-девица (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надежда Андреевна Дурова (родилась в 1783 - умерла в 1866 году) – человек героической биографии, первая женщина-офицер в русской армии, завещавшая похоронить себя в мужском костюме под именем офицера Александра Александрова. Надежда Дурова признанный герой кампании 1812 года, удостоенная высоких императорских наград и поощрений. Командовала полуэскадроном. Участвовала (   Читать дальше...   )Жанр: Автобиографические запискиПродолжительность: 03:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B84AE88BA0C596ECB79D2B39F587E19BBC353CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071110   (357222) от 11.11.2016
+
+Анатоль Франс | Боги жаждут (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман посвящен наиболее драматическому периоду великой буржуазной революции во Франции конца XVIII века, - периоду диктатуры мелкобуржуазной партии якобинцев во главе с Робеспьером.Жанр: РоманПродолжительность: 08:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5DF91FB79E633BDAA663A0FC26F9E60805DD36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256199   (356697) от 21.10.2018
+
+Бетти Смит | Дерево растёт в Бруклине (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый роман о решимости противостоять трудностям, которым уже на протяжении века зачитываются все американские подростки.
+
+Фрэнси Нолан видит мир не таким, как другие – она подмечает хорошее и плохое, знает, что жизнь полна несправедливости, но при этом полна добрых людей. Она каждый день ходит в библиотеку за новой книгой и читает ее сидя на пожарном балконе (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 17:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3DEEBFE412D76C775E85E1935FC00BB7CA10E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 408493   (355883) от 09.11.2011
 
 Виктория Токарева | Между небом и землей (Радиоспектакль) (1977) [MP3, Андрей Миронов и др.]
@@ -6,7 +86,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355883.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354447.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352373.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352312.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350053.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349312.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349221.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_349117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_349117.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347647.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346798.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345837.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345835.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345791.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345746.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345654.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345448.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345212.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344567.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344554.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343515.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343044.jpg" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343040.jpg" />
 </div>
 
 
@@ -589,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342408.jpg" />
 </div>
 
 
@@ -600,89 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56CC537117703E46F7886292D117C2ADE8891AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954314   (342304) от 07.11.2015
-
-Владимир Маканин | Две сестры и Кандинский (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342304.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Две сестры и Кандинский» - яркое свидетельство нашего времени и одновременно роман-притча на тему о том, как «палач обнимется с жертвой».
-Тема вечная, из самых вечных, и, конечно, острый неотменяемый вопрос о том - как это бывает? Как и каким образом они «обнимутся», - как именно?.. Отвечая на него, Маканин создал проникновенный, очень «чеховский» текст.
-Но с другой (   Читать дальше...   )Жанр: РоманПродолжительность: 08:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121C2DB35AB5D50A911530609DC4104A9771037D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953717   (342295) от 07.11.2015
-
-Иосиф Гольман | Не бойся, я рядом (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказывается, любой – даже самый сильный – мужчина нуждается в поддержке, казалось бы, слабой женщины.
-И такая поддержка становится просто жизненно необходимой, когда у сильного мужчины болит душа.
-Олег Парамонов был как раз таким человеком – тонко чувствующим, легкоранимым, мнительным. Он жил с уверенностью, что никому не нужен и никто никогда не сможет помочь ему. (   Читать дальше...   )Жанр: СЛРПродолжительность: 07:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244835189B08BE1F168081CDE08C91F30682C04B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953271   (341687) от 07.11.2015
-
-Фэнни Флэгг | Жареные зелёные помидоры в кафе „Полустанок“ (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию аудиокнигу «Жареные зелёные помидоры», созданную на студии АРДИС. Роман современной американской писательницы Фэнни Флэгг, написанный в 1987 г., выдержал многочисленные издания и уже стал классикой мировой литературы. В 1991 г. по книге был снят фильм с Джессикой Тэнди и Кэйти Бейтс в главных ролях, имевший огромный успех.
-Перед вами история (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 10:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7F650783516B387847DFECDEE3DBEC8F29E588
 ```
 
 https://mybot314.ru/tekegram_catalog/

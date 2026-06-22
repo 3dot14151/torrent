@@ -1,3 +1,29 @@
+###  Публикация: 1389921   (783844) от 12.06.2020
+
+Кэтлин Шами | Электроника для чайников, 3-е издание (2020) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга содержит сотни красочных диаграмм и фотографий, а также пошаговые инструкции для экспериментов, которые покажут вам, как работают электронные компоненты, советы по выбору и использованию необходимых инструментов и захватывающие проекты, которые вы сможете создать за 30 минут или меньше. Превращайте теорию в практику шаг за шагом!Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576D69FBD5ECC058DE07865AFDCE0F58A761040A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205212   (783724) от 09.02.2018
 
 Михаил Шустов | Цифровая схемотехника. Основы построения (2018) [DJVU]
@@ -6,7 +32,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783724.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783147.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783133.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782917.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782882.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782605.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782430.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781825.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781778.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780482.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780216.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779601.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779574.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779372.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778647.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778641.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778342.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778302.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Samsung | Сервис-мануалы к технике Samsung (1998-2005) [PDF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778143.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Asus | Сервис-мануалы к технике Asus (1989-2015) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778137.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778088.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778087.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776350.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775962.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Acer | Сервис-мануалы и принципиальные схемы к
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775421.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Acer | Сервис-мануалы и принципиальные схемы к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA6ED59683C0734E1ADA93EB17AC8301E8ACD2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212673   (774978) от 13.03.2018
-
-М.А. Шустов | Цифровая схемотехника. Практика применения (2018) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателя книга универсальна по содержанию и состоит из двух взаимосвязанных частей. В первой из них читатель познакомится с основами моделирования цифровых устройств при помощи популярного в нашей стране и за ее пределами пакета программ схематического моделирования NI MuLtisim. Во второй части книги представлена энциклопедически полная коллекция (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7763535C1723C6D4A7420A63FE9AAEFB5C0585B
 ```
 
 https://mybot314.ru/tekegram_catalog/

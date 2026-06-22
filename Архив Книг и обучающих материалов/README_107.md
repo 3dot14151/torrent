@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543824.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543691.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543140.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543088.jpg" />
 </div>
 
 
@@ -104,6 +104,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365527   (543032) от 20.07.2011
+
+Журнал | Т3. Техника третьего тысячелетия №6 (Россия) [июнь-июль 2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543032.jpg" />
+</div>
+
+
+###  Подробнее
+
+На страницы журнала попадают только новейшие и тщательно отобранные, лучшие продукты.
+В журнале «Т3» (Техника третьего тысячелетия ) – обзор новейших высокотехнологичных разработок в области техники, оптики, электроники, автомобилестроении, мобильной связи, новинки кино на DVD и пр...Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53979F15CCB08FFC4E82353433B86213342AAC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924493   (542808) от 05.08.2015
 
 Журнал | Linux Format №7 (198) (июль 2015) [PDF]
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542808.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542748.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542740.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542631.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542598.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542594.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542592.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542450.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542448.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542386.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542299.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542297.jpg" />
 </div>
 
 
@@ -441,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542294.jpg" />
 </div>
 
 
@@ -467,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542285.jpg" />
 </div>
 
 
@@ -493,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542283.jpg" />
 </div>
 
 
@@ -519,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542145.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542134.jpg" />
 </div>
 
 
@@ -576,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542095.jpg" />
 </div>
 
 
@@ -602,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542041.jpg" />
 </div>
 
 
@@ -628,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542031.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542027.jpg" />
 </div>
 
 
@@ -666,34 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7B808CB680D01C5F76B9392051809A1EE379E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531138   (541939) от 05.08.2012
-
-Книжная серия | Женщина-миф (17книг) [1995-2011] [PDF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина-миф - серия книг о знаменитых женщинах всех времен и народов.
-В книгах - фотографии, немного правды, много приукрашиваний, выдумок и сплетен.
-Автобиографии и, тем более, биографии по-другому не пишутся.Жанр: История. ПерсоныФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C729C83DA19E14BDF1D32CF43DC104325DEB1CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

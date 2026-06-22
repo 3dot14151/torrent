@@ -6,7 +6,7 @@ Enen no Shouboutai | Пламенная бригада пожарных [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019193.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Obsolete (2020) | Устаревший (2020) [2020, Web, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018708.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018689.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017882.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017868.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017330.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017038.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016564.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016507.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016344.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mach Go Go Go | Speed Racer | Гонщик Спиди [1967, TV, 52 из 52] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015282.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Eizouken ni wa Te o Dasuna! | Keep Your Hands Off Eizouken! | Руки проч�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013521.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011272.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Ме
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011093.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Ги�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009918.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009061.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008775.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Fruits Basket the Final TV-3 | Корзинка фруктов: Финал ТВ-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007953.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Я 300 ле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007938.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken / The Slime Diaries: That Time I G
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007657.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Zombie Land Saga Revenge / Зомбиленд. Сага [ТВ-2] [2021, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007654.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Majo Minarai o Sagashite | Looking for Magical Doremi | Дореми: В пои�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007523.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сил�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005975.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kamisama ni Natta hi | The Day I Became a God | День, когда я стал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004661.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Zoku Natsume Yuujinchou | Тетрадь дружбы Нацумэ [ТВ-2] [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003510.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Мастер Муси: Тень, погл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003509.jpg" />
 </div>
 
 

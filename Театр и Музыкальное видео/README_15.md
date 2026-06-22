@@ -1,3 +1,190 @@
+###  Публикация: 615824   (975066) от 10.02.2013
+
+Alice Cooper - Live at Montreux (2005) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живые выступления легендарного Элиса Купера всегда пропитаны духом рока и являют собой великолепное театральное действо. Одним из последних представлений «Великого и Ужасного» был живой концерт на известном фестивале в городе Монтре. В ходе этого шоу Элис исполнил все классические хиты группы, дополненные треками с последнего на тот момент альбома «Dirty Diamonds»…01. Department Of Youth
+02. No More Mr. Nice Guy
+03. Dirty Diamonds
+04. Billion Dollar Babies
+05. Be My Lover
+06. Lost In America
+07. I Never Cry
+08. Woman Of Mass Distraction
+09. I'm Eighteen
+10. Between High School & The Old SchoolЖанр: КонцертПродолжительность: 01:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DFD51168F4A03930F619FFF88A618DC480C075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616196   (974857) от 10.02.2013
+
+Гэри Мур / Gary Moore - Ballads & Blues 1982-1994 (1994) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие баллады великого виртуоза....01. Always Gonna Love You
+02. Still Got the Blues
+03. Empty Rooms
+04. Parisienne Walkways (live 1992)
+05. Separate Ways
+06. Story of the Blues
+07. Midnight Blues (live 1990)
+08. Jumpin' at Shadows (live 1992)
+09. The Loner
+10. Still Got the Blues (live 1990)Жанр: Музыка, Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A903AE67B9924C1D96F4876DB5ADF688D47004E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616705   (974654) от 10.02.2013
+
+ВИА Синяя птица - Концерт в Самаре (2002) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974654.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Живой" концерт ВИА "СИНЯЯ ПТИЦА" в Самарском Дворце спорта 8 марта 2002 года.
+ В 1974 году в Горьковской филармонии работает музыкальный коллектив "Современник" под руководством Роберта и Михаила Болотных. В этот период в Москве на фирме "Мелодия" записывается материал на пластинку-миньон, куда входит песня "Клен". (   Читать дальше...   )01. Ты мне не снишься
+02. Я иду тебе навстречу
+03. Пусть я ошибусь
+04. Моя любовь жива(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72D8040585AF0A59A746EC2C225721AE1F5E59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974701   (974536) от 13.01.2016
+
+Николай Кондратюк - Перед концертом (1973) TVRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт народного артиста УССР Николая Кондратюка.
+Исполняются произведения композиторов: Игоря Шамо, Эдуарда Колмановского, Яна Френкеля, Платона Майбороды, Бориса Буевского, Александра Бородина и Константина Мяскова
+
+01. "Родина" (музыка Игоря Шамо),(   Читать дальше...   )Производство: СССР, УкртелефильмЖанр: Фильм-концертРежиссер: Олег БиймаАктеры: Николай КондратюкПродолжительность: 00:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A58B05AADEECFA7C1E5333A3F434B2384F0241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357258   (974326) от 03.02.2020
+
+Зверские инстинкты & Леша Закон - 5 Music Video (2014-2019) WEB-DL [H.264/480p/720p]-LQ <Turbo-Chanson>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зверские инстинкты (2014) ''Маньяк''
+Зверские инстинкты (2019) ''Бензопила'' (Николай Мухин)
+Зверские инстинкты (2019) ''Буёвщина'' (''ВдРоВа'' cover)
+Зверские инстинкты (2019) ''Зараза'' (Александр Дюмин cover)(   Читать дальше...   )Производство: Zymotic Productions UltraЖанр: Turbo-ChansonПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0FA24A7F3CDB3DCD83A2D30A4AC34162503974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974715   (973262) от 14.01.2016
+
+Жди меня в Новый год (2015) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие проекта происходит в аэропорту, где накануне Нового года оказалось множество совершенно разных людей: кто-то спешит на праздник к родным или друзьям, кто-то приехал в аэропорт, чтобы встретить или проводить близкого человека, а кто-то летит в другой город на корпоратив или новогодний огонек. Но коррективы в планы людей вносит погода – из-за сильного снегопада (   Читать дальше...   )01. А. Доманский, Р. Кадемин, А. Бондаренко, А. Данилевич, А. Даугуле - Первым делом самолеты
+02. Михаил Ефремов - Москва-Одесса
+03. "Город 312" - Аэропорт
+04. Оля Полякова и Мила Нитич - А я все летала(   Читать дальше...   )Производство: Україна, ІнтерЖанр: PopПродолжительность: 03:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF98743F99D379CE85F22BBD89FBD9458066AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617540   (972478) от 12.02.2013
 
 Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
@@ -6,7 +193,7 @@ Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972478.jpg" />
 </div>
 
 
@@ -32,7 +219,7 @@ Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972461.jpg" />
 </div>
 
 
@@ -58,7 +245,7 @@ Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972353.jpg" />
 </div>
 
 
@@ -84,7 +271,7 @@ BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972350.jpg" />
 </div>
 
 
@@ -110,7 +297,7 @@ Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972275.jpg" />
 </div>
 
 
@@ -136,7 +323,7 @@ DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972200.jpg" />
 </div>
 
 
@@ -162,7 +349,7 @@ Bad Company - Don Kirshner's Rock Concert (1974) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972011.jpg" />
 </div>
 
 
@@ -191,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971758.jpg" />
 </div>
 
 
@@ -217,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971741.jpg" />
 </div>
 
 
@@ -243,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971726.jpg" />
 </div>
 
 
@@ -269,7 +456,7 @@ Romantic Collection (Hits 1983-2001)TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971675.jpg" />
 </div>
 
 
@@ -295,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971671.jpg" />
 </div>
 
 
@@ -323,7 +510,7 @@ Reggae On The River (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971102.jpg" />
 </div>
 
 
@@ -358,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970868.jpg" />
 </div>
 
 
@@ -387,7 +574,7 @@ James Brown - Live at Montreux (1981) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970833.jpg" />
 </div>
 
 
@@ -416,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970691.jpg" />
 </div>
 
 
@@ -448,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970652.jpg" />
 </div>
 
 
@@ -478,7 +665,7 @@ VA - Зимний марафон № 219: Самые сливки Нового �
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970575.jpg" />
 </div>
 
 
@@ -507,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969951.jpg" />
 </div>
 
 
@@ -536,7 +723,7 @@ Adam And The Ants - Live In Tokyo (1981) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969726.jpg" />
 </div>
 
 
@@ -550,175 +737,6 @@ Adam And The Ants - Live In Tokyo (1981) VHSRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BB6B1D9F71739A350778B1A41715F678CAE5087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357933   (969634) от 07.02.2020
-
-Babooshka (Александр Константинов) - 7 Music Videos (2019-2020) [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969634.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Babooshka 2018 Материнский капитал
-002 Babooshka 2019 Детей надо чикать!
-003 Babooshka 2019 Надо больше церквей!
-004 Babooshka 2019 Отмороженные во Христе(   Читать дальше...   )Производство: GARDEGROB studioЖанр: православное дискоПродолжительность: 00:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10FE7B6CC230E368A7E5F89DDAD3D77097C0C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357808   (969633) от 07.02.2020
-
-Мы не оставим города свои! Песни донбасской войны - Video Release (42 Music Videos) (2017) WEB-DL [H.264/480p/720p/1080p]-LQ
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969633.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1-Video Release (21 Music Videos) 01:20:37
-
-01 Александр Ф. Скляр - Миллионы (Когда война на пороге)
-02 Зверобой - Едут-едут БТРы(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopАктеры: VariousПродолжительность: 02:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBC14981F32EC491D4D1CCA5D30E5CDBD5D2E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976224   (969603) от 17.01.2016
-
-Квартирник у Маргулиса. 9 выпуск. Найк Борзов (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня в гостях у Евгения Маргулиса певец и автор песен Найк Борзов. В теплой и душевной атмосфере гость квартирника исполнит свои самые известные и полюбившиеся песни: Верхом на звезде, Ева, Приснится мне, что я тебя, Три слова, Лошадка и многие другие. Дата эфира: 16.01.201601. Верхом на звезде
-02. Ты говоришь
-03. Ева
-04. Приснится мне(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BCE2B02036D9E6860486CFF76C11BDEF8843AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358393   (969394) от 07.02.2020
-
-Сборник клипов - Rock & Pop Ballads от ALEXnROCK часть 1 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Именно с этого сборника клипов всё и началось 9 лет назад. Я собирал его для девушки, которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему найдет в нем частицу себя. Со временем доработал обложку, улучшил качество клипов и немного поправил треклист, но энергетика и посыл остались те же. Это 1я часть.00. Rock & Pop Ballads 1 — Intro
-01. Bryan Adams — Please Forgive Me
-02. Mr. Big — Wild World
-03. Рондо — Я буду помнить(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6971B75E0D794500BEDAC21423048A47012E770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618406   (969258) от 14.02.2013
-
-Сборник видеоклипов / Clips DISCO (Hits 1970-1996) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных клипов составлен из файлов полученных в разных источниках.
-Сборник видеоклипов разных лет в хорошем качестве.Жанр: DiscoПродолжительность: ~04:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A1B14687DF88C8002A08C0B0239D8339622C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618341   (969256) от 14.02.2013
-
-Легенды Ретро FM (2012) DVD9 [Полная версия]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: Актеры: Александр Айвазов, Baccara,Лев Лещенко,C.C. Catch, Al Bano Carrisi,Мираж, Gianni Morandi,Юрий Антонов, Анжелика Варум,Secret Service,Юрий Лоза,Corona, Крис Кельми,Afric Simone.Перевод: ОтсутствуетПродолжительность: 03:15:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

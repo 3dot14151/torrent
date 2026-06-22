@@ -1,240 +1,3 @@
-###  Публикация: 1720592   (39511) от 23.10.2024
-
-Открытки с поздравлениями, gif v1.23.1 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открытки и поздравления на все случаи жизни от лидера РУнета - OtkritkiOK.ru. Самый большой каталог красивых открыток с днем рождения, прикольных картинок с поздравлениями, а также стикеры для WhatsApp и ежедневные гифки с добрым утром и спокойной ночи. Более 15 млн. пользователей ежегодно отправляют наши картинки и стикеры (wasticker), порадуйте и вы своих друзей, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 22.10.2024Разработчик: OtkritkiOKПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C397F6A6B0BCC77D3116A935F32FAF45BB85276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756835   (39490) от 23.10.2024
-
-Ventusky: Прогноз погоды v38.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.10.2024Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F573DAA65DA4D99FBE83683038F93E5DF3F387D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757002   (39377) от 24.10.2024
-
-Magic Eraser / Магический ластик v2.11.1 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.10.2024Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F9436602262B5AA45D93684B8B8ED7A8F71CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757004   (39357) от 24.10.2024
-
-PhotoRoom v5.5.2 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 24.10.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283C98A8472D76E2DB44F535C49EC0AA49568BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757233   (39222) от 26.10.2024
-
-Real Guitar / Уроки игры на гитаре v8.32.1 Mod by MustHave [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Real Guitar предоставляет все необходимые инструменты для овладения искусством игры на гитаре на вашем смартфоне или планшете. Теперь вы можете легко играть любую музыку где угодно! Почувствуйте ощущения от игры на гитаре в настоящей группе!Тип издания: PremiumРелиз состоялся: 24.10.2024Разработчик: Kolb AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7A1B17F70BD9F51B1754D3DC87A5931A93F761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757238   (39215) от 26.10.2024
-
-Основы компьютера: руководство v7.0 Mod by vadj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение содержит статьи, связанные с компьютерными технологиями.
-В приложении присутствуют 4 раздела:
-1. Аппаратное обеспечение 🖥️
-2. Сборка ПК ⚙️(   Читать дальше...   )Тип издания: ModРелиз состоялся: 25.10.2024Разработчик: SergeyV Apps & HandbooksПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA578FE7AB3EEAABA453206883D6E8E38691DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757299   (39195) от 26.10.2024
-
-Moon+ Reader Pro v9.7 (b907002) Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / Mod + PaidРелиз состоялся: 26.10.2024Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C64DA036DBF1CE3D35B037FAA69D90F93D931E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757231   (39191) от 26.10.2024
-
-IPTV Pro v8.2.3 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите IP-телевидение вашего интернет-провайдера или ТВ из любого другого интернет-источника на телефоне или планшете! Саму трансляцию осуществляет провайдер, поэтому если вдруг что-то перестало показывать, то скорее всего дело именно в провайдере, обращайтесь к нему. Чтобы убедиться в этом наверняка, просто откройте плейлист на компьютере при помощи VLC или IP-TV (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 26.10.2024Разработчик: Alexander SofronovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B8E746FF4B05FE6D741F7708C00A2D618F5BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757228   (39183) от 26.10.2024
-
-PowerDirector – Video Editor v14.5.2 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.10.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6D89105D8BF8D3AD43823685238CFCDFAC4EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757337   (39181) от 26.10.2024
 
 SnapEdit - AI photo editor v7.2.2 Mod by Oflarm [Ru/Multi]
@@ -243,7 +6,7 @@ SnapEdit - AI photo editor v7.2.2 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39181.jpg" />
 </div>
 
 
@@ -269,7 +32,7 @@ Smart AudioBook Player Pro v11.0.7 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39152.jpg" />
 </div>
 
 
@@ -295,7 +58,7 @@ Photo Editor v10.9 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39132.jpg" />
 </div>
 
 
@@ -321,7 +84,7 @@ LazyMedia Deluxe v3.338 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39122.jpg" />
 </div>
 
 
@@ -347,7 +110,7 @@ Seven / 7 Минут Упражнение v9.20.01 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39115.jpg" />
 </div>
 
 
@@ -373,7 +136,7 @@ Photo Editor v10.9 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39114.jpg" />
 </div>
 
 
@@ -399,7 +162,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.0.54205 Extra Mod by Balatan [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39112.jpg" />
 </div>
 
 
@@ -425,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39093.jpg" />
 </div>
 
 
@@ -451,7 +214,7 @@ Ultimate Thumbnail Maker v1.7.5 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39059.jpg" />
 </div>
 
 
@@ -477,7 +240,7 @@ Smart AudioBook Player Pro v11.0.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39040.jpg" />
 </div>
 
 
@@ -503,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39027.jpg" />
 </div>
 
 
@@ -530,7 +293,7 @@ Plus Messenger (Telegram+) v11.2.3.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39005.jpg" />
 </div>
 
 
@@ -556,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38997.jpg" />
 </div>
 
 
@@ -582,7 +345,7 @@ Document Reader & Viewer 2024 v1.2.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38878.jpg" />
 </div>
 
 
@@ -608,7 +371,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38843.jpg" />
 </div>
 
 
@@ -635,7 +398,7 @@ PowerDirector – Video Editor v14.5.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38793.jpg" />
 </div>
 
 
@@ -661,7 +424,7 @@ Reface: Face Swap AI Generator v5.0.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38723.jpg" />
 </div>
 
 
@@ -672,6 +435,240 @@ Reface: Face Swap AI Generator v5.0.0 Mod by Mixroot [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C6E7EF51265494060B8354181250217AE07F32E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758141   (38714) от 31.10.2024
+
+ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.94 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38714.jpg" />
+</div>
+
+
+###  Подробнее
+
+ToonApp карикатура фоторедактор лучшее приложение для превращения вашей картинки в мультфильм. Создатель мультфильмов предлагает удивительные фильтры AI для изображений, чтобы превратить фотографию в мультфильм. Вы даже можете сделать из фотографий карикатуры, чтобы превратить их в персонажей аниме. Чтобы завершить редактирование фотографий, добавьте впечатляющий (   Читать дальше...   )Тип издания: ProРелиз состоялся: 31.10.2024Разработчик: Lyrebird StudiosПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9C3D1B4CEFABC3769E13EBCD89E739F613B2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758144   (38711) от 31.10.2024
+
+Cleaner for WhatsApp / Очиститель для WhatsApp v2.9.6 Mod by sserratty [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cleaner for WhatsApp — это мощный инструмент для очистки полученных и отправленных медиафайлов через WhatsApp. Самая важная функция приложения Cleaner for WhatsApp; заключается в том, что вы можете автоматически очищать медиафайлы WhatsApp со своего телефона или планшета Android через регулярные промежутки времени или в соответствии с ограничением хранилища. Cleaner (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 31.10.2024Разработчик: LookAndFeel LabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62DB25E202AB54E0599E48CAC2B48FEE0E10843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758143   (38682) от 31.10.2024
+
+AudioLab v1.2.37 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38682.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioLab: Audio Editor Recorder – это самый продвинутый комплексный аудиоредактор, программа для записи звука, создания рингтонов, аудиомикшера и звукового редактора, в котором есть все функции, которые вам когда-либо понадобились! AudioLab — это идеальное приложение для микширования, редактирования звука и создания рингтонов, позволяющее гибко микшировать музыку (   Читать дальше...   )Тип издания: ProРелиз состоялся: 31.10.2024Разработчик: HitroLabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCD05575D43858BC49D5A85E5EE5D0E94D45A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758290   (38589) от 01.11.2024
+
+Next Track: Volume button skip v2.09 Mod by vedserega [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Next Track позволяет пропустить песни, отключить звук или остановить музыку с помощью кнопок громкости. Next Track работает со всеми стандартными музыкальными проигрывателями для управления музыкой с выключенным экраном. Перекомпоновайте ваши клавиши регулировки громкости во время прослушивания музыки. Выберите одиночные, двойные и длинные нажатия. В отличие от других (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.11.2024Разработчик: flar2Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B33E44455ABCCB51468AD117ED28CFDB51BAFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557325   (38573) от 02.11.2024
+
+Chess King - Обучение шахматам v1.5.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chess King Обучение (https://learn.chessking.com/) - уникальный сборник курсов по обучению шахматам. Он включает курсы по тактике, стратегии, дебютам, миттельшпилям и эндшпилям, которые разделены на уровни от начинающих до опытных шахматистов и настоящих профессионалов.Тип издания: Пиратка (Unlocked)Релиз состоялся: 3 июн. 2022 г.Разработчик: Chess KingПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514AE892EC74375C6A113178A55449E97B0E05E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758686   (38424) от 03.11.2024
+
+Photoleap: Photo Editor / AI Art v1.63.2 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте замечательные цифровые произведения искусства с использованием искусственного интеллекта и яркие фотокомпозиции с помощью надежного генератора изображений AI и эффектов изображений Photoleap. Photoleap — ваш лучший фоторедактор с искусственным интеллектом. Он предлагает набор профессиональных инструментов для редактирования фотографий с искусственным интеллектом (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 03.11.2024Разработчик: Lightricks Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEBF20952459273F298011956079C5E04778BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758600   (38423) от 03.11.2024
+
+Cleaner for WhatsApp / Очиститель для WhatsApp v2.9.6 Mod by TryRoom [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cleaner for WhatsApp — это мощный инструмент для очистки полученных и отправленных медиафайлов через WhatsApp. Самая важная функция приложения Cleaner for WhatsApp; заключается в том, что вы можете автоматически очищать медиафайлы WhatsApp со своего телефона или планшета Android через регулярные промежутки времени или в соответствии с ограничением хранилища. Cleaner (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 03.11.2024Разработчик: LookAndFeel LabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D083A593FE2D47428D81C93F29249BFF8963EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758623   (38412) от 03.11.2024
+
+FotoTweak - AI Image Generator v1.0.43 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свой творческий потенциал с помощью FotoTweak — генератора изображений на основе ИИ! Легко преобразуйте слова и изображения в захватывающие произведения искусства, созданные с помощью ИИ. Просто введите запрос, выберите стиль искусства и позвольте FotoTweak AI Picture Generator воплотить ваше видение в жизнь за считанные секунды. FotoTweak — генератор искусств (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 03.11.2024Разработчик: AppVerge Technologies, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E645A60AC31CA79F3A6EDD8CEB209D81057D695C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758617   (38408) от 03.11.2024
+
+Magic Eraser / Магический ластик v2.11.4 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.11.2024Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1769851B18E83BF36B2AA2CCC6CA09CAE4BF9B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 947784   (416136) от 18.10.2015
+
+Г. Л. Баканурский | Иудаизм и современность (1978) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416136.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре анализируется кризис иудейской религии в наши дни, разоблачаются религиозные апологеты, пытающиеся вместе с другими реакционными силами Запада, в первую очередь с сионизмом, задержать объективный процесс падения религиозности и усилить свое влияние.Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2325C410993AFABE3B4C0FCE7FE3FEA7D5EE86B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947789   (415994) от 18.10.2015
+
+Р. К. Баландин | Чудо или научная загадка? Наука и религия о Туринской плащанице (1989) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Туринская плащаница с изображением тела человека, снятого с распятия,— одна из наиболее загадочных исторических реликвий, с которой связано много самых разных предположений и гипотез. Су­ществует даже версия, что на ней запечатлен Иисус Христос. О том, как наука пытается объяснить этот феномен, какие методы она использует, живо и интересно рассказывает автор на страницах (   Читать дальше...   )Жанр: История, религиоведение, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2981B190F58CB17A52C449F60F144914C6A8B879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947753   (415976) от 18.10.2015
+
+Рустам Джамал, Елена Братчикова | Современная иконопись (2013) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная иконопись переживает период активного возрождения. Восстанавливаются православные традиции, в том числе традиции церковных искусств, как в России, так и за рубежом растет число иконописцев, иконописных школ и мастерских. В настоящее время современная иконопись общепризнана и востребована во всем мире. Эта книга, созданная на базе школы искусствоведения (   Читать дальше...   )Жанр: ИконографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A73B8EF0C180DBFB4C6A9914FC64A09A626F381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167612   (415182) от 21.09.2017
 
 Т. А. Жирмунская | "Ум ищет Божества". Библия и русская поэзия XVIII - XX веков (2006) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415182.jpg" />
 </div>
 
 
@@ -24,6 +102,37 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 248730   (415004) от 22.10.2010
+
+Джидду Кришнамурти | Сборник 24 книг [1986 - 2006] [HTML]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_415004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кришнамурти – человек, который из любви к миру и истине отказался от роли живого Бога, мирового Учителя, роли, к которой он был предназначен с детства. Сделал он это, так как осознал, что истина, если она открыта не самостоятельно, а навязана авторитетом другого, пусть даже в высшей степени замечательного существа, не ведет ни к чему, кроме иллюзий, конфликта и страдания.
+Джидду Кришнамурти - один из самых загадочных духовных лидеров нашего времени. Более 60-ти лет он проводил свои знаменитые беседы с последователями, всегда настаивая на том, чтобы к нему не относились, как к Гуру.
+Он основал несколько школ, опубликовал множество книг и статей, дал около тысячи интервью, в которых раскрывал суть своего подхода к жизни.
+
+------------------------
+Ссылки на каждую книгу и главу. Очень удобно.Формат: HTML
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167637   (414880) от 21.09.2017
 
 Белич Л.М. (сост.) | Порт-Артурская икона Божией Матери (2005) [PDF, DJVU]
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414880.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414668.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414045.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413846.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413833.jpg" />
 </div>
 
 
@@ -166,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413824.jpg" />
 </div>
 
 
@@ -192,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411934.jpg" />
 </div>
 
 
@@ -220,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411785.jpg" />
 </div>
 
 
@@ -249,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411608.jpg" />
 </div>
 
 
@@ -275,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410523.jpg" />
 </div>
 
 
@@ -301,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410204.jpg" />
 </div>
 
 
@@ -327,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409802.jpg" />
 </div>
 
 
@@ -353,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409560.jpg" />
 </div>
 
 
@@ -381,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408540.jpg" />
 </div>
 
 
@@ -407,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408149.jpg" />
 </div>
 
 
@@ -433,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408032.jpg" />
 </div>
 
 
@@ -461,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407966.jpg" />
 </div>
 
 
@@ -487,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407420.jpg" />
 </div>
 
 
@@ -515,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407388.jpg" />
 </div>
 
 
@@ -541,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407373.jpg" />
 </div>
 
 
@@ -567,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407241.jpg" />
 </div>
 
 
@@ -578,115 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3078598882CC4AF265E0D6620D4864A95C8B919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413822   (406823) от 06.10.2020
-
-Ирина Иловайская (под ред.) | Иисус Христос и Божий план нашего спасения. Краткий Христианский Катехизис (не указан) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому, кто держит в руках эту книжечку, мы предлагаем свою дружбу, с молитвой к Пречистой Богородице; пусть слова, напечатанные на этих страницах, ярко передадут им чудесную красоту Божией любви.Жанр: Основы христианской верыФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7BEB3B802AE904FCF4967B41A1663C8352D26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561724   (406102) от 17.10.2012
-
-Том Райт | Главная тайна Библии: Смерть и жизнь после смерти в христианстве [2009] [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признанный специалист по Библии и истории раннего христианства Том Райт приглашает вас в удивительное путешествие по миру представлений о жизни после смерти. После знакомства с учением древних религий и философских школ и обзора сумятицы представлений о жизни и смерти в современной культуре он подводит читателя к центру христианской веры — тайне воскресения Иисуса из Назарета, и подлинному смыслу христиан на вечную жизнь. Что такое Царство Божье? Когда состоится второе пришествие? Что будет в конце времен? Как понимать конец света? Что люди на самом деле имеют в виду, когда обращаются друг к другу с пасхальным приветствием в праздник Воскресения Христова? Как их вера связана с тем, что в Символе веры передано словами: «Чаю воскресения мертвых»? Что значили эти слова для первых христиан и как понимают их сегодня? На чем основана наша надежда на жизнь после смерти? Какие ответы мы услышим, если станем опрашивать о жизни после смерти и воскресении случайных прохожих на улицах городов? А что нам говорит об этом вопросе (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42DD59326813AAA509916409003F0B3D2685C223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385792   (403469) от 09.10.2011
-
-Джидду Кришнамурти | Сборник 34 книги [1986 - 2006] [CHM][Обновляемая]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_403469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кришнамурти – человек, который из любви к миру и истине отказался от роли живого Бога, мирового Учителя, роли, к которой он был предназначен с детства. Сделал он это, так как осознал, что истина, если она открыта не самостоятельно, а навязана авторитетом другого, пусть даже в высшей степени замечательного существа, не ведет ни к чему, кроме иллюзий, конфликта и страдания.
-Джидду Кришнамурти - один из самых загадочных духовных лидеров нашего времени. Более 60-ти лет он проводил свои знаменитые беседы с последователями, всегда настаивая на том, чтобы к нему не относились, как к Гуру.
-Он основал несколько школ, опубликовал множество книг и статей, дал около тысячи интервью, в которых раскрывал суть своего подхода к жизни.
-
-Ссылки на каждую книгу и главу. Очень удобно.
-----------------------------------------------------------------1986 - 2006Формат: CHM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF811E36586DE5224F1CEBADD620FF940B634272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169895   (401560) от 29.09.2017
-
-Священник Павел Флоренский | Все думы - о Вас. Письма семье из лагерей и тюрем. 1933 - 1937 гг. (2004) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Письма о. Павла Флоренского из лагерей занимают особое место в его наследии. Написанные в тяжелейших условиях лагеря, они исполнены удивительной силы духа, ощущения глубины и гармонии бытия. Адресованные самым близким людям, они обращены к «сокровенному » человеку. В книгу вошли «Завещание» о. Павла; поэма «Оро», написанная в лагерях, а также раздел, подробно раскрывающий (   Читать дальше...   )Жанр: Биография, мемуары, письмаФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:740F629FF3A2C89F84CE43666A54E5E59FF713AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

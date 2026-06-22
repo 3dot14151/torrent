@@ -6,7 +6,7 @@ Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181497.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181468.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181450.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181438.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180753.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180373.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180360.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180285.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dan
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180178.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179032.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Dogstar - Somewhere Between the Power Lines and Palm Trees (2023) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178949.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Remaster, 2023,  
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178851.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Roger Waters - The Dark Side of the Moon Redux (2023) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178702.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Svalbard - The Weight Of The Mask (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178421.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Karfagen, Sunchild & Hoggwash - A Message of Peace Tour Live (2023) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178391.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Occams Laser - New Blood III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <UK Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178389.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Iron Savior - Firestar (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178384.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Trevor Rabin - Rio (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178348.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Epica - Live At AFAS Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178341.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Darkness - Permission To Land... Again (2003) 20th Anniversary Edition, 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178297.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Leaves - All I See Is A Blurred Me (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178209.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Van Halen - The Collection II (2023) Remaster [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_178126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178126.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176155.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Eradikated - Descendants (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176145.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Kingston Wall - II (1993) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176141.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Arabs In Aspic - Live at Avantgarden (2018) Remaster, 2023, Apollon Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176103.jpg" />
 </div>
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 1259017   (333038) от 01.11.2018
+
+Fileloupe - Media Browser 1.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fileloupe - cамый быстрый способ, чтобы просмотреть фотографии, смотреть видео, смотреть PDF-файлы и просматривать документы на вашем Mac.
+В отличие от существующих решений, Fileloupe не требует длительного процесса импорта, не использует мастер библиотек и не делает копии файлов. С Fileloupe вам больше не придется открывать несколько окон или несколько приложений, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: Corduroy Code Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02F4F517AB39A0F6C84337EBFD399DD1ED1E620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258912   (333034) от 01.11.2018
+
+BlueHarvest 7 v7.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333034.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlueHarvest - утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
+
+Данная программа будет полезна для тех, кто любит включенную опцию показа скрытых и системных файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: Ross TullochПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C548F8ED3CA8B496BC1735EE695E781031F61D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258982   (333026) от 01.11.2018
 
 MediaHuman YouTube Downloader 3.9.9.8 (3110) [Multi/Ru]
@@ -6,7 +61,7 @@ MediaHuman YouTube Downloader 3.9.9.8 (3110) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333026.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Movavi PDF Editor 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333025.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ AnyTrans for Android 6.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333023.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ CleanMyMac X 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332997.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Winclone Pro 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332932.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ TechSmith Snagit 2019.0.0 (94003) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332922.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ Hands Off! 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332869.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ Sketch 52.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332868.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ Debookee 7 v7.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332616.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ iA Writer 5.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332610.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ Blocs 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332473.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ IconJar 1.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332355.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ DoubleTake 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332354.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ iSkysoft Video Converter Ultimate 11.5.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332353.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ SoftRAID 5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332352.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ Softorino YouTube Converter 2 v2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332351.jpg" />
 </div>
 
 
@@ -440,7 +495,7 @@ Keyboard Maestro 9 v9.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332276.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ NCH WavePad Mater 9.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332275.jpg" />
 </div>
 
 
@@ -494,7 +549,7 @@ ChronoSync & ChronoAgent 4.9.5 & 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332266.jpg" />
 </div>
 
 
@@ -523,7 +578,7 @@ Native Instruments Maschine 2 v2.8.7 Standalone AU VST [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332166.jpg" />
 </div>
 
 
@@ -550,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332055.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ Apple iWork: Keynote 6.6.1, Numbers 3.6.1 & Pages 5.6.1 (upd 11.11.2015) [Multi/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331939.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ Sketch 59 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331754.jpg" />
 </div>
 
 
@@ -631,7 +686,7 @@ ProFind 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331414.jpg" />
 </div>
 
 
@@ -642,61 +697,6 @@ ProFind 1.8.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE95072B0B2A738AA8DC0955C8A5364AFC52E912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420966   (331411) от 02.11.2020
-
-Find Any File (FAF) 2.1.2b6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2020Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9936813E1F1E69BAEBB508123CEFD7A21DF7B46D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420973   (331408) от 02.11.2020
-
-Soulver 3 v3.4.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего экселя много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
-
-Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2020Разработчик: Acqualia SoftwareПоддерживаемая ОС: OS X 10.14 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E4DE2241160FCDC58D72A98604B585D714AE71
 ```
 
 https://mybot314.ru/tekegram_catalog/

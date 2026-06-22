@@ -1,3 +1,82 @@
+###  Публикация: 1426633   (185654) от 25.11.2020
+
+No Guns Life [TV-2] | Жизнь без оружия [TV-2] [2020, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война закончилась, оставив после себя «Экстендов» — людей, части тел которых заменило оружие. Дзюдзо Инуи как раз из таких, — вместо головы у него револьвер, и он ничего не помнит о себе до преобразования. Дзюдзо желает лишь одного: найти того, кто сделал из него живое оружие, чтобы вернуть потерянные воспоминания. А пока Инуи зарабатывает на жизнь, расследуя дела, (   Читать дальше...   )Производство: студия Madhouse / マッドハウスЖанр: приключенияРежиссер: Ито НаоюкиЯзык озвучки: Русский дублированный (Wakanim.tv), English дублированный (FUNimation)Субтитры: русские надписи, Русский, English, Français, Brazilian PortugueseПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0095F9501086816ED7985E5786E06DBB451CE123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644285   (185626) от 25.09.2023
+
+Хоримия [ТВ-2] | Хоримия: Кусочек | Horimiya: Piece | Horimiya: The Missing Pieces [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185626.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого есть сторона, которую не хочется показывать другим. И не всегда то, каким человек кажется со стороны, отражает его истинную сущность. Популярная, но холодная красавица может вдруг оказаться заботливой и внимательной сестрой, а нелюдимый хулиган с татуировками и пирсингом — добрым и отзывчивым парнем. Познакомившись поближе, наши герои Хори и Миямура узнали (   Читать дальше...   )Производство: Япония / Студия CloverWorksЖанр: Комедия, романтика, повседневность, школа, сёненРежиссер: Исихама МасасиЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Amikiri, Anzen, Arato, NeoNoir (AniLibria.TV)Субтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C1E281F8AD00CBE74FB92F997F21FA64C0704C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648697   (182676) от 29.09.2023
+
+Повелитель тьмы на подработке! [ТВ-2, сезон 2] | Сатана на подработке! | Hataraku Maou-sama!! (2023) | The Devil Is a Part-Timer! Season 2 (2023) [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето в самом разгаре, и время открывать "Мак'Рональдс" для новых посетителей! А раз так, то мы продолжаем следить за судьбой Владыки Тьмы и его непутевых приближенных, ежедневно влипающих в неприятности. В меню у нас три блюда. На первое — очередная схватка с Небесами и спасение Древа Сефир, а заодно и всей Вселенной, включая мир людей и мир демонов. На (   Читать дальше...   )Производство: Япония / Студия Studio 3Hz, MarcoЖанр: комедия, фэнтезиРежиссер: Тикуси ДайсукэЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5731E385BD82C991297C0514D0E98BF230444E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602900   (182634) от 29.09.2023
 
 Сказка о сахарном яблоке | Sugar Apple Fairy Tale [2023, TV, 24 из 24] WEBRip 1080p Raw+Rus
@@ -6,7 +85,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182634.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182148.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181753.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181693.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181274.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181232.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181045.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180652.jpg" />
 </div>
 
 
@@ -221,7 +300,7 @@ Wu Liuqi | Scissor Seven | Killer Seven | Киллер Севен  [ТВ-1] [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180639.jpg" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180628.jpg" />
 </div>
 
 
@@ -274,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180434.jpg" />
 </div>
 
 
@@ -301,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180423.jpg" />
 </div>
 
 
@@ -327,7 +406,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180180.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180101.jpg" />
 </div>
 
 
@@ -380,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179473.jpg" />
 </div>
 
 
@@ -407,7 +486,7 @@ Fruits Basket TV-2 | Корзинка фруктов ТВ-2 [2020, TV, 25 из 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179442.jpg" />
 </div>
 
 
@@ -434,7 +513,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176982.jpg" />
 </div>
 
 
@@ -460,7 +539,7 @@ Quan Zhi Gao Shou | Quanzhi Gaoshou | The King`s Avatar | Master of Skill | Ав
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176929.jpg" />
 </div>
 
 
@@ -486,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175694.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172777.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ Good Night World | Спокойной ночи, мир [2023, Web, 12] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172580.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171685.jpg" />
 </div>
 
 
@@ -594,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171680.jpg" />
 </div>
 
 
@@ -606,84 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF064D21259C9C08B60E9908F52BC89030CA859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667282   (168721) от 28.10.2023
-
-Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тысячелетняя кровавая война [2022, TV, 13 из 13 эп.] BDRip 1080p AV1 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сообщество душ получает множество сообщений о тревоге: число пустых, уничтоженных в мире живых, растёт с каждой минутой; всё больше жителей района Руконгай числятся пропавшими; грань между миром живых и Сообществом душ под угрозой исчезновения. Вскоре и само Сообщество подвергается нападению группы людей, которые называют себя «Ванденрейх». Во главе с Яхве, отцом (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: комедия, приключения, сёнен, экшен, фэнтезиРежиссер: Тагути ТомохисаЯзык озвучки: русский, японский и английскийСубтитры: Перевод1: ASS, Встроенные | RusПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DD411A2C34AB83C9382136A4C3C7E9B7310FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596669   (168652) от 11.12.2022
-
-Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя девушка не просто милашка [2022, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изуми - школьник, с катастрофически низким уровнем везения. Если он пришел домой только с парой синяков, то день можно считать удачным. То ветка в голову прилетит, то с лестницы упадет. Неизвестно, как долго бы прожил Изуми, если бы в его жизни не появилась Шикимори - красавица, спортсменка, милашка, которая в критических моментах становится невероятно крутой. С (   Читать дальше...   )Производство: студия Doga Kobo / 動画工房Жанр: комедия, романтикаРежиссер: Ито РётаЯзык озвучки: Японский, русский (StudioBand, AniLibria, Force Media)Субтитры: Русские (AniLibria, Crunchyroll), английские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CF932CB68E564C267E095ABFB6CEACFA556ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 105755   (168125) от 12.12.2020
-
-Kumo no Mukou, Yakusoku no asho / The Place Promised in Our Early Days / За облаками. Место, обещанное в детстве [2004] raw rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно альтернативному варианту развития истории, после поражения во второй мировой войне Япония оказалась разделённой между союзниками - северный остров Хоккайдо аннексировал Советский Союз, а Хонсю и другими южными островами овладели американцы. Летом 1996 года Советы начали сооружать в своей зоне оккупации загадочное сооружение - башню столь исполинских размеров, (   Читать дальше...   )Жанр: фантастика, романтика, драмаРежиссер: Синкай МакотоСубтитры: отсутствуютПродолжительность: 01:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9007A5394C43FD7A80CD042F0984D17A37593F
 ```
 
 https://mybot314.ru/tekegram_catalog/

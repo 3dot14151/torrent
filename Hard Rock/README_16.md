@@ -6,7 +6,7 @@ Europe - The Final Countdown 30th Anniversary Show (2017) Live At The Roundhouse
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568559.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Black Moods - Into the Night (2022) [MP3|320 Kbps] <Alt.Rock, Hard Rock, Ind
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567493.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rise of Division - Dichotomy (2022) [MP3|320 Kbps] <Hard Rock, Post-Grunge>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567485.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Voodoo Angel - First Spell (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567162.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Alliance - Fire And Grace (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565270.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ KISS - Destroyer (Resurrected) (2012) [MP3|320 kbps] <Hard-Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564523.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ozzy Osbourne - 24Albums+25Singles+3EP (1980-2011) [MP3|320 kbps]<Heavy Metal/Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562298.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Dare - Out Of The Silence II (Anniversary Special Edition) (2018) [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560261.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Alice Cooper - Paranormal (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559307.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Crazy Lixx - Forever Wild (2019) [MP3|320 kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556146.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 Kbps] <Hard Rock, Sle
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554682.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ St. Prostitute - Glorified (2015) [MP3|320 Kbps] <Hard Rock, Rock-n-Roll>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554673.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ D-A-D - A Prayer For The Loud (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553728.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Second Life - Second Life (1971) Reissue, 1997, Second Battle [MP3|320 Kbps] <Pr
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552972.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Twisted Sister - The Best Of The Atlantic Years (2016) Rhino Atlantic [MP3|320 K
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552845.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Cilver - Not The End Of The World (2016) [MP3|320 Kbps] <Hard rock, Alternative,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551859.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Gay Paris - 3 альбома (2011-2015) [MP3|320 Kbps] <Hard rock & Blues>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551024.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Hollywood Vampires - Rise (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550344.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Kiss - Kiss Rocks Vegas (2016) Live [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549924.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Halestorm - Vicious (2018) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549686.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Deep Purple - Live At Long Beach 1976 (2016) 2CD [MP3|320 Kbps] <Hard Rock, Clas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549060.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Bai Bang - Are You Ready (2009) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548348.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ King Company - Queen Of Hearts (2018) Japanese Edition [MP3|320 Kbps] <Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547070.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Miss Behaviour - Ghost Play (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544853.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Devil's County - Whisky Tango Foxtrot (2019) [MP3|320 Kbps] <Southern, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544525.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Tony Mills - Beyond The Law (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544521.jpg" />
 </div>
 
 

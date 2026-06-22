@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562304.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562127.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561739.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561194.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561021.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560137.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559547.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559300.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558569.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557700.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557645.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557634.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556002.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556000.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555999.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555993.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553871.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553115.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552028.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548386.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545769.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542544.jpg" />
 </div>
 
 
@@ -575,6 +575,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365364   (542174) от 20.07.2011
+
+Запрещенный прием [Расширенная версия] / Sucker Punch [Extended Cut] (2011) DVD5
+
+>>След.
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_542174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие развернется в 1950 году. Молодую девушку по настоянию ее злодейского отчима определяют в больницу для душевнобольных, где спустя пять дней главную героиню лоботомируют. Чтобы оградиться от боли, она выдумывает сказочный мир, где и начинает планировать свой побег — для этого ей нужно раздобыть пять предметов.Производство: США, КанадаЖанр: Фэнтези, Боевик, Триллер, ПриключенияРежиссер: Зак СнайдерАктеры: Эмили Браунинг, Эбби Корниш, Джена Мэлоун, Ванесса Энн Хадженс, Джеми Чунг, Карла Гуджино, Джон Хэмм, Оскар Айзек, Скотт Гленн, Вики ЛамбертПеревод: Дублированный+Одноголосый закадровый (на расширенные эпизоды)Субтитры: нетПродолжительность: 02:07:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818418   (541025) от 03.09.2014
 
 Одна встреча / Une rencontre (2014) DVD5
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541025.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540337.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540164.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACBDF3C9F0136A8EFF55861A8CF0586DF117719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239345   (538709) от 05.08.2018
-
-Форсаж 8 / The Fate of the Furious (2017) DVD9+DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пристегните ремни — гонка продолжается. Гавана, Берлин, Нью-Йорк — для самой крутой команды в мире нет ничего невозможного, пока они вместе. Но когда на их пути окажется одна из самых красивых женщин на планете и по совместительству королева киберпреступности, дороги друзей разойдутся.Производство: Китай, США, Япония / Universal Pictures, Original Film, One Race FilmsЖанр: Боевик, триллер, криминалРежиссер: Ф. Гэри ГрейАктеры: Вин Дизель, Дуэйн Джонсон, Джейсон Стэйтем, Мишель Родригес, Тайриз Гибсон, Лудакрис, Натали Эммануэль, Курт Рассел, Скотт Иствуд, Шарлиз ТеронПеревод: Дублированный (лицензия)Субтитры: Русские, английские, польские, эстонские, латышские, литовскиеПродолжительность: 02:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0057525DB6A9770762BA11DFFD5583D317A54B4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

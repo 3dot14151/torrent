@@ -1,3 +1,211 @@
+###  Публикация: 1347613   (148372) от 24.12.2019
+
+Обои - Desktop Wallpapers Full HD. Part (541) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD0B9628878BB4418C86DC2BB370C315BA27D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347610   (148340) от 24.12.2019
+
+Обои - Desktop Wallpapers Full HD. Part (540) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19CEA12182AD5F50814E011CD668A91366A067E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739029   (147415) от 27.12.2013
+
+Работы художников - Советские новогодние открытки - 1180 шт. [JPEG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая коллекция сканированных новогодних открыток советского периода, которые были выпущены в 70-90 годах прошлого века. Все открытки рассортированы по авторам и тематике.Формат: JPEGРазрешение файлов: 280x397-2130x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57155A9DD7BFBB72475F0B3517FD710AFCA41FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590002   (146297) от 16.12.2012
+
+Cubs of big cats wallpaper (14.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254132C5F041438011B9128B6A23D493A60D2735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589994   (145973) от 16.12.2012
+
+Humor Wallpapers (14.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130D0EA081DB4153EC14FD6A434F69B9EEFECC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590056   (145950) от 16.12.2012
+
+Winter landscapes Wallpapers (15.12.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1600х900 - 4928х3264
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202BC9AD592350EA0EF5A27AC1CEA7765E4BA254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435341   (145836) от 27.12.2020
+
+Картинки - NNM-Club - Календари на 2021 от Warrior 123 №11 - 1435341 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4DCCA3D53D0899F1DBCCE4983F7FF1E6172E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590062   (145350) от 16.12.2012
+
+Демотиваторы '220V' (15.12.12)
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демотиваторы '220V'Разрешение файлов: ~  422x700 ~ 1311x888
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2723851EB7A73D67059968629CE16F8E87A1873B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272022   (145213) от 26.12.2018
 
 Картинки - Армия России: календарь на 2019 год  [JPG]
@@ -6,7 +214,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145213.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145138.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145109.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145034.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144986.jpg" />
 </div>
 
 
@@ -136,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144884.jpg" />
 </div>
 
 
@@ -162,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144732.jpg" />
 </div>
 
 
@@ -188,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143823.jpg" />
 </div>
 
 
@@ -214,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143483.jpg" />
 </div>
 
 
@@ -240,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143193.jpg" />
 </div>
 
 
@@ -268,7 +476,7 @@ Macro Wallpapers (17.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142987.jpg" />
 </div>
 
 
@@ -294,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142893.jpg" />
 </div>
 
 
@@ -320,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142263.jpg" />
 </div>
 
 
@@ -346,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142027.jpg" />
 </div>
 
 
@@ -372,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141911.jpg" />
 </div>
 
 
@@ -398,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141815.jpg" />
 </div>
 
 
@@ -424,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141784.jpg" />
 </div>
 
 
@@ -450,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141732.jpg" />
 </div>
 
 
@@ -461,214 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE51BE49DC028392179B345383E9C58B54E62A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435937   (141587) от 29.12.2020
-
-Картинки - NNM-Club - Календари на 2021 от Warrior 123 №16 - 1435937 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5575A9C589270D0EE16257B779227A00870C4419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435929   (141571) от 29.12.2020
-
-Картинки - NNM-Club - Календари на 2021 от Warrior 123 №14 - 1435929 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFB3BD730DD9B9A7F9C5859327B31A22AA165BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590840   (141287) от 17.12.2012
-
-Иллюстрации - Иллюстратор Diego L. Rodríguez
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрации - Иллюстратор Diego L. Rodríguez
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0587E4E43C749154997888588BD8BD82796C6D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590465   (141197) от 17.12.2012
-
-Работы художников - Pin-Up Art by Michal Dutkiewicz
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художников - Pin-Up Art by Michal Dutkiewicz
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5F210999CA19DE2AA0CAC5643E7FDE0DBBE0F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970231   (141120) от 30.12.2015
-
-Обои - Best Wallpapers Mixed 216 - 217 2560x1600 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на разные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888FBA6517EEE8B355827AF2D76ECFA12570CA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590795   (140680) от 18.12.2012
-
-Nature Wallpapers (17.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8583B19FD5A33797A533AE94B80DE67E08C5C635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590390   (140399) от 18.12.2012
-
-Interior Wallpapers (16.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E4C64F23BC9AEEFE839DE2691827414197998E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590794   (140340) от 18.12.2012
-
-Best HD Wallpapers Pack (17.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253608B2F8F7C8B58EECB9C5E00FFF53E74A7151
 ```
 
 https://mybot314.ru/tekegram_catalog/

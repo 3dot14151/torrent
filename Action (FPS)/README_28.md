@@ -1,3 +1,29 @@
+###  Публикация: 250035   (384011) от 26.10.2010
+
+Nosferatu: The Wrath of Malachi / Вампиры [Ru] (P) 2003
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_384011.jpg" />
+</div>
+
+
+###  Подробнее
+
+У твоих врагов много имен - вампиры, вурдалаки, упыри, ожившие мертвецы, которые рыщут в ночи и хотят испить живой крови. Будь готов пережить немало жутких минут. А какими еще они могут быть в древнем румынском замке, которыми владеет кровавый вампир граф Тепеш? Именно здесь томится семья английских аристократов, которая скоро будет растерзана проклятыми тварями. Уничтожь гнездо упырей и положи конец царству призрака ночи!Тип издания: ПираткаЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251321   (383313) от 09.10.2018
 
 Wolfenstein (2009) [Ru] (1.2) Rip xatab
@@ -6,7 +32,7 @@ Wolfenstein (2009) [Ru] (1.2) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383313.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Bulletstorm (2011) [Ru] (1.0.7147/dlc) Rip R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382510.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382494.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Sniper: Ghost Warrior / Снайпер: Воин-призрак [Ru] (RePack/Upd
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_381859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_381859.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381370.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381235.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380580.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack xatab [Maximum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380167.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Turok [Ru] (L) 2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379700.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ ALICE VR (2016) [Ru/Multi] (1.0) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379558.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Killing Room (2016) [Ru/Multi] (1.37.1/u1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379557.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Red Alliance (2018) [Ru/En/Fr] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378940.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Red Alliance (2018) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378928.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Borderlands: Game of the Year Edition (2009) [Ru/En] (1.5.0.0/dlc) Repack R.G. �
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378709.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376761.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10373/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376751.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Vietcong Anthology (2003-2005) [Ru/En] (1.60/1.1/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376403.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Agony UNRATED (2018) [Ru/Multi] (1.0/upd5) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376049.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Shadow Warrior (2013) [Ru/Multi] (1.1.2/1.5.0/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373695.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Call of Juarez Дилогия [Ru] (RePack) 2006-2009 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373169.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ In Verbis Virtus (2015) [Ru/Multi] (1.0.2420) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372701.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Viscera Cleanup Detail (2015) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371679.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.11.0/dlc) Repack R.G. Catalyst [Deluxe E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371354.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370345.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Deus Ex Anthology (2001-2014) [Ru/Multi] Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370321.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Deus Ex Anthology (2001-2014) [Ru/Multi] Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4530AD2BC703BBD77C2F6AC7661D174C9808F274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254761   (369767) от 15.10.2018
-
-Medal of Honor (2010) [Ru] (1.0.75.0) Rip xatab [Limited Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этим бойцам нет равных. Они — профессионалы — лучшие из лучших. Сколько их — точно неизвестно, но вряд ли больше нескольких сотен. Они подчиняются непосредственно командованию вооруженных сил США. Их направляют только в самые горячие точки и поручают задания, успешно выполнить которые не под силу никому другому.Тип издания: RipРазработчик: Danger Close Games, DICEЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6201D17BD4E68551CD08FB2D9ADF5C59962D26EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

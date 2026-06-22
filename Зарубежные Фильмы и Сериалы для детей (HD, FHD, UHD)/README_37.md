@@ -1,3 +1,82 @@
+###  Публикация: 1801989   (14602) от 14.06.2025
+
+Белоснежка / Snow White (2025) BDRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная принцесса Белоснежка прячется в домике семи гномов от злой мачехи-колдуньи, которая завидует её красоте.Производство: США / Marc Platt Productions, Walt Disney PicturesЖанр: мюзикл, фэнтези, мелодрама, приключения, семейныйРежиссер: Марк УэббАктеры: Рэйчел Зеглер, Галь Гадот, Эмилия Фоше, Эндрю Бернап, Эндрю Барт Фельдман, Титус Берджесс, Мартин Клебба, Джейсон Кравиц, Джордж Салазар, Джереми СвифтПеревод: дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F9E67571512A3E92EB32EDE3AE1835D99465EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802283   (14465) от 16.06.2025
+
+Белоснежка / Snow White (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision P7, 10-bit]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная принцесса Белоснежка прячется в домике семи гномов от злой мачехи-колдуньи, которая завидует её красоте.Производство: США / Marc Platt Productions, Walt Disney PicturesЖанр: мюзикл, фэнтези, мелодрама, приключения, семейныйРежиссер: Марк УэббАктеры: Рэйчел Зеглер, Галь Гадот, Эмилия Фоше, Эндрю Бернап, Эндрю Барт Фельдман, Титус Берджесс, Мартин Клебба, Джейсон Кравиц, Джордж Салазар, Джереми СвифтПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH)Продолжительность: 01:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86AF1E08AAEA035B716FE9B2929F3B5C40AEA073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803629   (13607) от 24.06.2025
+
+Бесконечная история / The Neverending Story (1984) BDRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убегая от школьных хулиганов, 10-летний Бастиан спрятался в старой книжной лавке, где нашел таинственную книгу, изукрашенную орнаментом. Открыв ее, Бастиан попал в призрачный фантастический мир бегающих улиток, летающих собак, бескрылых Драконов Удачи, проказливых эльфов и ходячей каменоломни по имени Камнекус.
+Но волшебной стране Фантазии и ее правительнице, Девочке-Императрице, (   Читать дальше...   )Производство: Германия (ФРГ), США / Bavaria Film, Bavaria Studios, Neue Constantin Film, Warner Bros. PicturesЖанр: фэнтези, драма, приключения, семейныйРежиссер: Вольфганг ПетерсенАктеры: Бэррет Оливер, Джералд МакРэйни, Драм Гаррет, Дэррил Кукси, Николас Гилберт, Томас Хилл, Дип Рой, Тило Прюкнер, Моузес Ганн, Ноа Хэтэуэй и другиеПеревод: Многоголосый профессиональныйЯзык озвучки: русскийСубтитры: русские, английскиеПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3978AF41A1D336B7DE233D70E81D34A5560CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804716   (12928) от 01.07.2025
 
 Лило и Стич / Lilo & Stitch (2025) WEBRip [H.264/1080p] [MVO]
@@ -6,7 +85,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12928.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12820.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12678.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12677.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12478.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12452.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11238.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11233.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10872.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10742.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10702.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10680.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10670.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10321.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10307.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10118.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10116.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9543.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8975.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8485.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8305.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8274.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8272.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F954D4C3E5F402C67482918108831818816EDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812512   (7763) от 15.08.2025
-
-Лило и Стич / Lilo & Stitch (2025) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 7.6, 10-bit]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забота о шестилетней Лило Пелекаи легла на плечи её старшей сестры Нани. Нани приходится много работать и учиться, и поэтому девочка часто остаётся одна. Однажды соседка советует взять в приюте собаку, чтобы помочь девочке справиться с одиночеством. Однако из приюта Лило забирает милого инопланетянина вместо собаки. Девочка даёт новому питомцу кличку Стич, но на (   Читать дальше...   )Производство: США, Австралия, Канада / Walt Disney Pictures, RidebackЖанр: фантастика, комедия, семейныйРежиссер: Дин Флейшер-КэмпАктеры: Майя Кеалоха, Сидни Агудонг, Крис Сандерс, Зак Галифианакис, Билли Магнуссен, Кортни Б. Вэнс, Эми Хилл, Тиа Каррере, Каипо Дюдуа, Ханна УоддингэмПеревод: Дублированный (MovieDalen, Red Head Sound), многоголосый (TVShows, HDRezka, Jaskier, LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CEE30BB939BFE7C134AB232425A06330BF49ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814114   (6330) от 23.08.2025
-
-Лило и Стич / Lilo & Stitch (2025) BDRemux [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забота о шестилетней Лило Пелекаи легла на плечи её старшей сестры Нани. Нани приходится много работать и учиться, и поэтому девочка часто остаётся одна. Однажды соседка советует взять в приюте собаку, чтобы помочь девочке справиться с одиночеством. Однако из приюта Лило забирает милого инопланетянина вместо собаки. Девочка даёт новому питомцу кличку Стич, но на (   Читать дальше...   )Производство: США, Австралия, Канада / Walt Disney Pictures, RidebackЖанр: фантастика, комедия, семейныйРежиссер: Дин Флейшер-КэмпАктеры: Майя Кеалоха, Сидни Агудонг, Крис Сандерс, Зак Галифианакис, Билли Магнуссен, Кортни Б. Вэнс, Эми Хилл, Тиа Каррере, Каипо Дюдуа, Ханна УоддингэмПеревод: дублированный (MovieDalen, Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F105B1DBBD23F451F921EDFE007A4EE7A7A088F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535558   (6189) от 24.08.2025
-
-Смурфики / The Smurfs (2011 - 2017) BDRip [H.264/720p] [Коллекция]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6189.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету, спасаясь от злого волшебника Гаргамеля, крошечные смурфики оказываются за пределами родной деревни. Из своего волшебного мира они попадают прямиком в наш мир, а именно в Центральный парк города Нью-Йорк. Теперь маленьким отважным смурфикам предстоит отыскать дорогу домой и не попасть в лапы Гаргамеля.Производство: США, Бельгия, Канада, Гонконг, Китай, Чехия, Великобритания / Columbia Pictures, Sony Pictures AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Раджа Госнелл, Келли ЭсбёриАктеры: Хэнк Азария, Нил Патрик Харрис, Джейма Мейс, София Вергара, Джонатан Уинтерс, Алан Камминг, Кэти Перри, Фред Армисен, Джордж Лопес, Антон Ельчин, Брендан Глисон, Джейма Мейс, Кристина РиччиПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:42:43 / 01:44:54 / 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE282CB8536E4573FDC9F82A35307B08CA98A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

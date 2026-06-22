@@ -1,3 +1,58 @@
+###  Публикация: 1472173   (1014487) от 24.05.2021
+
+New Order – Education Entertainment Recreation (2021) BDRemux [H.264/1080i] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Education Entertainment Recreation - лимитированное издание концертного шоу 2018 года коллектива New Order. Концерт прошел в Великобритании 9 ноября 2018 года в лондонском Alexandra Palace с текущим составом группы, состоящим из Бернарда Самнера, Стивена Морриса, Джиллиан Гилберт, Фила Каннингема и Тома Чапмена. Это было зрелищное с точки зрения звука и изображения (   Читать дальше...   )Производство: Великобритания, Warner UK, Universal Music Operations Ltd., Decca UKЖанр: Концертная программа, рокРежиссер: Ричард Томас, Джейсон ХантерАктеры: Бернард Самнер, Стивен Моррис, Джиллиан Гилберт, Филл Каннингем, Том ЧапменПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 02:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46448AC4ACE2E8D6A162FDC11EFF7B638302D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084833   (1014112) от 26.05.2021
+
+Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия заключительного концерта группы Motley Crue,состоявшегося  в Лос-Анджелесе 28, 30 и 31 декабря 2015 года.01. Intro
+02. Girls, Girls, Girls
+03. Wild Side
+04. Primal Scream(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard Rock, Heavy Metal, Glam MetalРежиссер: Christian LambПеревод: ОтсутствуетПродолжительность: 01:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DEB1E52404CC375773CD0E82D5EAD6C4257D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472915   (1013977) от 27.05.2021
 
 Mick Fleetwood And Friends - Celebrate The Music Of Peter Green And The Early Years Of Fleetwood Mac (2021) BDRip [EN]
@@ -6,7 +61,7 @@ Mick Fleetwood And Friends - Celebrate The Music Of Peter Green And The Early Ye
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013977.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Swinging Bach - Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013935.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Greatest Irish Artists - Gaelforce (1997) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013832.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ The Beatles: Любовь нельзя купить 2 / Can't Buy Me Love (A Har
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013830.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013806.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Lindemann: Live in Moscow / Lindemann: Live in Moscow (2021) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013800.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013344.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013162.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012993.jpg" />
 </div>
 
 
@@ -236,6 +291,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531674   (1012947) от 02.06.2021
+
+Цирк дю Солей: Большое путешествие в 3D / Cirque du Soleil: Journey of Man (2000) [H.264/1080p] Blu-ray  3D [EN]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1012947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цирк… Атмосфера чуда и праздника витает в воздухе. Арена притягивает взгляды. И вот гаснет свет, дирижер взмахивает палочкой, оркестр берет первые такты… Представление начинается, и зал замирает в ожидании сказочного действа…Производство: США (Sony Pictures)Жанр: короткометражка, мюзикл, фэнтези, драма, семейныйРежиссер: Кейт МелтонАктеры: Иэн МакКеллен, Никки Дьюхерст, Брайан Дьюхерст, Anait Karagyezyan, Крис Ван Вагенен, Кенни Раскин, Cully Smoller, Михаил Маторин, Ив Декосте, Marie-Laure MesnageПеревод: отсутствуетЯзык озвучки: АнглийскийСубтитры: (PGS): Русские, English, Arabic, Chinese, Czech, Danish, Dutch, Finnish, French, German, Italian, Japanese, Korean, Norwegian, Polish, Portuguese, Русские, Spanish, Swedish, Thai, TurkishПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18F5B61D29DCB31FBC841D181BCB87FDE2EA3C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357794   (1012926) от 02.06.2021
 
 Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL [H.264/1080p/2160p-LQ]
@@ -244,7 +325,7 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012926.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012307.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011947.jpg" />
 </div>
 
 
@@ -330,7 +411,7 @@ Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Ra
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011274.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011265.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ Bobby McFerrin - Spontaneous Inventions (1986) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011263.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011097.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRip [EN]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011086.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011083.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010122.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009651.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009395.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ Toto: С небольшой помощью моих друзей / Toto: With A 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008824.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008680.jpg" />
 </div>
 
 
@@ -604,84 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:733DEB2609CFF6CA64CF39904DDF2B06FF9ADE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087597   (1008249) от 03.07.2021
-
-Мы - цыгане (1986) SATRip (Театр "Ромэн")
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный спектакль, визитная карточка театра «Ромэн». Его авторы – Иван Ром-Лебедев и Николай Сличенко определили жанр этого спектакля – музыкальное народное зрелище, прежде всего потому, что подлинно цыганское искусство выросло из народной стихии, и ею, отмечено. Этой стихией овеян, окрашен, одухотворён каждый эпизод спектакля, пронизанный музыкальным, песенным, (   Читать дальше...   )Производство: СССР, Творческое объединение "Экран", ГостелерадиоЖанр: Фильм-спектакль, театрРежиссер: Николай Сличенко, Николай СубботинАктеры: Наталья Бизева, Павел Бобров, Раиса Демент, Екатерина Жемчужная, Борис Василевский, Николай СличенкоПродолжительность: 01:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080B39BA011A8566F7A42E02BA0436723AE08E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482338   (1007566) от 08.07.2021
-
-Девин Таунсенд: Галактический карантин / Devin Townsend - Galactic Quarantine (Devolution Series 2) (2021) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый виртуальный концерт легенды прог-метала Девина Таунсенда. Запись "Galactic Quarantine - Devolution Series #2" была записана в период с июля по сентябрь 2020 года в различных местах по всему миру. Первоначально транслировалась 5 сентября 2020 года на StageIt.com в качестве шоу, заменившего “Empath Vol 2 European Tour” (отмененный из-за пандемии), и (   Читать дальше...   )Производство: Европа, Sony Music, Warner MusicЖанр: Концертная программа, металл, рокРежиссер: Девин ТаунсендАктеры: Девин Таунсенд, Самус Пауличелли, Уэс Хауч, Диего ТехейдаПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 01:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607806491FD48E1874E23E9F02384684F9BA4B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 39011   (1006548) от 15.07.2021
-
-Есть ли жизнь на Марсе?  (Пётр Мамонов. Моноспектакль)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это  моноспектакль, который Пётр Мамонов играл на сцене театра им. Станиславского в Москве несколько лет. В основе проекта - произведения А.Чехова, Э.Ионеско, В.Ермилова, Л.Рубинштейна, С.Ожегова и самого П.Мамонова.Жанр: моноспектакльРежиссер: Пётр МамоновАктеры: Пётр МамоновПеревод: ОригинальныйПродолжительность: 1ч 33мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3DD8FF3D76F648847C87C1D2D44F9C66B341C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

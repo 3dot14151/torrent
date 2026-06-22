@@ -1,3 +1,29 @@
+###  Публикация: 1846631   (1051694) от 08.01.2026
+
+PictureThis - Plant Identification v5.18.0 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 04.01.2026Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBA44AE73BDABB2E075524678E43F06DEC9CFE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846615   (1051693) от 08.01.2026
 
 MIUI Hidden Settings Activity v1.6.13 Mod by TryRoom [Ru/Multi]
@@ -6,7 +32,7 @@ MIUI Hidden Settings Activity v1.6.13 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051693.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ OTT Navigator IPTV v1.7.4.1 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051691.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ RAR for Android v7.20 build 131 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051690.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051587.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.11.5 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051582.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ PowerDirector – Video Editor v15.9.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051432.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ NokoPrint v5.26.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051426.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Mary’s recipes: рецепты, меню v7.0.1 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051418.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Photo Studio PRO v2.8.8.4717 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051377.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Folder Player Pro v5.37 b362 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051370.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Photo Editor v12.4 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051369.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Taskito v1.1.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051361.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Cozy Timer - Sleep timer v4.0.13 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051360.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Auto Reply: автоответчик v6.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051357.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Talksy: Навык общения v0.4.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051336.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051335.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Night clock / Ночные часы v2.11.21 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051328.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Solid Explorer File Manager v3.2.12 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051327.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Vanced Tube v5.5.80.342 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051323.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Win 11 Launcher v9.32 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051318.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ LazyMedia Deluxe v3.426 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051317.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ AyuGram - неофициальный клиент Telegram 12.2.10 Mod by NURIK 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051252.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Eatr・Здоровые рецепты v2.11.0 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050942.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Solid Explorer File Manager v3.2.11 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050941.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Nerd AI - Решатель Математики v4.0.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050937.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Nerd AI - Решатель Математики v4.0.3 Mod by vadj [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:061AF2A8BD63565CD1F70F29338548D01FEA130D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845757   (1050892) от 03.01.2026
-
-Truecaller: AI Call Blocker / Oпределитель номера v16.10.5 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Определяйте звонки с неизвестных номеров с помощью мощного идентификатора вызывающего абонента в России. 400 миллионов пользователей полагаются на Truecaller при общении — будь то определение неизвестных номеров, с которых вам звонят, или блокировка СМС-спамеров. Приложение отфильтровывает ненужные звонки и сообщения и соединяет вас только с теми, кто действительно (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 02.01.2026Разработчик: TruecallerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0415964684C87C72B456EADA60890B18C7CB9A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Zombie Land Saga Revenge | Зомбиленд. Сага: Месть [2021, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_880615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880615.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880335.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Koukaku Kidoutai: Shin Gekijouban | Ghost in the Shell New Movie  | Призра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880272.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и гроб [2014, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879004.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 эп. + 13 SP] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876972.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876778.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Bakemono no Ko | The Boy and The Beast | Мальчик и Зверь [2015, MV]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872965.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872858.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870818.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ D4DJ First Mix | Первый микс [2020, TV, 13 из 13] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869790.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ore, Tsushima | Я — Цусима [2021, TV, 12 эп.] WebRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869218.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Bakuman. 3 / Бакуман [ТВ-3] [2012, TV, 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868881.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868614.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Moetan / Моэтан [2007, TV, 11 + 3SP] BDRip 1080p x265 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868225.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma | Ми-ми-ми-мишка [Т
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867883.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Medaka Box: Abnormal | Medaka Box 2 | Ящик предложений Мэдак
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863470.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Punch Line | Punchline | Вся суть в трусах | Изюминка [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860649.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859865.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Strike the Blood IV | Удар крови [OVA-4] [2020, OVA, 12 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859288.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Bokutachi no Remake | Remake Our Life! | Ремейк нашей жизни [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859235.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Vinland Saga | Сага о Винланде [2019, TV, 24 из 24] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858473.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Beck: Mongolian Chop Squad / Бек [2004, TV, 26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857860.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Gen'ei o Kakeru Taiyou | Day Break Illusion | Солнце, пронзающее
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856768.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854795.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Koutetsujou no Kabaneri / Kabaneri of the Iron Fortress / Кабанери же�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854700.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Kurozuka | Куродзука [2008, TV, 12 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854380.jpg" />
 </div>
 
 

@@ -1,3 +1,108 @@
+###  Публикация: 1260023   (314014) от 06.11.2018
+
+NGW: Дикая природа Перу: арена боев – Анды. Дикое побережье Перу. / Wild Peru: Andes Battleground (2018) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует три Перу: одна часть представляет собой дождевые леса, другая - предгорья Анд, а третья - пустынное побережье Тихого океана. В течение двух часов вы познакомитесь со всеми этими такими различными средами обитания.
+Перу - это страна разительных контрастов. Несмотря на то, что ливневые леса занимают более половины территории страны, на западе господствует (   Читать дальше...   )Производство: Новая Зеландия, Natural History New Zealand, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3942291BC90FE6A517414B747F7686F703BCF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729209   (312524) от 01.12.2013
+
+NG: Международный аэропорт Дубай. Серия 5 / Ultimate Airport Dubai (2013) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менее 55 лет назад на месте Международного аэропорта Дубая была огромная пустыня. Но сегодня это мекка международных воздушных перевозок. Это третий по загруженности аэропорт в мире для пассажиров международных рейсов, он принимает 344 000 рейсов, 57 млн. пассажиров и 2000 тысяч тонн грузов в год. Канал National Geographic покажет закулисную жизнь трех международных (   Читать дальше...   )Жанр: Документальный, научно-познавательныйПеревод: Одноголосый закадровыйПродолжительность: ~ 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947A19C9EB2DF8DD77D5752299020529343B79A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260524   (311832) от 07.11.2018
+
+NG. Открытие потерянной могилы Ирода / Uncovering Herod's Lost Tomb (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирод Великий, царь священной земли, правивший во времена Христа, известен больше всего благодаря так называемому "избиению младенцев", - описанному в евангелии от Матфея убийству младенцев мужского пола в Вифлееме. Однако кровавая репутация Ирода всегда скрывала другую сторону этого одного из самых известных библейских злодеев. Он был также архитектурным (   Читать дальше...   )Производство: США, National Geographic TelevisionЖанр: Документальный, исследование, историяРежиссер: Джеймс БарратПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951F216581E7C46A8BCF33B77276806460E356AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076749   (311531) от 26.11.2016
+
+Затопление «Бельграно» / The Sinking of the Belgrano (2003) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311531.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 мая 1982 в холодных водах Южной Атлантики произошло жестокое столкновение военных интересов двух держав: Великобритании и Аргентины. В результате борьбы за Фолклендские острова здесь произошла катастрофа, сравнимая с гибелью «Титаника». Английская подлодка выпустила торпеду, и гордость аргентинского флота крейсер «Генерал Бельграно» за считанные минуты ушел под (   Читать дальше...   )Телекомпания: Великобритания, National GeographicЖанр: Документальный, ИсторияПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B14431FE04EC23A34A07A770DEDD98A28BDCD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332891   (309311) от 22.10.2019
 
 NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +111,7 @@ NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309311.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309118.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308809.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NGW: Африканская суперзмея / Africa's Super Snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307504.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NG. Скрытые тайны городов: Баку / Hidden Cities Revealed:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305345.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NGW:Дикая Ботсвана: Братство львов / Wild Botswana: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303268.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ NGW: Тайна Морского Дьявола / Manta Mystery (2011) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303149.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ NG. Экспедиция на Марс / Expedition Mars (2016) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302068.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298671.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ NG: Из истории Второй мировой войны. Гражданс
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298670.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ NGW: Дикая природа Перу: арена боев – Анды. До�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298602.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ NGW. Голый землекоп: Самый странный супергеро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298593.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ NG. Космический шаттл: триумф и трагедия / The Sp
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296779.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ NG: Широкий взгляд с Кэлом Пенном / The Big Picture wit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295474.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294686.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ NG: Дикий Йеллоустоун: Волчица /  Wild Yellowstone: She W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292642.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ NG: Международный аэропорт Дубай. Серия 6 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291623.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ NG: Международный аэропорт Дубай. Серия 7 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291454.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ NG: Возмездие / Avenging Evil (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289613.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ NG: Международный аэропорт Дубай. Серия 1 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288719.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ NG: Международный аэропорт Дубай. Серия 9 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287937.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ NG: Международный аэропорт Дубай. Серия 8 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287344.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ NG: Международный аэропорт Дубай. Серия 8 / Ultim
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0555B97A91230DF09E58D29D24C9D45D9FEB630F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263813   (286130) от 20.11.2018
-
-NGW: TerraMater. Дикая природа Уганды / Wild Uganda (2018) HDTV [H.264/1080i-LQ] (сезон 1, эпизод 268)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286130.jpg" />
-</div>
-
-
-###  Подробнее
-
-После многих лет браконьерства и гражданских войн национальные парки Уганды удалось восстановить, и в них в настоящее время процветает дикий животный мир. Это настоящий триумф выживания.Производство: США, Cosmos Factory, NDR Naturfilm, National Geographic Channel, Studio Hamburg DocLights, Terra Mater Factual StudiosЖанр: Документальный, природа, флора, фаунаРежиссер: Харальд ПокисерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF57BB81088FFF7430D8BEA7FEA10369820CFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264301   (280993) от 23.11.2018
-
-NG. Ледяная дорога: Кошмар на дороге! / Ice Road Rescue: Highway Havoc (2018) DVB (серии 1-2 из ?) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280993.jpg" />
-</div>
-
-
-###  Подробнее
-
-О героических буднях группы спасателей, вытаскивающих на своих тягачах попавшие в аварию автомобили. Когда в Норвегии наступает зима, дороги превращаются в опасные бобслейные трассы.Производство: Норвегия, ITV Studios Norway, National GeographicЖанр: Документальный, приключенияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CCDD88EAFC3170F1282FFE9324E77A7DC276CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264623   (279455) от 24.11.2018
-
-NGW. Выжить в дикой природе / Survive the Wild(2016) HDTV [H.264/1080i-LQ] (серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279455.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дикой природе у каждого животного своя собственная стратегия выживания. Атака и защита, коммуникация с другими животными и продление рода, охота и защита своей территории - для животных выжить в этом буйстве природы без такой стратегии практически невозможно. С помощью удивительных редких кадров и компьютерной графики вы познакомитесь с той тактикой, которую используют (   Читать дальше...   )Производство: США, Чехия, Big Media, KM Plus Media, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Макс Серио, Беттина ДальтонПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC12A942B52FD0993B5AEE0064386232D407033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159751   (276271) от 26.11.2018
-
-NG: Древние греки / The Greeks (2016) HDTVRip (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это были удивительные люди, рождённые белыми скалами и синем морем. Они изобрели демократию, отделили логику от разума, они передали глубочайшие душевные переживания в своих драмах, а совершенство человеческого тела - в спорте и искусствах. Греки - это люди, которые создали наш мир.Производство: США, National Geographic Studios & PBSЖанр: Документальный, историяРежиссер: Кэтрин ЕллозПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92345A253777ED850EA45A1AA7307AC78754EC4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

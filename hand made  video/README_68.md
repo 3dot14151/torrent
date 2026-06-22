@@ -1,3 +1,29 @@
+###  Публикация: 1181742   (321577) от 08.11.2017
+
+Люди Икс: Первый класс / X-Men: First Class (2011) HDRip [H.264] [Hand Made Extended Cut]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о том, как сформировались профессор Ксавьер и Магнито, о процессе основания школы профессора для детей-мутантов и, наконец, о том, что же произошло между двумя закадычными друзьями и почему они расстались.Производство: США, Великобритания / 20th Century Fox Film Corporation, Bad Hat Harry Productions, Donners' Company, Marv Films, Marvel Enterprises, Marvel Studios Inc., Translux, Vivid White ProductionsЖанр: Боевик, Приключения, ФантастикаРежиссер: Мэттью ВонАктеры: Джеймс МакЭвой, Лоуренс Белчер, Майкл Фассбендер, Билл Милнер, Кевин Бейкон, Роуз Бирн, Дженнифер Лоуренс, Бет Годдар, Морган Лили, Оливер ПлаттПеревод: Дублированный с вставками любительского псевдо-дубляжа ''Dars Group''Субтитры: ОтсутствуютПродолжительность: 02:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4303011F77A1473E390DA0EBC405F81CC93CDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421468   (319456) от 04.11.2020
 
 Назад в будущее 2 / Back to the Future Part II (1989) HybridRip [H.264/720p-LQ] [Fullscreen]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319456.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_319302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319302.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316247.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315938.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Yesterday / Yesterday (2019) BDRip [H.264/1080p] [AVO] [hand made 16:9]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315874.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315408.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314824.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314808.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314726.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311660.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311582.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311405.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311380.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311019.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310861.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310857.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310856.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309925.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309799.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309444.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306641.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_306620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_306620.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306204.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305853.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303261.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE6156218DA1ABFD402DE995FDF78772DC05A2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183972   (303071) от 16.11.2017
-
-Sandra - Видеоколлекция от ALEXnROCK (2017) DVDRip
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303071.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли все клипы певицы. Видео взято с оригинального двд. Да прибудет с нами качественная музыка! Все лучшее для вас. ALEXnROCKЖанр: PopПродолжительность: 01:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8192D5D46A568405C0DC0F8965980485A14F474C
 ```
 
 https://mybot314.ru/tekegram_catalog/

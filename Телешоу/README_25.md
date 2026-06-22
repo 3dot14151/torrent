@@ -1,3 +1,29 @@
+###  Публикация: 917807   (589093) от 12.07.2015
+
+Пищевая революция. Помидоры (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие томаты продаются в столичных магазинах и рынках? Почему большинство из них безвкусные? Какие помидоры станут для вас лучшим лекарством, а какие способны испортить жизнь?Телекомпания: Москва 24Жанр: ТелепередачаПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B396B00E2F4DBD0E75D421596BEDDEBF7051C364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528626   (588781) от 18.05.2022
 
 На ножах (2021-2022) WEBRip [H.264/1080p] (сезон 7, выпуски 1-23 из 23)
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588781.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586826.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584561.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584524.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577085.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576431.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576302.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575481.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575475.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574506.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_567310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_567310.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563428.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561896.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561539.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559818.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558608.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558158.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556988.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556880.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553129.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553122.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552336.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552320.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552013.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551947.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00A746D004A119AA5FF51577E20B4BAF2C40A27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046535   (551177) от 28.08.2016
-
-Устами младенца (27.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551177.jpg" />
-</div>
-
-
-###  Подробнее
-
-На НТВ возвращается семейное интеллектуальное шоу «Устами младенца», которое поможет взрослым лучше узнать своих детей. Как и раньше, участники будут соревноваться между собой в угадывании слов. Вся сложность и комичность будет состоять в том, что понятия будут объяснять малыши, только начинающие познавать окружающий мир. Впервые программа «Устами младенца» вышла (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA88AF5D1F7DFC318F3E1CD638C698514DA2FFF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

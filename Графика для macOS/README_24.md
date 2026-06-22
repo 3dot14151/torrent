@@ -1,3 +1,57 @@
+###  Публикация: 1671614   (171250) от 25.10.2023
+
+Color Wheel 8.0 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 27.09.2023Разработчик: © 2023 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D0A099ED2996DB0B68D14D70660F4223B74DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671781   (171069) от 26.10.2023
+
+Retrobatch Pro 1.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибкая, супер заряженная, пакетная обработка изображений для вашего Mac.
+Процессор пакетных изображений на основе узлов означает, что вы можете смешивать, сочетать и комбинировать различные операции вместе, чтобы сделать идеальный рабочий процесс
+Конвертируйте PSD-файлы в HEIC, JPEG, PDF, PNG или TIFF.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2022Разработчик: © 2018 Flying Meat Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0822198AA0F54254B11302ECA2FD37DE10C8DE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671916   (170788) от 26.10.2023
 
 Video Copilot - Optical Flares 1.3.8 [En] + Presets
@@ -6,7 +60,7 @@ Video Copilot - Optical Flares 1.3.8 [En] + Presets
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170788.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ InPixio Photo Studio Pro 10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170590.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Picture Collage Maker 3 v3.7.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170389.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Luminar Neo 1.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170218.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ WidsMob AI Retoucher for Mac 3.17 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170207.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ Picture Instruments Mask Integrator 2.0.10 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169491.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ Affinity Designer 2 v.2.0.3. beta [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169298.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ Affinity Photo 2 v.2.0.3 beta [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169289.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ Affinity Publisher 2 v.2.0.3 beta [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169281.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ ON1 Sky Swap AI 2023.5 v.17.5.1.140051 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168951.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ XnViewMP for Mac 0.99.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168520.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ Corel Painter 2020 + Corel Premium Brush Packs v20.1.0.285 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168492.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ Overlay 3.82 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168388.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ CorelCAD 2023 v2022.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168079.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ dBpoweramp Image Converter 3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167908.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ SILKYPIX Developer Studio 11.1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167575.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ Vector Cliparts 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167505.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ Iconize for Mac 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166410.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ GIFfun - Video,Photos to GIF 9.8.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166387.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ ApolloOne - Photo Video Viewer 3.1.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166252.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ iWatermark Pro – Mac Batch Watermarking App 2.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166185.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ Hallmark Card Studio for Mac 22.0.07 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165464.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ Posterino 3 v.3.11.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165199.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.16.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165180.jpg" />
 </div>
 
 
@@ -627,59 +681,6 @@ SILKYPIX Developer Studio Pro — мощная программа, котора�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07F932C0D21990878645AF39850F270774C49F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673386   (164718) от 01.11.2023
-
-CorelDRAW Graphics Suite 2023 for Mac v.24.4.0.636 Intel/ARM [Multi/Ru]
-
->>След.
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164718.jpg" />
-</div>
-
-
-###  Подробнее
-
-CorelDRAW Graphics Suite 2023 — новейшее и самое передовое программное обеспечение для графического дизайна. В состав пакета входят все признанные в индустрии инструменты, представленные в CorelDRAW Graphics Suite, а также множество других функций. Забудьте о набросках на бумаге и сканировании рисунков! Замечательный новый инструмент LiveSketch™ позволяет мгновенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2023Разработчик: © 2023 Corel CorporationПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D610A9DE237FF706DB8554836605306D0506338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673760   (164556) от 02.11.2023
-
-CollageIt 3 Pro v.3.6.12 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164556.jpg" />
-</div>
-
-
-###  Подробнее
-
-CollageIt Pro - простое в использование приложение, которое поможет вам создать потрясающие коллажи на macOS X. Всего за пару минут ваша коллекция фотографий превратится во впечатляющий набор фотоколлажей. Используйте шаблоны, добавляйте текст, тени и различные эффекты для создания оригинального коллажа, и делитесь своими работа с друзьями в facebook.
-CollageIt умеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 2023 PearlMountain Technology Co., Ltd.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2614BB01E641C390FEB50E596A0952D55397E51
 ```
 
 https://mybot314.ru/tekegram_catalog/

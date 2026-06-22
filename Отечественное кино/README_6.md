@@ -1,3 +1,82 @@
+###  Публикация: 1438182   (1041021) от 08.01.2021
+
+Утомленные солнцем / Soleil trompeur / Burnt by the Sun (1994) DVDRip [H.264] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнечный летний день 1936 года. Молодая страна, полная энтузиазма, празднует 4-ю годовщину сталинского дирижаблестроения. Легендарный комдив Котов и его большая шумная семья отдыхают на даче. В старом доме собралась тьма народу: жена-красавица, непоседа-дочь, тесть — известный русский дирижер, родственники и друзья, домработницы и соседи.
+Веселье бьет через край, (   Читать дальше...   )Производство: Россия, Франция / студия "ТриТэ", компания Camera OneЖанр: Драма, военный, историяРежиссер: Никита МихалковАктеры: Олег Меньшиков, Никита Михалков, Ингеборга Дапкунайте, Надежда Михалкова, Андре Умански, Вячеслав Тихонов, Светлана Крючкова, Владимир Ильин, Алла Казанская, Нина АрхиповаЯзык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 02:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8365938E7E5989AF631E1702F445D3A90962D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438416   (1040985) от 08.01.2021
+
+Вратарь Галактики (2020) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040985.jpg" />
+</div>
+
+
+###  Подробнее
+
+2071 год. Галактические войны разрушили Луну и изменили климат на Земле. Москва – в тропических лесах, а Нью-Йорк покрылся льдом. Над Москвой возвышается огромный инопланетный корабль – это стадион, на котором проходят зрелищные межгалактические соревнования по космоболу — игре, объединившей в себе спорт и гладиаторские бои. За матчами следит вся галактика. Играть (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», Бонанза Студио, Кинокомпания CTBЖанр: Приключения, фантастикаРежиссер: Джаник ФайзиевАктеры: Евгений Романцов, Мария Лисовая, Виктория Агалакова, Иван Иванович, Елизавета Тайченачева, Евгений Миронов, Юлия Винс, Христина Блохина, Валерия Букина, Станислав РогачевПеревод: Не требуется (русский) лицензияСубтитры: ОтсутствуютПродолжительность: 01:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F054D68C19C433B7D712DA7395837E67FD365DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438308   (1040984) от 08.01.2021
+
+На острие (2020) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая саблистка мира, Александра Покровская, знаменита, богата и счастлива. Чтобы войти в историю, ей остается сделать последний шаг – взять олимпийское золото. Но путь ей преграждает девятнадцатилетняя Кира Егорова, девушка из провинции, в одночасье покорившая Москву. Кира побеждает на всех соревнованиях и не сходит с обложек глянцевых журналов. Ее цель – занять (   Читать дальше...   )Производство: Россия / ТелестоЖанр: Драма, спортРежиссер: Эдуард БордуковАктеры: Светлана Ходченкова, Стася Милославская, Сергей Пускепалис, Алексей Барабаш, Евгений Сытый, Софья Эрнст, Хильда Кармен, Кирилл Дегтярь, Павел Колобков, Мария КиселеваПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8436798C52961163FDB3129AAEC8FAB3CC687E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438618   (1040777) от 09.01.2021
 
 Страна глухих (1998) DVDRip [H.264] [PR]
@@ -6,7 +85,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040777.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040766.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040713.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040702.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040457.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040255.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040237.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040210.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040098.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039489.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039471.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038917.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038790.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038786.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038701.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038478.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038397.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038309.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038183.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038145.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038138.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038135.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037969.jpg" />
 </div>
 
 
@@ -590,86 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A11D1B582380FF0CA8A6AD1513ECAAB0F2CBB23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441139   (1037946) от 20.01.2021
-
-Лялин дом (2020) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм Лялин дом, снятый по одноименному рассказу Людмилы Улицкой, повествует об истории, которая произошла в профессорской семье в семидесятые годы 20 века в Москве. Сложные взаимоотношения между мамой, дочкой и отцом, приводят к конфликту, в котором неожиданное появления молодого человека, разрешат его не в пользу старшего поколения. Может ли возникнуть глубокое (   Читать дальше...   )Производство: Россия / Gold MediumЖанр: Короткометражный, драма, экранизацияРежиссер: Оксана ДегтяреваАктеры: Екатерина Гусева, Арина Семёнова, Владимир Яворский, Сухраб Хайлобеков, Егор СазыкинСубтитры: ОтсутствуютПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3100CD9465EE7BD2A8A79D8F4362F154F1193342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441164   (1037944) от 20.01.2021
-
-Фоторобот Евы (2020) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по рассказу Сергея Шаргунова.
-Молодая пара, отношения которой строились на взаимном доверии, переживает не лучшие времена. Странный женский голос начинает преследовать Дашу, героиню фильма. Чаще всего, дама на другом конце трубки интересуется ее мужем. SMS с именем Ева, появляются и на мобильном телефоне мужа…Производство: Россия / Gold MediumЖанр: Короткометражный, драмаРежиссер: Евгения ШевченкоАктеры: Дарья Жовнер, Роман Евдокимов, Даниил Воробьев, Анастасия Теплинская, Светлана ЛаккайСубтитры: ОтсутствуютПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED3EA22AA35F1653362C9BC35C3A69847BF6EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441165   (1037936) от 20.01.2021
-
-Фоторобот Евы (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по рассказу Сергея Шаргунова.
-Молодая пара, отношения которой строились на взаимном доверии, переживает не лучшие времена. Странный женский голос начинает преследовать Дашу, героиню фильма. Чаще всего, дама на другом конце трубки интересуется ее мужем. SMS с именем Ева, появляются и на мобильном телефоне мужа…Производство: Россия / Gold MediumЖанр: Короткометражный, драмаРежиссер: Евгения ШевченкоАктеры: Дарья Жовнер, Роман Евдокимов, Даниил Воробьев, Анастасия Теплинская, Светлана ЛаккайСубтитры: ОтсутствуютПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BD805C3576CBD264636E98775BCB5B5E46ECC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1455878   (1025486) от 20.03.2021
+
+Paradise Lost - Gothic Live at Roadburn (2016) 2021 [MP3|320 Kbps] <Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desolate - Gothic [00:06:43]
+02. Dead Emotion [00:04:42]
+03. Shattered [00:04:36]
+04. Rapture [00:05:59](   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A3E977CC2FEE037E371EBEFAB5E62D4CAC3DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456737   (1024950) от 23.03.2021
+
+Reylobo - El Octavo Pecado (2021) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Final (00:01:23)
+02 - Los Olvidados (00:03:43)
+03 - La Jauria Humana (00:03:59)
+04 - Rebelion (00:03:47)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1561D3008C1023E2C13BEB7E9E001669C32C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456740   (1024949) от 23.03.2021
+
+Zarpa - El Loco (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fahrenhait (00:04:31)
+02 - El Heavy es Mi Destino (00:03:42)
+03 - Hermano del Rock (00:05:51)
+04 - El Loco (00:03:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0883B770694759464FF1D6C336F1F18E45C5B38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456616   (1024947) от 23.03.2021
+
+Forcefield - Saucer Separation (2021) [MP3|320 Kbps] <Progressive Metal, Power Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saucer Separation (05:44)
+ 02. Diluted to the Point of Evil (09:31)
+ 03. Scarifice (10:20)
+ 04. My Garambah (04:37)(   Читать дальше...   )Жанр: Progressive Metal, Power Metal, Thrash MetalПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C38EC798E8B25F9A0C29EC612CCB1B1C206A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456789   (1024913) от 23.03.2021
 
 Metalite - A Virtual World (2021) Japan Edition [MP3|320 Kbps] <Melodic Modern Metal. Female Vocal>
@@ -6,7 +122,7 @@ Metalite - A Virtual World (2021) Japan Edition [MP3|320 Kbps] <Melodic Modern M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024913.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Zarpa - Imperia (2021) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024786.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Liquid Tension Experiment - LTE3 (2021) [MP3|320 Kbps] <Instrumental Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024765.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Renacer - En Versiones Vol. 2 (2021) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024640.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Manntra - Monster Mind Consuming (2021) [MP3|320 Kbps] <Folk Metal, Industrial M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024435.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ghosts of Atlantis - 3.6.2.4 (2021) [MP3|320 Kbps] <Symphonic Gothic Metal, Melo
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024397.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Evilizers - Solar Quake (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024248.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Sotury - Andel Zkazy (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024084.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Spliffripper - Spliffripper (2021) [MP3|320 Kbps] <Doom, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024080.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Liquid Tension Experiment - LTE3 (2021) 2xCD,  Deluxe Edition [MP3|320 Kbps] <In
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024074.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Silent Winter - Empire of Sins (2021) [MP3|320 Kbps] <Power, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024070.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Sirenia - 10 Albums, 3 Singles (2002-2021) [MP3|320 Kbps] <Synpho-Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023832.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Servants To The Tide - Servants To The Tide (2021) [MP3|320 Kbps] <Epic Doom Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023790.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Secret Sphere - 11 Release (1999-2021) [MP3|320 Kbps] <Melodic Power, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023518.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Blaze Bayley - War Within Me (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022113.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Primal Fear (feat. Tarja) - I Will Be Gone (2021) EP [MP3|320 Kbps] <Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021800.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Cannibal Corpse - Violence Unimagined (2021) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021299.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Infinite & Divine - Silver Lining (2021) [MP3|320 Kbps] <Melodic Heavy Metal, Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021030.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Eleine (Madeleine Liljestam) - 4 Albums (2015-2020) [MP3|320 Kbps] <Symphonic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019326.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bad Absalom - Bad Absalom (2021) [MP3|320 Kbps] <Stoner Rock, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019169.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Profecia - Renacer (2021) [MP3|320 Kbps] <Heavy Meatal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018992.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Organic Reaction - Mysteries Of The Lost World (2021) [MP3|320 Kbps] <Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018655.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Organic Reaction - Mysteries Of The Lost World (2021) [MP3|320 Kbps] <Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1120BB11C211F32369C32A9FE8F0A497838BD3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466359   (1018645) от 29.04.2021
-
-Autumn Bride - Undying (2021) [MP3|320 Kbps] <Sympho Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Path [00:04:00]
-02 - Fear and Devotion [00:03:56]
-03 - Moonlit Waters [00:05:13]
-04 - Shadows [00:04:29](   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A60090C070E381343524D97EBB351414A2B8973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466348   (1018575) от 29.04.2021
-
-Gojira - Fortitude (2021) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Born For One Thing [00:04:20]
-02 - Amazonia [00:05:00]
-03 - Another World [00:04:24]
-04 - Hold On [00:05:30](   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF959BE4A491B7D7829DF60929F72DFC68DF72D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466380   (1018463) от 30.04.2021
-
-Poverty's No Crime - A Secret to Hide (2021) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Supernatural [00:08:01]
-02 - Hollow Phrases [00:06:15]
-03 - Flesh and Bone [00:07:08]
-04 - Grey to Green [00:08:46](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83F451EC6031D9017BEEB5BC610AE6E812B7812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466575   (1018461) от 30.04.2021
-
-Arched Fire - Remote Control (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hindsight 20_20 (00:23)
- 02. Back on Track (02:55)
- 03. Remote-Controlled End (02:53)
- 04. Crawling Down (04:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A096A3B9D2DA1D9122F92066E58220732163B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

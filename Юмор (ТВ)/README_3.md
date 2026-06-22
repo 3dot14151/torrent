@@ -1,3 +1,107 @@
+###  Публикация: 1601733   (1046375) от 01.01.2023
+
+Уральские пельмени. Визги шампанского (31.12.2022) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто ездит на рыбалку 1 января? Что делал Дмитрий Брекоткин в цирке? Как заправить все салаты, если купил только маленькую пачку майонеза? Новогодние вопросы и новогодние ответы в праздничном концерте «Визги шампанского» от Шоу  «Уральские Пельмени».Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377B5BC791530136B069D31F82A03EB18F12717B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602062   (1046189) от 04.01.2023
+
+Однажды в России (31.12.2022) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB197CF0B1E6E3302655FA64FA0B46C9913D3EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593921   (1046171) от 04.01.2023
+
+Это миниатюры (2022) WEBRip [H.264/1080p] (сезон 1, выпуски 1-9 из ??) (обновляемая)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046171.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Это миниатюры» Антон Шастун, Илья Макаров, Азамат Мусагалиев, Денис Дорохов, Яна Кошкина и другие известные комики объединятся в неожиданные дуэты или трио. В каждом выпуске они будут показывать номера, оценивать которые предстоит зрителям в зале. Обойти нужно не только соперников, но и приглашенных звезд. Чем больше зрительских голосов наберут комики, тем больше (   Читать дальше...   )Телекомпания: ТНТ4Жанр: ТВ-шоу, юморРежиссер: Анатолий ПереверзевПродолжительность: ~00:45:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FABAD0547FD57CB60BF328E5D87F96D9A2F805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582418   (1046167) от 04.01.2023
+
+Открытый микрофон (2022) WEBRip [H.264/1080p] (сезон 7, выпуск 1-19 из 19)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сезон стендап-шоу, в котором топовые комики страны выбирают лучших молодых стендаперов и учат их быть ещё круче. В конце сезона останется только один - самый смешной и запоминающийся. Он получит 3 миллиона рублей. Наставниками нового сезона станут Алексей Щербаков, Юлия Ахмедова, Нурлан Сабуров и Иван Абрамов. Шоу «Открытый микрофон» – это социальный лифт для (   Читать дальше...   )Телекомпания: ТНТ, Comedy Club ProductionЖанр: ТВ-шоу, ЮморРежиссер: Роман Новиков, Аким КарташовСубтитры: ОтсутствуютПродолжительность: ~00:45:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D112A4BC19A4361BC5D923B397AEFE6BB390F30D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604384   (1045352) от 13.01.2023
 
 Уральские пельмени. Салютологи (2023.01.13) SATRip
@@ -6,7 +110,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045352.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045269.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045268.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045256.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045139.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044574.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044402.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043882.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043009.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043004.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042969.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042963.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042924.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042917.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042426.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038632.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036083.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035269.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035263.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034260.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032861.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032640.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2827A874857563A96DDA61979B33CC19E4A6764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447723   (1031610) от 14.02.2021
-
-Stand Up (31.01.2021) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 12)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров и др.Субтитры: ОтсутствуютПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1024C20111F3B747464614D898961EFAFAE0EFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447725   (1031599) от 14.02.2021
-
-Stand Up (07.02.2021) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 13)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров и др.Субтитры: ОтсутствуютПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E3B24592EA3D0BED79B195CBBB02E5FEB446B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447844   (1031335) от 15.02.2021
-
-Stand Up (14.02.2021) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 14)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров и др.Субтитры: ОтсутствуютПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A3E61F2952FBCDBA5215FF3B7FCF42F1B1F27A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447846   (1031294) от 15.02.2021
-
-Однажды в России (14.02.2021) WEB-DL [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8091020B412239FD9A9D76F2E82532646B8B1D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

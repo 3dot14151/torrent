@@ -1,3 +1,81 @@
+###  Публикация: 1022189   (728230) от 02.06.2016
+
+Прорубь / Bing he zhui xiong (Lost In White) (2016) WEBRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728230.jpg" />
+</div>
+
+
+###  Подробнее
+
+События фильма, происходят в северной части Китая, где в небольшой деревне, жители обнаружили в реке, два замерзших трупа. Расследование ведет инспектор Чжоу Пэн, который рассматривает это происшествие как умышленное убийство. В ту же деревню, прибывает инспектор из Шанхая Ван Хао, который ищет пропавшего человека, координаты которого, оборвались в этом месте. Позже (   Читать дальше...   )Производство: КитайЖанр: Криминал, БоевикРежиссер: Вэй СюАктеры: Тони Люн Ка-Фай, Тун Давэй, Чжоу Дунъюй, Дэн Цзяцзя, Вэй Чэнь, Цао ВэйюйПеревод: Любительский (одноголосый) | Franek MonkЯзык субтитров: Chinese, English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786D18CCA4D025EA73E91D448C2C112761C6E188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530762   (727728) от 12.02.2022
+
+Любовь на поводке / Moreolsenseu / Love and Leashes (2022) WEB-DLRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чон Чжи Ху – примерный офисный работник с идеальной внешностью, от которой его коллеги-женщины приходят в восторг. За этим безупречным фасадом он тщательно скрывает от других свои БДСМ-фантазии. Однажды он обнаруживает, что его коллега, возможно, потенциальная Госпожа. Они начинают медленно сближаться, узнают друг друга, и в конечном счёте, становятся неповторимой (   Читать дальше...   )Производство: Южная Корея, Netflix, See At FilmЖанр: Мелодрама, комедияРежиссер: Пак Хён ДжинАктеры: Со Хён, Ли Джун Ён, Ли Эль, Со Хён-у, Ким Хан-на, Ли Сок-хён, Ан Сын-гюн, Ким Бо РаПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 01:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009E280E028B1C2A6CEA2A8798F8B50911C000D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530643   (727276) от 12.02.2022
+
+Любовь на поводке / Moreolsenseu / Love and Leashes (2022) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чон Чжи Ху – примерный офисный работник с идеальной внешностью, от которой его коллеги-женщины приходят в восторг. За этим безупречным фасадом он тщательно скрывает от других свои БДСМ-фантазии. Однажды он обнаруживает, что его коллега, возможно, потенциальная Госпожа. Они начинают медленно сближаться, узнают друг друга, и в конечном счёте, становятся неповторимой (   Читать дальше...   )Производство: Южная Корея, Netflix, See At FilmЖанр: Мелодрама, комедияРежиссер: Пак Хён ДжинАктеры: Со Хён, Ли Джун Ён, Ли Эль, Со Хён-у, Ким Хан-на, Ли Сок-хён, Ан Сын-гюн, Ким Бо РаПеревод: Двуголосый любительский (АрхиAsia)Субтитры: отсутствуютПродолжительность: 01:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C4F3C6BE6E5A8A6E665FAFB4B137740E7CDE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 326142   (726893) от 20.04.2011
 
 Беспредел / The Outrage / Autoreiji (2010) BDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726893.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726841.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725351.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725069.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724569.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722603.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720279.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720165.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719719.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_717680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717680.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716993.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716853.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714731.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714643.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714636.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714524.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711012.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710695.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710443.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709734.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708984.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708935.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707054.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41189C1AF242CE0CB1F94958055DA9A08470203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401918   (705615) от 12.08.2020
-
-Шёпот сердец / Nian nian / Murmur of the Hearts (2015) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705615.jpg" />
-</div>
-
-
-###  Подробнее
-
-В оживленном мегаполисе живёт множество людей, каждого из которых преследуют тени прошлого. Талантливая художница Мэй забеременела от своего парня – боксера Сяна. Девушка не хочет рожать этого ребёнка из-за детской травмы. Когда ей было 11 лет, родители развелись и разделили её со старшим братом Малом. Девочка уехала жить в другой город, а мальчик остался с отцом. (   Читать дальше...   )Производство: Гонконг, Тайвань, Dream Creek, Red on Red ProductionsЖанр: ДрамаРежиссер: Сильвия ЧанАктеры: Изабелла Люн, Лоуренс Ко, Джозеф Чан, Анджелика Ли, Джулиан Чэнь, Джейсон Ван, Chia Hsiao-kuПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22FB866B1825103C54395C1C6936C8F24F0E2EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533485   (705163) от 24.02.2022
-
-Единство героев 2 / Huang Fei Hong: Nu hai xiong feng / Warriors of the Nation (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хуан Фейхун разрушил штаб-квартиру Общества Белого Лотоса в Гуанчжоу и захватил додзё Сумо Общества Канна, атаковал непосредственно базу штаб-квартиры Общества Канна и, наконец, спас Чжан Чжидуна, внеся большой вклад в антияпонскую войну по-своему.Производство: Китай, Taomeng PicturesЖанр: БоевикРежиссер: Марко МакАктеры: Винсент Чжао, Мия Муци, Ли Лубин, Кэнъя Савада, На ВэйПеревод: Многоголосый профессиональный (Матч! ТВ), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, английскиеПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0732F42663EE1D0F568CBFD79CB851067517EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894665   (705020) от 03.05.2015
-
-Бек / Beck: Mongolian Chop Squad (2010) DVDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация аниме Beck: Mongolian Chop Squad 2004 года. Фильм рассказывает историю школьника Юкио Тонаки, который еще не знает чего он хочет от жизни и чем ему заниматься. Однажды на его пути появляется Рюсукэ Минами - гитарист, мечтающий собрать лучшую рок-группу Японии. С этой судьбоносной встречи начинается становление молодой, но перспективной группы Beck.Производство: ЯпонияЖанр: Музыкальный, Комедия, ДрамаРежиссер: Цуцуми ЮкихикоАктеры: Мидзусима Хиро, Киритани Кэнта, Накамура АойПеревод: Одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 02:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28E509065EF19FE2206143CC94B018B7C6ABB24
 ```
 
 https://mybot314.ru/tekegram_catalog/

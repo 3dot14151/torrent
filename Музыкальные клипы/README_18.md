@@ -1,3 +1,55 @@
+###  Публикация: 682206   (626007) от 25.07.2013
+
+William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip 720p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626007.jpg" />
+</div>
+
+
+###  Подробнее
+
+William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (HD)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B198AF6FBEBE876527FFD9E4A2F3BCE48E29E324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521994   (624673) от 12.07.2012
+
+Сборник Советской Эстрады №3 (2011) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE4C67E60310F3F38423B7E80ABC788D0DE5CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682098   (624633) от 26.07.2013
 
 Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
@@ -6,7 +58,7 @@ Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624633.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624409.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624405.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624359.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624088.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620979.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620697.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620260.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Gia. Lights Out (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619227.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616473.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Girls' Generation (SNSD) - Music video collection. Part 1 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616151.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614320.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609434.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607502.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603798.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602399.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601321.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600129.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ VA - Летний марафон № 175 / Видеоклипы (Turbo Диск�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599965.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597094.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596035.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ The Sweet – Action (The Ultimate Story) (2015) DVDReMux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595606.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593352.jpg" />
 </div>
 
 
@@ -634,7 +686,7 @@ Melanie Martinez - Carousel (2014) MasterRip [ProRes/1080p] [10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590341.jpg" />
 </div>
 
 
@@ -645,64 +697,6 @@ Melanie Martinez - Carousel (2014) MasterRip [ProRes/1080p] [10-bit]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E09270F133AFA2D4E80ACB3E2A15F22D6C7989C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915335   (590321) от 09.07.2015
-
-VA - Летний марафон № 176 / Видеоклипы (Самые Новые Русские Треки) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (04.07.2015) поп. новинки русской эстрады.Не пропустите, держите новые треки.1. 4G - Прости меня, мама (ПРЕМЬЕРА!) (00:03:59)
-2. A.R.M.I.A - Другая (ПРЕМЬЕРА!) (00:03:32)
-3. Emin - На краю (ПРЕМЬЕРА!) (00:03:50)
-4. Karen ТУЗ ft. A-Sen - Закрой Глаза (Official Video) (00:02:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7845CCE47042B635FCAA3D8512C37423316C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917230   (588575) от 13.07.2015
-
-ВИА ГРА - Избранное (Видеография, лучшие хиты ''2000-2010'') (2015) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая подборка видео хитов за 2000 - 2010 годы.1. Попытка N5
-2. Обними меня
-3. Бомба
-4. Я не вернусь(   Читать дальше...   )Жанр: PopПродолжительность: 01:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF9FF16D8A9DEF49B9C0C04E3A2C2E4E8724A90
 ```
 
 https://mybot314.ru/tekegram_catalog/

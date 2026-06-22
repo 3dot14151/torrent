@@ -6,7 +6,7 @@ André (Andre) Manoukian - Les pianos de Gainsbourg (2021) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018827.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ V.A. - Super Soul Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018803.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Simply Swing (2012) Box Set, 10 CD [FLAC|Lossless|image + .cue] <Jazz, Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018592.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazzclub Highlihts: Night And Day (2010) Verve JazzClub, original recording
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018445.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Norah Jones - ‘Til We Meet Again (Live) (2021) Japan [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018441.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Diana Dors - Swingin' Dors (1960) 2012, Norma [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018304.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Stan Getz - Compact Jazz: Stan Getz with Strings (1992) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018303.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dave Frishberg & Jim Goodwin - Double Play (1993) Arbors Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018125.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bud Freeman - Swingin' With The Eel (1927 - 1945) 1998, ASV [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018119.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Verve JazzClub: I Love Jazz (2008) Box Set, 3 CD [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018093.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Threestyle - Perfect Combination (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018091.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Martial Solal - Solo Piano: Unreleased 1966 Los Angeles Sessions, Vol. 1 (2017) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017962.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stan Getz - The Sound of Jazz (1988) Cleo [FLAC|Lossless|tracks + .cue] <Cool, M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017774.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Chocolate Dandies - 1928-33 (1993) DRG Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017600.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mark Colby - Speaking Of Stan: A Tribute To Stan Getz (2005) Hallway Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017599.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Acker Bilk - Some Of My Favourite Things (1973) 1985, Precision Records & Tapes 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017596.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Terry Gibbs Dream Band - The Big Cat, Vol.5 (1961) 1991, Contemporary Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017587.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Billy May & Glen Gray - Big Band Stereo Hits (50-60-e) 2CD, 2012, TJL [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017288.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Acker Bilk - The Magic Clarinet Of Acker Bilk (1986) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017287.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Smooth Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017247.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bobby Hackett - 1938 - 1940 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016799.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Louis Armstrong - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016792.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Glenn Miller - 1935 - 1938 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016790.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Django Reinhardt - Guitar Genius (2000) [FLAC|Lossless|image + .cue] <Swing, Gyp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016783.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Stan Getz - 5 Original Albums (1955 - 1958) 5CD, 2016, Verve [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016698.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Goat’s Notes - Machine (2020) [FLAC|Lossless|image + .cue] <Free Jazz, Free Im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016466.jpg" />
 </div>
 
 

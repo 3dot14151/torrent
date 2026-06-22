@@ -1,3 +1,55 @@
+###  Публикация: 1533269   (706919) от 23.02.2022
+
+Свет Харуки / Haruka no Hikari (2021) HDTVRip [H.265/1080p-LQ] (сезон 1, серии 1-5 из 5) [JP / RU, JP Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дочь рыбака Харука, потерявшая дом и множество друзей во время сильнейшего землетрясения 11 марта 2011 года близ города Тохоку префектуры Мияги, прожив год во временном жилье, не захотела возвращаться обратно в родной город и уехала в Токио, где после долгих страданий и невзгод она устроилась на работу в магазин продающий свет, как тот что однажды спас её от погружения (   Читать дальше...   )Производство: Япония, NHKЖанр: повседневность, драмаРежиссер: Мацубара Хироси, Нагасава ЁсияАктеры: Куросима Юина, Фурутати Кандзи, Ямасита Ёриэ, Тамаки Сора, Огата Иссэй, Мидзума Рон, Адати Томомицу, Сиоми Сансэй, Ватанабэ Дайти, Утида ТикаПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно), Японские (ASS, SRT, отдельно)Продолжительность: серии по ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C1B32E739F9E6D3187350A891859E11F0AF0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 649467   (698183) от 27.06.2013
+
+Ганнибал / Hannibal [Сезон 1, полный] (2013) WEB-DLRip 720p, WEBRip 720p [EN]
+
+>>След.
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_698183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилл Грэхэм — одаренный профайлер, который вместе с ФБР разыскивает серийного убийцу. Уникальный способ мышления Грэма дает ему удивительную способность глубоко проникаться чувствами другого человека, даже психопата. Он может понять, что ими движет. Но когда ум преследуемого убийцы оказывается слишком сложным, он прибегает к помощи доктора Лектера, одного из ведущих (   Читать дальше...   )Жанр: Детектив, Криминал, ДрамаРежиссер: Дэвид Слэйд, Гильермо Наварро, Майкл РаймерАктеры: Мадс Миккельсен, Хью Дэнси, Каролин Давернас, Лара Жан Чоростецки, Аарон Абрамс, Лоренс Фишбёрн, Эттьенн Парк, Скотт Томпсон, Торианна Ли, Демор Барнс и др.Перевод: ОтсутствуетЯзык субтитров: Русские (Продолжительность: ~00:42:00 мин  серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025973   (696022) от 19.06.2016
 
 Сверхъестественное / Supernatural (2005-2015) BDRemux [H.264/1080p] (сезоны 1-10, дополнительные материалы) [EN / EN Sub]
@@ -6,7 +58,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696022.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694179.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689204.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687042.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_685756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_685756.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_678267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678267.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677757.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672927.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667914.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667913.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667496.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667405.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663053.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657672.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657468.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654043.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647085.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644353.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639070.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636672.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636540.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636536.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626224.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626159.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9161E93077BEFD9C19AE9F78D60DED98E4E7CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530888   (621696) от 27.07.2013
-
-Предчувствие / Восприятие / Perception (2012) HDTVRip (Сезон 1,  серии 1-10 из 10) [EN]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Дэниел Пирс — талантливый, но эксцентричный нейрофизиолог, которого пригласили в ФБР для оказания помощи в расследовании наиболее сложных дел. Доктор Пирс работает в тесном сотрудничестве с Кейт Моретти, бывшей студенткой, которая и завербовала его для работы с Бюро. Также в команде есть Макс Левиски — ассистент доктора Пирса и Натали Винсент — его лучший (   Читать дальше...   )Жанр: Триллер, Драма, ДетективРежиссер: Грег Биман, Кеннет Биллер, Крис МисианоАктеры: Эрик МакКормак, Рэйчел Ли Кук, Келли Роуэн, Эрджей Смит, Джонатан Скарф, Кристофер Чен, Лиза Бейнс, Джимми Беннетт, Бриджет Риган, ЛеВар БёртонПеревод: ОтсутствуетЯзык субтитров: Русские (НОТАБЕНОИД)Формат: MP4Продолжительность: 00:42:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910314   (621651) от 20.06.2015
-
-Скандал / Scandal (2015) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серия 21 из 22) [EN / EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия 21 - A Few Good Women
-Специалист по связям с общественностью Оливия Поуп, ранее работавшая на президента США, создает свое антикризисное агенство, цель которого — устранять проблемы высокопоставленных клиентов до того, как они станут всеобщим достоянием. Но если Вы посвящаете 24 часа в сутки решению проблем других людей, у Вас просто не будет времени, чтобы (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, детективРежиссер: Том Верика, Оливер Бокельберг, Эллисон Лидди, Стив Робин, Жанно Шварц, Рэндолл Зиск, Марк Тинкер, Тони Голдуин, Пол МакКрейн, Стивен КреггАктеры: Керри Вашингтон, Дэрби Стэнчфилд, Кэти Лоус, Гильермо Диас, Джефф Перри, Джошуа Малина, Беллами Янг, Тони Голдуин, Коламбус Шорт и др.Перевод: отсутствуетЯзык субтитров: английскийПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C2750E1AC4989DB24D9A21BDFE7C99CA71AC48
 ```
 
 https://mybot314.ru/tekegram_catalog/

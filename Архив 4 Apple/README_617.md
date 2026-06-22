@@ -1,3 +1,56 @@
+###  Публикация: 1673547   (164620) от 02.11.2023
+
+EdgeView 4.3.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164620.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179D90C810039F9C921CBF753092BDFDA3EF0408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516961   (164619) от 13.12.2021
+
+Jettison 1.8.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jettison - размонтирование внешних дисков перед сном Mac. macOS X имеет свою философию и некоторые вещи в системе происходят несколько иначе, чем в других ОС. К этому можно просто привыкнуть, но можно и упростить себе жизнь используя простые утилиты или приложения.
+«Думаю, всем знакомы надоедливые системные баннеры с уведомлением о том, что один из ваших дисков был (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 St. Clair SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D4F3D7638388BCA3EBA8A9872CF8B386B3F704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346324   (164618) от 18.12.2019
 
 CheckBook Pro 2.6.11 [En]
@@ -6,7 +59,7 @@ CheckBook Pro 2.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164618.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Codepoint for Mac 1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164615.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Network Kit 9.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164611.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ OmniReader Pro for Mac 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164609.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ DirEqual 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164607.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ ColorWell 7.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164603.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Aiseesoft Mac Blu-ray Player 6.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164599.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Cocktail Big Sur Edition 14.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164594.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Klokki 1.1.2 (build 28) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164591.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ FastScripts 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164586.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Magic Disk Cleaner 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164579.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ GoodNotes 5 v5.7.54 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164578.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Noir – Dark Mode for Safari 2023.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164573.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ PaintCode 3 v3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164571.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Stats 2.6.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164569.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ Mia for Gmail 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164566.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ BusyCal 2021.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164564.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ iPulse 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164563.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ Microsoft Office 2021 for Mac LTSC v16.68 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164560.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ Smultron 12.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164553.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ SideNotes 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164550.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Cookie 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164549.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ SSH Config Editor Pro 1.11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164544.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ Aiseesoft Mac Video Converter Ultimate 10.2.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164543.jpg" />
 </div>
 
 
@@ -629,60 +682,6 @@ Aiseesoft Mac Video Converter Ultimate - мощная программа для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09CFE0BC0FA6D4B00039533F06F81C8E8792504F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432379   (164541) от 17.12.2020
-
-Duplicate Photos Fixer Pro 2.20 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
-
-Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Японский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8808325EFB3A66D51DCF73EDA15B48BDB9D7E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432557   (164539) от 17.12.2020
-
-NCH WavePad Mater 11.45 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это программное обеспечение для редактирования аудио и является полнофункциональным, профессиональным редактором аудиофайлов. Это позволяет записывать и редактировать музыку, голосовые и другие аудиозаписи. При редактировании аудиофайлов вы можете вырезать, копировать и вставлять части записей, а затем добавлять эффекты, такие как эхо, усиление и шумоподавление. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD35A359D49B7C29B349DBB441D6AA0B0AD8725
 ```
 
 https://mybot314.ru/tekegram_catalog/

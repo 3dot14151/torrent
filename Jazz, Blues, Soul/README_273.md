@@ -1,32 +1,3 @@
-###  Публикация: 1241251   (521274) от 16.08.2018
-
-Andrew McCormack - First Light (2014) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prospect Park [4:11]
-02. Gotham Soul [7:26]
-03. Leap Of Faith [4:20]
-04. First Light [5:23](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC076B154FCC79EDA7D9982EFE8254334E9254C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560336   (520984) от 29.06.2022
 
 Adrian Cunningham & His Friends - Play Lerner & Loewe (2019) Arbors Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -35,7 +6,7 @@ Adrian Cunningham & His Friends - Play Lerner & Loewe (2019) Arbors Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520984.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Buddy DeFranco - Mr. Lucky (1981) 1997, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520893.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ CeCe Gable - More Than A Song (2020) New York Jazz Project [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520884.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Lily Locksmith - Lily Locksmith (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520876.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Big Yuyu - Down South City (2022) [MP3|320 Kbps] <Blues Rock, Classic Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520810.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Pal Thowsen - Carnival (1981) Remastered, 2022, Norske Albumklassikere [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520750.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ David Benoit - A Midnight Rendezvous (2022) [FLAC|Lossless|tracks+.cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520739.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Charles Walker & the New York City Blues Band - Best Blues from the Apple (2022)
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520736.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Franz Koglmann - Orte Der Geometrie (1989) /hat ART/[APE|tracks+.cue]<Jazz, Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520640.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Dave Brubeck - The New Brubeck Quartet Live At Montreux (1977) /1989, Tomato/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520639.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Nat King Cole - The Trouble With Me Is You (1944) /1989, ORO/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520634.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Harlan Leonard - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520403.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Stax Records 50th Anniversary (2008) 3CD BoxSet [FLAC|Lossless]<Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520026.jpg" />
 </div>
 
 
@@ -418,7 +389,7 @@ V.A. - Jazz Ambient Del Mar (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519781.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ Chris Botti - 14 albums (1995-2009) [FLAC|Lossless] <Smooth Jazz, Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519652.jpg" />
 </div>
 
 
@@ -478,7 +449,7 @@ Stephan Kurmann Strings - Strings (1989) /TCB Records/[FLAC|tracks+.cue]<Jazz, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519615.jpg" />
 </div>
 
 
@@ -507,7 +478,7 @@ Lester Young - Neenah (1938-1959) 3CD /2014, Le Chant Du Monde/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519610.jpg" />
 </div>
 
 
@@ -536,7 +507,7 @@ Marcio Faraco - Cajueiro (2014) [FLAC|tracks]<Vocal Jazz, World Fusion, Bossa No
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519607.jpg" />
 </div>
 
 
@@ -565,7 +536,7 @@ Miroslav Vitous - Majesty Music (2015) 1976, Wounded Bird Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519449.jpg" />
 </div>
 
 
@@ -594,7 +565,7 @@ Grant Lyle - So There (2012) [FLAC|Lossless]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519316.jpg" />
 </div>
 
 
@@ -629,7 +600,7 @@ Hill Country Revue - H C R III (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519285.jpg" />
 </div>
 
 
@@ -658,7 +629,7 @@ Shakatak - In The Blue Zone (2019) Japan [FLAC|Lossless|image + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519279.jpg" />
 </div>
 
 
@@ -687,7 +658,7 @@ Annie Ross - Four Classic Albums Plus (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519183.jpg" />
 </div>
 
 
@@ -722,7 +693,7 @@ Cousin Joe - The Complete Recordings, Vol.1 (1945 - 1947) 1995, Blue Moon [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518874.jpg" />
 </div>
 
 
@@ -751,7 +722,7 @@ Simon McBride - The Fighter (2022) [FLAC|Lossless|image + .cue] <Blues Rock, Har
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518791.jpg" />
 </div>
 
 
@@ -765,6 +736,35 @@ Simon McBride - The Fighter (2022) [FLAC|Lossless|image + .cue] <Blues Rock, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C2B99BA8A5F11FA8C2EAA94D76A50596A5F6314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929609   (518524) от 20.08.2015
+
+Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Long As I Live [05:39]
+02. Love Come Back To Me [06:11]
+03. St. Louis Blues [11:25]
+04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
 ```
 
 https://mybot314.ru/tekegram_catalog/

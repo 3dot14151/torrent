@@ -1,3 +1,32 @@
+###  Публикация: 1411015   (429483) от 24.09.2020
+
+VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J. C. Aprile & His Orchestra / Feelings (04:14)
+02. Denny Wright / Try A Little Tenderness (02:59)
+03. Denny Wright / Fly Me To The Moon (02:57)
+04. Dick Abell / Minette (02:21)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F10C83EC4AE7FE4132907AB864FFFF07D065FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564122   (402794) от 23.10.2012
 
 Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
@@ -6,7 +35,7 @@ Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402794.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402789.jpg" />
 </div>
 
 
@@ -76,7 +105,7 @@ Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrume
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345182.jpg" />
 </div>
 
 
@@ -105,7 +134,7 @@ Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335562.jpg" />
 </div>
 
 
@@ -134,7 +163,7 @@ Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327551.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327503.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Elect
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325628.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323152.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321528.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_312450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_312450.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304158.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Sound
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303089.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299651.jpg" />
 </div>
 
 
@@ -396,7 +425,7 @@ Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hug
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ Various Artists - Наши песни - Песни Победы (2001) [APE|loss
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279028.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266983.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ I.E.M. (The Incredible Expanding Mindfuck) - Untitled (Complete IEM) - 2010 [FLA
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260875.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260148.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259588.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Subaudition - 2 albums (2006-2009) [APE/FLAC|Lossless] <Neofolk, Atmospheric Roc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257395.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Me
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257258.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neof
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256373.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chil
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255778.jpg" />
 </div>
 
 
@@ -717,7 +746,7 @@ VA - Cтаринные русские романсы. Золотая колле�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253475.jpg" />
 </div>
 
 
@@ -752,7 +781,7 @@ Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listenin
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252972.jpg" />
 </div>
 
 
@@ -768,35 +797,6 @@ Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listenin
 08. Cerisiers Roses Et Pommiers Blancs (2:28)
 09. She (Tous Les Visages De L'amour) (3:13)
 10. Parlez - Moi D'amour (2:41)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495112   (251227) от 11.05.2012
-
-Лидия Русланова - Поет Лидия Русланова (1996) [FLAC|Lossless]<Народная Песня>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Окрасился месяц багрянцем (2:58)
-02. Саратовские частушки (2:41)
-03. Коробейники (2:44)
-04. Липа вековая (4:37)(   Читать дальше...   )Жанр: Народная ПесняПродолжительность: 00:57:51
 
 ## Скачать торент
 ```bash

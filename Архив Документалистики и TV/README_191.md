@@ -1,3 +1,32 @@
+###  Публикация: 1234731   (567749) от 07.07.2018
+
+Футбол. Чемпионат Мира 2018. 1/4 Финала. Бразилия — Бельгия (06.07.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567749.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 июля 2018 года, пятница. 21:00 МСК
+21-й Чемпионат Мира по футболу 2018 года. Плей-офф.
+1/4 Финала. Бразилия — Бельгия
+Стадион: Казань Арена (Казань, Россия), 42873 зрителя (94 % при вместимости 45379)(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BAD2FD4A49428627E62CCF9898A741BBDE06AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234863   (567716) от 07.07.2018
 
 Футбол. Чемпионат Мира 2018. 1/4 Финала. Швеция — Англия (07.07.2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567716.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567692.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567663.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567620.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567613.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567610.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567605.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567602.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567599.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567598.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567585.jpg" />
 </div>
 
 
@@ -318,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567581.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567576.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ NG: Сигнал спасения - красный (сезон 1 серии 1-11
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_567526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_567526.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567471.jpg" />
 </div>
 
 
@@ -431,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567470.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567469.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567447.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567419.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567307.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567291.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567111.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566968.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ BBC. Horizon: Солнечные бури. Угроза планете Земл�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566792.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566789.jpg" />
 </div>
 
 
@@ -694,32 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E52C207EA591700CE751A5469389F498ADBD50FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907807   (566124) от 30.07.2015
-
-BBC: Великое железнодорожное путешествие по Европе / Great Continental Railway Journeys (2012-2013) HDTVRip [H.264/720p] (2 сезона из 3) (Обновляемая)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Портильо отправляется в увлекательное железнодорожное путешествие по Европе. На этот раз он неуклонно следует железнодорожному гиду 1913 года, созданному легендой британских железных дорог Джорджем Брэдшоу. Майкл оказывается в предвоенной Европе императоров и королей, эпохе великолепия и пышности. Благодаря железнодорожному гиду начала 20-го века туристы эдвардианской (   Читать дальше...   )Жанр: Документальный, видовой, историяПеревод: Одноголосый закадровый, профессиональный | SDI MediaПродолжительность: 10:49:34 (11 x ~00:59:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199F1B4771D18D6F29B01D7A7CD68F56A4729F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1362568   (947754) от 24.02.2020
+
+Репродукции картин - Dorotheum Collection - Old Master p.7 [JPG]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция «Dorotheum» - Old Master (Старые мастера).
+Доротеум (Dorotheum) - крупнейший и почтеннейший аукционный дом в немецко-говорящих странах. Основан в 1707 году Императором Иосифом I. Через 80 лет после его основания как «Венский ломбард для выдачи ссуд под заклад вещей» заведение переехало в бывший монастырь сестер-доротеек. Отсюда и пошло его сохранившееся (   Читать дальше...   )Формат: JPGРазрешение файлов: 1625x1650-8486x6692
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B751F32C9DFBC7D0B4DB0B62094916C9EA67D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362572   (947750) от 24.02.2020
 
 Репродукции картин - Dorotheum Collection - Old Master p.4 [JPG]
@@ -6,7 +33,7 @@
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947750.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947022.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947007.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946999.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946996.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946991.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946986.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946915.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946907.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946904.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946903.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946901.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946899.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946809.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946803.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946798.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945594.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945465.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945012.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945003.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944938.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943795.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943743.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943562.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943518.jpg" />
 </div>
 
 
@@ -646,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1FD8FE3F2F672FB42B49D4C498CAA3FE373C8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983922   (942194) от 07.02.2016
-
-Обои - Сборник обоев. Цветы. Часть 8. 1920x1080 - 150 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая подборка качественных цветочных обоев для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CBF484656BA18077A44166C6EFA23E232C0428
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,220 @@
+###  Публикация: 1341130   (262874) от 26.11.2019
+
+Календарь 2020 от РОЗА123 №14 [PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь на 2020 год.Формат: PNGРазрешение файлов: 1920x1086
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238B87B758CDE5AC4FDF6FE0288B51641093187D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193631   (261895) от 22.12.2017
+
+Картинки - TeNeBrA Wallpapers October 08.2017 Pack.Nr.14 [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на различную тематику.
+1663штФормат: JPG, PNGРазрешение файлов: 1280x800-7680x4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A058B2EDA9C8C2491BD6BF90F6572630F40C2FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504169   (260187) от 01.06.2012
+
+[Wallpapers] Abstract HD Wallpapers (31.05.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C5FC85FAA5664E994F4B9B6712BDAD2C325787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503935   (260000) от 31.05.2012
+
+Картинки - Angels & Demons [JPEG,PNG,PSD,GIF]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки , с изображениями ангелиц , ангелочков , и им подобных.
+В одной из папок - анимированные изображения.
+
+Некоторые девчонки , вели себя очень - неприлично,
+и их назвали - дьяволицы , их изображения ,
+тоже положил в папочку ,   чтобы знали - в лицо,
+хотя и ангелицы , некоторые , ведут себя - не лучше
+Вообщем   :question:  ,  как девчонку не назови - поведение , лучше не становится.   :mrgreen:Разрешение файлов: max 5600х8500Формат: JPEG , PNG , PSD , GIF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557CECF3A526AD563498F7C471344FFC24CB3DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503419   (259707) от 30.05.2012
+
+Современное искусство - Виктория Франсез / Victoria Frances [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викто́рия Фра́нсез (англ. Victoria Frances) (р. 25 октября 1982 года) — испанская художница, фотомодель и писательница. Известна своими работами в готическом стиле.
+Свою карьеру художницы она начала с создания почтовых открыток и постеров, а в 2004 году вышла её первая книга «Favole», для которой она сама сделала иллюстрации. В течение 2000-х годов Франсес (   Читать дальше...   )Формат: JPGРазрешение файлов: 627x1200 - 1600x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9FD6955CA9B2E059D8DF8AEE1449E370317C878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501898   (258873) от 27.05.2012
+
+[Графика] Художник Okita: красочный аниме - арт (2012)
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художник Okita: красочный аниме - арт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA56DD0B13AB0E51249A6B1BDBCD560761E7ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501897   (258850) от 27.05.2012
+
+[Графика] Джейсон Чан (Jason Chan): разноплановый фентези-арт (2012)
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейсон Чан (Jason Chan): разноплановый фентези-арт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E5619961E1A7BDA73240DB5503C76923090195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502235   (258714) от 27.05.2012
+
+[Wallpapers]Tropical Wallpapers
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F49BC2D2BC02578C3AF3AC558208576378ACAE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501786   (258605) от 26.05.2012
 
 Репродукции картин - Художник Jose Miguel Roman Frances [JPG]
@@ -6,7 +223,7 @@
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258605.jpg" />
 </div>
 
 
@@ -32,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258540.jpg" />
 </div>
 
 
@@ -63,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258178.jpg" />
 </div>
 
 
@@ -93,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258138.jpg" />
 </div>
 
 
@@ -123,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258117.jpg" />
 </div>
 
 
@@ -149,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258076.jpg" />
 </div>
 
 
@@ -175,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257407.jpg" />
 </div>
 
 
@@ -205,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257266.jpg" />
 </div>
 
 
@@ -231,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257238.jpg" />
 </div>
 
 
@@ -257,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257229.jpg" />
 </div>
 
 
@@ -283,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257214.jpg" />
 </div>
 
 
@@ -309,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257182.jpg" />
 </div>
 
 
@@ -339,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257107.jpg" />
 </div>
 
 
@@ -369,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256941.jpg" />
 </div>
 
 
@@ -399,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256895.jpg" />
 </div>
 
 
@@ -425,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256361.jpg" />
 </div>
 
 
@@ -451,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253801.jpg" />
 </div>
 
 
@@ -477,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253762.jpg" />
 </div>
 
 
@@ -488,231 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F31441FC7A5E5A44997C71EEE9CA764473801AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497933   (253740) от 17.05.2012
-
-[Графика] Томаш Марек Жедрушек (Tomasz Marek Jedruszek) - фэнтези художник-иллюстратор (2012)
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томаш Марек Ендрушек (Tomasz Marek Jedruszek) - фэнтези художник-иллюстратор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2313DAD259DE762A1116FE8A420351BAD8D66D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497993   (253668) от 17.05.2012
-
-[Wallpapers] Hi-Tech Wallpapers (17.05.2012)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253668.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Hi-Tech Wallpapers (17.05.2012)
-Название: Hi-Tech Wallpapers (17.05.2012)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C171628097EDCA9824C006DD86EC61004760AE0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498018   (253665) от 17.05.2012
-
-[Wallpapers] Texture Desktop Wallpapers Pack 6
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253665.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Texture Desktop Wallpapers Pack 6
-Название: Texture Desktop Wallpapers Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3000х2000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD76935A3927E28348D5882763D16C8506CB4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498016   (253635) от 17.05.2012
-
-[Wallpapers] Minimalism Desktop Wallpapers (17.05.2012)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253635.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Minimalism Desktop Wallpapers (17.05.2012)
-Название: Minimalism Desktop Wallpapers (17.05.2012)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB2D168C26F7B3821A396FB92DDE29857D3BD55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496298   (252823) от 14.05.2012
-
-[Wallpapers] Best HD Wallpapers Pack (14.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9CC12D253A26A4ACBB46CD377A1317E1609DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496296   (252822) от 14.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (14.05.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B50B058EE5D224F0EE82D7965186B005FDF7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496528   (252821) от 14.05.2012
-
-[Wallpapers] Ford
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252821.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Ford
-Название: Ford
-Официальный сайт: www.netcarshow.com
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00  (до первых скачавших, перебои со связью бывают,зависит от провайдера)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E1C707B0C800E5EE0E05356AFEE3291D76A1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495753   (252656) от 13.05.2012
-
-[Графика] Фентези американского художника под ником Gamefan84 (2012)
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фентези американского художника под ником Gamefan84
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E50C960DCBC461F72CDF1AEBF5720AEF6D222C
 ```
 
 https://mybot314.ru/tekegram_catalog/

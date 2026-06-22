@@ -1,3 +1,55 @@
+###  Публикация: 1194237   (157586) от 24.12.2017
+
+Audirvana Plus 3.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2017Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BBADFDA72339EED28665D2D8BBEC6D4B93C84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346334   (157447) от 20.12.2019
+
+Project Hospital 1.1.17753 (2018) [Multi/Ru] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте выдающимся врачом, амбициозным архитектором и успешным менеджером одновременно. Спроектируйте собственную больницу, настроив все мелочи или использовав один из предустановленных вариантов, чтобы сразу приступить к лечению больных.Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: Oxymoron GamesПоддерживаемая ОС: macOS 10.11 и вышеЖанр: Стратегии, менеджментЯзык озвучки: Не требуетсяЯзык интерфейса: Русский, английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229CA66143D122E4682EEB27A5BAA45D85966D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433671   (157423) от 21.12.2020
 
 MacPilot 12 v12.0.7 [En]
@@ -6,7 +58,7 @@ MacPilot 12 v12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157423.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ MediaInfo 17.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157418.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ MacClean360 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157393.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Money Pro - Personal Finance 2.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157384.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ iA Writer 5.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157314.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ TG Pro (Temperature Gauge Pro) 2.54 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157175.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ Winclone Pro 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157118.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Permute 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157017.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Rhinoceros 7 v7.2.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157013.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ LogTail 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157010.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ Pastebot 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156964.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ Later - Create Quick Reminders With Presets 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156928.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ Sidify Apple Music Converter 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156917.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ iMazing 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156902.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ Downie 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156794.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ Kiwi for Gmail 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156777.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ Corporate Templates - Business Stationery 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156766.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ Butler 4.1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156726.jpg" />
 </div>
 
 
@@ -496,7 +548,7 @@ Pixelmator Pro 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156719.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ uDesktop NEXT - vast wallpaper collection 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156680.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Skip Tunes 3.2.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156658.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Bigasoft Total Video Converter 5.0.8.5809 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156651.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Color Finale Pro 2 v2.0.48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156649.jpg" />
 </div>
 
 
@@ -633,7 +685,7 @@ Usher 1.1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156645.jpg" />
 </div>
 
 
@@ -646,59 +698,6 @@ Usher - Отличное средство для создания и веден�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:025C4D06252009FF8ABED99B449F0AD1DAE3576A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518319   (156337) от 19.12.2021
-
-Tap Forms Organizer 5 v5.3.23 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tap Forms Organizer простое в использовании, абсолютно настраиваемое и очень мощное приложение. Tap Forms Organizer поможет вам отслеживать всю наиболее важную информацию вашей жизни. Tap Forms Organizer - настраиваемое приложение базы данных, оно разработано, чтобы удовлетворить Ваши уникальные потребности на работе, дома или в движении.
-Используйте Tap Forms Organizer (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 Tap Zapp Software Inc.Поддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648C0F4372106EDD4B69252CD170490C8E99C39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270528   (156336) от 19.12.2018
-
-Path Finder 8.3.7
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CocoatechПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4652FEC05FFAE61C6B89A497237DC0FE05C55A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

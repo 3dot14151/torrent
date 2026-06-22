@@ -1,3 +1,56 @@
+###  Публикация: 1415571   (341763) от 27.10.2020
+
+Плавучий дом / Houseboat (1958) HDTVRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очаровательная комедия о нью-йоркском адвокате, одиноком отце трех шаловливых детишек. Они решают, что им нужна мама, а папе жена, поэтому убеждают его взять младшенькому Чарльзу очаровательную итальянскую воспитательницу. Папа неожиданно влюбляется в красавицу, которая оказывается не простой девушкой, а дочерью известного итальянского дирижера.Производство: США / Paramount PicturesЖанр: Драма, мелодрама, комедия, семейныйРежиссер: Мелвилл ШэвелсонАктеры: Кэри Грант, Софи Лорен, Марта Хайер, Гарри Гуардино, Эдуардо Чианнелли, Мюррэй Хэмилтон, Мими Гибсон, Пол Петерсен, Чарльз Херберт, Мэдж КеннедиПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9504D757ACB673735D5E473858C393DE5DA3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178564   (341715) от 03.11.2017
+
+Укрощение строптивой / The Taming of the Shrew (1967) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация пьесы Уильяма Шекспира.
+Италия, XVI век. У богатого торговца две дочери на выданье. За младшей дочерью многие ухаживают, но по традиции ее не могут выдать замуж вперед старшей сестры. Охотников жениться на своенравной Катарине не находится. И вот в город приезжает незнакомец по имени Петруччио и решает во что бы то ни стало укротить строптивую девицу.Производство: Италия, США, Columbia Pictures CorporationЖанр: Комедия, Драма, МелодрамаРежиссер: Франко ДзеффиреллиАктеры: Элизабет Тейлор, Ричард Бёртон, Сирил Кьюсак, Майкл Хордерн, Альфред Линч, Алан Уэбб, Джанкарло Кобелли, Вернон Добчефф, Кен Парри, Энтони Гарднер, Наташа Пайн, Майкл Йорк, Виктор Спинетти, Рой ХолдерПеревод: Дублированный, профессиональный многоголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 02:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DC6C7BC8ED98186018786972CCB723659A5CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952481   (341419) от 07.11.2015
 
 Охотники за привидениями / Ghost Busters (1984) WEB-DL [H.265/2160p-LQ]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341419.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340527.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340338.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340011.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339952.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339511.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339495.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337280.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337042.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336931.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334926.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334924.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334918.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334327.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334171.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334119.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334112.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333380.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333341.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333207.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332700.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332399.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332056.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331530.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CA5BE507156FB09DD708170019718127E565444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841798   (329000) от 17.11.2014
-
-Кобра / Cobra (1986) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он - «Кобра» - штурмовой отряд полиции из одного человека, ему достаётся кровавая работёнка, за которую никто не хочет (или не осмеливается) взяться. Он выходит на след убийцы, за которым целая армия преступников-маньяков, стремящихся уничтожить свидетельницу их кровавой вакханалии. Но, к счастью, она попадает под защиту «Кобры».Жанр: Боевик, Триллер, КриминалРежиссер: Джордж Пан КосматосАктеры: Сильвестр Сталлоне, Бриджитт Нильсен, Рени Сантони, Эндрю Робинсон, Брайан Томпсон, Джон Херцфелд, Ли Гарлингтон, Арт ЛаФлёр, Марко Родригес, Росс Ст. ФиллипПеревод: Дублированный x2, Многоголосый x2, Авторский x5Язык субтитров: Русский, АнглийскийПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED62E9CCF8059A407FC4CCE98BF6FEA3CB80B509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956254   (328293) от 16.11.2015
-
-Час доблести / The Gallant Hours (1960) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полудокументальный фильм о пяти неделях из жизни контр-адмирала Уильяма Ф. Хэлси-младшего, от его назначения командующим американскими военно-морскими операциями в Южном Tихом океане до победы союзников у Гуадалканала.Производство: США, Cagney-Montgomery ProductionЖанр: Драма, Военный, БиографияРежиссер: Роберт МонтгомериАктеры: Джеймс Кэгни, Деннис Уивер, Уорд Костильо, Вон Тейлор, Ричард Джэкел, Лес Тремейн, Уолтер Сэнд, Карл Свенсон, Леон Лонток, Роберт БертонПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA42D74343C8173226F5DD75029E3EAADC8A6451
 ```
 
 https://mybot314.ru/tekegram_catalog/

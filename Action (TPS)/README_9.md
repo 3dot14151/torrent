@@ -1,3 +1,133 @@
+###  Публикация: 1098045   (911604) от 28.01.2017
+
+Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра четко следует сюжету первого эпизода фильма «Звездные Войны». На выбор представлено пять персонажей джедаев: Кви-Гон Джин, Оби-Ван Кеноби, Мэйс Винду, Пло Кун и Ади Галлия. У каждого из них есть свои уникальные способности, комбо и умения Силы, а понимание сильных и слабых сторон поможет вам пройти все 10 уровней без труда и победить злобного Дарта Маула.Тип издания: RepackРазработчик: LucasArtsЖанр: Action (Platformer), Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8ECA5E8B3B3A98713357787FEC4178F73EE5A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491204   (911507) от 24.08.2021
+
+Mad Max (2015) [Ru/Multi] (1.0.3/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте Безумным Максом, одиноким воином в диком постапокалиптическом мире, где ключ к выживанию - автомобиль. В этом мире, полном опасностей, действие происходит от третьего лица. Чтобы выжить в Пустоши, вы должны драться, участвуя в рукопашных и автомобильных боях против бандитских шаек. Макс - несгибаемый герой и отчаянный боец, единственное чего он хочет - оставить (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche StudiosЖанр: Action, Adventure, RPG, Third Person, RacingЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655DA1599016A74AE194BD928624AC4EAC030D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990999   (907316) от 27.02.2016
+
+The Town of Light (2016) [En/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907316.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 марта 1938 года, привычный, для 16-ти летней Рени, мир внезапно перестал существовать, сузившись до размера больничной палаты. Банальное незнание своего места в этом мире было ее единственной виной. "Опасна для самой себя, окружающих и причина вопиющего публичного скандала", пестрели заголовки газет. Жуткая, леденящая душу похлеще всяких призраков правда (   Читать дальше...   )Тип издания: LicenseРазработчик: LKA.itЖанр: Action, 3D, 1st PersonЯзык озвучки: Английский, Итальянский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBECC91B6EAA9AD2E1722C1D508FA32825E697F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991008   (907311) от 27.02.2016
+
+Manhunt (2004) [Ru/En] (25.02.2016) Repack R.G. Origami
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они просто убили Кэша. Сейчас они хотят убить его вновь. В Америке полно захолустных городков с развалившейся промышленностью, и то, что там происходит, не интересует никого. В Карцер-Сити уже ничего не имеет значения, и все, что здесь осталось - дешевые триллеры. Большой азарт - сила, дарующая жизнь и отнимающая ее забавы ради.Тип издания: RepackРазработчик: Rockstar NorthЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский (видеоролики), АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A95ED62768BD392F0B28B8BE504A4A22AB5BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098962   (905978) от 31.01.2017
+
+Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classics Collection]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры начинает свое повествование за сутки до событий Resident Evil 2. Под нашим контролем снова Джилл Валентайн - героиня первой части игры. Она не успела покинуть город из-за введенного карантина, в то время как остальные выжившие члены отряда S.T.A.R.S. уехали в Европу. Раккун всё больше и больше впадал в хаос. Джилл собрала вещи, взяла пистолет и вышла на (   Читать дальше...   )Тип издания: RepackРазработчик: Capcom EntertainmentЖанр: Survival Horror, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2AC0234820906EBAB5836AFB4B67C90324B313A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098895   (905965) от 31.01.2017
 
 Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) Repack YelloSOFT [Digital Deluxe Edition]
@@ -6,7 +136,7 @@ Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) Repack YelloSOFT [Digital Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905965.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Fortified (2016) [En] (1.0.5.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905532.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Metal Gear Solid (2000) [En] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904962.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904786.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Metal Gear (1987) [Multi] (1.0.cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903342.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903337.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903333.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903330.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.216/dlc) SteamRip =nemos= [Complete Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902893.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902643.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Death to Spies: Moment of Truth / Смерть шпионам: Момент ис
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902576.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Kane and Lynch: Dead Men / Kane & Lynch: Смертники (2007) [Ru/En] (1.0)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901796.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Banzai Escape (2016) [En/Jp] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900293.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Resident Evil 6 (2013) [Ru] (1.0.6.165/dlc) Portable PortGamPC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898458.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Better Late Than DEAD (2016) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896759.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.216/dlc) Repack xatab [Complete Edition] (�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896243.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Grand Theft Auto: Vice City [Ru] (L) 2003
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895278.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.1868/1.50) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894598.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Mecha Knights: Nightmare (2021) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893337.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Castlevania: Lords of Shadow (2013) [Ru/En] (1.0.2.9/upd2/dlc) Repack R.G. Ме�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890211.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Saints Row 2 (2009) [Ru/Multi] (1.2) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889808.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Saints Row 2 привносит настоящую свободу в игры с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA7DA8F42AE091EF5E46E2A7CC7CF3F8F210F8BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103153   (886715) от 11.02.2017
-
-Bloody Boobs (2017) [Ru/En] (1.0) License PLAZA
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, вы - молодая девушка с аппетитными формами; а это может означать лишь одно – вы идеальны для… принесения в жертву древнему божеству! Попробуйте выбраться из лабиринта с помощью ваших товарищей, избегайте ловушек и изгоните дьявольское отродье туда, откуда оно пришло.Тип издания: LicenseРазработчик: Eduard BulashovЖанр: Adventure (Horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEAC0FC10E0E734E1D632FBAF7EB940FECE177E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995555   (883811) от 11.03.2016
-
-Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/upd3/dlc) Repack xatab
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883811.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ryse: Son of Rome» рассказывает историю Мариуса Тита, молодого римского солдата, на глазах которого, от рук варваров, погибает вся его семья. После этого, мечтая о мести, он направляется с римской армии к Британии. Быстро добиваясь успехов, Мариус должен стать лидером войска и защитником Империи. Но вскоре он обнаруживает, что его планы по отомщению могут быть реализованы (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: Action (Slasher), 3D, 3d PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A036300DE815BFEECBC7F38BCFAFADF537F0CC9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996764   (878512) от 14.03.2016
-
-Global Ops: Commando Libya / Приказано уничтожить: Операция в Ливии (2011) [Ru] (1.1.0.0) Rip =nemos=
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878512.jpg" />
-</div>
-
-
-###  Подробнее
-
-История в игре начинается 21 января 1968 года, когда бомбардировщик B-52G с четырьмя термоядерными бомбами на борту терпит крушение в Арктике, недалеко от авиабазы Thule. Поисковой группе удается обнаружить три бомбы, но четвертая попадает в руки русской мафии. ЦРУ узнает, что босс русской мафии со странной для нашего уха фамилией Yebievdenko намерен продать атомную (   Читать дальше...   )Тип издания: RipРазработчик: Spectral GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91B74C60D9550D557A75C1B0015C2F6D02A18D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373823   (877972) от 07.04.2020
-
-Daemon X Machina (2020) [Multi] (1.0.1/dlc) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Луна обрушилась с небес на землю, человечество попыталось восстановить уничтоженный мир с помощью искусственного интеллекта. Но эта катастрофа оказалась лишь предвестником еще более ужасных событий: Бессмертные, разумные машины зла, перехватили управление ИИ и направили его против бывших хозяев. Надежда на светлое будущее сменилась жестокой битвой за выживание. (   Читать дальше...   )Тип издания: LicenseРазработчик: Marvelous Inc.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78900899E4290E742CF307BE51E15B05732C85EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871928   (876869) от 23.02.2015
-
-Call of Duty World at War (2008) [Ru/En] (1.7.1263) SteamRip Let'sРlay (only 64-bit)
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876869.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1944 году победа союзников уже не вызывает сомнений. Исход войны предрешен, но гитлеровцы и японские солдаты по-прежнему стоят насмерть. Последняя стадия великого противостояния приближается, и игрок окажется в эпицентре событий. Две напряженные и безумно затягивающие кампании пройдут на островах Тихого океана и на растерзанных артиллерией улицах Берлина. На атоллах (   Читать дальше...   )Тип издания: SteamRipРазработчик: TreyarchЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2CE6BA1609CEA2264ED415E61E9B876D2B05A8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

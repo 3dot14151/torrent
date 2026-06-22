@@ -1,3 +1,206 @@
+###  Публикация: 1061128   (450993) от 09.10.2016
+
+VA - Bar Jazz Great Voices Vol.1 (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450993.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gene Kelly - Singin'in the Rain 2:40
+2. Frank Sinatra - I Get a Kick out of You 2:54
+3. Sarah Vaughan - Summertime 3:17
+4. Louis Armstrong - C'est si bon 3:04(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A844CEF33F7801A36B201BA7B4F375947998CA03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247666   (450920) от 16.09.2018
+
+Ana Popovic - Like It On Top (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lasting Kind Of Love
+02. Like It On Top
+03. Sexy Tonight
+04. Slow Dance(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4890FE558F86DD5D05AA84EE325584AD3F732C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061089   (450610) от 09.10.2016
+
+Popa Chubby - The Catfish (2016) [MP3|320 Kbps] <Modern NY Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Downtown 05:42
+02. Good Thing 03:10
+03. Bye Bye Love 03:28
+04. Cry Till It's A Dull Ache 05:09(   Читать дальше...   )Жанр: Modern NY BluesПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101264482F69B429D130267D461CD11A34291A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061221   (450606) от 09.10.2016
+
+Russian Money - Nothing for You There (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исполнители просто позволяют музыке приходить и лишь пропускают ее через себя, оставаясь открытыми и восприимчивыми к тому, что происходит. И их музыка воспринимается как органичная часть существования, что приходит к нам из этой вселенной, в которой все мы - лишь временные гости, пришедшие сюда лишь поиграть какое-то время... И туда же уходит, но уже обогащенная, (   Читать дальше...   )01. One More Sinner
+02. My Oh My
+03. Money
+04. Brighter Days(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3B69FF8AC4AA77AB22883A98F05489612D88D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943398   (449692) от 03.10.2015
+
+Archie Shepp - Four for Trane (1964) /1997, MCA Records/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Syeeda's Song Flute [08:30]
+02.Mr. Syms [07:42]
+03.Cousin Mary [07:14]
+04.Naima [07:10](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A1514B9EB9D092DC377830DE8CE492B803133A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943413   (449691) от 03.10.2015
+
+Mildred Aubry - Caminho (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caminho (3:12)
+02. Amor Em Banho-Maria (3:06)
+03. Cancao Pra Voce (3:25)
+04. Filosofia (2:44)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF6B91077797110DCF2A426292E8EC08565E454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943107   (449689) от 03.10.2015
+
+Monique Dimattina - Everybody Loves Somebody (2015) [FLAC|tracks]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Really Want To Do (4:51)
+02. Baby Won't You Cook For Me (3:37)
+03. La Vie En Rose (4:00)
+04. Change It Up (4:44)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02B38A7DDE9C68ABD798417972FE74F34B2D8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943334   (449574) от 03.10.2015
 
 Matt Bianco - Sunshine Days (The Official Greatest Hits) (2010) [FLAC|Lossless]<Pop Jazz, Smooth Jazz, Bossanova>
@@ -6,7 +209,7 @@ Matt Bianco - Sunshine Days (The Official Greatest Hits) (2010) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449574.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ Sonny Thompson - Swings In Paris (1972) 2019, Solid Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449461.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Bar Jazz (2006) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449376.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ J.J. Johnson - First Place (1957) Remaster, 2015, Sony Music[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449297.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ The Dave Brubeck Trio - 24 Classic Original Recordings (1949, 1950) 1990, CD Med
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449187.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ Masabumi Kikuchi - One Way Traveller (1982) Remaster, 2016, Sony Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449169.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ Frank Strozier - The Fantastic Frank Strozier (1959,1960) 1997, Vee Jay[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449168.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ Aynsley Lister - Eyes Wide Open (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448999.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ Omar And The Howlers - The Screamin' Cat (2000) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448998.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Bar Jazz Vol.2 (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448921.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Cocktail Jazz (2008) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448911.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ Carlos Santana - Blues For Salvador (1987) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448870.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ Herbie Hancock - The Very Best Of (1991) [FLAC|Lossless|image + .cue] <Jazz-Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448867.jpg" />
 </div>
 
 
@@ -383,7 +586,7 @@ Edward Simon - Edward Simon (1995) Kokopelli Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448810.jpg" />
 </div>
 
 
@@ -412,7 +615,7 @@ Harold Lopez-Nussa - El Viaje (2016) Mack Avenue [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448809.jpg" />
 </div>
 
 
@@ -441,7 +644,7 @@ Don Elliott - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448808.jpg" />
 </div>
 
 
@@ -470,7 +673,7 @@ Felix Slovacek - A Jeho Beatles (1996) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448738.jpg" />
 </div>
 
 
@@ -499,7 +702,7 @@ Randy Brecker & Eliane Elias - Amanda (1985) Passport Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448583.jpg" />
 </div>
 
 
@@ -528,7 +731,7 @@ Artie Shaw - The Essential Artie Shaw (1938 - 1953) 2CD, 2005, RVG [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448571.jpg" />
 </div>
 
 
@@ -542,214 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7FBD2B2441D6BF1003432F8231566E3FA443D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163786   (448543) от 06.09.2017
-
-Peter Ward - Blues On My Shoulders (2017) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Took It All (03:09)
-02. Which Hazel (03:10)
-03. Blues On My Shoulders (03:17)
-04. Collaborate (04:56)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA2A93C83B237CC1F7C63D93F3ED26844F67C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163630   (448423) от 06.09.2017
-
-Eliane Elias, Bob Brookmeyer & The Danish Radio Jazz Orchestra - Play The Music Of Eliane Elias: Impulsive! (1997) 2000, Stunt Records [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Kiddin' [07:32]
-02. So In Love [08:42]
-03. Moments [09:13]
-04. The Time Is Now [11:48](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4247047771C8D96F15C65EE3A881946127F5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322367   (448414) от 29.08.2019
-
-Matthieu Bore - Sometimes On My Own (2010) Bonsai Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way You Look Tonight [1:58]
-02. Baby Face [2:43]
-03. Georgia on My Mind [3:37]
-04. But Not for Me [3:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E421E495BAA88215ABA575965F95AAFBB9C564D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268107   (447900) от 29.08.2019
-
-Roy Buchanan - 31 Albums (1971 - 2018) 41 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых оригинальных и эксцентричных электрогитаристов, использовавший в своём творчестве исключительно модель Telecaster. Рой Бьюкенен оставил след в разных жанрах американской музыки - от блюза до психоделии, его сверхэмоциональная игра, необычная техника, саморазрушительный образ жизни и добровольная смерть вошли в притчи. Несмотря на то, что его влияние (   Читать дальше...   )Список альбомов:
-Roy Buchanan, 1972, Polydor
-Second Album, 1973, Polydor
-That's What I Am Here For, 1974, PolydorЖанр: Blues, Electric BluesПродолжительность: 34:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF7EFCC088396B6E608AFC8AAC2832C00A14837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241951   (447854) от 07.10.2010
-
-Marcus Miller - A Night In Monte-Carlo (2010) [FLAC|Lossless]<Jazz, Funk, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_447854.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blast! (7:54)
-2. So What (7:35)
-3. State Of Mind (6:23)
-4. I Loves You Porgy (7:02)
-5. Amandla (8:36)
-6. I'm Glad There Is You (6:00)
-7. O Mio Babbino Caro / Mas Que Nada (7:12)
-8. Your Amazing Grace (6:53)
-9. Strange Fruit (5:52)Жанр: Jazz, Funk, FusionПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409280   (447486) от 16.09.2020
-
-Peter Parcek - Mississippi Suitcase (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Peter Parcek (Питер Парчек) — блюзовый гитарист из Бостона. Уникальный стиль «соул-гитары» Parcek сочетает в себе самое лучшее из блюза, как древнего, так и современного. Гитарные работы Parcek были сравнены с Бадди Гай, Эрик Клэптон и Питер Грин! "Ты так плох, как Эрик Клэптон и я знаю, Эрик Клэптон" заметил Бадди Гай.01. The World Is Upside Down (04:18)
- 02. Everybody Oughta Make a Change (05:30)
- 03. Beyond Here Lies Nothin (04:21)
- 04. The Supernatural (03:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2857A08AA851F0B1FD001678C7946FC14579B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409270   (447478) от 16.09.2020
-
-Eric Johanson - Below Sea Level (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buried Above Ground (03:25)
- 02. Down to the Bottom (03:46)
- 03. Changes the Universe (04:06)
- 04. Never Tomorrow (02:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1024DF67A17CE2FBCA1BF39382802AE1361EBE83
 ```
 
 https://mybot314.ru/tekegram_catalog/

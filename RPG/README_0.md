@@ -1,3 +1,107 @@
+###  Публикация: 1861741   (1062884) от 27.03.2026
+
+Lost Soul Aside (2025) [Ru/Multi] (1.101/dlc) Repack HardwareMining [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в эпическое путешествие и спасите свою младшую сестру - а также все человечество - от загадочных межпространственных захватчиков из других измерений в игре Lost Soul Aside. Бросьте вызов грозным врагам и боссам-исполинам в этом невероятно стильном ролевом боевике, сочетая разные виды оружия и зрелищные комбо-атаки в яростных динамичных сражениях. Осваивайте (   Читать дальше...   )Тип издания: RepackРазработчик: Ultizero GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Японский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E6F473D8D4F30C1CC1D57DAE88ED8A9C78B309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861883   (1062765) от 28.03.2026
+
+Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062765.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Last Epoch вас ждут путешествия во времени, захватывающие подземелья, увлекательная настройка персонажей и бесконечные возможности повторного прохождения. Эта игра в жанре «ролевой экшен» понравится как опытным игрокам, так и новичкам. Путешествуйте в прошлое мира Этерры, сталкиваясь с темными империями, гневными богами и девственными землями, найдите способ (   Читать дальше...   )Тип издания: RepackРазработчик: Eleventh Hour GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE18365FFA08EB918982F126437BB90C8BA3564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861362   (1062541) от 25.03.2026
+
+Solasta: Crown of the Magister (2020) [Ru/Multi] (1.5.97/dlc) Repack Let'sРlay [Complete Collection]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062541.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Solasta вы управляете четырьмя героями, каждый из которых владеет набором уникальных навыков, призванных дополнять друг друга. Каждый герой делится своими мыслями о происходящем во время приключeния, делая каждый свой выбор и каждое действие частью истории. Игроки создают своих персонажей так же, как и в настольной игре, выбирая расу, класс, характер и распределяя (   Читать дальше...   )Тип издания: RepackРазработчик: Tactical AdventuresЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DCDEA7709AE4B4D34D954C99688BA7672672B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861115   (1062319) от 24.03.2026
+
+Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack Other s [Digital Supporter Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте открытый мир вымышленного американского Среднего Запада и выживайте в его суровых условиях. Убедите других присоединиться к вам и управляйте постоянно растущими поселениями. Постройте дом с фермой и станьте легендой в Wild West Legacy. Подчините суровую природу. Выживите, противостоя стихиям. Постройте дом, организуйте хозяйство и убедите других поселенцев (   Читать дальше...   )Тип издания: RepackРазработчик: Moon Punch StudioЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4596AA2C47E2E20121BFC9755C1FED06195DB3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861103   (1062318) от 24.03.2026
 
 Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack FitGirl [Digital Supporter Edition]
@@ -6,7 +110,7 @@ Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack FitGirl [Digital Suppor
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062318.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Under The Island (2026) [Multi] 1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062083.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Dragon Quest I and II HD: 2D Remake (2025) [Multi] (1.0.2.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061708.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (3.0.91735/dlc) Repack Decepticon [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061644.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack FitGirl [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061592.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Escape from Ever After (2026) [Ru/Multi] (2.7.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060790.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Weird RPG 2 (2026) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060289.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Kingdom Come: Deliverance Dilogy (2018-2025) [Ru/Multi] (1.9.6-404-504czj3/1.5.4
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060137.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Avowed (2025) [Ru/Multi] (2.0.0.0/dlc) Repack HardwareMining [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060123.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.06) Repack HardwareMining
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059984.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Kingdoms And Slaves (2025) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059872.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.0) Repack FitGirl [Supporter Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059849.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Machine Tower 2984 (2026) [Ru/Multi] (1.0.2) Repack Let'sРlay [Supporter Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059784.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.03.2/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059751.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Ys X (10): Proud Nordics (2025) [Multi] (1.0.3r10/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059539.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Final Fantasy IV (4) (2014) [Ru/En] (1.0) License GOG [3D Remake]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058891.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Final Fantasy IX (9) (2016) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058890.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Final Fantasy VIII (8) - Remastered (2019) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058889.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Final Fantasy III (3) (2014) [Multi] (1.0) License GOG [3D Remake]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058861.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack dixen18 [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058663.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (1.2/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057970.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057862.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Tails of Iron – это приключенческая ролевая игра 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:776E52F9580C7D25155DE844A3F556180835C76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854562   (1057573) от 18.02.2026
-
-Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack Other s [Infernal Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика экшен-RPG в жанре мрачного фэнтези вернулась в обновленной версии: вас ждут новый класс, усовершенствования игрового процесса и переработанный контент на высоких уровнях. Сочетайте мощные умения и предметы, становитесь сильнее и побеждайте армии Преисподней в команде до 8 игроков.Тип издания: RepackРазработчик: Blizzard Entertainment, Inc.Жанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649422F3A729A585D99B00522012BAA864C80912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854565   (1057555) от 18.02.2026
-
-Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack FitGirl [Infernal Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика экшен-RPG в жанре мрачного фэнтези вернулась в обновленной версии: вас ждут новый класс, усовершенствования игрового процесса и переработанный контент на высоких уровнях. Сочетайте мощные умения и предметы, становитесь сильнее и побеждайте армии Преисподней в команде до 8 игроков.Тип издания: RepackРазработчик: Blizzard Entertainment, Inc.Жанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9A3B9DFC8E8EA6A19E2AAA0A15584B2CD7CEDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854572   (1057554) от 18.02.2026
-
-Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack seleZen [Infernal Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика экшен-RPG в жанре мрачного фэнтези вернулась в обновленной версии: вас ждут новый класс, усовершенствования игрового процесса и переработанный контент на высоких уровнях. Сочетайте мощные умения и предметы, становитесь сильнее и побеждайте армии Преисподней в команде до 8 игроков.Тип издания: RepackРазработчик: Blizzard Entertainment, Inc.Жанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB2BD64BEB30642792F249DA806A36F3EF247BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854326   (1057181) от 17.02.2026
-
-Diablo II: Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Scene Rune [Infernal Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика экшен-RPG в жанре мрачного фэнтези вернулась в обновленной версии: вас ждут новый класс, усовершенствования игрового процесса и переработанный контент на высоких уровнях. Сочетайте мощные умения и предметы, становитесь сильнее и побеждайте армии Преисподней в команде до 8 игроков.Тип издания: SceneРазработчик: Blizzard Entertainment, Inc.Жанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD6B1DA37B39E12D5BADFFF2AC41C08D6ADA738
 ```
 
 https://mybot314.ru/tekegram_catalog/

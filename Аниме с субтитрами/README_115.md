@@ -1,3 +1,29 @@
+###  Публикация: 1823578   (125843) от 11.10.2025
+
+Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спасатели 3 [1997, TV, 51 из 51] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сезон приключений героя горы Соукай - Вотару Икусабе. Он повзрослел на целый год (теперь ему 10) и его геройское сердце похищает очередной Лорд Тьмы - Даркедар. Пока наш разозлившийся герой занимается нагибаторством в родной школе, за ним из мира Соукай выслан отряд в количестве двух человек... Угадайте кто?! Конечно же вечно стебающая над всеми и всем (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, комедия, фэнтезиРежиссер: Иути СюдзиПеревод: Code Giass (Kogaji)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 51 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45B3208B29D3B6F74A643C373DB31836C27FBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823576   (125842) от 11.10.2025
 
 Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спасатели: История о бесконечном времени [1993, OVA, 3 из 3] BDRip 1080p HEVC 10-bit raw
@@ -6,7 +32,7 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125842.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125841.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125840.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125839.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125672.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125592.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125522.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Jujutsu Kaisen (2023) | Магическая битва [ТВ-2] [2023, TV, 23 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125134.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Tokyo Revengers: Tenjiku Hen | Tokyo Revengers: Tenjiku Arc | Токийские
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125115.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Pokemon Concierge | Покемон: Консьерж [2023, TV, 4 эп.] WEB-DL 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125080.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Hikikomari Kyuuketsuki no Monmon / The Vexations of a Shut-In Vampire Princess /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124607.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Aiyou de Mishi | Aiyou's Secret Room | Тень любви в тайной ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124298.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123944.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123939.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123166.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Minai | Rascal Does Not Dream of 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123146.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Burn the Witch #0.8: Don't Judge a Book by Its Cover | Сжечь ведьму (
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122785.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Jashin-chan Dropkick: Seikimatsu Hen | Дропкик злого духа (2023)
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122765.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121471.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121469.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Buta no Liver wa Kanetsu Shiro / Heat the Pig Liver / Разогревай св�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119063.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Shuumatsu no Walkure II | Record of Ragnarok II | Повесть о конце �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117819.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! | Мой «комплекс бр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117280.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Leve
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115914.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115913.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52640635C5BA485072B4F1DCBC95E0FC66DD3460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654297   (115912) от 24.02.2024
-
-Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини кафе-террасы [ТВ-1] [2023, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миура, Канагава. Хаято Касукабэ после поступления в Токийский университет, возвращается в родной город после смерти своей бабушки и собирается закрыть её убыточное кафе Familia. Там он обнаруживает, что в кафе работали пять девушек. Узнав, что они помогали и заботились о его бабушке, Хаято решает снова открыть кафе.Производство: студия Tezuka Productions / 手塚プロダクションЖанр: комедия, романтика, повседневность, эттиРежиссер: Кувабара СатосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3131B026EB35031FF2AD595287C08D55B500DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

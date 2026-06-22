@@ -1,3 +1,55 @@
+###  Публикация: 617533   (972200) от 12.02.2013
+
+DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, ElectroПродолжительность: 00:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC80442AFB4079A8340145E1619C7B8193473C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617279   (971758) от 12.02.2013
+
+Сборник видеоклипов / Clips (music video) HDTV-1080i
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов разных жанров в отличном качестве. :bou:Жанр: variousПеревод: ОтсутствуетПродолжительность: ~04:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD7921D1462ED81DADC119B6D724C233A5CED4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617213   (971741) от 12.02.2013
 
 Сборник видеоклипов / Clips (music video)1080i HDTV
@@ -6,7 +58,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971741.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Romantic Collection (Hits 1983-2001)TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971675.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971671.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ VA - Зимний марафон № 219: Самые сливки Нового �
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970575.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Babooshka (Александр Константинов) - 7 Music Videos (2019-2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969634.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969633.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969394.jpg" />
 </div>
 
 
@@ -202,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969258.jpg" />
 </div>
 
 
@@ -229,7 +281,7 @@ Tom Boxer & Morena - Las Vegus (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968794.jpg" />
 </div>
 
 
@@ -255,7 +307,7 @@ N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968675.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968530.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ Paramore -  Now (2013) [1080p] HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967734.jpg" />
 </div>
 
 
@@ -336,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967688.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
 </div>
 
 
@@ -440,7 +492,7 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964934.jpg" />
 </div>
 
 
@@ -498,7 +550,7 @@ BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964048.jpg" />
 </div>
 
 
@@ -524,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964011.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962993.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961654.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ VA - Зимний марафон № 221: Продвинутые Зимние Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960807.jpg" />
 </div>
 
 
@@ -640,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960469.jpg" />
 </div>
 
 
@@ -654,61 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BEA38059D829E2A862F34706F8C4776A9D62F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622299   (960464) от 22.02.2013
-
-"O2label"/Strannik (vol.1.) HDTV 720p (2013) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Blue
-02. An Universe Is In A Pocket
-03. Autumn
-04. Out Of Mirror(About Love)(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3ABF01FE6A40FB23B591A4E47EC9BB44CCA473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622058   (960319) от 22.02.2013
-
-Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectronicПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EDAF4941AC802103734A7644B8B967ACB6A44F
 ```
 
 https://mybot314.ru/tekegram_catalog/

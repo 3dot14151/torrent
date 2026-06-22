@@ -1,3 +1,36 @@
+###  Публикация: 798226   (669501) от 22.06.2014
+
+As/Hi Soundworks | Ash Blind | As/Hi - 20 альбомов (2006-2013) Touhou Instrumental /Doujin/ [FLAC|Lossless] <J-Rock, Piano Arrange>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2006.05.21 (ASHI-0001) Kouka Shouran ~RAPID ENSEMBLE~ (Reitaisai 3)
+2006.09.24 (ASHI-1001) RABBIT ENSEMBLE (Fuhai Komachi 2)
+2007.03.21 (ASHI-1003) Sore wa Yamikumo ni Moteasobareru Ayatsuri Ningyou no Gotoku (Fuhai Komachi 3)
+…
+2012.12.30 (AHCJ-0001) TRAVEL MAP (C83)
+2012.12.30 (AHCR-0001) Touhou Small Compilation for Piano Op.4 “Sakura Transgression” (C83)
+2013.08.12 (ASHI-0010) Sange Jousetsu ~Rapid Ensemble 5~ (C84)Тип издания: DoujinЖанр: J-Rock, Piano ArrangeФормат: Touhou InstrumentalПродолжительность: 00:15:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74526E2785302CE4176EDDE96ACE1718E630E09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510872   (668162) от 15.06.2012
 
 Mono - 9 albums (2001-2010) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient>
@@ -6,7 +39,7 @@ Mono - 9 albums (2001-2010) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_668162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668162.jpg" />
 </div>
 
 
@@ -40,7 +73,7 @@ Huang Hui - Singing Of Bamboos (2005) [APE|Lossless]<Chinese Instrumental>
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_667415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667415.jpg" />
 </div>
 
 
@@ -75,7 +108,7 @@ Butterfly Girls Band - Dancing Skirts in Flying Flowers (2009) [APE|Lossless]<Ch
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667334.jpg" />
 </div>
 
 
@@ -110,7 +143,7 @@ Chen Lei - The Song of King Yao (2009) [FLAC|Lossless]<Chinese Traditional Music
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_666125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666125.jpg" />
 </div>
 
 
@@ -143,7 +176,7 @@ VA - Chinese Zodiac Signs - A Music Carnival of Twelve Animals (2000) [APE|Lossl
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_666030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_666030.jpg" />
 </div>
 
 
@@ -178,7 +211,7 @@ Teruhisa Fukuda - Shakuhachi Kinko School (2003) [FLAC|Lossless]<Classical music
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663658.jpg" />
 </div>
 
 
@@ -209,7 +242,7 @@ Xiao Ying - The art of the Chinese harp (2004) [MP3|192-320 kbps]<folk, ethnic.i
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663532.jpg" />
 </div>
 
 
@@ -244,7 +277,7 @@ Zhao Jiazhen - Masterpieces of the Chinese Qin from the Tang Dynasty to Today (2
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662515.jpg" />
 </div>
 
 
@@ -279,7 +312,7 @@ Lee Hyo Lee - 4 albums + Single (2003-2010) [FLAC|Lossless]<K pop,dance,hip-hop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_661531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661531.jpg" />
 </div>
 
 
@@ -308,7 +341,7 @@ VA - Band Dream Garden I-III (2009) [MP3|320 кб/с]<Instrumental, Ethnic, New 
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659115.jpg" />
 </div>
 
 
@@ -343,7 +376,7 @@ SawanoHiroyuki[nZk] - 2 альбома + 7 синглов (2014-2018) (FLAC|trac
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656636.jpg" />
 </div>
 
 
@@ -372,7 +405,7 @@ Aimer - 6 альбомов + 11 синглов (2011-2018) [FLAC|Lossless|tracks
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656461.jpg" />
 </div>
 
 
@@ -401,7 +434,7 @@ Trident - 6 альбомов (2013-2016) [FLAC|Lossless|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655555.jpg" />
 </div>
 
 
@@ -430,7 +463,7 @@ GARNiDELiA — 4 альбома + 10 синглов (2014-2018) [FLAC|tracks] <J
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655453.jpg" />
 </div>
 
 
@@ -459,7 +492,7 @@ fhana - 3 альбома + 13 синглов (2013-2018) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655450.jpg" />
 </div>
 
 
@@ -488,7 +521,7 @@ ChouCho - 4 альбома + 9 синглов (2011-2018) [FLAC|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655445.jpg" />
 </div>
 
 
@@ -517,7 +550,7 @@ EGOIST - 2 альбома + 9 синглов (2011-2017) [FLAC|tracks] <J-Pop, J
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655439.jpg" />
 </div>
 
 
@@ -546,7 +579,7 @@ VA - Ma Tou Qin (2008) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651717.jpg" />
 </div>
 
 
@@ -581,7 +614,7 @@ Adrastea - The Ruins Of Reminiscence (2016) Japanese Edition [FLAC|Lossless|imag
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651255.jpg" />
 </div>
 
 
@@ -610,7 +643,7 @@ PHOENIX Project - 13 альбомов (2005-2014) [FLAC|Lossless] <Touhou, Instr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650413.jpg" />
 </div>
 
 
@@ -645,7 +678,7 @@ NJK Record - 7 альбомов (2008-2013) [FLAC|Lossless] <Touhou, Vocal, Inst
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648321.jpg" />
 </div>
 
 
@@ -680,7 +713,7 @@ James Galway - Song of the Seashore and Other Melodies of Japan (1979) [MP3|320 
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647497.jpg" />
 </div>
 
 
@@ -709,7 +742,7 @@ Camphor - 3 альбома (2009-2011) Touhou Instrumental /Doujin/ [FLAC|Lossle
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646575.jpg" />
 </div>
 
 
@@ -738,7 +771,7 @@ MinstreliX - Chronostrings (2014) [FLAC|Lossless|image + .cue] <Neoclassical Pow
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645564.jpg" />
 </div>
 
 
@@ -767,7 +800,7 @@ Minstrelix - Reflections (2009) [FLAC|Lossless|tracks + .cue] <Neoclassical Powe
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645563.jpg" />
 </div>
 
 
@@ -781,35 +814,6 @@ Minstrelix - Reflections (2009) [FLAC|Lossless|tracks + .cue] <Neoclassical Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7BB6248BE9DEC7261A80BAF53B5AA26BC563484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032325   (645561) от 07.07.2016
-
-MinstreliX - Tales Of Historia (2012) [FLAC|Lossless|image + .cue] <Neoclassical Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend Eve Origin (Instrumental)
-02. The Goddess "La Liberte Guidant Le Peuple"
-03. Gratia
-04. JDA(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 0:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4DA94B4B10CFAAB2ACEC812A174B4CDE6E1969
 ```
 
 https://mybot314.ru/tekegram_catalog/

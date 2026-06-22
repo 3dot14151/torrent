@@ -1,3 +1,29 @@
+###  Публикация: 1525160   (130174) от 19.01.2022
+
+Аттенборо и кладбище мамонтов / Attenborough and the Mammoth Graveyard (2021) HDTV [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэр Дэвид Аттенборо присоединяется к археологическим раскопкам, раскрывающим крупнейшую находку мамонта в Великобритании почти за 20 лет.Производство: ВеликобританияЖанр: ДокументальныйРежиссер: Jamie E. LochheadПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256A5C64BA4103D954D9D65DAB54FEA1CA1179B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525211   (130162) от 19.01.2022
 
 BBC. Аттенборо и Кладбище Мамонтов / Attenborough and the Mammoth Graveyard (2021) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130162.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130160.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130153.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129853.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129843.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC: Семь периодов жизни звезды / Seven Ages of Starlight
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116768.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) UHD BDRemux [H.265/21
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115147.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104030.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88912.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85308.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82023.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80184.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ BBC Horizon. Какой длины верёвка? / How long is a piece of stri
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63564.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63556.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC horizon. Как видеоигры влияют на нашу жизнь? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63544.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ BBC. Horizon. Как перестать тревожиться и стать с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63541.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63534.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC. Вена - столица империи / Vienna: Empire, Dynasty and Drea
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63470.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ BBC. Экспедиция в Бирму / Expedition Burma (2011) BDRemux [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63452.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ BBC. Эттенборо и морской дракон / Attenborough and the Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63449.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ BBC: 80 Лучших садов мира / Around the World in 80 Gardens (2008)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63436.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ BBC: 80 Чудес света (Вокруг света за 80 сокровищ�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63364.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ BBC. Шедевры мировой архитектуры / Adventures in Archit
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63337.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ BBC: Великий рифт. Дикое сердце Африки / Great Rift:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63225.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63137.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ BBC: Величайшие явления природы / Nature's Great Events 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E48084B2857045ECB51617B83E286CC2BC3250B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259993   (63105) от 13.03.2024
-
-BBC: Атлантида была здесь (Свидетельства Атлантиды) / Atlantis: The Evidence (2010) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни думают, что когда-нибудь её найдут на дне моря, другие провели всю жизнь в её поисках, третьи считают, что её не существует. Остров Атлантида... Согласно легенде, Атлантида - сказочно богатый остров, исчезнувший в морской пучине. Но существовал ли он на самом деле и где? Сегодня эксперты считают, что нашли настоящую Атлантиду. Археологи обнаружили следы древней (   Читать дальше...   )Производство: Великобритания, США, Франция, Австрия, BBC Northern Ireland, Discovery Channel, France Télévisions, ProSiebenЖанр: Документальный, историяРежиссер: Натали МейнсУчастники: Беттани Хьюз, Кристос Думас, Ирвинг ФинкельПеревод: Двуголосый закадровый, профессиональный (Акцент-PRO и SDI Media)Субтитры: отсутствуютПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200F407716A12265821B1E8CE7AE7DC1578E385D
 ```
 
 https://mybot314.ru/tekegram_catalog/

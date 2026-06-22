@@ -1,3 +1,29 @@
+###  Публикация: 1664158   (185728) от 25.09.2023
+
+Достучаться до небес / Knockin' on Heaven's Door (1997) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба сводит героев картины в больнице, где врачи выносят им смертный приговор. Счет времени их жизней идет на часы. Дальнейшие события в фильме разворачиваются в стремительном темпе. Украв машину с миллионом немецких марок в багажнике, они сбегают из больницы. Их преследуют наемные убийцы, они становятся грабителями поневоле, за ними гонится полиция, они попадают (   Читать дальше...   )Производство: Германия / Mr. Brown EntertainmentЖанр: Драма, Комедия, КриминалРежиссер: Томас ЯнАктеры: Тиль Швайгер, Ян Йозеф Лиферс, Тьерри Ван Вервеке, Мориц Бляйбтрой, Хуб Стапель, Леонард Лансинк, Ральф Херфорт, Корнелия Фробесс, Рутгер Хауэр, Кристиана ПаульПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональныйЯзык озвучки: Русский, Английский, НемецкийСубтитры: Русский (Tevionica/CP Digital), Английский, НемецкийПродолжительность: 01:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E5BDDD26794DF8C377098F3273B318F784F377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827238   (185701) от 21.10.2025
 
 Банкир / The Banker (2020) WEB-DLRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185701.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185697.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185638.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185049.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184342.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184301.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184261.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184256.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184247.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184165.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182967.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182828.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182761.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182681.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181958.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181878.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181797.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181554.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181181.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181167.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181132.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181081.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180858.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180793.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180543.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E25F1812942B0C922D6426F6EFCC61317629F3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665935   (180531) от 02.10.2023
-
-С широко закрытыми глазами / Eyes Wide Shut (1999) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180531.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести Артура Шницлера "Новелла о снах" (1925). Билл и Элис Харфорд - супружеская пара, производящая впечатление счастливых людей, живущих размеренной жизнью в полном достатке. Но за фасадом идеальных отношений скрываются потоки ревности, неудовлетворенности, тайных желаний и жажды чего-то запредельного. Первый шаг делает Элис, рассказывая мужу (   Читать дальше...   )Производство: Великобритания, США, Hobby Films, Stanley Kubrick Productions, Warner Bros.Жанр: триллер, драма, детектив, эротикаРежиссер: Стэнли КубрикАктеры: Том Круз, Николь Кидман, Сидни Поллак, Мария Рихардсон, Раде Шербеджия, Тодд Филд, Винесса Шоу, Скай Дюмон, Фэй Мастерсон, Лили СобескиПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английские, испанские, португальские, румынские, хорватские, польские, чешские, иврит, венгерскиеПродолжительность: 02:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C33F47C36F0626DA0FFF4330E846152028E88C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

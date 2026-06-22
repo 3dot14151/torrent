@@ -1,3 +1,57 @@
+###  Публикация: 786951   (805495) от 29.03.2017
+
+Штефан Кихле | Игнатий Лойола. Учитель духовности (2004) [PDF, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель этой книги — представить читателю Игнатия Лойолу как духовного учителя. В ней рассказывается о его жизни и деятельности, значении его духовности для современного мира. Эта книга носит вводный характер, и поэтому не требует от читателя никаких специальных исторических или богословских знаний. Если она подвигнет читателя вести более глубокую духовную жизнь, вновь (   Читать дальше...   )Жанр: БиографияФормат: PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9512E214A3ECD5E58D1D8905E569E5996D133AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505339   (804456) от 27.10.2021
+
+Священник Илия Шугаев | Если Вы решили принять Крещение (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крещение - это Таинство от Бога, которое сообщает душе верующего невидимую благодать Духа Святого для рождения её в жизнь вечную. В Крещении мы очищаемся от греха и даём обет Богу жить единой жизнью с Церковью и по воле Божией. Что это значит, не знают многие люди, желающие принять Крещение. Поэтому сначала необходимо научение вере, затем — принятие Таинства.
+
+Брошюра (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7653479E1431018AE59A4C5BC9C83BE56CED293E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505476   (804455) от 27.10.2021
 
 Схимонах архимандрит Паисий Величковский | Об умной или внутренней молитве (1902) [PDF, DJVU]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804455.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803649.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803563.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803454.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803277.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803273.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802946.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802438.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801979.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801964.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801962.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801684.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801659.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801621.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801241.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801237.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801222.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801167.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801129.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801089.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801085.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801079.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801051.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801027.jpg" />
 </div>
 
 
@@ -628,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:470DF9501C0418609F1D992FB526FDEACD6AC0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121118   (800643) от 02.04.2017
-
-И. П.  Вороницын | Декабристы и религия (1928) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800643.jpg" />
-</div>
-
-
-###  Подробнее
-
-В работе рассказано об отношении декабристов к религии. Дана общая характеристика развития философской и общественной мысли в России первой четверти 19 века. Проанализировано отношение к религии в конституционных проектах, составленных декабристами. Рассказано о жизни декабристов - верующих и атеистов - на каторге.Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB437B02B5206CC7D557BAD0986DCCB919611D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120948   (800600) от 02.04.2017
-
-Преподобный Макарий Оптинский | Предостережение читающим духовные отеческие книги. Об Иисусовой молитве (2011) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее «Предостережение» преподобного Макария Оптинского обращено к желающим проходить умную Иисусову молитву, но не имеющим к тому искусных наставников. Однако в равной степени творение старца Макария может быть адресовано и всем христианам — как совет не искать в себе высоких духовных дарований и таких же состояний, а смиренно шествовать путем исполнения Христовых (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B8058BF2DB4145AFFACCBA8C6A7501E48917D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

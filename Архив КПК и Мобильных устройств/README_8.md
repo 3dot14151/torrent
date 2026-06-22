@@ -6,7 +6,7 @@ N.O.V.A. 3: Свобода v1.0.1d [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959174.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957125.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lucky AppManager 1.10.8 - Урезанная версия Lucky Patcher (06.01.1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955900.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955147.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Phoenix для ВКонтакте v2.8.1 Full [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954933.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Photoshop Fix 1.0.483 [Ru] - Фоторедактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954917.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Phone Plus Контакты и Звонки v3.4.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954833.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Pixel Music Player + 2.3.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954534.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tapatalk VIP v6.3.3 [Ru/Multi] - Приложение для общения на
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953578.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Note Everything Pro 4.2.11 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953397.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ PhotoVault 5.2.9 [Ru] - Спрячь картинки под пароль
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952952.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Floatify Heads-up Quick Replies Notification v9.00 Pro [Ru/Multi] - Уведом
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952532.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950405.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949630.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949069.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CloudPlayer by doubleTwist Platinum v1.8.0 [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947752.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Swarm Torrent Client 1.5.5 [Программа] (Android 2.2+) - Торрент 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947407.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ GarminMobilePC 5.00.60g
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947173.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ RF & Microwave Toolbox Pro 3.89 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945748.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ World of Derby 1.00 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945213.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Mandala Coloring Book VIP v2.8.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944495.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943607.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943418.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942924.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Mood Messenger SMS и MMS v1,87k [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942145.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Apps2SD: All in One Tool PRO 11.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939853.jpg" />
 </div>
 
 

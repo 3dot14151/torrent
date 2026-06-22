@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841604.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Silvesterkonzert / New Year's Eve Concert (2015) [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841597.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841497.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841356.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840695.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840687.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840684.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Disco Дача. Весенний концерт (2013.05.01) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839499.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Madonna: Rebel Heart Tour Showtime (09.12.2016) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837827.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Leonard Cohen: Songs from the Road (2010) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837383.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Whitesnake - Made In Japan (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835653.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Within Temptation: Black Symphony (2008) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835158.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_835036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835036.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833052.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ AC/DC: No Bull (1996) BDRip [H.264/720p-LQ] [Directors Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832698.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ AC/DC - No Bull (1996) BDRemux [VC-1/1080i] [Directors Cut]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830962.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Yello - Live in Berlin (2017) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830866.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Talking Heads: Stop Making Sense (1984) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830698.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828968.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828888.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826951.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826899.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Yanni Live! The Concert Event (2006) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826732.jpg" />
 </div>
 
 
@@ -635,36 +635,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 774851   (825380) от 08.04.2014
-
-Metallica - Freeze 'Em All (2013) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825380.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течении всего две тысячи тринадцатого года по сети интернет бродили упорные слухи о том, что Металлика собирается отыграть в Антарктиде. И в начале декабря эти слухи были претворены в жизнь.
-Для немногочисленной аудитории победителей соответствующего конкурса (   Читать дальше...   )01. Creeping Death
-02. For Whom the Bell Tolls
-03. Sad but True
-04. Welcome Home (Sanitarium)(   Читать дальше...   )Жанр: Концерт, Heavy MetalПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9A0774D0E3E1D12B34BB878BEE68715F796166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 196401   (825214) от 28.04.2010
 
 Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
@@ -673,7 +643,7 @@ Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825214.jpg" />
 </div>
 
 
@@ -701,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823474.jpg" />
 </div>
 
 
@@ -715,6 +685,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EECAF3E93D06B97071050C1E4531AB65C877AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006313   (823394) от 14.04.2016
+
+Концерт симфонической музыки и поэзии "Музыка поэзии, природы и любви" из ежегодного цикла концертов "Летние Вечера". 27 июня (2015) HDCam [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823394.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Зинаида Гиппиус - стихотворение «Долго в полдень вчера я сидел у пруда…»
+2. Зденек Фибих - симфоническая поэма, Op. 41, "Поэма"
+3. Николай Гумилёв - стихотворение "Шестое чувство"
+4. Иоганн Штраус - вальс "Вино, женщины и песни"(   Читать дальше...   )Жанр: Вечер симфонической музыки и поэзииПродолжительность: 1:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C30D92D7F3DD81E4AC0289E2380277B4E6FCB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

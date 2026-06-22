@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885629.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866079.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517579.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_415742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_415742.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119420.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89663.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86430.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85166.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Темы и Изображения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85076.jpg" />
 </div>
 
 

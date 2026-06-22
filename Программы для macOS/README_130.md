@@ -1,3 +1,108 @@
+###  Публикация: 1642816   (232060) от 29.06.2023
+
+NCH Crescendo Masters Pro 9.59 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Crescendo Masters для написания музыкальных заметок и создания музыкальных партитур на Mac.Тип издания: macOS SoftwareРелиз состоялся: 28.06.2023Разработчик: © 2023 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723DA4DF5452A6D06B7651606DFF0B3161CE9EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643195   (231902) от 30.06.2023
+
+Wallpaper Wizard 2 v.2.2.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбирайте из сотен изображений для рабочего стола в формате HD, и приложение будет устанавливать новый фон каждую неделю, день или час. Наконец, вы можете избавить себя от просеивания изображений Google - с помощью Wallpaper Wizard 2, у вас будет достаточно свежих обоев для всей вашей жизни Mac.
+Wallpaper Wizard - Более 25 000 обоев, все изображения в формате 4K (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2023Разработчик: © 2023 MacPaw Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6314FDD994F8B6DD306701B4E9AA310059364B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554237   (231884) от 31.05.2022
+
+Topaz Video Enhance AI for Mac 2.6.4 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающие возможности для работы с видео с помощью революционной технологии искусственного интеллекта. Обученный на тысячах видеороликов и объединяющий информацию из нескольких входных видеокадров, Topaz Video Enhance AI увеличит и улучшит ваши кадры до разрешения 8K с точными деталями и согласованностью движения. Video Enhance AI, использующее интеллектуальную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2021Разработчик: Topaz LabsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594C21BFF239055D07F5ABC9F141235528739CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643411   (231752) от 01.07.2023
+
+Millumin 4 v.4.16.f [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Millumin - создание аудиовизуальных и интерактивных шоу, будь то театральная постановка, танец или инсталляция. Millumin - это креативное решение для воплощения ваших идей в жизнь. Приложение создано для того, чтобы помочь Вам создать живое шоу и рассказать свою историю.Тип издания: macOS SoftwareРелиз состоялся: 28.06.2023Разработчик: © 2010-2023 AnomesПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAA58AA066418634382B46610D32DCC2A2E9FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643179   (231641) от 30.06.2023
 
 Rogue Amoeba Farrago 2.0.4 [En]
@@ -6,7 +111,7 @@ Rogue Amoeba Farrago 2.0.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231641.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ HitPaw Photo Object Remover for Mac 1.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231533.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Path Finder 2158 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231501.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Aiseesoft DVD Creator 5.2.38 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231454.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Sound Siphon 3.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231304.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ BatchPhoto Pro for Mac 5.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231300.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Invisor - Media File Inspector 3.23 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231182.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ Photo Image Editor Pixelstyle 4.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231169.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ DuplicateViewer Pro 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231153.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ DiskSlim - Disk Cleanup Pro 9.8.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231015.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ Focus Professional 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230991.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ PopClip 2023.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230985.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ HitPaw Video Object Remover for Mac 1.2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230934.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ HitPaw Video Converter for Mac 3.0.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230925.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ Sloth 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230860.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ Task Office 8.15 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230741.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ LaunchControl 2.4 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230732.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ OS Cleaner Pro - Disk Cleaner 10.2.60 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230722.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230624.jpg" />
 </div>
 
 
@@ -508,7 +613,7 @@ Murus Pro Suite 1.4.22 (include Vallum 3.3.2) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230020.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ FoneDog iOS Unlocker 1.0.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229992.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ Mirror for Smart TV apps by AirBeamTV 20191127 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229936.jpg" />
 </div>
 
 
@@ -575,114 +680,6 @@ Mirror for Smart TV apps by AirBeamTV 20191127 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B409CF0D569FC2E3EE5077CFB36B9213289F9597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424290   (229865) от 16.11.2020
-
-Export Calendars Pro 1.10 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Export Calendars Pro - мощный инструмент для экспорта событий и напоминаний, сохраненных в Calendar and Reminders apps на Вашем Mac, в различные форматы файлов "табличных-данных", таких как: Excel, CSV, tab-delimited text.
-
-Можно  экспортировать практически любое поле адресной книги для любого контакта, прикрепленного к событию, в том числе поля с пользовательскими (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Stefan KellerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE48C24DE48F16B0FE0A3D9FB54EB49191C1BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424298   (229814) от 16.11.2020
-
-Exporter for Contacts 1.13 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exporter for Contacts (ранее был «Export Address Book») - это популярное и мощное приложение для Mac, предназначенное для экспорта контактных данных из контактов Apple в различные форматы, способное организовать настройки экспорта в настраиваемых шаблонах, что значительно упрощает повторный экспорт. Приложение позволяет экспортировать выбранные контакты, группы и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Stefan KellerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8225836233FAD7928971D788C0255B29CFD97557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512831   (229337) от 26.11.2021
-
-Banktivity 7 v7.5.3 fix [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Banktivity (прежнее название iBank) - это серьезное и очень мощное коммерческое приложение для контроля над личными финансами и финансами в предприятиях малого бизнеса.
-
-Основные возможности:Тип издания: macOS SoftwareРелиз состоялся: 16.09.2020Разработчик: IGG Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56504809789A16A1A36709A63B20E3B0FA313C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341707   (229274) от 29.11.2019
-
-Scudo 1.0 beta 10 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scudo - это гибридный брандмауэр для macOS, который сочетает в себе фильтр входящих пакетов сетевого уровня с исходящим брандмауэром прикладного уровня. Scudo помогает защитить сетевые службы вашего Mac от нежелательных подключений с удаленных компьютеров и повышает вашу конфиденциальность и безопасность, контролируя сетевую активность всех приложений, позволяя вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: murus.itПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F6AF0E4695660CBFA18E01857F9D079B022C5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

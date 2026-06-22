@@ -1,3 +1,61 @@
+###  Публикация: 1864475   (1064745) от 
+
+VA - Greatest Soft Rock Love Songs (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. REO Speedwagon - Can't Fight This Feeling (4:54)
+002. Journey - Faithfully (4:26)
+003. John Waite - Missing You (3:55)
+004. Cyndi Lauper - Time After Time (4:05)(   Читать дальше...   )Жанр: RockПродолжительность: 09:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2482A6B0E643D54AC7B1D88DF76CC0A554CE6C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864383   (1064648) от 
+
+VA - Classic Hits (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064648.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Goo Goo Dolls - Iris (4:49)
+002. Billy Joel - It's Still Rock and Roll to Me (2:57)
+003. Blondie - One Way Or Another (3:28)
+004. Fleetwood Mac - Landslide (Live 1977) (3:57)(   Читать дальше...   )Жанр: RockПродолжительность: 17:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51443C0EF228D5A515A5DF2EDCF21C66F247FED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862315   (1064191) от 30.03.2026
 
 VA - Rock Arena (2026) [MP3|320 Kbps] <Rock>
@@ -6,7 +64,7 @@ VA - Rock Arena (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064191.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Gotthard - Compilation (1992-2026) [MP3|320 Kbps] <Hard rock, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064004.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Hard Rock Workout (2026) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063968.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Axel Rudi Pell - Compilation (1989-2026) [MP3|320 Kbps] <Hard rock, Melodic heav
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063821.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Daniele Gazzarin - Favorites Collection (2026) [MP3|320 Kbps] <Country, RootsRoc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063746.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - REDISCOVER The ’60s Rock (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063440.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - REDISCOVER The '70s: Rock (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063439.jpg" />
 </div>
 
 
@@ -205,7 +263,7 @@ VA - REDISCOVER THE '80s: Rock (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063438.jpg" />
 </div>
 
 
@@ -234,7 +292,7 @@ VA - REDISCOVER THE '90s Rock (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063433.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ Joe Bonamassa - mix (2026) [MP3|320 Kbps] <Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063358.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ VA - REDISCOVER The '2000s Rock (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063354.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ Chris Norman & Smokie - Compilation (1975-2026) [MP3|320 Kbps] <Soft rock, Pop r
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063202.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ Joe Bonamassa - mix (2026) Part Two [MP3|320 Kbps] <Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063150.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Daniele Gazzarin - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Country, R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063025.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062777.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062599.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ VA - Classic Rock Hits (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062435.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062329.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062027.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Russian Rock 2017-2018 (2017-2018) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061264.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Dave Stewart - Compilation (1990-2025) [MP3|320 Kbps] <Pop rock, Soft rock, New 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060485.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058796.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Bryan Adams - Compilation (1980-2026) [MP3|320 Kbps] <Soft rock, Pop rock, Arena
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057663.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056283.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:839FC7DD2EF737138A94DA2A45EBD393A730BBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851948   (1055857) от 06.02.2026
-
-Muse - Compilation (1999-2025) [MP3|320 Kbps] <Alternative, Space rock, Electronic rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashamed ❂ Sunburn EP 2000
-02. Break It To Me (& Sam De Jong) ❂ Simulation Theory 2018
-03. Butterflies & Hurricanes. mix (Additional Guitars) ❂ Butterflies & Hurricanes EP 2004
-04. Can't Take My Eyes Off You (& Frankie Valli) ❂ Dead Star-In Your World EP 2002(   Читать дальше...   )Жанр: Alternative, Space rock, Electronic rockПродолжительность: 07:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37828C6E3511B7561F2D7EA1F085B9F5B3F10D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852274   (1055853) от 07.02.2026
-
-VA - Road Trip Rock Rhythms (2024) [MP3|320 Kbps] <Rock, Punk, Alternative, Progressive>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Crying Heart - Remedy  - (04:17)
- 002. Glass Sky - Collateral  - (03:53)
- 003. The Curtain - Night Wilds  - (01:09)
- 004. Interrobang - Switchfoot  - (03:48)(   Читать дальше...   )Жанр: Rock, Punk, Alternative, ProgressiveПродолжительность: 12:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F220B701219B022E8BBA4A93E032D64A9BE3035A
 ```
 
 https://mybot314.ru/tekegram_catalog/

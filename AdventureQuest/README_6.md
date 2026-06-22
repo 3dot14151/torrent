@@ -1,3 +1,81 @@
+###  Публикация: 1444412   (1034316) от 02.02.2021
+
+Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье поместья Блэкмур (2004) [Ru] (5.078) License
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нэнси Дрю отправляется на своё первое международное расследование. Ей необходимо навестить Линду Пенвеллин — дочь соседки и молодую жену британского дипломата. Таинственная болезнь заставляет Линду прятаться за плотным балдахином кровати. От кого или чего она скрывается? Или, возможно, ей угрожает нечто куда более опасное, чем простые недуги? Вычурные узоры, украшающие (   Читать дальше...   )Тип издания: LicenseРазработчик: Her InteractiveЖанр: Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AF4995BB7446B632EB57DE70D9631E88575745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618228   (1034256) от 10.03.2023
+
+FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 10547139/dlc) Repack Other s [Digital Deluxe]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японский хоррор на выживание FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse возвращается с улучшенной графикой. Во время праздника на острове Рогецу (Rogetsu Isle) таинственным образом исчезли несколько детей. Позже пропавших нашли, но те ничего не помнили. И вот уже подростками они возвращаются на остров. Исследуя разные места и защищаясь от призраков, они (   Читать дальше...   )Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Adventure (Horror), 3rd Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAFEF75F8DE42785FCFB24E1B4D1275170C28B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445233   (1033695) от 05.02.2021
+
+Riddle of the Sphinx: The Awakening / Загадка Сфинкса: Пробуждённый (2021) [En] (6173388/dlc) Unofficial [Enhanced Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадка Сфинкса - это эпическое египетское приключение, место действия которого - древнее изваяние Сфинкса и Великая пирамида Хеопса, одно из семи древних чудес света. Исследуйте секретные катакомбы, обнаружьте скрытые гробницы, раскапывайте священные реликвии, найдите и обезвредьте все хитроумные ловушки, обойдите циничных соперников-археологов - раскройте тайну, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Old World StudiosЖанр: Adventure, Point'n'clickЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7C5CEA4E9D0F42853835BD8C6A9F4ACAB0D799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446224   (1032901) от 08.02.2021
 
 Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
@@ -6,7 +84,7 @@ Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032901.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Harvester (1996) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032886.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032863.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032848.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Uncertain: Last Quiet Day (2016) [Ru/Multi] (1.0.1.004) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032612.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Call of the Sea (2020) [Ru/Multi] (1.1.105) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032603.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Late Shift (2017) [Ru/Multi] (20200107) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032373.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031943.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031704.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Her Story (2015) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031490.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Rough Justice: '84 (2023) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031314.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) Repack West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031005.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Outcast - Second Contact (2017) [Multi] (Patch 2 Hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030635.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Broken Pieces (2022) [Ru/Multi] (1.3.1 Build 10795835) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030617.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030543.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Signifier (2020) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030340.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Shore (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029839.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ A Space for the Unbound (2023) [Multi] (1.0.30.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029764.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Find Yourself (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029425.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Breathedge (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028957.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ ColdSide (2020) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028760.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.3.27878/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028759.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ DISTRAINT (2015) [Ru/Multi] (1.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027661.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ DISTRAINT − это психологический 2D-хоррор для ПК.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F86D4E0097BC9CCA48F3952D332BDF5835295B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396469   (1027267) от 08.03.2021
-
-Sword Art Online: Alicization Lycoris (2020) [Ru/En] (1.30/dlc) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sword Art Online: Alicization Lycoris – новейшая игра по мотивам невероятно популярного аниме, которая приглашает вас отправиться в скрупулезно воссозданный виртуальный мир Underworld, представленный в популярном сюжете Alicization.Тип издания: RepackРазработчик: AQURIA Co., Ltd.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7781CFA365A098537C4A6633D4C7E50540535765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454967   (1025870) от 17.03.2021
-
-Mundaun (2021) [Ru/Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнав о загадочной смерти дедушки, главный герой отправляется в долину Мундаун, где он не был с самого детства. Вскоре он понимает, что оставшихся жителей долины преследует что-то древнее и дьявольское. В поисках причины герой начинает восхождение на гору: через горные луга и каменистые поля — вверх, к заснеженной вершине. Mundaun — это жуткая история с карандашными (   Читать дальше...   )Тип издания: LicenseРазработчик: Hidden FieldsЖанр: Хоррор, Приключение, ЭкшенЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F542A05258F57F904ABA0799AE4AF473D8495E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418091   (1025866) от 17.03.2021
-
-Remothered: Broken Porcelain (2020) [Ru/Multi] (1.8.0.1Fix) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broken Porcelain вносит в серию много долгожданных изменений, добавит новую механику игры и сюжетные элементы, которые вдохнут новую жизнь в персонажей и позволят ещё глубже погрузиться в жуткое приключение. Дополнение понравится как новым игрокам, так и давним любителям серии. Сокрытые в «Эшмене» тайны так просто не разгадать.Тип издания: LicenseРазработчик: Stormind GamesЖанр: Экшн, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8020D8B312B7284BE6A406F48B2C2B2CC416FAAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

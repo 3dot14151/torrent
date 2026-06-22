@@ -1,3 +1,55 @@
+###  Публикация: 1367382   (916813) от 15.03.2020
+
+Убить Билла / Kill Bill: Volume 1 & 2 (2003, 2004) BDRip [H.265/1080p] [10-bit] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916813.jpg" />
+</div>
+
+
+###  Подробнее
+
+В беременную наемную убийцу по кличке Черная Мамба во время бракосочетания стреляет человек по имени Билл. Пуля в голове жертвы, кровь на подвенечном платье, темнота… Но голова у Черной Мамбы оказалась крепкой.Производство: США, Япония / Miramax, A Band Apart, Super Cool ManChuЖанр: боевик, триллер, криминалРежиссер: Квентин ТарантиноАктеры: Ума Турман, Люси Лью, Вивика А. Фокс, Джули Дрейфус, Тиаки Курияма, Сонни Тиба, Майкл Боуэн, Дэрил Ханна, Дэвид Кэрредин, Майкл Мэдсен, Майкл Паркс, Амброзия Келли, Джеймс ПарксПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 01:50:43 / 02:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B789C9FC88A4F4CB98475C290CA305E0956EB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490666   (916726) от 21.08.2021
+
+План побега: Трилогия / Escape Plan: Trilogy (2013-2019) BDRip [H.264/1080p-LQ]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непревзойденный взломщик тюрем Рэй Бреслин опять ввязался в смертельно опасную авантюру: вместе со своей командой он берётся разыскать похищенную дочь своего друга — бизнесмена из Гонконга. Нити расследования приводят к одной из самых секретных тюрем Америки, которая называется «Пункт Дьявола».Производство: Китай, США / Emmett/Furla/Oasis Films (EFO Films), Grindstone Entertainment Group, Leomus PicturesЖанр: Боевик, ТриллерРежиссер: Джеймс Ван, Ли Уоннелл, Адам РобителАктеры: Сильвестр Сталлоне, Дэйв Батиста, 50 Cent, Джейми Кинг, Макс Чжан, Девон Сава, Гарри Шам мл., Расселл Вонг, Дэниэл Бернхард, Лидия ХаллВ ролях: Сильвестр Сталлоне, Арнольд Шварценеггер, Джеймс Кэвизел, Фаран Таир, Сэм Нил, Винни Джонс, Винсент Д’Онофрио, Эми Райан, Мэтт Джералд. Байли Каррен, Джейми Кинг, Уэс Чэтэм, Титус Уэлливер, Джесси Меткалф, 50 Cent, Винсент Янг, Лидия Халл. Макс Чжан, Гарри Шам мл., Девон Сава, Джейми Кинг, Малез Джоу, Расселл ВонгПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:55:35 | 01:33:37 | 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFC083206C06C69434DFBE977C843ADD377BF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289122   (916497) от 01.02.2011
 
 Знакомство с родителями, Знакомство с Факерами (Дилогия) / Meet the Parents , Meet the Fockers HDRip (2000г, 2004г) HDRip
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916497.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916385.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912987.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911882.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911134.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911125.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Zомбилэнд / Zombieland (2009, 2019) UHD BDRemux [H.265/2160p] [4K, HDR, 
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910648.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910216.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909947.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906342.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902563.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901176.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893912.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893313.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891967.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884014.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_881037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881037.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880029.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875763.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875107.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873141.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870578.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869141.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867229.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:889F2ED49F66B2FDFFF26FF3401B1149B56C66CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302812   (866890) от 01.03.2011
-
-Хождение по мукам: Сестры & Восемнадцатый год & Хмурое утро (1957,1958,1959) DVDRip [Трилогия]
-
->>Коллекции / *логии
->>Отечественное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий фильм кинотрилогии, посвященной дворянской семье Булавиных в период от начала Первой мировой войны и до окончания гражданской войны в России.Жанр: Драма, Военный, ПриключенияРежиссер: Григорий РошальАктеры: Руфина Нифонтова, Нина Веселовская, Николай Гриценко, Вадим Медведев, Олег Голубицкий, Виталий Матвеев, Евгений Матвеев, Майя Булгакова, Виктор Авдюшко, Сергей Яковлев, Павел Винников, Владимир МуравьёвПродолжительность: 01:39:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993069   (865964) от 21.03.2016
-
-Сборник фильмов с участием Дины Дурбин / Deanna Durbin Sweetheart Pack (1936-1947) DVDRip (фильмы 1-6 из 6)
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри Коллинз работает диск-жокеем на радиостанции. Неожиданно ей приходит известие, что она является наследницей огромного состояния. Однако чтобы получить деньги ей предстоит узнать непростую и запутанную историю, случившуюся с ней, ее родителями и ее опекунами много лет назад…Производство: США, Universal PicturesЖанр: Комедия, Мьюзикл, МелодрамаРежиссер: Ирвинг ПичелАктеры: Дина Дурбин, Дональд О’Коннор, Джон Долл, Чарльз Виннингер, Хелена Картер, Маргарет Вичерли, Джин Эдейр, The Williams Brothers, Жаклин деВит, Жан ПирсПеревод: Многоголосый закадровыйПродолжительность: 01:28:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE08C3570B0EBE8B94C4139C52055EE3621AB8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

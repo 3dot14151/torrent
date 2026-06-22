@@ -1,3 +1,134 @@
+###  Публикация: 498125   (253652) от 17.05.2012
+
+Die Atzen - Party (Ich Will Abgehn) (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, ElectroПродолжительность: 00:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E72FA19B28BBCD87B19957F2D3467D472F1918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497026   (253253) от 15.05.2012
+
+Eagles - Hotel California (2005) HDRip [720p]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Кантри-рок, Хард-рокПродолжительность: 00:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF2BB0578A580AA506F66E19002A98C83D32AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496624   (252885) от 14.05.2012
+
+CJ Stone ft. Anna Turska & Sherlock - Believe Me (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Club, DanceПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC01D371FEE6C97947DB584DD2A0EF4207F57E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494919   (251534) от 12.05.2012
+
+Клубная музыка 1 / Club music 1 (2012) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неофициальный сборник видеоклипов. Лидеры хит-парадов, выступления известных диджеев на популярных фестивалях танцевальной музыки.
+Диск оформлен в стиле сборников "Жажда скорости".Жанр: Trance, houseПеревод: ОтсутствуетПродолжительность: 03:00:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495325   (251447) от 12.05.2012
+
+Шпильки - Стерва (2006) HDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E0CC4E3BF382E6DACAF58D46BE2B55A5AC5277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495837   (251391) от 12.05.2012
 
 NKQ-Nigel Kennedy Quintet - The Blue Note Sessions : Live In Paris At The New Morning(2008) DVD9
@@ -6,7 +137,7 @@ NKQ-Nigel Kennedy Quintet - The Blue Note Sessions : Live In Paris At The New Mo
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251391.jpg" />
 </div>
 
 
@@ -49,7 +180,7 @@ Daniel Djokic - Like It Like This (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251359.jpg" />
 </div>
 
 
@@ -75,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251193.jpg" />
 </div>
 
 
@@ -101,7 +232,7 @@ Albert Kick - Evil Girl (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250797.jpg" />
 </div>
 
 
@@ -127,7 +258,7 @@ Kaya Jones - Release The Energy (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250765.jpg" />
 </div>
 
 
@@ -153,7 +284,7 @@ Phil Woods Quartet & Jon Hendricks Group - Tribute To Charlie Parker (2003) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249132.jpg" />
 </div>
 
 
@@ -184,7 +315,7 @@ Berna Arici - Kitap Gibi Kadinim (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249130.jpg" />
 </div>
 
 
@@ -210,7 +341,7 @@ Megadeth - Warchest(Live in London 30.09.92) (2007) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248579.jpg" />
 </div>
 
 
@@ -239,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247862.jpg" />
 </div>
 
 
@@ -265,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216406.jpg" />
 </div>
 
 
@@ -291,7 +422,7 @@ Chieli Minucci & Special EFX (2010) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215218.jpg" />
 </div>
 
 
@@ -325,7 +456,7 @@ Mountain Jam Festival - Collection 2 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143163.jpg" />
 </div>
 
 
@@ -354,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136115.jpg" />
 </div>
 
 
@@ -384,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135616.jpg" />
 </div>
 
 
@@ -410,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130716.jpg" />
 </div>
 
 
@@ -436,7 +567,7 @@ Disfunktion - Snooki (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100471.jpg" />
 </div>
 
 
@@ -462,7 +593,7 @@ Ilkan Gunuc ft. JJ - Rain (Vdj Rossonero) (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100322.jpg" />
 </div>
 
 
@@ -488,7 +619,7 @@ Kenny Garrett Quartet feat. Kenny Kirkland Live At Jazz Baltica (1997) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_100043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100043.jpg" />
 </div>
 
 
@@ -514,7 +645,7 @@ Skreatch vs. Joe Smooth - Promised Milkshake (2012) [H.264] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99864.jpg" />
 </div>
 
 
@@ -540,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99230.jpg" />
 </div>
 
 
@@ -569,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99064.jpg" />
 </div>
 
 
@@ -580,157 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43F8051BF10ACE8D617DAAD0702C6CD1BC913251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465542   (96815) от 16.03.2012
-
-Soulfly - World Scum (2012) HDRip [720p]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulfly-группа,созданная Максом Кавалерой в 1997 году,после его ухода из группы Sepultura в 1996 году на пике её популярности.World Scum-клип бразильских металлистов на 1-й сингл с альбома Enslaved (2012).Песня посвящена различным жутким историческим событиям-войнам,тюрьмам,убийствам и прочему"мировому скаму".Жанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 00:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E0CBD3D2EF65AA1FD342289B1AED5BADB48219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464566   (96272) от 10.03.2012
-
-Музыка Первого (Январь 2012) DVD5 IPTV Rip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гости из будущего - Я не для тебя
- 02. Би-2 - Дурочка
- 03. А. Цой - Молитва
- 04. Неангелы - Киев-Москва
- 05. Ёлка - Прованс
- 06. Т. Котова - Он
- 07. Quest Pistols - Ты так красива
- 08. Elvira T - Всё решено
- 09. А. Хворостян - Падали, но поднимались
- 10. Иракли - Капли абсента(   Читать дальше...   )Жанр: Russian Popular MusicПеревод: ОтсутствуетПродолжительность: 01:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464949   (96089) от 09.03.2012
-
-Amaranthe - Amaranthine (2011) HDRip [720p]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amaranthe (ранее известный как Avalanche) - это шведско-датская пауэр/мелодик-дет-метал-группа, сформировавшаяся в Швеции и Дании. Amaranthe - новый проект, в котором приняли участие Джейк Е. Лундберг (ex-Dream evil, Dreamland) и Олоф Мерк (Nightrage, Dragonland).
-Amaranthine - видеоклип на песню  с дебютного альбома Amaranthe (2011). Наслаждайтесь приятным женским вокалом и красотой вокалистки группы.Жанр: Melodic Metal,Modern MetalАктеры: AmarantheПеревод: ОтсутствуетПродолжительность: 00:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40881F7E02A3C1F303822AEA077B2CD1F8F70E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456129   (94827) от 27.02.2012
-
-Dir en Grey - The Rose Trims Again (2008) DVD9
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_94827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт одной из самых популярных японских рок-групп
-без комментариев, это просто надо видеть и получать удовольствиеSA BIR
-OBSCURE
-GRIEF
-AGITATED SCREAMS OF MAGGOTS
-DISABLED COMPLEXES
-Merciless Cult
-蜷局
-艶かしき安息、躊躇いに微笑み
-AGITATED SCREAMS OF MAGGOTS -UNPLUGGED-
-CONCEIVED SORROWЖанр: JRockАктеры: Kyo · Kaoru · Die · Toshiya · Shinya
-http://ru.wikipedia.org/wiki/Dir_en_greyПеревод: ОтсутствуетПродолжительность: 01:48:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484345   (89172) от 18.04.2012
-
-Michael Jackson: Smooth Criminal (2010) DVDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6CDBF3BC59A043881254BF1C02A48D3791627D
 ```
 
 https://mybot314.ru/tekegram_catalog/

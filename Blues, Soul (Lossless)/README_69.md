@@ -6,7 +6,7 @@ Bryce Janey - Blue Moon Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466031.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Malone Sibun - ASHES TO DUST (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466027.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Snowy White - Driving On The 44 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466009.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Johnny One Eye - Dirty (2015) [FLAC|Lossless|image +.cue]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464878.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Neal Black & The Healers - Before Daylight (2014) [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464157.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Soul Moods: Contemporary Soul Classics (1994) 2CD [APE|image+.cue]<Funk, So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462508.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Neal Black & The Healers - Black Power (1994) [FLAC|Lossless|image + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462112.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eric Clapton - Clapton (2010) [FLAC|Lossless]<Blues,rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462074.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Kenny Roby - Kenny Roby (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461952.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Ray Beadle - STAX of BLUES (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461949.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Chris Antonik - Morningstar (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461948.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Too Slim And The Taildraggers - Brace Yourself  (Live) (2022) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461947.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Jeff Liberman - Epiphany (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461942.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Super Vintage - Destiny (2018) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461478.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Geezer - Psychoriffadelia (2017) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461345.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Baby Makin Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Soul, Nu Disc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459762.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Coco Montoya - Coming In Hot (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459068.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Al Jarreau - High Crime (1984) [FLAC|Lossless|image + .cue] <Funk, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457555.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Best Of The Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453459.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Billy's band - Петербургские открытки (2017) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452504.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ The Southern Locomotive Band - Back In Town Tonight (2022) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451343.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Ana Popovic - Like It On Top (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450920.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Omar And The Howlers - The Screamin' Cat (2000) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448998.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Roy Buchanan - 31 Albums (1971 - 2018) 41 CD [FLAC|Lossless|tracks + .cue|image 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447900.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Gary Moore - Blues For Jimi (2012) Live album / Eagle Records /  [FLAC|Lossless]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445768.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Rick Derringer - Tend The Fire (1996) [FLAC|Lossless|tracks + .cue] <Blues Rock,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444275.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1555667   (566432) от 05.06.2022
+
+Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack Decepticon
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте за викинга по имени Эйвор, которого с самого детства готовили стать бесстрашным воином. Вам предстоит повести свой клан из безжизненной ледяной Норвегии, чтобы обрести новый дом на плодородных землях Англии IX века. Вы должны основать селение и любыми средствами обуздать этот непокорный край, чтобы обеспечить себе место в Вальгалле. В те времена Англия представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: RPG, 3rd Person, Action, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB0C700D47272F92339B698ABAC948AAEE92F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923061   (566011) от 30.07.2015
+
+ICY (2015) [En] (1.0) Rip ALiAS
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icy - сюжетная survival-RPG, где Вы возьмете на себя роль вожака небольшой группы людей, которые пытаются выжить в суровых условиях замерзающего мира. Исследуйте огромный игровой мир и старайтесь найти знающих людей, которые Вам могут поведать больше о событиях, приведших к апокалипсису и чудовищному изменению климата. Icy обладает продуманной диалоговой системой, (   Читать дальше...   )Тип издания: RipРазработчик: Inner VoidЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF77E6C68A714D3CAA3CF4F04D1CC59F5EFF255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555939   (564847) от 06.06.2022
+
+Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далеко не всем из класса 2-9 Академии Кисараги удалось вернуться из начальной школы известной как Небесное Воинство, охваченной демоническими потусторонними силами. Староста класса Айуми Шинозаки попытался использовать древнюю Книгу Теней, чтобы воскресить погибших друзей, но это лишь усугубило трагедию. А теперь книгу украли.Тип издания: LicenseРазработчик: MAGES. Inc., 5pb.Жанр: Ролевая игра, Приключение, ХоррорЯзык озвучки: ЯпонскийЯзык субтитров: Английски, Японски, КорейскийЯзык интерфейса: Английски, Японски, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A3A235398E460601947E3A8D5B624F271D3C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044682   (564668) от 20.08.2016
+
+The Fall of the Dungeon Guardians (2015) [En/Multi] (1.0e) License PROPHET
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564668.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Fall of the Dungeon Guardians представляет собой бродилку по подземельям с видом от первого лица. В ходе приключений партии из четырех героев игрокам предстоит пройти огромное подземелье, а препятствовать в этом будут монстры 100 разновидностей во главе с 20 различными боссами.Тип издания: LicenseРазработчик: Mana GamesЖанр: RPG, 3D, 1st PersonЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C9C075DB065D59DAF03E8D89EF631EDDD1BA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044858   (562717) от 21.08.2016
 
 Rage of the Battlemage (2016) [Ru/Multi] (1.0) License PROPHET
@@ -6,7 +110,7 @@ Rage of the Battlemage (2016) [Ru/Multi] (1.0) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562717.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.2.6.3610r) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558881.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Deus Ex: Human Revolution: The Missing Link / Deus Ex: Human Revolution Augmente
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558318.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557751.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Blood & Gold: Caribbean! (2015) [Ru/En] (2.065/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557413.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556904.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556892.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556690.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556342.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Deep Sky Derelicts (2018) [Ru/En] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556297.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555961.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Mary Skelter: Nightmares (2018) [En/Jp] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553761.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Overlord II / Overlord 2 (2009) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552098.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ SteamWorld Quest: Hand of Gilgamech (2019) [Ru/Multi] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550003.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Zombasite (2016) [En] (1.000) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549823.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ SpellForce 3 (2017) [Ru/Multi] (1.40.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549177.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Bastion (2011) [Ru/Multi] (1.50436) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547511.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Divinity Original Sin 2 / Divinity Original Sin II (2017) [Ru/Multi] (3.6.44.404
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547493.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Outward (2019) [Multi] (1.0upd2/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545062.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Sword Art Online: Hollow Realization (2017) [Multi] (1.00) License SKIDROW [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543549.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Starbound (2016) [Ru/En] (1.4.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542301.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (2.7a/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539420.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Titan Quest Anniversary Edition - мифический набор, из кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B900E2B6336D2A7C46949FD076951939D2F63413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925762   (536816) от 08.08.2015
-
-Undercroft (2006) [En] (1.2) Repack dark_elf2
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старомодная hack'n'slash RPG в лучших традициях Eye of the Beholder и Dungeon Master. Даже графика - VGA, несмотря на разрешение в 640x480. По миру ходят слухи о том что на старом заброшенном кладбище, вблизи города Долбрата, проснулось древнее зло. Мертвецы убивают любого кто приблизится к могилам кладбища, будь то женщина, мужчина или ребенок.Тип издания: RepackРазработчик: Rake in GrassЖанр: RPG / 1st PersonЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF923544232C7ACFABE61F9818D306F1C022A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034207   (535857) от 09.09.2016
-
-NECROPOLIS: A Diabolical Dungeon Delve (2016) [Ru/Multi] (1.1) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535857.jpg" />
-</div>
-
-
-###  Подробнее
-
-NECROPOLIS, безжалостный и динамичный боевик, в котором смерть является своеобразной наградой. Кто будет возражать против зрелищной, жестокой и поучительной смерти? Особенно, если она необратима. Весь ваш с трудом заработанный или созданный шмот, эликсиры и вера в товарищей теперь разбиты и разбросаны по полу этого проклятого, то и дело меняющегося подземелья.Тип издания: LicenseРазработчик: Harebrained SchemesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6641D44E4D224E4B1CA8BA118BC3B04363D56C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311754   (533836) от 03.07.2019
-
-Lisa (2014) [Ru] (1.0u2) Repack MasterDarkness
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра о выживании, самопожертвовании и извращенцах... Действие этой причудливой рпг проходит в пост апокалиптической пустоши. За чарующей и забавной наружностью находится мир, полный отвращения и морального разрушения. Игроки узнают, что они за люди, будучи вынужденными делать решения. Эти решения имеют перманентный эффект на игровой процесс. Если вы захотите спасти (   Читать дальше...   )Тип издания: RepackРазработчик: DingalingЖанр: Adventure, Indie, RPGЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9004140108FF1D06EA73AA9C1F7C57F21B2155B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051127   (533787) от 10.09.2016
-
-The Technomancer (2016) [Ru] (1.0.3636) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533787.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Technomancer - это продолжение Mars: War Logs, в котором главному герою предстоит посетить новые области на Марсе - от заброшенных городов до огромных пещер под полярными шапками, уходя от тайной полиции людей и сражаясь с разнообразными противниками. Дивный новый мир породил гулей-мутантов — низшую касту рабов, а также техномансеров — людей, обладающих властью (   Читать дальше...   )Тип издания: RepackРазработчик: SpidersЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2462FABFFC8364A73E08714FD6C82F6C087C0789
 ```
 
 https://mybot314.ru/tekegram_catalog/

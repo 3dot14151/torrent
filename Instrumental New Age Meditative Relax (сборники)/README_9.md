@@ -1,3 +1,32 @@
+###  Публикация: 1040856   (584461) от 07.08.2016
+
+VA - Relaxing Lounge Music For Your Sleeping Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa Nostra - Espera
+02. Neja - Crime of Passion
+03. 2 Men 4 Soul - Spread Your Love - Remastered
+04. United Peace Voices - Gangchen Song(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A1BCA2A8C1DE2C6444E898FF594F097772BBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541550   (583895) от 12.05.2019
 
 VA - Guitar Mania Vol.01-23 (1999-2004) [MP3|320 кб/с]<Instrumental / Surf / Rock'n'Roll>
@@ -6,7 +35,7 @@ VA - Guitar Mania Vol.01-23 (1999-2004) [MP3|320 кб/с]<Instrumental / Surf / 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583895.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ VA - The Best Of LoungeLegends (7CD) (2013) [MP3|192-320 кб/с]<Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583894.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ VA - Smooth Romance: Love Notes by the Piano (2016) [MP3|320 Kbps] <Downtempo, C
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581465.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ VA - I Like An Indian (Indian Heart) (2016) [MP3|256-320 Kbps] <Native american,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580422.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ VA - Magic Instrumental Music (2015) [MP3|320 кб/с]<Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579799.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ VA - Музыкотерапия. Повышение потенции (2011) [MP3
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579555.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ VA - Green Area: Beauty Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576039.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ VA - Mystic Adventures: Balearic Downtempo (2016) [MP3|320 кб/с] <Downtempo, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574154.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ Paul Sills - Awake and Dreaming (2015) [MP3|320 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573737.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ VA - Oceanic Chill Out 30 Great Chill Out Selection (2015) [MP3|320 кб/с]<Dow
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573705.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ VA - Chill Out Instrumental Hits (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573694.jpg" />
 </div>
 
 
@@ -316,7 +345,7 @@ VA - One Day Meditation (2016) [MP3|320 Kbps] <Interlude, Acoustic, Ambient, Lou
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572676.jpg" />
 </div>
 
 
@@ -345,7 +374,7 @@ VA - Shaman's dream 3+ (2015) [MP3|320 кб/с]<Native American, World, Ethnic F
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571686.jpg" />
 </div>
 
 
@@ -373,7 +402,7 @@ VA - Rautalanka Paraati 1 - 4 (2003 - 2007) [MP3|224 - 320 Kbps] <Instrumental, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570640.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ VA - The Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566974.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ VA - Emerald Island: Chillout Area (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563284.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ Paul Mauriat - Grand Orchestra (Gold Collection) (2011) [MP3|320 кб/с]<Instru
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560227.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ VA - The Night Piano and Sweet Classical Moments (2016) [MP3|320 Kbps] <Lounge, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559447.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ VA - Piano Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557943.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ VA - Ambient Lounge Lyric (2016) [MP3|320 Kbps] <Chillout, Lounge, Ambient Lyric
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557730.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ VA - Super Yoga Meditation and Relax (2016) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550890.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ VA - I Like An Indian 3 ( Native Soul) (2016) [MP3|320 Kbps] <Native American, E
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550799.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ VA - The Most Relaxing Guitar Album In The World...Ever! (2005) [MP3|320 кб/с
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540302.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ VA - Chill Acoustic Covers 2 (2015) [MP3|320 кб/с]<Acoustic, Chillout, Lounge
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540259.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Otta-Orchestra - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533471.jpg" />
 </div>
 
 
@@ -724,41 +753,6 @@ Otta-Orchestra - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7681310D198134B5539AF2D2C2610A546177CC51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533484   (532745) от 10.08.2012
-
-VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar, Acoustic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532745.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bruce Springsteen - Straight Time (3:26)
- 2. Bob Dylan - You're a Big Girl Now (4:22)
- 3. James Taylor - Walking Man (4:08)
- 4. Simon & Garfunkel - The Boxer (5:08)
- 5. John Mayer - Your Body is a Wonderland (4:08)
- 6. Lou Reed - Walk on the Wild Side (4:12)
- 7. Shawn Colvin - Sunny Came Home (4:24)
- 8. Jakob Dylan - All Day and All Night (3:28)
- 9. Jeff Buckley - Lover, You Should've Come Over (6:43)
- 10. Tim Hardin - Simple Song of Freedom (3:52)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13A0A33AC8D4B02A937ABD01A72F240F6F0A6A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

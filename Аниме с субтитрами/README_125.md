@@ -1,3 +1,29 @@
+###  Публикация: 1737763   (42131) от 28.09.2024
+
+Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воровка по имени Клэй отправляется в подземелье, наполненное монстрами и ловушками, чтобы найти пропавшего отца. Когда она попадает на уровень, куда ещё не ступала нога искателя приключений, на её пути появляется могущественная смотрительница подземелья и предлагает... работу! Теперь вместо того чтобы исследовать подземелье, Клей должна определять задачи для новых (   Читать дальше...   )Производство: студия OLM / オー・エル・エムЖанр: приключенияРежиссер: Ямаи СаякаПеревод: Funimation; Sanae TeamЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4091304D65A4C683D727A2052F0B08DB13C69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735258   (42129) от 28.09.2024
 
 Nige Jouzu no Wakagimi | The Elusive Samurai | Беглый самурай [2024, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Nige Jouzu no Wakagimi | The Elusive Samurai | Беглый самурай [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42129.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Make Heroine ga Oosugiru! / Too Many Losing Heroines! / Слишком мног�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42124.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kami no Tou: Ouji no Kikan | Tower of God 2nd Season | Башня Бога: Во
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42038.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41948.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Atri: My Dear Moments | Атри: Мои бесценные мгновенья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41394.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Oshi no Ko 2 | Звёздное дитя [ТВ-2] [2024, TV, 13 из 13] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41114.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_41000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41000.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Yozakura-san Chi no Daisakusen | Mission: Yozakura Family | Операция: С
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40735.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Boku no Hero Academia Season 7 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40627.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Monogatari Series: Off & Monster Season | Легенды: Межсезонье �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39915.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39672.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39670.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Yuru Camp Season 3 | Лагерь на свежем воздухе [ТВ-3] [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39416.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Uzumaki | Спираль [2024, TV, 4 эп.] WebRip 720p raw+eng
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39413.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Ani ni Tsukeru Kusuri wa Nai! 5 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39364.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Dead Mount Death Play (2023) | Смертельная игра мёртвой г
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39275.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39271.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Houkago Shounen Hanako-kun (2024) | After-school Hanako-kun (2024) | Ханак�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39004.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Shin Megami Tensei: Tokyo Mokushiroku | Tokyo Revelation | Новое вопло
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38587.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38037.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ eX-Driver | Экс-драйвер [2000, OVA, 6 эп.] DVDRip 480p raw+eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37307.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ eX-Driver the Movie | Экс-драйвер: фильм [2002, Movie + 3 SP] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37207.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйве�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37169.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Ariel Visual | Ариэль [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36863.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Ariel Deluxe | Deluxe Ariel | Роскошная Ариэль [1991, OVA, 2 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36860.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Ariel Deluxe | Deluxe Ariel | Роскошная Ариэль [1991, OVA, 2 из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F3839AF6BCB1AD902708E8CABAB382D55E50AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753615   (36370) от 23.11.2024
-
-Murai no Koi | Murai in Love | Любовь Мураи [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мурай — ученик старшей школы и интроверт, на которого мало кто обращает внимание. Длинные волосы, неуверенная походка... да, он совсем не тот, кого можно назвать эталоном красоты. Однажды Мураи признается в чувствах девушке — красивой учительнице Аяно Танаке, но её интересуют только персонажи любимых отомэ-игр. Естественно, Мураи получает отказ... но на следующий (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: комедия, романтикаРежиссер: Ямакава ЁсикиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, Английские (мультисаб)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901A5D9A5ABC6260F70C7EAB62446E8796FB31CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 978499   (963435) от 23.01.2016
+
+Протоиерей Андрей Ткачёв | Почему я верю. Простые ответы на сложные вопросы (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963435.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей новой книге известный миссионер и писатель протоиерей Андрей Ткачёв предлагает нам совершить путь от начала поиска жизненного смысла до обретения этого смысла в христианстве. Автор раскрывает свой личный опыт веры и знакомит читателя с убеждениями великих учёных и отцов Церкви. Преодолевая вопросы и сомнения, он буквально «за руку» вводит нас туда, где вера (   Читать дальше...   )Жанр: Духовная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2C112A00A56D16F5D4A033B15F04FE25319773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978517   (963427) от 23.01.2016
+
+Книга глаголемая Алфавит [Рукопись РГБ. Ф. 173.III. [Собр. МДА]] (кон. XVII - нач. XVIIIвв) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, под названием Алфавит, содержит объяснение иностранных слов, используемых в святых книгах без перевода на русский язык с дополнительными статьями.Жанр: СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AE588ABE6276AE9FFFAB6937EB81D226E4CCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 621460   (963305) от 20.02.2013
 
 Д.И. Протопопов | Изъяснение обрядов при совершении семи церковных таинств [1882] [PDF]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963305.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963047.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962622.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962515.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962419.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962161.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961567.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961243.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961189.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961055.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959690.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957289.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954781.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954757.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954647.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953709.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953330.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952480.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952424.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952412.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951747.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951744.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951707.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950184.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB1D5730001686EAEFEDCCFB4D28CE7C71DB8467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981803   (950181) от 02.02.2016
-
-В. В. Фомиченко | Клерикализм: ставка на молодежь (1988) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В научно-популярной книге старшего научного сотрудника Межреспубликанского филиала Института научного атеизма АОН при ЦК КПСС дан критический анализ буржуазно-клерикальных идеологических диверсий и стратегии духовного закабаления, идейного разоружения молодого поколения. Рассматриваются проблемы воспитания y молодежи материалистического понимания истории, способности (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A0071C3D4D82D4D976C42D0B93FEBB49383842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750574   (950126) от 28.01.2014
-
-Ф. Путинцев | Политическая роль сектантства (1929) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из основных и немногих работ советского времени, посвященных сектантству.
-Дан анализ политической роли и тактики сект, начиная с 1900-х гг. и кончая 30-ми гг. прошлого века.Жанр: Религиоведение, история, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9E820EFCFB720AEC57C6C76904F4B6E1F1D2B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

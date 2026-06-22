@@ -1,3 +1,264 @@
+###  Публикация: 1209648   (779089) от 28.02.2018
+
+Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wakanda Origins (01:44)
+02. Royal Talon Fighter (04:01)
+03. Wakanda (02:20)
+04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B386E49946407D2CAC2A9FD5CE600852152D165B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210044   (778987) от 01.03.2018
+
+David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden Of Eve (4:27)
+02. Last Tango In Paris (4:09)
+03. Fashion Week (4:33)
+04. Gnossiennes No. 1 (4:31)(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1026EB0D724F4182BD38441EB71626DC1071FC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209860   (778944) от 01.03.2018
+
+Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wakanda Origins (01:44)
+02. Royal Talon Fighter (04:01)
+03. Wakanda (02:20)
+04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E00662D5BDE3C9EA40A26C213C7EA797B3C911F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210093   (778855) от 02.03.2018
+
+Lyn Avenue - Never Been to Nashville (2018) EP [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Never Been To Nashville (4:13)
+02 - Kentucky Bourbon (2:49)
+03 - Everyday Guardian Angel (4:32)
+04 - Whatever It Takes (To Bring Me Back To You) (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5D8C544E6E498959E91F4AC4B14DB1D0BE879A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210501   (778728) от 03.03.2018
+
+Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. The Heart Of Africa 6:00
+02. Mystical Mother 5:11
+03. Kango Echoes 6:15
+04. Earthchild 5:35(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B198E03C633F1CBF250FE4A0E8A8E69DCF41D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210505   (778721) от 03.03.2018
+
+Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Kikuyu Love Song 5:37
+02. Shumbahle 5:20
+03. Dance of Love 5:19
+04. Hills of Halali 5:54(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE68841081424E8F06C3AD782D9051FA389BDD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210407   (778720) от 03.03.2018
+
+Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Freedom Dance 6:11
+02. Nkana 5:49
+03. The Marketplace Hustle 4:30
+04. 10 Miles To Sakenia 5:37(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6EB258D4886EC41C347EF40CA3D8709F86CB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210411   (778712) от 03.03.2018
+
+Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Music [MP3|320 Kbps] <New Age, Tribal, African>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Helelele 4:30
+02. Swazi Sunset 4:55
+03. Rain Dance 5:15
+04. Mbira Song 3:47(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D22DE30E604774C5939C4F1A0591B74593D8714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210596   (778710) от 03.03.2018
+
+Giovanni - Love Me Tender (1998) Reissue, 2000, New Castle [FLAC|Lossless|image + .cue] <New Age, Instrumental, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Giovanni Marradi (17.04.1952). Он родился в Италии, учился в Бейруте. Путешествуя, объездил всю Европу и Ближний Восток, работая, везде, где только его брали, почти ничего не зарабатывая. После иммиграции в Америку, он играл небольшие концерты в Калифорниии. Набравшись смелости, он приехал в Лас Вегас, и попросился выступить в Caesar's Palace (казино и отель). Удивительно, (   Читать дальше...   )01. Sailing (3:51)
+02. Green Green Grass Of Home (4:20)
+03. Nocturnes (3:09)
+04. Ballad for Adeline (2:57)(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2C18245A9773E46D581F089E1632D2AC675019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210586   (778691) от 03.03.2018
 
 Kitaro - India (1983) Reissue, 1985, Geffen Records [FLAC|Lossless|image + .cue] <New Age, World Music>
@@ -6,7 +267,7 @@ Kitaro - India (1983) Reissue, 1985, Geffen Records [FLAC|Lossless|image + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778691.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ Sally Oldfield - The Enchanted Way (2018) [MP3|320 Kbps] <Folk, Pop, Singer-Song
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778685.jpg" />
 </div>
 
 
@@ -64,7 +325,7 @@ Peder B. Helland - Bright Future (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778652.jpg" />
 </div>
 
 
@@ -93,7 +354,7 @@ Hennie Bekker - Summer Breeze (1993) Holborne [MP3|256 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778559.jpg" />
 </div>
 
 
@@ -122,7 +383,7 @@ Hennie Bekker - Relaxing Pachelbel (2005) Tapestries [MP3|320 Kbps] <New Age, Tr
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778551.jpg" />
 </div>
 
 
@@ -151,7 +412,7 @@ Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Pian
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778549.jpg" />
 </div>
 
 
@@ -180,7 +441,7 @@ Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778546.jpg" />
 </div>
 
 
@@ -209,7 +470,7 @@ Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778520.jpg" />
 </div>
 
 
@@ -238,7 +499,7 @@ Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Gu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778474.jpg" />
 </div>
 
 
@@ -267,7 +528,7 @@ Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778361.jpg" />
 </div>
 
 
@@ -296,7 +557,7 @@ Will Brady - 3 альбома (1997-2009) [MP3|192 кб/с] <Instrumental, Blues
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778332.jpg" />
 </div>
 
 
@@ -325,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778285.jpg" />
 </div>
 
 
@@ -354,7 +615,7 @@ Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778166.jpg" />
 </div>
 
 
@@ -383,7 +644,7 @@ Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778148.jpg" />
 </div>
 
 
@@ -412,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778069.jpg" />
 </div>
 
 
@@ -441,7 +702,7 @@ Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777975.jpg" />
 </div>
 
 
@@ -470,7 +731,7 @@ Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777961.jpg" />
 </div>
 
 
@@ -484,267 +745,6 @@ Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B335E12765C7BFFBE4F87FB2FB73FC9E72134C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533777   (777772) от 03.05.2016
-
-Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Universal Music Company [FLAC|Lossless]<Progressive rock, pop, Celtic fusion, world, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To France (with Maggie Reilly) (4:48)
- 02. The Lake (13:43)
- 03. The Killing Fields (2:44)
- 04. Etude (4:38)(   Читать дальше...   )Жанр: Progressive rock, Pop, Celtic Fusion, World, New AgeПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D10CD9FD8DA70676AF2B9D2917E8FA064EECAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013545   (777655) от 04.05.2016
-
-Medwyn Goodall - Manitou the Great Spirit (2015) [MP3|320 кб/с] <Native american, Ethnic, Meditation, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blue Jay [00:08:38]
-02 - Manitou The Great Spirit [00:08:51]
-03 - The Star People [00:07:55]
-04 - Wakinyjan [00:08:56](   Читать дальше...   )Жанр: Native american, Ethnic, Meditation, New AgeПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F71F8C2C906318368B28F07C879082E15727903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013277   (777654) от 04.05.2016
-
-Kathryn Kaye - There Was a Time (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saro Remembered    05:52
-02. Arise    04:21
-03. There Was a Time    04:28
-04. Spring Snow    06:02(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEB72BF50580908C7709A565D01E6181DC5F880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013520   (777649) от 04.05.2016
-
-Danny Rayel - Blue Skies (2016) [MP3|320 кб/с] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Skies 05:59
-02. Dreaming of Love 03:52
-03. Blossoming Heart 03:17
-04. Infinity 04:15(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD05D58284107DF847302BD83AF548133E16F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013614   (777622) от 04.05.2016
-
-Peter Kater & Tina Guo - Inner Passion (2016) [MP3|320 кб/с] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Embrace
-02. Lotus Moon
-03. Self Discovery
-04. River Of The Sun(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC3D99E6DE3E7C4CA822DD41A1E1D737C06A2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013458   (777603) от 04.05.2016
-
-Emir Kusturica & The No Smoking Orchestra - Unza Unza Time (2000) [FLAC|Lossless|tracks + .cue] <Folk Rock, Gypsy, Balkan>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unza Unza Time 04:41
-02. Djindji Rindji Bubamara 05:01
-03. Lubenica 05:50
-04. Prnavor 03:36(   Читать дальше...   )Жанр: Folk Rock, Gypsy, BalkanПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:959D561238388FF64C9AE7B4676EE0C79C9F96C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013051   (777576) от 04.05.2016
-
-Francis Goya - Musica Espectacular (2016) [FLAC|Lossless|WEB-DL|tracks] <Easy-Listening, Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say You Say Me (4:03)
-02. The Lady In Red (4:06)
-03. Against All Odds (3:20)
-04. Nothing's Gonna Change My Love For You (4:05)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, GuitarПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17997FDAAD78532303D119F521BB8F6F7443AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211273   (777564) от 07.03.2018
-
-Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeludium (The Time Of The Time) (3:28)
-02. 11:11 Rendezvous (4:07)
-03. Desert (4:25)
-04. Cosmic Love (3:59)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0C657E6F476B99086ED6B1F42B5373F34A3A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211296   (777561) от 07.03.2018
-
-Maximus & Felix - 2 Albums (1993, 1996) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeludium (The Time Of The Time) (3:28)
-02. 11:11 Rendezvous (4:07)
-03. Desert (4:25)
-04. Cosmic Love (3:59)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9784BC796258A449E547D0CCBD587322980357D
 ```
 
 https://mybot314.ru/tekegram_catalog/

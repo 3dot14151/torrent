@@ -1,3 +1,107 @@
+###  Публикация: 1607112   (209056) от 25.01.2023
+
+Книжная серия | Тревожная весна 45-го. Послевоенный детектив [15 книг] (2019-2023) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающие детективы на материале послевоенной эпохи. Уникальная возможность окунуться в недавнее прошлое нашей страны и вместе с привлекательными мужественными главными героями раскрыть сложные уголовные дела. Через призму детектива вспомнить героическое время – конец 40-х гг., ощутить дух времени, трепетно хранящийся во многих семьях. Необычно и реалистично (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D373E9F425C49D75AA403B934FFD19EAD1DCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606758   (209053) от 25.01.2023
+
+Книжная серия | Магия викторианского детектива [6 книг] (2022-2023) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209053.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии "Магия викторианского детектива" издаются авторы, пишущие в жанре мистического детектива, действие которого происходит в антураже викторианской эпохи. Среди них состоящий из четырех книг цикл Александры Торн о комиссаре Бренноне и таинственном консультанте мистере Логсдейле, а также романы Даниэля Брэйна, Анны Дашевской и других. В каждой книге (   Читать дальше...   )Жанр: Детектив, мистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918027FFE5AF4452538CC68479532FDBF4A7E57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515491   (208138) от 05.02.2023
+
+Книжная серия | Милицейский детектив [20 книг] (2014-2016) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальные повести, дерзкие грабежи, тяжкие преступления и нереально хитрые и ловкие преступники. Все с чем придется столкнуться героям серии могло произойти или произошло в реальном мире. Как доблестные служители закона распутают эти клубки? Как выйдут на след преступников? Смогут ли поймать их? Все это вы узнаете прочитав серию - "Милицейский детектив". (   Читать дальше...   )Жанр: Детектив. ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29173BCD7C735642F8E6A4E9A9CBB974B108951E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830546   (205702) от 27.10.2025
+
+Книжная серия | Top expert. Практичные книги для работы над собой [36 книг] (2020-2025) [FB2, EPUB]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Top expert. Практичные книги для работы над собой" - серия книг российских авторов-экспертов, которые не являются блогерами-миллионниками, но обладают сильной экспертизой.Жанр: Саморазвитие, личностный ростИздательство: ЭксмоФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22F48389A9A5368AA2A37E29F4B79837B8A7A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830564   (205701) от 27.10.2025
 
 Книжная серия | Экономические миры [13 книг] (2019-2025) [FB2, PDF]
@@ -6,7 +110,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205701.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204507.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204355.jpg" />
 </div>
 
 
@@ -89,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204311.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203980.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203322.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202913.jpg" />
 </div>
 
 
@@ -196,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202697.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202263.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201925.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201704.jpg" />
 </div>
 
 
@@ -302,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201655.jpg" />
 </div>
 
 
@@ -330,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201605.jpg" />
 </div>
 
 
@@ -356,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201525.jpg" />
 </div>
 
 
@@ -382,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201163.jpg" />
 </div>
 
 
@@ -408,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200831.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199788.jpg" />
 </div>
 
 
@@ -461,7 +565,7 @@ Cбopник | «Третья мировая» [84 книги] (1986-2022) [FB2]
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198712.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198088.jpg" />
 </div>
 
 
@@ -514,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196827.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196306.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196292.jpg" />
 </div>
 
 
@@ -577,110 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668C2771CE3E75AFC2B79712425D9A3817F5C267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646864   (195662) от 16.07.2023
-
-Книжная серия | «В одном томе» [176 книг] (2005-2020) [FB2] [Обновляемая]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия основана в 2005 году и задумана как издание популярных циклов известных писателей в одном томе. Одна книга содержит от двух до пяти романов одного цикла.Жанр: Фантастика, фэнтезиИздательство: Альфа-книгаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E10D8826DA0EB71D6A695BAA1F2B2B3D362DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646856   (195602) от 16.07.2023
-
-Сбopник | «Попадaнцы. LitRPG & Eve-Online» [7049 книг] (2002-2023) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195602.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли произведения про попаданцев в миры различных игр (LitRPG), а также во вселенную многопользовательской онлайн-игры на тему космоса - Eve-Online.Жанр: Боевая фантастикa, космоопера, LitRPGИздательство: Различные, СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB426222C36A84789B16811BA8B139982D4E87D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646865   (195544) от 17.07.2023
-
-Книжная cepия | «Мир фантастики + Коллекция делюкс» [67 книг] (2015-2023) [FB2] [Обновляемая]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия избранных лучших фантастических произведений отечественных и зарубежных авторов. В серии издаются произведения любых жанров и направлений фантастики: от фэнтези до социальной фантастики, от космооперы до фантастики гуманитарной.Жанр: фантастика, фэнтезиИздательство: Азбука, Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84DA5B947703BC5CDFBF2B853152548CB3B2DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654206   (194158) от 19.08.2023
-
-Книжная серия | «Millennium» (1999 — 2001) [DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Millennium» — это собрание качественной зарубежной литературы XX века.Жанр: Романы, повести, рассказы, стихиИздательство: АмфораФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB46A795FD35F515E44D5A1E94A53936F27C0FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

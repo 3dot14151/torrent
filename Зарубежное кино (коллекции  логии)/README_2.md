@@ -1,3 +1,55 @@
+###  Публикация: 439611   (972142) от 21.01.2012
+
+Долларовая трилогия / Dollars Trilogy / Trilogia del dollaro (1964, 1965, 1966) [H.264] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Вестерн, боевик, приключенияРежиссер: Серджио ЛеонеАктеры: Клинт Иствуд, Эли Уоллах, Ли Ван Клиф, Марио Брега, Рада Рассимов, Альдо Джуффре, Луиджи Пистилли, Антонио Касас, Антонио Молино Рохо, Антонио КазалеЯзык субтитров: Русский (два вида), английский(два вида)Продолжительность: 02:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE0D338C89D296E9B6C83F4B06EB4E84A96B8D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744583   (969931) от 12.01.2014
+
+Полицейская академия / Police Academy (1984-1994) BDRip [H.264/720p-LQ] [Hi10P]  [The Complete Collection]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейские из Академии выходят на улицы, чтобы защищать, служить… и смешить до смерти.Банда хулиганов творит безобразия по всему городу и опустошает карманы всех, кто находится с ними на одном тротуаре. Осторожно! Когда увальни в голубой форме решат разобраться с этими парнями, это закончится умопомрачительным смехом. Завсегдатаи Полицейской Академии - от тормозного (   Читать дальше...   )Производство: СШАЖанр: Комедия, Боевик, КриминалРежиссер: Хью Уилсон, Джерри Пэрис, Джим Дрейк, Алан Майерсон, Питер Бонерз, Алан МеттерАктеры: Стив Гуттенберг, Ким Кэтролл, Дж. У. Бейли, Бубба Смит, Донован Скотт, Джордж Гейнс, Эндрю Рубин, Дэвид Граф, Лесли Истербрук, Майкл Уинслоу, Брюс Малер, Мэрион Рэмси, Коллин Кэмп, Ховард Хессеман, Арт Метрано, Тим Казурински, Боб Голдтуэйт, Шэрон Стоун, Лэнс Кинси, Джанет Джонс, Мэтт МакКой, Кристофер Ли, Рон Перлман, Клэр Форлани, Чарли Шлэттер, Ричард ИзраэльПеревод: Профессиональный (дублированный), Профессиональный (многоголосый, закадровый), Профессиональный (двухголосый, закадровый), Авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийФормат: MKVПродолжительность: 01:36:24, 01:27:09, 01:23:43, 01:27:16, 01:29:50, 01:23:55, 01:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC7BFAAA53DE4D287366B70866C7B7D58407657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744133   (969915) от 12.01.2014
 
 Доспехи Бога / The Armour of God (1986, 1991, 2012) BDRip [H.264/1080p] [Трилогия]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969915.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968122.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967015.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966921.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966919.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965887.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960906.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960600.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959437.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957684.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957066.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954900.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954248.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953127.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948144.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946684.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945714.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945500.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943844.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942581.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936738.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936579.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935719.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932877.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF33ED7775FAD4A330A33BF82D9016EE37A59FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547773   (931168) от 13.03.2013
-
-Сумерки.Сага: Квадрология / Twilight. Saga: Quadrology (2008-2012) HDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Белла, став вампиром, постепенно свыкается со своей новой природой. В этом ей помогают Эдвард и остальные члены семьи Калленов. К тому же теперь у Беллы есть дочь Ренесми и вечность впереди. Джейкоб, запечатленный с Ренесми, становится для девочки другом и наставником. Ненадолго для героев наступают спокойные, счастливые дни. Все заканчивается, когда вести о Ренесми (   Читать дальше...   )Производство: СШАЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Тэйлор Лотнер, Питер Фачинелли, Элизабет Ризер, Эшли Грин, Джексон Рэтбоун, Келлан Латс, Никки Рид, Билли БёркПеревод: ДубляжСубтитры: ОтсутствуютПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CAAFC5AEE618BB60D30C8FC67975F31B2AE2E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547779   (931166) от 13.03.2013
-
-Сумерки.Сага: Квадрология / Twilight. Saga: Quadrology (2008-2012) HDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Белла, став вампиром, постепенно свыкается со своей новой природой. В этом ей помогают Эдвард и остальные члены семьи Калленов. К тому же теперь у Беллы есть дочь Ренесми и вечность впереди. Джейкоб, запечатленный с Ренесми, становится для девочки другом и наставником. Ненадолго для героев наступают спокойные, счастливые дни. Все заканчивается, когда вести о Ренесми (   Читать дальше...   )Производство: СШАЖанр: фэнтези, драма, мелодрама, приключенияРежиссер: Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Тэйлор Лотнер, Питер Фачинелли, Элизабет Ризер, Эшли Грин, Джексон Рэтбоун, Келлан Латс, Никки Рид, Билли БёркПеревод: ДубляжСубтитры: ОтсутствуютПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F478E861F74FF44BB274650FFF5A5F05736846E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

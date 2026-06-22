@@ -1,3 +1,31 @@
+###  Публикация: 816093   (549283) от 26.08.2014
+
+Basilisk: Kouga Ninpou Chou | Basilisk: The Kouga Ninja Scrolls | Василиск [2005, TV, 24 эп.] BDrip 1080p Hi10P raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два клана ниндзя, Ига и Кога, издревле враждовали друг с другом. И сверкали мечи, и лилась реками кровь, до тех пор пока на пути древней вражды не встал местный лорд Хаттори Хандзо. И тогда были связаны два клана нерушимым договором, запрещающим стародавнюю вражду.
+
+Время шло, вековая лютая ненависть, хоть и поугасла немного, все равно продолжала тлеть в сердцах непримиримых. Но встали между кланами двое влюбленных, юноша и девушка, два юных сердца, вознамерившиеся вступить в союз и тем самым покончить с древними (   Читать дальше...   )Жанр: самурайский боевик, драма, мистикаРежиссер: Кидзаки ФуминориПродолжительность: 24 эпизода по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACDCEAC46E82ECA7B7482DC04EBA70917E949BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309935   (548785) от 22.06.2019
 
 Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +34,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548785.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Seikaisuru Kado | Seikai Suru Kado | Kado: The Right Answer | Правильны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548741.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Citrus | Цитрус [2018, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548718.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Seikaisuru Kado | Seikai Suru Kado  | Kado: The Right Answer | Правильн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548653.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Sacred Seven / Священная Семерка [2011, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548408.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548389.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ Nanatsu no Taizai OVA | The Seven Deadly Sins OVA | Семь смертных г
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548071.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ Nobunaga-sensei no Osanazuma | Nobunaga Teacher's Young Bride | Молодая �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547560.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ Overman King-Gainer / Король Гэйнер [2002, TV, 26 из 26] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547341.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ Samurai Champloo / Самурай Чамплу [2004, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547246.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ Go! Go! Ackman | Вперёд! Вперёд! Акман! [1994, OVA] VHSRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547067.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546776.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ Shoumetsu Toshi | Afterlost | Исчезнувший город [2019, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545969.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545907.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ Meru Hevun / Mar Heaven: Marchen Awakens Romance / Небеса МАР [2005, TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545562.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai / Ao-chan Can't Study! / Похотли�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545067.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ Mudazumo Naki Kaikaku: The Legend of Koizumi | Легенда о Коидзум�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544716.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ Aokana | Four Rhythm Across the Blue | Ao no Kanata no Four Rhythm | Четыр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544544.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ Gakuen Tokusou Hikaruon / Campus Special Investigator Hikaruon / Хикаруо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543799.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ Mushishi Zoku Shou: Suzu no Shizuku / Мастер Муси: Капли коло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542547.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ Dragon Crisis! / Драконий кризис! [2011, TV, 12] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540702.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ Bakuman. 2 / Бакуман [ТВ-2] [2011, TV, 25 из 25] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540236.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ Vampire Wars / Войны вампиров [1990, OVA] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540048.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ Cleopatra DC / Клеопатра Ди-Си [1989, OVA, 3 ep.] Remastered DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540043.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ Namu Amida Butsu! Utena | Да здравствует Амитабха [2019, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539625.jpg" />
 </div>
 
 
@@ -648,32 +676,6 @@ Namu Amida Butsu! Utena | Да здравствует Амитабха [2019, TV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98E6473F13FEFBBCBE74318574B417D7CC0F9E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295676   (539488) от 30.06.2019
-
-Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [2019, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боуида Харуто - заядлый отаку, который не интересуется 3D (реальными) девушками. Однажды он купил фигуру своей любимой аниме-героини Ноны, но внезапно Нона начала двигаться! Бешеная семейная жизнь между одним отаку и одним роботом вот-вот начнется!Производство: Студия Studio A-CATЖанр: комедияРежиссер: Мотонага КэйтароПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5201816A1DB03AD6FE308926C1566EB06A841A18
 ```
 
 https://mybot314.ru/tekegram_catalog/

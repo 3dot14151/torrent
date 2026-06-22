@@ -1,3 +1,90 @@
+###  Публикация: 1104214   (881328) от 14.02.2017
+
+Оля Полякова - Шлёпали шлёпки (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881328.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Polyakova Style
+2. #Шлепки
+3. Плавочки
+4. Люли(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4F2B3B110EFCAEEE8D9C13E898398B0CFEB174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996592   (878969) от 14.03.2016
+
+OQJAV (Окуджав) - Марта (2016) [MP3|320 кб/с] <Dance pop, New Wave, Synthpop, Indie Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы закинем якоря
+ 02. Шапочки
+ 03. Хаски
+ 04. Валерий Павлович(   Читать дальше...   )Жанр: Dance pop, New Wave, Synthpop, Indie PopПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336FEBBDED56259DDC9CDBD437833143E0A666E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374456   (872447) от 10.04.2020
+
+Егор Крид - 58 (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872447.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 58
+2. Мне всё Монро (feat. HammAli & Navai)
+3. Хуракан
+4. Барби (feat. DAVA)(   Читать дальше...   )Жанр: PopПродолжительность: 00:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E210238A12872BBDC0F6976462C59E6825F1B036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374419   (871201) от 11.04.2020
 
 NoNative - Между нами (2020) Single [MP3|320 Kbps] <Pop>
@@ -6,7 +93,7 @@ NoNative - Между нами (2020) Single [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871201.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870953.jpg" />
 </div>
 
 
@@ -58,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868317.jpg" />
 </div>
 
 
@@ -87,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865385.jpg" />
 </div>
 
 
@@ -116,7 +203,7 @@ SHLAKOBLOCHINA - FATALITY (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865257.jpg" />
 </div>
 
 
@@ -145,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854882.jpg" />
 </div>
 
 
@@ -174,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853594.jpg" />
 </div>
 
 
@@ -200,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852028.jpg" />
 </div>
 
 
@@ -229,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847951.jpg" />
 </div>
 
 
@@ -258,7 +345,7 @@ RSAC - не важно что говорят кисы (2021) [MP3|320 Kbps] <Alt
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847827.jpg" />
 </div>
 
 
@@ -287,7 +374,7 @@ NILETTO - юбилейный 30 (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847578.jpg" />
 </div>
 
 
@@ -316,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846478.jpg" />
 </div>
 
 
@@ -345,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843034.jpg" />
 </div>
 
 
@@ -374,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842972.jpg" />
 </div>
 
 
@@ -400,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842911.jpg" />
 </div>
 
 
@@ -429,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842806.jpg" />
 </div>
 
 
@@ -458,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841084.jpg" />
 </div>
 
 
@@ -487,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837995.jpg" />
 </div>
 
 
@@ -516,7 +603,7 @@ Zivert - Vinyl #2 (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837859.jpg" />
 </div>
 
 
@@ -545,7 +632,7 @@ Modern Tracking (M-Tracking) - Discovery Magic (2015) [MP3|320 кб/с] <Поп,
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837821.jpg" />
 </div>
 
 
@@ -574,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837557.jpg" />
 </div>
 
 
@@ -603,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837459.jpg" />
 </div>
 
 
@@ -632,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837385.jpg" />
 </div>
 
 
@@ -643,93 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33BCF198FC1AAF7E4C1CF64ED86AE6FB5DAC645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004978   (836661) от 07.04.2016
-
-Винтаж - Light (2014) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Искренность
-02. Деревья
-03. Ева (Slow)
-04. Запретный Мир(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B969D340541FC59EA7F5EB1DF6B7C77BE6F09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113735   (836458) от 12.03.2017
-
-Первоуральск - Диктант (1990) Remastered, 2009, Julia Records [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малоизвестная команда с мужским вокалом в дополнение к миражам и иже подобным. Мне нравилось!01. Ухожу В Ночь
-02. Раскаянье
-03. Наташка
-04. Позови За Собой(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA74AFEA376725A9C4FD5BE57E5C309BE2B0E9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502019   (831816) от 12.10.2021
-
-VA - Я тебя знаю (Дмитрий Маликов Трибьют) (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831816.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дмитрий Маликов/Анна Плетнёва «Винтаж» - Мир без твоей любви
-2. Артур Пирожков - Ты моей никогда не будешь
-3. Филипп Киркоров - Ещё, ещё
-4. EMIN - Love Story(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CBBA11C285C32F0F1E6CBB3060C6C80A6C3F14
 ```
 
 https://mybot314.ru/tekegram_catalog/

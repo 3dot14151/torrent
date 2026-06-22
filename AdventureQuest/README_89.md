@@ -1,3 +1,133 @@
+###  Публикация: 1752237   (42023) от 29.09.2024
+
+Trap for the Heir (2024) [Ru/En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trap for the Heir – что вы скажете насчет исследований удивительного фэнтезийного мира? Где вам предстоит управлять опытной наемницей-оборотнем по имени Гвен, которую ожидает неожиданно выгодный заказ. Все берет начало с интриг, секретов, неожиданных поворотов и заканчивается тем, что на кону будут стоять не только деньги, но и жизнь! Попросту говоря, вы должны узнать (   Читать дальше...   )Тип издания: SceneРазработчик: MariLuzariaЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9C34D49C4FF27497A08FF179CBEB75CA209D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389298   (41962) от 30.09.2024
+
+Resolutiion (2020) [Ru/Multi] (1.3.0.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resolutiion - это динамичная игра в жанре action-adventure, созданная двумя злобными братьями из Германии. Присоединяйтесь к группе бродяг в игре с прекрасной пиксельной графикой, грязными шуточками, глубокими идеями и крутым саундтреком на 20 часов игрового времени. Вас ждут жестокие битвы, исследования, награды и непростая история. Кем вы станете? Игроком или игрушкой? (   Читать дальше...   )Тип издания: LicenseРазработчик: Monolith of MindsЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B5E0F64E407F9F05AC4DCB915C0F88677DE6B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752236   (41945) от 30.09.2024
+
+Murder On Space Station 52 (2024) [Multi] (1.13.5) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Murder On Space Station 52 - это остросюжетное мистическое приключение, действие которого разворачивается в стенах космической станции. Вы играете за Эдварда Локка, человека, попавшего в ловушку к печально известному убийце, известному как Убийца с брелоком. Тайтл вращается вокруг разгадки тайны, собирая улики, допрашивая подозреваемых и решая головоломки. Космическая (   Читать дальше...   )Тип издания: LicenseРазработчик: Made From StringsЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F720DEF5AE6EFD4E2A995C8C19EB7F8280845910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752544   (41846) от 01.10.2024
+
+DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединитесь к охоте как один из агентов, в этой многопользовательской игре Co-op & PVP о ужасе и обмане. Один из вас будет одержим и затем станет призраком, а остальные должны пережить преследование! Играйте в одиночку, или с вашими приятелями агентами до 4 игроков.Тип издания: RepackРазработчик: Digital HappinessЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Индонезийский, Испанский и другиеЯзык интерфейса: Русский, Английский, Индонезийский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C69B734C1BC968D274499FBE4F3318D85594403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752546   (41814) от 01.10.2024
+
+The Invincible (2023) [Ru/Multi] (44.475) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41814.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Invincible представляет собой приключенческую игру с видом от первого лица. Проект использует антураж ретрофутуризма и отсылает к космической гонке между США и СССР в 20 веке. Тайтл выполнен в сеттинге атомпанка. Он может понравиться тем, кто любит атмосферу научно-фантастических триллеров. В основу нелинейного сюжета The Invincible лег роман "Непобедимый" (   Читать дальше...   )Тип издания: RepackРазработчик: Starward IndustriesЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06287E658DDE9E373B090691E1C0D3E0F54A4B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752898   (41736) от 02.10.2024
 
 Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
@@ -6,7 +136,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41736.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Prison Alone (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41715.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ AMEDAMA (2024) [Multi] (2.0.0/2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41491.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Beyond Hanwell (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41428.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Psycho Fear (2024) [Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41397.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41393.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41309.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Machinika: Atlas (2024) [Ru/Multi] (1.1.2.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41291.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (Build 1589651
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41241.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41218.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41208.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40877.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40736.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40730.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40723.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40693.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Europa (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40633.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40540.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40525.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40519.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40134.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ The Devil is in the Details, это хоррор-игра от первого л
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD85C66DC303E9F7F443B4A8E10A1DAEDDEA2B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755669   (40106) от 17.10.2024
-
-Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмоциональное приключение Neva сделала та же команда разработчиков, которая выпустила игру GRIS, тепло принятую критиками и полюбившуюся игрокам. Главная героиня Neva - девушка Альба, которая после встречи с тёмными силами оказалась связана с любопытным волчонком. Вместе они отправляются в опасное путешествие по некогда прекрасному умирающему миру. Альба и волчонок (   Читать дальше...   )Тип издания: RepackРазработчик: Nomada StudioЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7ACA71C1A8ECFF498DB5FF91F36BD4D8A41F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756107   (39921) от 19.10.2024
-
-Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите узнать, как рождаются легенды? Как Арсен Люпен, скромный грабитель, стал героем, которого знают все? Сыграйте в приключенческую игру с расследованиями, действие которой происходит в начале XX века. Вас ждет множество головоломок, а также увлекательная история о юности, любви и преступлениях легендарного вора-джентльмена. Играйте как за Люпена, так и за сыщика (   Читать дальше...   )Тип издания: SceneРазработчик: Blazing GriffinЖанр: Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67645B6CD0148EA657AB46DB081534370CCB3697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756087   (39904) от 19.10.2024
-
-A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39904.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Quiet Place: The Road Ahead - это однопользовательская приключенческая игра в жанре хоррор, вдохновленная получившей признание критиков франшизой и рассказывающая историю выживания после нашествия смертоносных существ. В этом эксклюзивном спин-оффе вы пройдете путь молодой женщины, для которой ужасный апокалипсис совпал с разгаром семейного конфликта, и она пытается (   Читать дальше...   )Тип издания: RepackРазработчик: Stormind GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6AF46F17806D4B3F03888A25F59E3A79058E96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756084   (39896) от 19.10.2024
-
-Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы Харуна - квестор, наделенный способностью погружаться в Складку - таинственное измерение, напрямую связанное с нашим миром. В погоне за тайными знаниями Харуне предстоит отточить свое исключительное умение использовать силу Складки в реальности... Однако дар Харуны не остается незамеченным, и она становится целью Восходящих. Эта организация замыслила повлиять (   Читать дальше...   )Тип издания: RepackРазработчик: Reflector Entertainment Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEF14C3D22C308A66F017FDB4F70931BE2F0B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756019   (39881) от 19.10.2024
-
-The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь назад во времени, чтобы спасти будущее, в этом уморительном приключении. Через шесть часов Небесам придет конец. Если только вы их не спасете. Используйте способность путешествовать во времени, чтобы перемещаться между прошлым и будущим на Небесах, в Аду, на Земле и в Хельхейме. Узнавайте что-то в одном времени, чтобы изменить другое, в попытке предотвратить (   Читать дальше...   )Тип издания: RepackРазработчик: Perfectly ParanormalЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC0B0D56AFC1ABADF726DD06AB844B21D5A9276
 ```
 
 https://mybot314.ru/tekegram_catalog/

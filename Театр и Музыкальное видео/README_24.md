@@ -1,3 +1,174 @@
+###  Публикация: 986353   (927634) от 16.02.2016
+
+Dead Can Dance / Toward The Within (1994), remastered 2001 4AD, DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Folk, World, & CountryПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C162C5A13A17DB9A13B329D556C1D5BA5EBB071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094820   (927621) от 19.01.2017
+
+Пётр Чайковский - Пиковая дама (1960) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-опера на музыку Петра Ильича Чайковского из серии "Шедевры оперного искусства".
+Фильм получил диплом на конкурсе УНИАТЕК (1960). Премьера оперы "Пиковая дама" состоялась в Мариинском театре 7 (19) декабря 1890 года и имела огромный успех. При этом опера была создана Чайковским за предельно короткий срок - в сорок четыре дня. И, по словам (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Фильм-опера, драма, экранизацияРежиссер: Роман ТихомировАктеры: Олег Стриженов, Ольга Красина, Елена Полевицкая, Ирина Губанова-Гурзо, Вадим Медведев (I), Валентин КуликПродолжительность: 01:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E4117A354903B75D58DD65F3FF422A556A2F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986819   (927590) от 16.02.2016
+
+Big Love Show 2016. Грандиозный концерт ко Дню всех Влюбленных (2015.02.14) SATRip  (Телеверсия)
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда миллионы сердец бьются в одном ритме. Когда эмоции зашкаливают. Когда ВСЕ звезды сходятся…Это BIG LOVE SHOW 2016! Мы подарим тебе невероятные ощущения и абсолютно новый формат праздника на самой большой площадке Москвы! Ты окажешься в самой гуще событий, ведь никогда еще сцена в Олимпийском не была так близко к тебе, независимо от того, находишься ты на трибунах (   Читать дальше...   )IOWA - Бьет бит
+Банд'Эрос - Ч/Б
+5sta Family - Megamix Big Love Show
+Лена Темникова feat Natan - Наверно(   Читать дальше...   )Телекомпания: СТСЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62E08EB4183360504AE23BA8EA346F15511502A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986955   (927318) от 16.02.2016
+
+VA- Коллекция клипов в авто (ZAP_part2) (2DIN) (1970-2008)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клипов в авто.Часть 2.0001_2 Brothers On The 4Th Floor - Heaven Is Here.avi
+0002_2 Brothers On The 4Th Floor - Making Of The Sun.avi
+0003_2 Brothers On The 4Th Floor - Never Alone.avi
+0004_2 Brothers On The 4th Floor - The Sun Will Be Shining.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 60:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BC5B4D91FE1C8CFB5C28654ED39D39C5B52834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365591   (927119) от 09.03.2020
+
+U-ka saegusa IN db [one 1 Live] (2005) DVDRip [H.264/480p]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта группы U-ka saegusa IN db, прошедшего 26.09.2004 в Namba Hatch (Osaka) и 30.09.2004 в Shibuya-AX (Tokyo).
+
+Источник: лицензионный DVD9Shocking Blue
+I'm in love
+I can't see, I can't feel
+Kokoro ga Tomaranai(   Читать дальше...   )Производство: Япония, B-VisionЖанр: J-PopСубтитры: отсутствуютПродолжительность: 01:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED937A78A19EBB019B62E7E50A68544B682FF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365846   (927012) от 09.03.2020
+
+Дискотека 80-х (полная версия) (2019) HDTVRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная дискотека страны состоялась уже в 18-й раз и, как и прежде, подарила зрителям невероятные визуальные эффекты, качественный звук и, конечно же, выступления самых любимых российских и зарубежных звезд диско на одной сцене.01. Альянс - На Заре
+02. Bad Boys Blue - Come Back And Stay
+03. Bad Boys Blue - Pretty Young Girl
+04. Bad Boys Blue - You’re a Woman(   Читать дальше...   )Производство: РоссияЖанр: DiscoРежиссер: 1 каналПеревод: не требуетсяСубтитры: отсутствуютПродолжительность: 03:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36694F06EF8DC079E43DACAC8BAB19EAC7DE728A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365837   (926989) от 09.03.2020
 
 Дискотека 80-х (полная версия) (2019) HDTV [H.264/1080i]
@@ -6,7 +177,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926989.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926028.jpg" />
 </div>
 
 
@@ -62,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925912.jpg" />
 </div>
 
 
@@ -91,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925843.jpg" />
 </div>
 
 
@@ -120,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925801.jpg" />
 </div>
 
 
@@ -147,7 +318,7 @@ VA - Зимний марафон № 224: Зимняя Волна Новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925751.jpg" />
 </div>
 
 
@@ -176,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925674.jpg" />
 </div>
 
 
@@ -205,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925657.jpg" />
 </div>
 
 
@@ -234,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925067.jpg" />
 </div>
 
 
@@ -265,7 +436,7 @@ Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924873.jpg" />
 </div>
 
 
@@ -291,7 +462,7 @@ Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924846.jpg" />
 </div>
 
 
@@ -317,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924251.jpg" />
 </div>
 
 
@@ -344,7 +515,7 @@ Schiller: Zeitreise Live (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923977.jpg" />
 </div>
 
 
@@ -370,7 +541,7 @@ Blank & Jones - The Videos (2007) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923621.jpg" />
 </div>
 
 
@@ -398,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923176.jpg" />
 </div>
 
 
@@ -425,7 +596,7 @@ Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923002.jpg" />
 </div>
 
 
@@ -451,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922857.jpg" />
 </div>
 
 
@@ -480,7 +651,7 @@ Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Goth
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922344.jpg" />
 </div>
 
 
@@ -509,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921728.jpg" />
 </div>
 
 
@@ -538,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921577.jpg" />
 </div>
 
 
@@ -552,165 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5C49810F984CED92BAB3707AE2FCF8908491AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090177   (920681) от 23.01.2017
-
-Джузеппе Верди – Стиффелио / Giuseppe Verdi - Stiffelio (1993) DVDRip (Royal Opera House Covent Garden)
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для композиторов и либреттистов XIX века цензура была обыденным явлением. Тексты опер скрупулезно разбирались с целью обнаружить что-либо, способное оскорбить общественное мнение или внести смуту в народ. Одной из жертв цензуры стала опера Верди «Стиффелио», которую композитору пришлось существенно переработать. После переработки опера ставилась под новым названием (   Читать дальше...   )Производство: Великобритания, Royal Opera House Covent Garden, BBC, Opus ArteЖанр: ОпераРежиссер: Элайджа Мошински, Брайан ЛарджАктеры: Хосе Каррерас, Кэтрин Мальфитано, Грегори Юрисич, Гвин Хауэлл, Робин Леггейт, Линтон Аткинсон, Адель ПакстонПеревод: Не требуетсяСубтитры: Русские (отдельным файлом)Продолжительность: 02:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C92D74566751EA4A417BCB65A44362A89EBE860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987154   (920566) от 20.02.2016
-
-Юбилейный вечер Вячеслава Добрынина (2016) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэтр отечественной эстрады, композитор и исполнитель Вячеслав Добрынин отмечает юбилей. Песни народного артиста России композитора Вячеслава Добрынина без малого 50 лет любимы и востребованы в нашей стране. "Все мимолетно" - так называется юбилейная программа композитора, которому в январе 2016 года исполнилось 70 лет, и который полон творческих сил и замыслов. (   Читать дальше...   )01. Вячеслав Добрынин — Всё мимолётно...
-02. Хит-парад — День рождения
-03. Лев Лещенко — Попурри
-04. Ольга Зарубина — Разлучница-разлука(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертПродолжительность: 01:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6879F3A80B16C353CB4EF8DC1157B842488481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178014   (920318) от 28.02.2010
-
-Billy's Band. Живые концерты. / Billy's Band Live (2006, 2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск содержит две видеозаписи с живых концертов группы Billy's Band "Весенние  обострения" 2006 г, Мюзик Холл, и "Осенний алкоджаз" 2009 год, Клуб А2.Жанр: Blues/Rock/LiveРежиссер: Билли НовикАктеры: Билли Новик - контрабас, голос Антон Матезиус - баяны, шейкер, вой, вокал Андрей Рыжик - гитары, цимбалы, бек-вокал Михаил Жидких - саксофоны (альт, тенор, сопрано), шейкер Александр Буткеев - фортепиано Евгений Бобров - барабаныПеревод: Оригинальный
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289196   (920186) от 30.01.2011
-
-Музыкальный ринг на НТВ. Выпуск №11. Леонид Агутин VS Ваенга  (29.01.2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: Концерт, ТВ-ШоуПродолжительность: ~ 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6589A98BEFC70C95611F0AEC3564197E5B8F435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632372   (920013) от 20.03.2013
-
-Lasgo feat. Taylor Jones - Something (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance, ElectroПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA48F18DE6E27120D44FC920BFE8D1EDDFFA6146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632370   (919808) от 20.03.2013
-
-Sander Van Doorn & Mark Knight V Underworld - Ten (Director`s Cut) (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance, ElectroПродолжительность: 00:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07398776C2D6A22B33D6E76F9437C6BBFC40BA20
 ```
 
 https://mybot314.ru/tekegram_catalog/

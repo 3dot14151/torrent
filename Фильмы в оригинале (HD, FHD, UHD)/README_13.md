@@ -1,3 +1,133 @@
+###  Публикация: 1118092   (812755) от 25.03.2017
+
+Космос между нами / The Space Between Us (2017) WEBRip [H.264/720p-LQ] [EN / KOR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Межгалактическая история любви земной девушки и Гарднера Эллиота, выросшего в экспериментальной колонии на Марсе. Их роман начался в интернете, и теперь Эллиот летит на Землю, чтобы встретиться с возлюбленной…Производство: США, Los Angeles Media Fund (LAMF), STX Entertainment, Southpaw Entertainment (I)Жанр: Фантастика, Драма, Мелодрама, ПриключенияРежиссер: Питер ЧелсомАктеры: Бритт Робертсон, Гари Олдман, Эйса Баттерфилд, Джанет Монтгомери, Трей Такер. Скотт Такеда, Сара Минник, Райан Джейсон Кук, Б.Д. Вонг, Лорен Майерс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейские (неотключаемые)Продолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0736BFFCE029A0185EA95424C5B0C0D6CF8F0C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198027   (811618) от 09.01.2018
+
+1+Эверест / L'ascension / The Climb (2017) WEB-DL [H.264/1080p-LQ] [FRA / EN, DAN, FIN, NOR, SWE Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811618.jpg" />
+</div>
+
+
+###  Подробнее
+
+История темнокожего француза Сами, который находит беспроигрышный путь к сердцу прекрасной возлюбленной — вверх по Эвересту. Невзирая на отсутствие опыта, он взбирается на вершину мира, привлекая внимание не только своей подруги, но и всей Франции.Производство: Франция, DACP, France 2 Cinéma, Mars FilmsЖанр: Приключения, Комедия, МелодрамаРежиссер: Людовик БернардАктеры: Ахмед Силла, Алис Белаиди, Кевин Рази, Николас Ваншыцкий, Waly Dia, Маймуна Гуйе, Денис М’Пунга, Фадила Белкебла, Мусса Мааскри, Умеш Таманг ...Перевод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Английские (отдельным файлом), Датские, Финские, Норвежские, ШведскиеПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ACDD4F4769C255411CF0F839A40FF4FF09E2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197975   (811617) от 09.01.2018
+
+Счастливого дня смерти / Happy Death Day  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый в универе мечтал попасть на её день рождения, но праздник был безнадежно испорчен незнакомцем в маске, убившим виновницу торжества. Однако судьба преподнесла имениннице леденящий душу подарок - бесконечный запас жизней. И теперь у девушки появился шанс вычислить своего убийцу, ведь этот день будет повторяться снова и снова...Производство: США / Blumhouse Productions, Digital Riot Media, Vesuvius ProductionsЖанр: ужасы, триллер, детектив, комедияРежиссер: Кристофер ЛэндонАктеры: Джессика Рот, Израэль Бруссар, Руби Модин, Лаура Клифтон, Джейсон Бэйл, Роб Мелло, Рэйчел Мэттьюз, Рэмси Андерсон, Брэйди Льюис, Фи Ву, Тени Интриаго, Блейн КернПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C0B7FE36C0A53C0EF8D67C1D089C11E005C879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198032   (811451) от 09.01.2018
+
+Цепной пёс / Bullet Head  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже у самого верного дела возможны разные варианты завершения. Матерые преступники, пытаясь по наводке обчистить полицейский склад, оказываются в ловушке с разъяренным сторожевым псом по кличке ДеНиро. Счастливый финал кажется все более призрачным...Производство: Болгария, США / Millennium Media, Nu Boyana Film Studios, Principato-Young Entertainment, Sunset Junction EntertainmentЖанр: триллер, драма, криминалРежиссер: Пол СолетАктеры: Эдриан Броуди, Антонио Бандерас, Джон Малкович, Рори Калкин, Александра Дину, Кристина Сеговиа, Ори Феффер, Оуэн Дэвис, Велизар Бинев, Джош Этье, Кит Д. Эванс, Джейсон ФренсисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D7C3170883C7BCFDE4B3E7A38A8C54C13F749E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197969   (811296) от 09.01.2018
+
+Пила 8 / Jigsaw (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811296.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, Канада / Serendipity Productions, Twisted Pictures, A Bigger BoatЖанр: Криминал, Ужасы, ТриллерРежиссер: Майкл Спириг, Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа БлэкПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3627E4742308155435E502BF75FF2A13D8DBE6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118748   (811214) от 26.03.2017
 
 Месть: История любви / Vengeance: A Love Story  (2017) BDRip [H.264/1080p] [EN]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811214.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811212.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811072.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811070.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810955.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810830.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810828.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809668.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809536.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809219.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809093.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808145.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808021.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808019.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808018.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807875.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807707.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805598.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805357.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805241.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804244.jpg" />
 </div>
 
 
@@ -537,137 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B146A6D42EB7EB0DE1910C69F47C4140D6EB4A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505480   (804240) от 27.10.2021
-
-Под гипнозом / Hypnotic (2021) WEB-DL [H.264/1080p-LQ] [EN / EN, RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая женщина, стремящаяся к самосовершенствованию, обращается за помощью к известному гипнотерапевту. Но после нескольких интенсивных сеансов она обнаруживает неожиданные и смертельные последствия.Производство: США / The Long GameЖанр: триллер, драмаРежиссер: Мэтт Энджел, Suzanne CooteАктеры: Кейт Сигел, Джейсон О’Мара, Дьюли Хилл, Люси Гест, Джейм М. Каллика, Таня Диксон-Уоррен, Дариен Мартин, Люк РодерикПеревод: ОтсутствуетСубтитры: Русские, английские, украинские, немецкие, французскиеПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBF0FE20C052566CF085FBC33AD13930A1C28F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198910   (804231) от 13.01.2018
-
-Мешок мрамора / Un sac de billes / A Bag of Marbles (2016) BDRemux [H.264/1080p] [FRA / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноименному автобиографическому роману Жозефа Жоффо и повествует о годах Второй мировой войны во Франции.
-Париж после капитуляции Франции 1940 года. Оккупационные власти издают законы, ограничивающие права евреев. Глава семьи Жофу, в которой растут два несовершеннолетних мальчика, решает переправиться в свободную зону. При этом братьям, Жозефу и Морису, (   Читать дальше...   )Производство: Франция, Канада, Чехия / Quad Productions, Main Journey, GaumontЖанр: ДрамаРежиссер: Кристиан ДюгеАктеры: Кристиан Клавье, Люк Пэлан, Эльза Зильберштейн, Патрик Брюэль, Фридерик Эпо, Жослин Девершер, Бернар Кампан, Венсан Немет, Холгер Дямген, Пьер Кивитт, Эмиль Берлинг, Сезар Домбой, Колин Леклер, Кев Адамс, Люка ПризорПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: АнглийскиеПродолжительность: 01:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C122B4F2CCBE0ADB0B4136ACF25120F7F46B419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198689   (804113) от 13.01.2018
-
-Акты насилия / Acts of Violence (2018) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы спасти свою невесту, которая попала в лапы торговцев людьми, Роман (Эштон Холмс) должен вспомнить свои военные навыки и объединить свои усилия со своими бывшими сослуживцами и жестким полицейским, расследующим подобные дела.Производство: Канада, США / Colecar Productions, Emmett/Furla/Oasis Films (EFO Films), River Bay FilmsЖанр: Боевик, ДрамаРежиссер: Бретт ДонохуАктеры: Брюс Уиллис, Коул Хаузер, Шон Эшмор, Эштон Холмс, Мелисса Болона, Шон Броснан, София Буш, Майк Эппс, Тиффани Броувер, Дженна Б. Келли ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A345578B7673B1D402B0B2F424922094467BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010173   (803712) от 24.04.2016
-
-Эмили / Emelie  (2015) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803712.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как постоянная няня не смогла прийти, семья Томпсонов обращается к ее подруге Анне, чтобы посидеть с детьми, пока родители празднуют годовщину. Поначалу Анна кажется детям настоящим чудом - девушка разрешает играть с тем, с чем им обычно играть запрещено. Но постепенно поведение няни становится все более и более странным.Производство: США, Sandbar Pictures, ULTRAMEDIA, Uncorked ProductionsЖанр: триллерРежиссер: Майкл ФелинАктеры: Карли Адамс, Карл Бейли, Томас Баир, Крис Битем. Хизер Бенсон. Сара Болгер, Роберт Бозек, Дорин Донован Коркин, Майкл Джозеф Дуган, Данте ХоаглендПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B53E614BDB91261D79709CE82B5D7AC560376D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119718   (803275) от 30.03.2017
-
-Морской пехотинец 5: Поле битвы / The Marine 5: Battleground (2017) WEB-DL [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803275.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время, когда он работал на постсоветском пространстве, Джейк Картер после ответа на вызов в случае бедствия оказался втянутым в защиту человека, представляющего интерес, из банды байкеров, беспощадно охотящегося за ним.Производство: США, WWE StudiosЖанр: БоевикРежиссер: Джеймс НаннАктеры: Мариз Уэлле Мизанин, Майк Мизанин, Анна Ван Хуфт, Тринити Фату, Сэнди Робсон, Нэйтан Митчелл, Брэд Келли, Хит Миллер, Тэйлор Ротунда, Джо Хенниг ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3998B07E4EE71319CC2D29C31FF651778C7F01D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

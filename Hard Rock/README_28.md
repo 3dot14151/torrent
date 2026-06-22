@@ -1,3 +1,90 @@
+###  Публикация: 1267547   (265798) от 07.12.2018
+
+Domain - Our Kingdom (1988) Reissue, 2000, Humbucker Music [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lost In The City
+2. The Run
+3. We Got Love
+4. Sign From Your Heart(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9268496D97EF47CC389B9984509F8CE7B647EF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267695   (265729) от 07.12.2018
+
+Magic Dance - New Eyes (2018) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You're Holding Back 4:13
+02.Never Go Back 3:59
+03.These Four Walls 4:35
+04.Please Wake Me 5:02(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63221754F8D01FB6F9297E523415D479997DEE1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837919   (257913) от 19.11.2025
+
+Midnite City - Bite The Bullet (2025) [MP3|320 Kbps] <Melodic Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live Like Ya Mean It 04:44
+02. Worth Fighting For 04:25
+03. It’s Going To Be Alright 04:33
+04. Heaven In This Hell 03:47(   Читать дальше...   )Жанр: Melodic Hard Rock, GlamПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC04287361814D09CE79662CFB4421F6184B0CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624496   (255471) от 06.04.2023
 
 King Solomon - Heights (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
@@ -6,7 +93,7 @@ King Solomon - Heights (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255471.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Texas Hippie Coalition - The Name Lives On (2023) [MP3|320 Kbps] <Heavy Rock, So
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255016.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Kiss In A Dragon Night - Kiss In A Dragon Night (2023) [MP3|320 Kbps] <Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249740.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Phil Vincent - No Respect (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249605.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Motorbiscuit - Into The Fray (2014) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244945.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Adrenalin - Dedicated (1995) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244673.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ the Poor - High Price Deed (2023) [MP3|320 Kbps] <Hard Rock , AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244474.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Trippelganger - Trip to Hell (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, D
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244174.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Lords Of Dust - Kickin Dust Up (2023) EP [MP3|320 Kbps] <Heavy Rock, Stoner, 70'
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244042.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Drug Mother - Rise Witch (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Doom, Grunge
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244018.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Gnarwhal - Gnarwhal (2023) [MP3|320 Kbps] <Hard Rock, Fuzz, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243346.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Aviator - Aviator (1986) Reissue, 1997, Escape [MP3|320 Kbps] <Melodic Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243096.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Mike Tramp - Songs of White Lion (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243088.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Jason Bieler And The Baron Von Bielski Orchestra - Postcards from the Asylum (20
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243069.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Beyond The Touch - Strange Illusions (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242721.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Crashdiet - Automaton (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241016.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Lee Small - The Last Man On Earth (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240617.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Scarlet Dorn - Queen of Broken Dreams (2022) [MP3|320 Kbps] <Dark Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238412.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ The Dirty Seeds - Beware The Beast Man (2023) [MP3|320 Kbps] <Heavy Rock, Stoner
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237209.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Heartbreak Remedy - 3 Albums (2015-2023) [MP3|320 Kbps] <Classic Rock, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236924.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Axel Rudi Pell - The Ballads VI (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236637.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Royal Thunder - Rebuilding The Mountain (2023) [MP3|320 Kbps] <Heavy Rock, Psych
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234521.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Outer Head - Delirium (2023) [MP3|320 Kbps] <Psych Doom, Stoner, 70's>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234067.jpg" />
 </div>
 
 
@@ -658,95 +745,6 @@ Outer Head - Delirium (2023) [MP3|320 Kbps] <Psych Doom, Stoner, 70's>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:916FDF2F2F58015685BE4F44ED6926BAB2B07FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633992   (233711) от 18.05.2023
-
-Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [MP3|320 Kbps] <Symphonic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Def Leppard выпустит альбом своих лучших песен, перезаписанных вместе с лондонским Королевским филармоническим оркестром. Пластинка под названием «Drastic Symphonies» выйдет 19 мая. В сборник войдут не только хиты, но и некоторые неочевидные песни из каталога коллектива, история которого охватывает уже более четырех десятилетий.
-
-Музыканты частично использовали (   Читать дальше...   )01. Turn To Dust (05:30)
- 02. Paper Sun (05:34)
- 03. Animal (04:03)
- 04. Pour Some Sugar On Me (Stripped version) (05:27)(   Читать дальше...   )Жанр: Symphonic Hard RockПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E9F38877128ED7B1BE08D1B3EA1B9EF2D3699D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644102   (233346) от 05.07.2023
-
-The Sonce - Rising with the Moon (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Threshold
-02. Lycan
-03. Mummified
-04. UFOs!(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, 70'sПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E9B3ED057D146836D5BC8356B001FA00EEFBDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645044   (233116) от 07.07.2023
-
-Kikimora - For A Broken Dime (2023) [MP3|320 Kbps] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bound For Destruction (6:21)
-02. Spell Of Love (5:23)
-03. Fear And Greed (5:21)
-04. Edge Of Freedom (5:50)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F1A0B835EC86B99731428BD28559B86243D5DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

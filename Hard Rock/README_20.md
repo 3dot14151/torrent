@@ -1,3 +1,96 @@
+###  Публикация: 385458   (474297) от 10.09.2011
+
+Mother's Army - 3 Albums (1993-1998) [MP3|320 kbps]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_474297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. NDE (5:50)
+2. Way Of The World (4:14)
+3. A Day In The World (4:01)
+4. Fire On The Moon (3:57)
+5. Do What I Like (3:18)
+6. Common Ground (5:48)
+7. No Religion (4:00)
+8. Moruroa Atoll (4:08)
+9. The Code (4:39)
+10. The Lonely (5:55)(   Читать дальше...   )1993-1998Жанр: Hard RockПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406563   (473067) от 04.09.2020
+
+Celladoor - Maktub (2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aliens in My Head [05:50]
+02. Spider Guilt [05:13]
+03. Besieged [06:56]
+04. Amethyst [07:43](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner Rock, GrungeПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CCA24D98E8C18BA562BA1375ED7BA8B2FD3766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406573   (472934) от 04.09.2020
+
+The Atomic Bitchwax - Scorpio (2020) [MP3|320 Kbps] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope You Die (04:37)
+ 02. Energy (03:24)
+ 03. Ninja (04:07)
+ 04. Scorpio (03:22)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8AFAB513FC37105C41719B9B1C49993E500C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548150   (471740) от 16.09.2012
 
 Sweet - The Best Of... (1997) [MP3|320 кб/с]<Classic Rock & Hard Rock>
@@ -6,7 +99,7 @@ Sweet - The Best Of... (1997) [MP3|320 кб/с]<Classic Rock & Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471740.jpg" />
 </div>
 
 
@@ -41,7 +134,7 @@ Ugly Kid Joe - Uglier Than They Used Ta Be (2015) [MP3|320 кб/с]<Hard Rock, A
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471347.jpg" />
 </div>
 
 
@@ -70,7 +163,7 @@ The Hawkins - Silence is a Bomb (2020) [MP3|320 Kbps] <Hard Rock, Rock & Roll, P
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470990.jpg" />
 </div>
 
 
@@ -99,7 +192,7 @@ Devilfire - Black Soul Vendetta (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470858.jpg" />
 </div>
 
 
@@ -128,7 +221,7 @@ Violet Janine - Queen Of Rock (2020) [MP3|320 Kbps] <Melodic Hard Rock, Female V
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468278.jpg" />
 </div>
 
 
@@ -157,7 +250,7 @@ Terry Brock - 2 Albums (2001-2010) [MP3|320 kbps]<Melodic Hard Rock/AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_467834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_467834.jpg" />
 </div>
 
 
@@ -192,7 +285,7 @@ Fandango - 4 Albums (1977-1980) [MP3|320 kbps]<Melodic Hard Rock/AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_467609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_467609.jpg" />
 </div>
 
 
@@ -226,7 +319,7 @@ Joe Perry (Aerosmith) - 2 Альбома (2005-2009) [MP3|320 кб/с]<Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466966.jpg" />
 </div>
 
 
@@ -253,7 +346,7 @@ Dream Child - Until Death Do We Meet Again (2018) Japanese Edition [MP3|320 Kbps
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465648.jpg" />
 </div>
 
 
@@ -282,7 +375,7 @@ Motion Device - Motion Device IV (2020) [MP3|320 Kbps] <Hard Rock, Female Vocal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462589.jpg" />
 </div>
 
 
@@ -311,7 +404,7 @@ VA - Gods of Thunder - A Norwegian Tribute to Kiss (2005) [MP3|256 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461819.jpg" />
 </div>
 
 
@@ -340,7 +433,7 @@ Jim Kirkpatrick - Ballad Of A Prodigal Son (2020) [MP3|320 Kbps] <Hard Rock, Blu
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460101.jpg" />
 </div>
 
 
@@ -369,7 +462,7 @@ Dokken - Broken Bones (2012) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458098.jpg" />
 </div>
 
 
@@ -398,7 +491,7 @@ Nordic Union - Animalistic (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453671.jpg" />
 </div>
 
 
@@ -427,7 +520,7 @@ Aurora - 2 Albums (2016-2022) [MP3|320 Kbps] <Hard Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453666.jpg" />
 </div>
 
 
@@ -456,7 +549,7 @@ Godhound - Refueled (2022) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451790.jpg" />
 </div>
 
 
@@ -485,7 +578,7 @@ Avi Rosenfeld - Very Heepy Very Purple VI (2017) [MP3|320 Kbps] <Hard Rock, Clas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451087.jpg" />
 </div>
 
 
@@ -514,7 +607,7 @@ Joe Lynn Turner - The Sessions (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450774.jpg" />
 </div>
 
 
@@ -543,7 +636,7 @@ Gun - More Frantic (2015) Deluxe Edition [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449577.jpg" />
 </div>
 
 
@@ -572,7 +665,7 @@ The Winery Dogs - Hot Streak (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449431.jpg" />
 </div>
 
 
@@ -602,7 +695,7 @@ ZED - Desperation Blues (2013) [MP3|320 Kbps] <Hard & Heavy, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449003.jpg" />
 </div>
 
 
@@ -631,7 +724,7 @@ ZED - The Invitation (2010) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448863.jpg" />
 </div>
 
 
@@ -660,7 +753,7 @@ Sweet - The Answer (1995) Remastered, 2022 [MP3|320 Kbps] <Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445104.jpg" />
 </div>
 
 
@@ -674,93 +767,6 @@ Sweet - The Answer (1995) Remastered, 2022 [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6A0EFE0274F5729960DD54836AD679806643705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943324   (444924) от 05.10.2015
-
-Clutch - Psychic Warfare (2015) [MP3|320 кб/с]<Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Affidavit
-02. X-Ray Visions
-03. Firebirds
-04. A Quick Death in Texas(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EB7101F3018D8842B6A5F8915D05EDD839996B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164156   (444120) от 08.09.2017
-
-Mollies Revenge - Every Dirty Word (1997) LP Version [MP3|192 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weed		3:22
-02. Cruel Angel		3:40
-03. Humble		3:58
-04. Threshold		4:32(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909BAC82A7B94683C37E99728553E9D1EB5E0DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570179   (438052) от 19.08.2022
-
-Reign Of Glory - All Will Bow (2022) [MP3|320 Kbps] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever And Ever 03:51
-02. Welcome To Reality 03:52
-03. Rise Of Aslan 05:13
-04. Samson's Kryptonite 04:03(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B02DAA3535C29DE78D772FD954BBA87D80724A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

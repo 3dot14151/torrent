@@ -1,32 +1,3 @@
-###  Публикация: 993661   (895667) от 05.03.2016
-
-VA - Vintage Dream: Best of Vintage Jazz, Bebop & Electro Swing (2016) [MP3|320 кб/с] <Jazz, Swing Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Potter - Willy Wonky (02:28)
-02. Hillary Thaddeus - Catalina Ballroom (03:05)
-03. Homer Greencastle - I Like a Uniformed Soldier (02:26)
-04. Mike Potter - Kitty's Swing (01:39)(   Читать дальше...   )Производство: Machiavelli RecordsЖанр: Jazz, Swing JazzПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFAC4465122A8B1C03D115AF11C3FEDC631839A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493448   (895588) от 03.09.2021
 
 Harry Allen & Dave Blenkhorn - Under A Blanket Of Blue (2020) GAC Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -35,7 +6,7 @@ Harry Allen & Dave Blenkhorn - Under A Blanket Of Blue (2020) GAC Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895588.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Oscar Peterson & Jon Faddis - 1975 (2000) Original Jazz Classics [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895299.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Pat McManus Band - Walking Through Shadows (2011) [APE|Lossless|image + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894829.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Andrew Hill - Grass Roots (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894341.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Charles Lloyd - Wild Man Dance (2015) Blue Note Records[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894321.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Art Blakey & The Jazz Messengers - Oh-By The Way (1982) Remaster, 2015,Solid Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894314.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Ronnie Foster - Sweet Revival (1972) Remaster, 2013, EMI Music[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894307.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Thisbe Vos - Sophistication (2011) [FLAC|Lossless|image + .cue] <Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894086.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Drivetime - California Dreamin' (2016) [MP3|320 кб/с] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894036.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Buddy DeFranco (De Franco) Meets The Oscar Peterson Quartet - Hark 1985 (1995) O
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893758.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Henry Mancini - Moon River (2009) [FLAC|Lossless|image + .cue] <Pop-jazz, Easy L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893691.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Wallace Roney - Verses (1987) [FLAC|Lossless|tracks + .cue] <Jazz / Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893227.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Donny Most - D Most Mostly Swinging (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893223.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ VA - Blue BeBop: The Originators Of Modern Jazz (1948-1953) 1996, Blue Note[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893217.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ The Art Ensemble Of Chicago - Fanfare For The Warriors (1973) 1998, Koch Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893208.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Ingrid Lucia and the Flying Neutrinos - Hotel Child (2000) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893205.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Tom Scott - Reed My Lips (1994) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893144.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - Blue Moods: New Voices New Directions (1996) Blue Note[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893141.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Big Allanbik - Blues Special Reserve (1998) [FLAC|Lossless|image + .cue] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893138.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Stanley Turrentine - Do You Have Any Sugar? (1999) [APE|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893132.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Sergio Mendes - Brasileiro (1992) [FLAC|Lossless|tracks + .cue] <Bossa Nova, Lat
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893127.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - Breakfast Music! 16 Happy Songs to Start a Brand New Day (2017) [MP3|320 Kb
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893042.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Cuby & The Blizzards - Grolloo Blues (Live) (2021) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892552.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Hot'n'Nasty - Burn (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892455.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Ray Mahumane - 20_20 Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892414.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Ray Mahumane - 20_20 Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86C02808C1F3CBC71FA71CC6E0881D794CCEC076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371214   (892127) от 30.03.2020
+
+The Oscar Peterson Trio - Canadiana Suite 1964 (2008) Limelight [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballad To The East [4:08]
+02. Laurentide Waltz [5:21]
+03. Place St. Henri [3:58]
+04. Hogtown Blues [3:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760AFD4FF25ACBF99437FCDAB9496E1B9C1697F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1668911   (173238) от 14.10.2023
+
+Proxyman for Mac 4.12.0 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Proxyman — это современное и интуитивно понятное приложение HTTP Debugging Proxy. Не позволяйте громоздким инструментам веб-отладки сдерживать вас. С родным приложением Proxyman для macOS вы можете с легкостью захватывать, проверять и манипулировать трафиком HTTP(s).Тип издания: macOS SoftwareРелиз состоялся: 30.09.2023Разработчик: © 2023 Proxyman LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7899102324B249FDAB645F3D5B8C55F222368C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668914   (173214) от 14.10.2023
+
+USBclean 3.7.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9933AEF102DEF7926C616B3FF29136377BA4A1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669028   (173207) от 14.10.2023
 
 iTubeGo YouTube Downloader Pro for Mac 7.1.0 [Multi]
@@ -6,7 +58,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173207.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ DxO PhotoLab 7 ELITE Edition 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173170.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Yate 6.17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173057.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Dato 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173049.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Mirror for LG TV 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173040.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Path Finder 2161 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173035.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ SSH Config Editor Pro 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173027.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Scrivener 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173023.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Wondershare PDFelement Pro OCR 10.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173006.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Adobe After Effects 2024 v.24.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172920.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Path Finder 2161 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172881.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ PhotoMill X 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172880.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ KCNcrew Pack 10-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172876.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ PhotoSweeper X 4.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172875.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ System Dashboard Pro 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172872.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ EverWeb (Standalone) 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172871.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ Text Workflow 1.7  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172859.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Sync Folders Pro 4.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172858.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172855.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Dropzone 4 Pro v.4.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172852.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ DVD-Cloner 2023 for Mac 10.20.738  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172851.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Path Finder 2162 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172846.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ JetBrains RubyMine for Mac 2023.2.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172844.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ PDF Reader Pro Edition 2.9.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172821.jpg" />
 </div>
 
 
@@ -630,59 +682,6 @@ PDF Reader Pro - это приложение для редактирования
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB077F176B4535F3493F0A67B3811ABA6923C734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669408   (172804) от 16.10.2023
-
-JetBrains Clion 2023.2.2 for Mac Intel/ARM [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172804.jpg" />
-</div>
-
-
-###  Подробнее
-
-CLion — это IDE от JetBrains, предназначенная для разработки на С и С++ на платформах Linux, Windows и macOS. Включает в себя поддержку системы сборки кросс-платформенных проектов CMake, Gradle C++ и compilation database, возможности анализа кода на лету, разнообразные рефакторинги и унифицированный интерфейс для работы с самыми популярными системами контроля версий.Тип издания: macOS SoftwareРелиз состоялся: 13.09.2023Разработчик: © 2000-2023 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7177B8D01887BDCF3517E5264490EF0563F8DE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669580   (172688) от 17.10.2023
-
-SiteSucker 5.1.13 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172688.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2023Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A760E530B52E265432FE0352E196C985F883733
 ```
 
 https://mybot314.ru/tekegram_catalog/

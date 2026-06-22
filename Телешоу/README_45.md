@@ -1,3 +1,55 @@
+###  Публикация: 501495   (258238) от 25.05.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №60 (2012.05.25) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258238.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EEC31A79D11C7289140F41A7B1A12EEE0C796E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501440   (258228) от 25.05.2012
+
+Каникулы в Мексике - 2. Выпуск №60 (2012.05.25) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258228.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2C0B2122141EE0179FB176C1508825AB19F795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500615   (257137) от 23.05.2012
 
 Каникулы в Мексике - 2. Ночь на вилле. Выпуск №58 (2012.05.23) SATRip
@@ -6,7 +58,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257137.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257126.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256904.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256559.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256310.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256285.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254845.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254385.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254375.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253938.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253646.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253636.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253377.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253356.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253190.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253154.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252869.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252845.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251450.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251437.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_251113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251113.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250760.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250703.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247935.jpg" />
 </div>
 
 
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB253526B9C2775E90DD1CDFE973A4F9539F3CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492450   (247922) от 05.05.2012
-
-Удиви меня. Сезон №3. Выпуск №5 (2012.05.05) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие фокусники страны демонстрируют свое искусство и борются за звание сильнейшего! Они пилят и протыкают, манипулируют и поражают ловкостью рук, заставляют предметы испаряться, а девушек – появляться! Главный приз шоу: поездку в Лас-Вегас на шоу «Мистерия» легендарного Цирка дю Солей.
-«Мистерия» - это уникальная постановка, которую можно увидеть собственными глазами только в Лас-Вегасе! Шоу было 8 раз удостоено награды «Лучшая постановка» по оценкам журнала Las Vegas Review Journal. В состав труппы входят 72 артиста из 18 стран мира.Жанр: ТВ-ШоуПродолжительность: ~ 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E4879F53C1BC31E7385346B7CB7F16FF3F2C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618837   (247487) от 19.06.2023
-
-Звёзды в Африке (2023) SATRip (сезон 4, выпуск 1-15 из 15)
-
->>След.
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участникам снова предстоит выжить в тропиках южноафриканского региона Лимпопо. Ну а главным призом для победителя шоу является 5 млн рублей. Новые правила, новые участника, новые испытания! В новом сезоне у участников вообще не будет никакой еды! Даже маис и бобы, которые обычно всегда присутствовали на кухне, теперь необходимо зарабатывать. Заработать также придется (   Читать дальше...   )Телекомпания: Россия, "Ти Эл Видж" по заказу ТНТ-ТелесетьЖанр: ТВ-шоуУчастники: Наталия Медведева, Денис Лебедев, Эвелина Блёданс, Торнике Квитатиани, Мария Погребняк, Алина Акилова, Тимофей Зайцев, Игорь Ознобихин, Виталий Гогунский, Иван ПышненкоСубтитры: ОтсутствуютПродолжительность: ~01:30:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A8ED935AFE4C3A527B7E45E0E0689FA53911B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

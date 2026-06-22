@@ -1,3 +1,258 @@
+###  Публикация: 1205803   (782852) от 12.02.2018
+
+Armik - Discography (32CD) (1994/2018) [MP3|320 Kbps] <Nuevo Flamenco, Spanish Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Nuevo Flamenco, Spanish GuitarПродолжительность: 03:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6714181B2F524AD5DA0CE9B42B1E5A11728630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390677   (782694) от 16.06.2020
+
+The Byrds - Sweetheart Of The Rodeo (1968) Remastered 1997 [FLAC|Lossless|tracks + .cue] <Folk Rock, Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Ain't Going Nowhere (2:36)
+02. I Am A Pilgrim (3:41)
+03. The Christian Life (2:32)
+04. You Don't Miss Your Water (3:50)(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5081507E256D1E395FDAF010760C23A627AD664F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390331   (782686) от 16.06.2020
+
+John Martyn - One World (1977) CD album, Reissue 1990 [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dealer (4:59)
+02. One World (4:10)
+03. Smiling Stranger (3:30)
+04. Big Muff (6:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C401800900FA31FDAE4E9733BED257631DD7DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390696   (782673) от 16.06.2020
+
+Johnny Cash - Johnny Cash At San Quentin (1969) [FLAC|Lossless|tracks + .cue] <Rock,  Country Rock, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big River (1:56)
+02. I Still Miss Someone (1:52)
+03. Wreck Of The Old 97 (2:05)
+04. I Walk The Line (3:29)(   Читать дальше...   )Жанр: Rock,  Country Rock, FolkПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9815A224C485AC5C83D7A49C5EC20D032BFE561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390760   (782253) от 17.06.2020
+
+Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Уайатт (англ. Robert Wyatt; 28 января 1945, Бристоль) — британский музыкант, один из создателей влиятельной в прогрессивном роке группы Soft Machine. Женат на английской художнице и авторе песен Альфреде Бенж.01. Was a Friend (5:48)
+02. Maryan (6:46)
+03. A Sunday In Madrid (6:58)
+04. Free Will and Testament (4:33)Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43DE6C0F10792791C640F8A64A7A8C0D4998697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205303   (782053) от 14.02.2018
+
+Justin Johnson - Turquoise Trail: Soundtrack for a Western (2017) 2CD [MP3|320 Kbps] <Western, Bluegrass, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782053.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Turquoise Trail
+02. Black Heart of Gold
+03. Pistolero(   Читать дальше...   )Жанр: Western, Bluegrass, FolkПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC78F44E49625760960178C7CAB8559E7F3B3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390882   (781881) от 18.06.2020
+
+Tim Buckley - Discography (1966-2001) [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тим Бакли (Tim Buckley, полное имя — Тимоти Чарльз Бакли III (Третий)) 14 февраля 1947 — 29 июня 1975) — американский исполнитель и автор песен. Его музыка и стиль менялись на протяжении всей карьеры; первый альбом (Tim Buckley, 1966 год) был ориентирован в основном на фолк, но со временем музыкант перешёл к джазу, психоделии, фанку, соулу и авангард-музыке, развивая (   Читать дальше...   )01. I Can't See You (2:43)
+02. Wings (2:34)
+03. Song of the Magician (3:09)
+04. Strange Street Affair Under Blue (3:13)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E597E8BBD2B15538AB0D5B98236FE40D42E0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 50989   (781784) от 18.06.2020
+
+Николай Парфенюк - Собрание заблуждений - 2000
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est La Vie 03:39
+02. Рыжики 02:05
+03. Амазонки 04:28
+04. Сожаление 03:39(   Читать дальше...   )Продолжительность: 58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ACD075A39AD69186509EED7A2A30F27814DAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185059   (781495) от 13.05.2010
+
+VA - New Crystal Vibrations. Compilation 1 - 11 (2010) [MP3|192-320 kbps]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, AmbientПродолжительность: 27:30:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207122   (780856) от 17.02.2018
 
 Ken Verheecke - Consider the Moon & Stars (2018) [MP3|320 Kbps] <Electronic, New age>
@@ -6,7 +261,7 @@ Ken Verheecke - Consider the Moon & Stars (2018) [MP3|320 Kbps] <Electronic, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780856.jpg" />
 </div>
 
 
@@ -35,7 +290,7 @@ Maria Rita - Amor E Musica (2018) [MP3|320 Kbps] <Latin Music, Samba>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780391.jpg" />
 </div>
 
 
@@ -64,7 +319,7 @@ VA - New Age Style - Greatest New Age Hits, Vol. 18 (2018) [MP3|320 Kbps] <New a
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780245.jpg" />
 </div>
 
 
@@ -93,7 +348,7 @@ Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780242.jpg" />
 </div>
 
 
@@ -122,7 +377,7 @@ Guido Negraszus - Night Cafe III (Freedom Travellers) (2012) Guido Negraszus Mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780097.jpg" />
 </div>
 
 
@@ -151,7 +406,7 @@ David Wahler - Mosaic (2018) [MP3|320 Kbps] <New age, Relax, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780078.jpg" />
 </div>
 
 
@@ -180,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780042.jpg" />
 </div>
 
 
@@ -209,7 +464,7 @@ Greg Butler - Whispering Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779804.jpg" />
 </div>
 
 
@@ -238,7 +493,7 @@ VA - Amazing Piano Music (2018) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779520.jpg" />
 </div>
 
 
@@ -267,7 +522,7 @@ Mathieu Age - Feminin Sacre (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779288.jpg" />
 </div>
 
 
@@ -296,7 +551,7 @@ Andrew Kinsella - Cosmic Dawn (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779281.jpg" />
 </div>
 
 
@@ -325,7 +580,7 @@ Wychazel - Akashic Dream (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779273.jpg" />
 </div>
 
 
@@ -354,7 +609,7 @@ David Davidson - Celtic Dreams (2018) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779272.jpg" />
 </div>
 
 
@@ -383,7 +638,7 @@ Jay Stapley - Ambient Blues (1996) [MP3|320 Kbps] <New Age, Blues, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779264.jpg" />
 </div>
 
 
@@ -412,7 +667,7 @@ Acoustic Garden - Concept Emotional (2018) [MP3|320 Kbps] <Country, Folk, Blues>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779259.jpg" />
 </div>
 
 
@@ -441,7 +696,7 @@ Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779128.jpg" />
 </div>
 
 
@@ -470,7 +725,7 @@ Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779125.jpg" />
 </div>
 
 
@@ -484,267 +739,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209648   (779089) от 28.02.2018
-
-Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wakanda Origins (01:44)
-02. Royal Talon Fighter (04:01)
-03. Wakanda (02:20)
-04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B386E49946407D2CAC2A9FD5CE600852152D165B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210044   (778987) от 01.03.2018
-
-David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garden Of Eve (4:27)
-02. Last Tango In Paris (4:09)
-03. Fashion Week (4:33)
-04. Gnossiennes No. 1 (4:31)(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1026EB0D724F4182BD38441EB71626DC1071FC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209860   (778944) от 01.03.2018
-
-Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wakanda Origins (01:44)
-02. Royal Talon Fighter (04:01)
-03. Wakanda (02:20)
-04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E00662D5BDE3C9EA40A26C213C7EA797B3C911F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210093   (778855) от 02.03.2018
-
-Lyn Avenue - Never Been to Nashville (2018) EP [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Never Been To Nashville (4:13)
-02 - Kentucky Bourbon (2:49)
-03 - Everyday Guardian Angel (4:32)
-04 - Whatever It Takes (To Bring Me Back To You) (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5D8C544E6E498959E91F4AC4B14DB1D0BE879A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210501   (778728) от 03.03.2018
-
-Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. The Heart Of Africa 6:00
-02. Mystical Mother 5:11
-03. Kango Echoes 6:15
-04. Earthchild 5:35(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B198E03C633F1CBF250FE4A0E8A8E69DCF41D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210505   (778721) от 03.03.2018
-
-Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Kikuyu Love Song 5:37
-02. Shumbahle 5:20
-03. Dance of Love 5:19
-04. Hills of Halali 5:54(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE68841081424E8F06C3AD782D9051FA389BDD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210407   (778720) от 03.03.2018
-
-Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Freedom Dance 6:11
-02. Nkana 5:49
-03. The Marketplace Hustle 4:30
-04. 10 Miles To Sakenia 5:37(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6EB258D4886EC41C347EF40CA3D8709F86CB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210411   (778712) от 03.03.2018
-
-Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Music [MP3|320 Kbps] <New Age, Tribal, African>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Helelele 4:30
-02. Swazi Sunset 4:55
-03. Rain Dance 5:15
-04. Mbira Song 3:47(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D22DE30E604774C5939C4F1A0591B74593D8714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210596   (778710) от 03.03.2018
-
-Giovanni - Love Me Tender (1998) Reissue, 2000, New Castle [FLAC|Lossless|image + .cue] <New Age, Instrumental, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Giovanni Marradi (17.04.1952). Он родился в Италии, учился в Бейруте. Путешествуя, объездил всю Европу и Ближний Восток, работая, везде, где только его брали, почти ничего не зарабатывая. После иммиграции в Америку, он играл небольшие концерты в Калифорниии. Набравшись смелости, он приехал в Лас Вегас, и попросился выступить в Caesar's Palace (казино и отель). Удивительно, (   Читать дальше...   )01. Sailing (3:51)
-02. Green Green Grass Of Home (4:20)
-03. Nocturnes (3:09)
-04. Ballad for Adeline (2:57)(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2C18245A9773E46D581F089E1632D2AC675019
 ```
 
 https://mybot314.ru/tekegram_catalog/

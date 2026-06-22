@@ -1,3 +1,58 @@
+###  Публикация: 1352456   (993218) от 16.01.2020
+
+Александр Константинов и проект Babooshka (Старуха Изергиль) Music Videos 5X (2019) WEB-DL [H.264/720p/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993218.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 Babooshka - Детей надо пороть! [1080p]
+2019 Babooshka - Надо больше церквей! [1080]
+2019 Babooshka - Отмороженные во Христе [720]
+2019 Babooshka - Стань скином! [1080](   Читать дальше...   )Жанр: Chanson, Post-PunkПродолжительность: 00:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FE6744D0EB8153E1A8D37D726E9E2EB570585F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608797   (992790) от 26.01.2013
+
+Becky G feat Will.I.Am - Problem [The Monster Remix] (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: pop, r.n.bПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CF207DBC789D7B76F98070D3BBE5402269B045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609255   (991733) от 27.01.2013
 
 Сборник клипов - VA - Various Music part. 39 (2013) WEBRip 720p, 1080p
@@ -6,7 +61,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991733.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991231.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ Inna - Endless (2011) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991229.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Ke$ha / Kesha - C'Mon (2013) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991157.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Gotye ft. Kimbra - Somebody That I Used To Know (2011) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991153.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Linkin Park - Burn It Down (2012) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991112.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990828.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990343.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ Avril Lavigne - What The Hell (2011) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990253.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ Avril Lavigne - Alice (2010) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990225.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ Rihanna - Diamonds (2012) HDRemux [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990073.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ BAZUKA - Stand Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989230.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ Lindemann (2015-2019) WEB-DL [H.264/1080p-LQ] (12 видеоклипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988865.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987256.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987098.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987009.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986984.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986705.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985875.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985476.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ VA - Зимний марафон № 217: Новогодний Хит Парад
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985469.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985465.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ DJ Smash & Семён Слепаков/Откат (2013).HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983877.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983443.jpg" />
 </div>
 
 
@@ -636,60 +691,6 @@ In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D04FC5DBB42616289FDE5C7C4E0B508C4A52045E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355337   (983439) от 26.01.2020
-
-Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983439.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 Pet Shop Boys - Leaving (Promotional Video)
-2020 Pet Shop Boys - Monkey business (Official video)
-2020 Pet Shop Boys (feat. Years & Years) - Dreamland (Official lyric video)Жанр: Synthpop, Dance-PopПродолжительность: 00:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF33B513B67039B76F766F99CC9E630CC97647DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436013   (982331) от 13.01.2012
-
-VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: VariousПродолжительность: ~02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7004CA39EA0C21AF61E3F0BCFD23D70F3DBD74A
 ```
 
 https://mybot314.ru/tekegram_catalog/

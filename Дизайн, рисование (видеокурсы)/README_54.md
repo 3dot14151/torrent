@@ -6,7 +6,7 @@ Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246261.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gcircuit, Adam Priester | Stylized Skin Growth in Houdini (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246062.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 2 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246035.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Epic Games, Harrison Moore | Paragon Character Texturing Pipeline (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245977.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Uartsy, Ryan Kingslien | Artistic Anatomy in ZBrush (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245940.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Enterclass, Сергей Курбатов | Весна в городе (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245888.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ FXPHD, Jeronimo Maggi | HOU221 – USD and LOPs for Houdini Artists (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245823.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ FXPHD, Jeronimo Maggi | HOU222 - USD in Houdini 19.5 (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245808.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Entagma, Moritz Schwind | New in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245544.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245413.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245371.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245012.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Pixel Front, Mario Reitbauer | A Full Introduction To Grooming For VFX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244398.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Uartsy, Tomas Wittelsbach | Jewelry Design In ZBrush (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244369.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244341.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Rebelway, Saber Jlassi | Advanced Houdini FX - RISE (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244332.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244305.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244206.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Enterclass, Марина Ласаева | Дачное настроение (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243723.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243685.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Udemy, Canopy Games, Michael Bridges | Making Procedural Weapons In Blender 3 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243488.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Uartsy, Ben Tristem, Sam Patuzzi | Unreal Multiplayer Mastery Online Game Develo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243270.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Uartsy, Jahirul Amin | Rigging Fundamentals in Maya (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243212.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Skillshare | Astronaut Animation: Motion Graphics & Rendering in Cinema 4D & Red
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243125.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Udemy, Ken Zhuang | Master Houdini FX: Art Directing Magic Smoke Explosion (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243093.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Skillshare, Aniket Rawat | Complete Guide to Substance Painter 2022 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242808.jpg" />
 </div>
 
 

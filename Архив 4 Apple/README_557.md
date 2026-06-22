@@ -1,3 +1,57 @@
+###  Публикация: 1084272   (220268) от 18.12.2016
+
+Capto – Screen Recording, Screen Captures, and Editing 1.2.3 [Multi]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capto (was Voila) - профессиональная программа для захвата видео и изображений с рабочего стола.
+Приложение от Французских разработчиков прошло тернистый путь, от простого менеджера скриншотов, до полнофункционального редактора и каталогизатора. Менеджеры скриншотов относятся к узкоспециализированным программам для Mac, которые востребованы лишь у небольшого числа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Global Delight Technologies Pvt. LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324419633B9549E1512CA39A36F02610BE719020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425570   (220239) от 21.11.2020
+
+Capture One 21 Pro Beta 5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Phase OneПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A2FF96256D39B5DDD59141473A0B674DFF1798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651931   (220217) от 08.08.2023
 
 FonePaw iOS Transfer for Mac 5.6.0 [Multi]
@@ -6,7 +60,7 @@ FonePaw iOS Transfer for Mac 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220217.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Magic Battery 7.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220186.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Commander One PRO 1.2.1668 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220185.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Scrutiny 12.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220180.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220153.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Luxion KeyShot Pro 10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220139.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Wirecast Pro 11.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219984.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Capture One Pro 9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219919.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ XCOrganizer 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219901.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ DirEqual 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219892.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ Mac DVDRipper Pro 10.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219885.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ MetaImage for Mac 2.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219878.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ Boxy SVG 3  v3.71.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219844.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ Filmage Converter-ConvertVideo 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219838.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ MetaRename for Mac 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219837.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ Viper FTP 6.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219831.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ SnapMotion Unlimited for Mac 5.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219809.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ RAW Power 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219795.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ Boxy SVG 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219791.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ BBEdit 14.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219790.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ MetaVideo for Mac 1.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219784.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ Task Office 6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219779.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Dato 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219769.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ Macgo Mac Blu-ray Player Pro 3.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219729.jpg" />
 </div>
 
 
@@ -633,59 +687,6 @@ Macgo Mac Blu-ray Player - это один из лучших (если не ск
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42784184CB59A0BE17921F6E01E99B557141C77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514122   (219727) от 02.12.2021
-
-Nova 8.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
-Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 Panic, IncПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7CA1502BC46A350848711F6B5FE5CCEEB776F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651976   (219722) от 09.08.2023
-
-Lasso 1.5.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lasso — оконный менеджер для macOS. Перемещайте и изменяйте размер окон с помощью мыши. Нажмите и перетащите — это все, что вам нужно для перемещения и изменения размера окон. Быстро упорядочивайте окна и изменяйте их размер с помощью настраиваемых макетов.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2023Разработчик: © 2023 LassoПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D4691B44767F2B280C7C76C1BDD924C45DA6A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

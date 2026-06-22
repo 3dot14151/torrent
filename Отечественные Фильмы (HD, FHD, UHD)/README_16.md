@@ -1,3 +1,107 @@
+###  Публикация: 1350513   (1003107) от 06.01.2020
+
+Эбигейл (2019) BDRemux [MPEG-2/1080i]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия \  KD StudiosЖанр: приключения, фэнтези, семейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артём Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Дублированный (iTunes)Субтитры: французскиеПродолжительность: 01:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479054EDFBCCCD5500F9D6F644E1BAEBDD295DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350635   (1003102) от 06.01.2020
+
+Эбигейл (2019) BDRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия, KD StudiosЖанр: Приключения, Фэнтези, СемейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артем Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуется (русский) iTunesСубтитры: ФранцузскиеПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC663128120EE63F249B10B74D846FAAEF4D9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350600   (1003089) от 06.01.2020
+
+Эбигейл (2019) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия / KD StudiosЖанр: Приключения, фэнтези, семейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артём Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуется (русский) iTunesСубтитры: ФранцузскиеПродолжительность: 01:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EBC1AAB061879A51CD6E04A3B7CA1534762E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350744   (1002870) от 07.01.2020
+
+Эбигейл (2019) BDRip [H.264/720p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия, KD StudiosЖанр: Приключения, Фэнтези, СемейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артем Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуется (русский) iTunesСубтитры: нетПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF73B2DAA7790F63F98E3713229C54BB783CE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487556   (1002689) от 08.08.2021
 
 Бег (2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002689.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002455.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002198.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002104.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001811.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001804.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001629.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001335.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001059.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999507.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999325.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999029.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995017.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994971.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994967.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992327.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991746.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991666.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991663.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991553.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991548.jpg" />
 </div>
 
 
@@ -556,117 +660,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991542.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Киноальманах «С новым годом, МАМЫ» станет продолжением фильма «Мамы». В новой ленте зрители увидят новые истории и новые приключения новых героев, объединенных одним чувством — любовью к МАМЕ. В альманах войдут 5 новелл. Смешные и трогательные, лиричные и комичные — каждая новелла расскажет историю мамы и ребенка, двух самых близких людей на свете. Ведь чтобы не (   Читать дальше...   )Производство: РоссияЖанр: Комедия, СемейныйРежиссер: Сарик Андреасян, Артем Аксененко, Дмитрий Грачев, Клим Поплавский, Антон БорматовАктеры: Елизавета Боярская, Гарик Харламов, Павел Воля, Ален Делон, Максим Матвеев, Ирина Розанова, Екатерина Вилкова, Светлана Иванова, Максим Виторган, Константин КрюковПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:24:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430602   (988607) от 08.01.2012
-
-Сибирь. Монамур (2011) [1080p] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сибирь. Поздняя осень. В тайге, в заброшенной деревне живет старик - старовер Иван и его 7-летний внук Лёшка. Они ждут отца мальчика, который ушел 2 года назад и не вернулся. Стая бродячих собак пожирает все живое в окрестностях. Мальчик дружит с одной из этих собак, за это старик его часто ругает. Иногда дальний родственник дядя Юра привозит им еду.Жанр: ДрамаРежиссер: Вячеслав РоссАктеры: Пётр Зайченко, Михаил Процько, Сергей Новиков, Лидия Байрашевская, Николай Козак, Максим Емельянов, Соня Росс, Сергей Пускепалис, Юрий Гумиров, Марианна ШульцПродолжительность: 01:44:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970982   (988155) от 01.01.2016
-
-Метаморфозис (2015) WEB-DL [H.264/1080p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь талантливого пианиста Алексея Сенина — это репетиции, концерты, музыка. Ничего, кроме музыки. Мать, целиком подчинившая своей безумной любовью сына. Тетка, озабоченная исключительно бытом. Предприимчивый директор Влад. Ближний круг — из абсолютно чужих ему людей.Производство: РоссияЖанр: ДрамаРежиссер: Сергей Тарамаев, Любовь ЛьвоваАктеры: Егор Корешков, Евгений Ткачук, Василиса Бернаскони, Юлия Ауг, Ёла Санько, Денис Шведов, Амбарцум Кабанян, Сергей Русскин, Николай Орловский, Светлана СтоляроваПеревод: Не требуется (русский) iTunesПродолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3D0B2EB2D979B04C234B556870960BA67BEFBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611943   (986453) от 01.02.2013
-
-Дублёр (2012) [1080p] Blu-Ray
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой нашей истории — успешный актер, звезда шоу-бизнеса Игорь Успенский. Его жизнь — сплошные съемки, концерты, презентации, корпоративы, интервью и светские тусовки. Он вынужден «крутиться» день и ночь, у него нет выходных и праздников. А его очаровательная жена и прекрасная дочка видят его в лучшем случае поздно ночью, когда он приезжает домой, чтобы поспать (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Евгений АбызовАктеры: Александр Ревва, Кристина Асмус, Дмитрий Хрусталев, Людмила Артемьева, Татьяна Орлова, Ксения Буравская, Варвара Малкова, Александра Кимаева, Евгений Шиманович, Алексей РязанцевПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:23:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193722   (985605) от 01.01.2014
-
-О чём говорят мужчины (2010) [1080p] Blu Ray
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985605.jpg" />
-</div>
-
-
-###  Подробнее
-
-О чем говорят мужчины? Конечно, о женщинах. Нет, еще о работе, о деньгах, о машинах, о футболе,… но в основном, все-таки, о женщинах. А уж если у них впереди два дня, которые они, вырвавшись из офисов и семей, уехав от всех забот и обязательств, проведут в дороге — два дня, насыщенные событиями и приключениями — то можете быть уверены, что за это время они успеют (   Читать дальше...   )Жанр: комедияРежиссер: Дмитрий ДьяченкоПеревод: ОригинальныйСубтитры: РусскиеПродолжительность: 01:36:32
 
 ## Скачать торент
 ```bash

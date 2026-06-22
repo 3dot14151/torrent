@@ -1,3 +1,58 @@
+###  Публикация: 1070377   (140042) от 30.12.2016
+
+Кира Стрельникова | Агентство «Острый нюх». По следам преступлений (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алёна — оборотень редкого вида, белый полярный песец, живёт и работает в Питере, занимается расследованиями необычных преступлений в детективном агентстве . В её жизни всё хорошо, кроме одного: девушка совсем не помнит своего прошлого. В пятнадцать лет её нашли приёмные родители и забрали к себе, а всё, что было до этого, Алёнина память не сохранила. Кто она. откуда, (   Читать дальше...   )Жанр: Детективная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77561A99FED9E99986851C9AD34CB0F52A556462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195820   (139922) от 30.12.2017
+
+Стивен Эриксон | Полночный прилив (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятая книга цикла «Малазанская «Книга Павших».
+
+После десятилетий междоусобной войны шесть племен тисте эдур наконец объединились под властью колдуна-короля хиротов. Достигнут мир – но страшной ценой: был заключен договор со скрытой силой, чьи намерения в лучшем случае сомнительны, а в худшем – гибельны.
+(   Читать дальше...   )Жанр: Боевое фэнтези, Зарубежное фэнтезиПеревод: А. Юшенкова, Алексей Андреев, П. Кодряной, Сергей РюминФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803B46963AFE3D916279E96072BA4536F0D6D0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590903   (139882) от 18.12.2012
 
 Георгий Савицкий| Атомный таран. Погибаю, но не сдаюсь! [2011] [FB2][TXT][JAVA (jar+jad)]
@@ -6,7 +61,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139882.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139836.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139532.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139507.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139438.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139426.jpg" />
 </div>
 
 
@@ -173,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139393.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138230.jpg" />
 </div>
 
 
@@ -228,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138140.jpg" />
 </div>
 
 
@@ -254,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138103.jpg" />
 </div>
 
 
@@ -282,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138086.jpg" />
 </div>
 
 
@@ -310,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138004.jpg" />
 </div>
 
 
@@ -338,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137995.jpg" />
 </div>
 
 
@@ -364,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137937.jpg" />
 </div>
 
 
@@ -392,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137916.jpg" />
 </div>
 
 
@@ -419,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137710.jpg" />
 </div>
 
 
@@ -447,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137547.jpg" />
 </div>
 
 
@@ -473,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136541.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136167.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136151.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135908.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135468.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135175.jpg" />
 </div>
 
 
@@ -640,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135143.jpg" />
 </div>
 
 
@@ -651,58 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:021E2837B6942AE4D49A0DF3C5A84193B47AE8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593770   (134667) от 24.12.2012
-
-Константин Мзареулов| Звездный блицкриг. Зовите меня смерть [2012] [FB2][TXT][JAVA (jar+jad)]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134667.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-я книга из серии «Галактический блиц»Формат: FB2,TXT,JAVA (jar+jad).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6E85D533571C3A6AB251C7BB28654DD99E6EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593572   (134640) от 24.12.2012
-
-Элизабет Мун | Цикл "Хроники Паксенаррион" (3 книги) [1988-1989] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия о девушке по имени Паксенаррион, дочери пастуха, избравшей небезопасный образ жизни наемного солдата. На этом пути ее ждут победы и поражения, позор и слава, свет и тьма. Обретая друзей, она идет этой дорогой, чтобы стать истинным воином Света.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C8CA4FC8D49D5E9C063F434D98B8FA32079623
 ```
 
 https://mybot314.ru/tekegram_catalog/

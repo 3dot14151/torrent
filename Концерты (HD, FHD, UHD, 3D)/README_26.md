@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473926.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Graham Bonnet Band: Live...Here Comes the Night (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473769.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Live At Wacken Open Air 2011 (2011) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473727.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Status Quo - The Last Night Of The Electrics (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473647.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Metallica - Live at Rock in Rio (2015) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472795.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472536.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Graham Bonnet Band - Live...Here Comes the Night (2017) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471675.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ ZAZ - Sans Tsu Tsou (Live) (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471095.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Aerosmith - Rocks Donington (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470597.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Red Hot Chili Peppers — Live At Bonnaroo Festival (2012)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468866.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Sade - Bring Me Home - Live 2011 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468547.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Metallica - The Global Citizen Festival (2016) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468118.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ R-Evolution Band Live - The Dark Side of the Wall (2013) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467662.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Styx - Live At the Orleans Arena Las Vegas (2015) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466742.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Aerosmith - Rocks Donington (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466567.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Eminem - Live From New York City (2005) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466563.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Blind Guardian (2016) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465880.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465360.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465127.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Krokus - Live At Baloise Session (2014) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464602.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Supertramp - Live In Paris '79 (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464290.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463239.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Rammstein - In Amerika (Disc 1) (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462045.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Madonna - MDNA World Tour (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462042.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461869.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461767.jpg" />
 </div>
 
 

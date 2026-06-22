@@ -1,3 +1,109 @@
+###  Публикация: 1077521   (306800) от 28.11.2016
+
+Templates for Numbers 4.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция высококачественных Templates for Numbers предлагает более 370 разнообразных и полезных шаблонов таблиц для Apple`s Numbers. Используйте их для вашего бизнеса или личных потребностей для обработки ваших задач изо дня в день без проблем. Если вы создаете годовой бюджет или планируете свадьбы, Templates for Numbers вам в этом помогут.
+
+Вы можете легко настроить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28 ноября 2016Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385471C070240183E014AE951FBFF2F0F2525FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077496   (306079) от 28.11.2016
+
+uTorrent 1.8.7 (43001) [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306079.jpg" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2016Разработчик: µTorrentПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDA2187B104B90274826B34D670CA204BCD010E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333416   (305389) от 24.10.2019
+
+Metasequoia 4.7.1 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание трехмерной модели, особенно создание персонажей, похожих на людей или животных, требует определенных знаний в этой области и, что наиболее важно, набора подходящих инструментов для работы. Для тех, кто сделал несколько 3D-разработок, используя различные специализированные программные решения и которым нужно работать над ними без необходимости повторной установки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2019Разработчик: tetraface Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50540AA7D8BE907906302EB936C88773760FBB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260957   (304650) от 10.11.2018
+
+Apple iMovie 10.1.10 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря удобному интерфейсу и поддержке интуитивно-понятных функций редактирования iMovie позволит Вам насладиться работой с видео и рассказать свою историю по-новому. Просматривайте свою видеотеку, делитесь любимыми моментами, создавайте великолепные фильмы с возможностью редактирования и разрешением до 4K. Можно даже начать редактировать фильм на iPhone или iPad, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2018Разработчик: AppleПоддерживаемая ОС: macOS 10.13.6 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11DA417802169A2CA4986487F52E987021CD487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183922   (303601) от 16.11.2017
 
 EasyPing - network tool 2.5 [En]
@@ -6,7 +112,7 @@ EasyPing - network tool 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303601.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ Go64 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303556.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Password Vault Manager Enterprise 4.6.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303519.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Spillo 1.9.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303001.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ Templates for Pages 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302840.jpg" />
 </div>
 
 
@@ -144,7 +250,7 @@ Keymou 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302624.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ Affinity Publisher 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302393.jpg" />
 </div>
 
 
@@ -197,7 +303,7 @@ Affinity Photo 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302174.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ Affinity Designer 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302160.jpg" />
 </div>
 
 
@@ -250,7 +356,7 @@ Apple iMovie 10.1.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301997.jpg" />
 </div>
 
 
@@ -278,7 +384,7 @@ DiskWarrior 4.2 Rev909 BootDVD (Alsoft)[English] (2009)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301881.jpg" />
 </div>
 
 
@@ -305,7 +411,7 @@ Diagrammix 2.15 (3013) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301493.jpg" />
 </div>
 
 
@@ -331,7 +437,7 @@ Movavi Video Editor 15.4.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300952.jpg" />
 </div>
 
 
@@ -358,7 +464,7 @@ CCleaner Pro 1.15.507 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300890.jpg" />
 </div>
 
 
@@ -384,7 +490,7 @@ GraphicConverter 11 v11.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300755.jpg" />
 </div>
 
 
@@ -410,7 +516,7 @@ Adobe Media Encoder CC 2019 v13.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300362.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ Infographics 3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300300.jpg" />
 </div>
 
 
@@ -467,7 +573,7 @@ FoxTrot Professional Search 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300154.jpg" />
 </div>
 
 
@@ -495,7 +601,7 @@ NetWorker - Advanced Network Information App 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299294.jpg" />
 </div>
 
 
@@ -523,7 +629,7 @@ Cisdem PDFCreator 7.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299118.jpg" />
 </div>
 
 
@@ -551,7 +657,7 @@ Cisdem WindowManager 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298954.jpg" />
 </div>
 
 
@@ -577,7 +683,7 @@ Split Screen 3.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298887.jpg" />
 </div>
 
 
@@ -590,114 +696,6 @@ Split Screen является полностью настраиваемым пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96CAC950C4855AB504BE7B3AA5B50FD866A78ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262044   (298764) от 13.11.2018
-
-VoodooPad 5 v5.2.3 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у вас очень много идей и мыслей, которые хочется где-то сохранять для будущих поколений для продуктивной и удобной с ними работы, вы наверняка давно пользуетесь программой с забавным названием VoodooPad. VoodooPad – как бы wiki, превращенная из веб-приложения в обычное приложение. В общем-то, это записная книжка, в которой можно хранить что угодно и как угодно. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2018Разработчик: Primate LabsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6F05117B65B33AB7472128B17DAAEFE59C46D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262088   (298762) от 13.11.2018
-
-Orion PDF Author 2 v2.30 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orion PDF Author - новый и простой способ создания инструкций, буклетов, руководств пользователя и тд. в формате PDF.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2018Разработчик: Aidaluu Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87B1BD27BADB78A9155B58E28CAF775C75495D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961651   (298722) от 02.12.2015
-
-PDF Expert 1.1.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298722.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - многофункциональная утилита для работы с PDF
-PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
-
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 декабря 2015Разработчик: Readdle Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D65ECFB68788422473D90DC6EE756A81A9C14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184650   (298691) от 18.11.2017
-
-1Blocker - Block ads, tracking scripts, anything 1.4.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298691.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Blocker - блокировка рекламы
-Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2017Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A7F1962EA9C7D39CAF48D529F661FE652931E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

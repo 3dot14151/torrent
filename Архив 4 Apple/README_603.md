@@ -1,3 +1,57 @@
+###  Публикация: 1515459   (169712) от 07.12.2021
+
+Submerge 3 v3.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
+Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Bitfield ABПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1251590EC13D2F0F3A6BDB5F15E87F992CB5F13B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515513   (169707) от 07.12.2021
+
+iPulse 3.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи клиентов использовали iPulse, чтобы следить за производительностью своего Mac с момента его представления еще в 2002 году.
+Используя лаконичный и привлекательный пользовательский интерфейс, iPulse графически отображает внутреннюю работу macOS на рабочем столе, в строке меню или в Dock. Презентация полностью настраивается, поэтому вы можете установить именно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: © 2021 The Iconfactory, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C063F956B7E5F40140F793542DA5D6DAE0E3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515572   (169686) от 07.12.2021
 
 SideNotes 1.4.1 [En]
@@ -6,7 +60,7 @@ SideNotes 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169686.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ CrossOver 19.0 (build 32195 ) Release [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169670.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ GoodNotes 5 v5.7.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169665.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ NetWorker Pro 8.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169661.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Smart Shooter 4 v4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169650.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ FabFilter Total Bundle 2020.12.08 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169645.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ App Cleaner & Uninstaller Pro 8.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169644.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ Art Text 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169581.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ SQLPro Studio 2021.106 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169578.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169568.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ Fork 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169560.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ RAR Extractor  - unzi‪p‬ 8.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169545.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ Native Instruments Komplete Kontrol 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169538.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ Araxis Merge Pro Edition 2023.5973 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169521.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ Keyboard Maestro 10 v10.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169458.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ Transmit 5.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169456.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ TechSmith Snagit 2022.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169451.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ Air Printer - Printer Server Pro for Mac 5.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169441.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ QLab 4 v4.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169404.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169390.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ TechSmith Camtasia 2021 Studio 2021.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169375.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ Logic Pro X 10.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169373.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ Nova 10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169362.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ iMap Builder: Organisation 11.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169347.jpg" />
 </div>
 
 
@@ -629,59 +683,6 @@ iMap Builder - незаменимое приложение, предназнач
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DF6C1E8A485D08D529B6AAB232C3D0A28F467B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596776   (169339) от 11.12.2022
-
-Valentina Studio Pro 12.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2022Разработчик: 2001 - 2022 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44080772080E899E4155946E87BD558DBE4DD566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515489   (169336) от 07.12.2021
-
-Sublime Text Dev Build 4123 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
-Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Sublime HQ Pty LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDE196BBFB7D0CB5712340F013B6A90CE3797D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

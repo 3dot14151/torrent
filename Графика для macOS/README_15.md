@@ -1,3 +1,59 @@
+###  Публикация: 1066563   (412248) от 26.10.2016
+
+Photo Batcher 1.2.4 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Batcher - программа для пакетной обработки цифровых фотографий и изображений. Позволяет конвертировать, вращать изображения, изменять их размер, корректировать цвета, накладывать спецэффекты и водяные знаки.
+
+Поддерживает форматы JPEG, JPEG2000, PNG, TIFF, TGA, GIF, BMP, PICT, PSD, PDF и др.Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, голландский, французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076792FE33FA138A025EB177577B5B34B9C35C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066352   (409069) от 27.10.2016
+
+FilmConvert Pro All Packs 2016 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все камеры в одном паке
+Дополнительный пакеты профилей камер для плагинов FilmConvert и для Стандартного приложения.
+Эти дополнительные пакеты данных предназначены для повышения точности цветопередачи для камеры.Тип издания: macOS SoftwareРелиз состоялся: 2016Разработчик: Film ConvertПоддерживаемая ОС: 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D5CC7952DB6476F5489C5BD789B631384CE8F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325973   (408306) от 17.09.2019
 
 Imagenomic Professional Suite for Photoshop СС2015.5-СС2019 v1718 [En]
@@ -6,7 +62,7 @@ Imagenomic Professional Suite for Photoshop СС2015.5-СС2019 v1718 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408306.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ Adobe Type Manager Deluxe 4.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407901.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ Vertus Fluid Mask 3.3.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407689.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ Sketch 58 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407282.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ Passport Photo 1.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401329.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ DxO OpticsPro Elite 11.4.3 (build 71) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399361.jpg" />
 </div>
 
 
@@ -167,7 +223,7 @@ Priime Styles 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391957.jpg" />
 </div>
 
 
@@ -194,7 +250,7 @@ Intaglio 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381772.jpg" />
 </div>
 
 
@@ -220,7 +276,7 @@ Color Finale Pro 2 v2.2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380458.jpg" />
 </div>
 
 
@@ -246,7 +302,7 @@ Watercolor Studio Pro 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379527.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ Icon Plus - Icon & Logo Design 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379404.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ Red Giant Shooter Suite 13.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375000.jpg" />
 </div>
 
 
@@ -326,7 +382,7 @@ PictureCode Photo Ninja 1.3.8b [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374511.jpg" />
 </div>
 
 
@@ -353,7 +409,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373974.jpg" />
 </div>
 
 
@@ -379,7 +435,7 @@ Capture One Pro 8.3.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367219.jpg" />
 </div>
 
 
@@ -406,7 +462,7 @@ Photo Size Optimizer (was IMAGEmini) 1.71 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366777.jpg" />
 </div>
 
 
@@ -433,7 +489,7 @@ Adobe Photoshop CC 2018 v19.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364685.jpg" />
 </div>
 
 
@@ -459,7 +515,7 @@ MyBrushes - Sketch, Paint, Design 2.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361187.jpg" />
 </div>
 
 
@@ -487,7 +543,7 @@ Image2Icon Pro 2.9.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361040.jpg" />
 </div>
 
 
@@ -513,7 +569,7 @@ Topaz Sharpen AI 1.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360658.jpg" />
 </div>
 
 
@@ -539,7 +595,7 @@ Super Eraser Pro 2.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359033.jpg" />
 </div>
 
 
@@ -567,7 +623,7 @@ Vector Magic Desktop Edition 1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357566.jpg" />
 </div>
 
 
@@ -594,7 +650,7 @@ Vector Magic Desktop Edition 1.20 (+fix for macOS 10.12) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356222.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ GraphicConverter 11 v.11.6.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354822.jpg" />
 </div>
 
 
@@ -632,62 +688,6 @@ GraphicConverter 11 — полнофункциональный графичес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BDAF222B5CEF5DDDA7CACC8DB01301B5B1391D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256621   (353570) от 22.10.2018
-
-Magic Retouch Pro 4.3 - panel for Adobe Photoshop [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Retouch Pro - плагин для Photoshop, с которым вы можете сделать профессиональный уровень ретуши фотографий без каких-либо знаний о ретуши. Полная ретушь кожи и цифровое решение для макияжа. Плагин имеет все необходимые инструменты, чтобы сделать красоту ретуши прямо в Photoshop.
-
-Magic Retouch Pro, может быть использован в режиме панели плагина. Панель также (   Читать дальше...   )Тип издания: macOS / Windows SoftwareРелиз состоялся: 2018Разработчик: Intaglio Graphics & MultimediaПоддерживаемая ОС: OS X / WindowsЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A3D77F9D9C5288B3EF104A49560705E1524ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178902   (353556) от 29.10.2017
-
-DesiGN Brochures Templates 2.7 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brochures Templates for Pages - высококачественная коллекция из 255 оригинальных шаблонов для Apple Pages. Если Вы начинаете новый бизнес, организовываете мероприятие, или пытаетесь придать новый импульс Вашим проектам - Brochures Templates for Pages помогут Вам в Ваших начинаниях.
-
-Конструкции очень легко редактировать и адаптировать к Вашим потребностям, Вы можете (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2017Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F3A4C2E9D18C10D15072B86427EF75418FF49F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1155399   (146187) от 25.12.2018
+
+Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sundered – ужасающая борьба за выживание и здравомыслие, нарисованная от руки эпопея от создателей Jotun. Это реиграбельный метроид, где тебе предстоит сражаться с древними зловещими силами либо подчиняться их воле. Ты играешь за Эша, странника, путешествующего по разрушенному миру, плененному предательскими, вечно меняющимися пещерами-ловушками, кишащими страшными (   Читать дальше...   )Тип издания: LicenseРазработчик: Thunder Lotus GamesЖанр: Экшн, Metroidvania, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37AFA0448BFF19FC5EDCC212BA70639E768026CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338889   (145572) от 26.12.2019
+
+Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и в других играх жанров Rogue-like и Metroidvania, в Tower Hunter: Erza’s Trial игроки прокладывают себе путь через огромную башню со случайно генерируемыми помещениями. В башне множество видов окружения, и есть простор как для исследования, так и для преодоления препятствий различной сложности. Благодаря контракту, заключённому между нашей героиней Эрзой и демоном, (   Читать дальше...   )Тип издания: LicenseРазработчик: IceSitruunaЖанр: Экшн, Metroidvania, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30F9EB7BAF90CFC9CFE1630A59160600DB702BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435170   (144983) от 27.12.2020
 
 Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
@@ -6,7 +58,7 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144983.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143018.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ NotGTAV (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142159.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Livelock (2016) [Ru/En] (1.0.25218) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141656.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141252.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Alien Shooter 2: Reloaded (2009) [Ru/En] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141180.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sine Mora [En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141131.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.0.3) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140995.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140031.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138605.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138479.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ The King of Fighters XIV (2017) [En/Ja] (1.25) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138446.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137588.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137256.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137205.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137066.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135768.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134005.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132182.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Braid [Ru/En] (RePack/1.0.1.5) 2008 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131761.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru/En] (RePack)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131756.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Klonoa Phantasy Reverie Series (2022) [Multi] (1.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130988.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ River Tails: Stronger Together (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127729.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127523.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB3CDEA353630CDBC8FCA347CCF0E3C648B71984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688138   (125406) от 28.12.2023
-
-Strayed Lights (2023) [Ru/Multi] (Build 11697504) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Strayed Lights — это захватывающее экшен-приключение, действие которого разворачивается в бессловесном, похожем на сон мире разложения и теней. Вы — зарождающийся свет, отправившийся в путешествие, чтобы освободиться от цепких объятий окружающих вас теней.Тип издания: RepackРазработчик: EmbersЖанр: ActionЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1264D38A0BF128BAD81FB6F253B11911F3A64E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689855   (124459) от 04.01.2024
-
-Eternal Dread 3 (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eternal Dread 3 – это трехмерный ролевой экшен с видом от третьего лица и анимешной графикой. Его сеттинг скрещивает фэнтези и стимпанк. В игре можно сражаться с монстрами, качать способности и характеристики, получать более мощное снаряжение. Есть тайник, позволяющий делиться классовым лутом с другими персонажами. Действие разворачивается в порабощенном демонами (   Читать дальше...   )Тип издания: SceneРазработчик: Hitbear StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Китайский, Японский, ТайскийЯзык интерфейса: Английский, Китайский, Японский, Тайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFCB46CD78D714016ACE8B37C88DC9D7F55244D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,24 +1,206 @@
-###  Публикация: 1271351   (149194) от 23.12.2018
+###  Публикация: 1600203   (158819) от 26.12.2022
 
-CentOS 7.6 (1810) [x86-64] 5xDVD, 1xCD
+Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 
 >>Linux, Unix и другие ОС
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_149194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доступен новый выпуск дистрибутивов CentOS 7.6.1810, вобравшие в себя изменения из Red Hat Enterprise Linux 7.6. Дистрибутивы полностью бинарно совместимы с RHEL 7.6, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления.
-
-Сборки CentOS 7.6 доступны для архитектур x86_64, Aarch64 (ARM64), i386, ppc64le, Power9 и ARMv7 (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+6 декабря 2022 состоялся релиз обновления дистрибутива Kali Linux 2022.4, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B773FF440F069EEA4BA55AFA932573EACF1DDDB
+magnet:?xt=urn:btih:E3FF8A584543E4156324FDF38C455CBEF52ED974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967347   (158545) от 20.12.2015
+
+Whonix 12.0.0.3.2  [анонимный доступ в сети] [x86] Образ для VM
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whonix - дистрибутив Linux на основе Debian, ранее известный как TorBOX. Предназначен для обеспечения анонимности средствами VirtualBox и Tor. Его особенностью является то, что ни вредоносные программы, ни компрометация учётной записи суперпользователя не могут привести к утечкам IP-адреса и DNS. Все программное обеспечение, идущее в комплекте с системой предварительно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F17FB2B5A1C1EE9F011F13D8325C140A798B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967601   (158322) от 21.12.2015
+
+Cyborg Hawk 1.1 (хакинг и анализ безопасности) [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyborg Hawk - Linux дистрибутив, в состав которого входят утилиты для проведения тестирования на проникновение в систему. Содержит большое количество инструментов для аудита и хакинга, Чем данный дистрибутив может оказаться лучше Kali Linux? По словам разработчиков дистрибутив содержит больше инструментов.
+
+Функциональный инструментарий дистрибутива Cyborg Hawk: (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A11B5B9EF9A22C2BA921E6EA689B1303CF4DA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518377   (155142) от 19.12.2021
+
+Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано второе корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 64 обновления с устранением проблем со стабильностью и 30 обновлений с устранением уязвимостей. Из изменений в Debian 11.2 можно отметить обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3114F34782C532FF6EBA6AF2CB2E20B97557973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518381   (153629) от 20.12.2021
+
+Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано второе корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 64 обновления с устранением проблем со стабильностью и 30 обновлений с устранением уязвимостей. Из изменений в Debian 11.2 можно отметить обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F2253CD1E87286E1EDFE89540738FD96474131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347095   (152679) от 22.12.2019
+
+Linux Mint 19.3 Tricia (XFCE, Mate, Cinnamon) [32bit, 64bit] 6xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Linux Mint 19.3, третьего обновления ветки Linux Mint 19.x, формируемой на пакетной базе Ubuntu 18.04 LTS и поддерживаемой до 2023 года. Дистрибутив полностью совместим с Ubuntu, но существенно отличается подходом к организации интерфейса пользователя и подбором используемых по умолчанию приложений. Разработчики Linux Mint предоставляют (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D556B083D7E75BF08AB82D463A12A5B84C9B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518735   (151959) от 21.12.2021
+
+elementary OS 6.1 Jolnir [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен выпуск дистрибутива Elementary OS 6.1, позиционируемого в качестве быстрой, открытой и уважающей конфиденциальность альтернативы Windows и macOS. Основное внимание в проекте уделяется качественному дизайну, нацеленному на создание простой в использовании системы, потребляющей минимальные ресурсы и обеспечивающей высокую скорость запуска. Пользователям (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC8290650DB5AE9115C4B1640F312CA721F896E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589187   (151072) от 14.12.2012
+
+Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступен релиз Univention Corporate Server 3.1, промышленного дистрибутива, основанного на Debian GNU/Linux 6 (Squeeze) и ориентированного на обеспечение поддержки корпоративной IT-инфраструктуры. Для установки задействован собственный инсталлятор, оптимизированный для быстрого развёртывания готовых сервисов. Для локального и централизованного администрирования используется специальный web-интерфейс. Для управления конфигурацией подготовлен инструментарий Univention Configuration Registry, позволяющий через наглядный интерфейс генерировать файлы конфигурации для разных сервисов и программ.
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -34,7 +216,7 @@ KX Studio 14.04.2 (Мультимедийная рабочая станция) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148677.jpg" />
 </div>
 
 
@@ -60,7 +242,7 @@ AV Linux 6.0.4 (Мультимедийная рабочая станция на 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148299.jpg" />
 </div>
 
 
@@ -80,34 +262,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271702   (146478) от 25.12.2018
-
-CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_146478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступен новый выпуск дистрибутивов CentOS 7.6.1810, вобравшие в себя изменения из Red Hat Enterprise Linux 7.6. Дистрибутивы полностью бинарно совместимы с RHEL 7.6, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления.
-
-Сборки CentOS 7.6 доступны для архитектур x86_64, Aarch64 (ARM64), i386, ppc64le, Power9 и ARMv7 (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961EE7368EFE3AAEFD320E97AB2DB54199E2B2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969950   (145189) от 28.12.2015
 
 Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и server) [amd64] 7xDVD
@@ -116,7 +270,7 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145189.jpg" />
 </div>
 
 
@@ -142,7 +296,7 @@ KNOPPIX 6.5 Linux Magazine Live DVD RU /USB 6.5 [x86] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143363.jpg" />
 </div>
 
 
@@ -171,7 +325,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142051.jpg" />
 </div>
 
 
@@ -198,7 +352,7 @@ BlackArch Linux 2020.01.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140811.jpg" />
 </div>
 
 
@@ -224,7 +378,7 @@ Calculate Linux 17 [i686] 2xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140357.jpg" />
 </div>
 
 
@@ -252,7 +406,7 @@ Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140316.jpg" />
 </div>
 
 
@@ -278,7 +432,7 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140146.jpg" />
 </div>
 
 
@@ -304,7 +458,7 @@ Calculate Linux 17 [x86-64] 2xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140033.jpg" />
 </div>
 
 
@@ -332,7 +486,7 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138644.jpg" />
 </div>
 
 
@@ -360,7 +514,7 @@ Linux Mint Debian Edition 7 Gigi (LMDE 7) [64-bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128866.jpg" />
 </div>
 
 
@@ -387,7 +541,7 @@ Astra Linux Special Edition 1.6.13 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126986.jpg" />
 </div>
 
 
@@ -415,7 +569,7 @@ Astra Linux Special Edition 1.6.14 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122838.jpg" />
 </div>
 
 
@@ -443,7 +597,7 @@ Linux Mint 21.3 Virginia (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121623.jpg" />
 </div>
 
 
@@ -469,7 +623,7 @@ Runtu Lite 22.04 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119546.jpg" />
 </div>
 
 
@@ -498,7 +652,7 @@ Simply Linux 10.2 (ALT Linux Team) [x64, x32] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117906.jpg" />
 </div>
 
 
@@ -526,7 +680,7 @@ Manjaro 23.1.3 Vulcan (xfce, KDE Plasma, Gnome) (Official images Manjaro Team) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117520.jpg" />
 </div>
 
 
@@ -537,163 +691,6 @@ Manjaro - это дружественный пользователю дистр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:798240B6BADA1A99647F51F921704A12973F9B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700133   (117299) от 16.02.2024
-
-Parrot Security Lorikeet amd64 [Хакинг, аудит, безопасность] 1xDVD 6.0 [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_117299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив Parrot Security позиционируется как переносная лаборатория с окружением для экспертов по безопасности и криминалистов, основное внимание в которой уделяется средствам для проверки облачных систем и устройств интернета-вещей. В состав также включены криптографические инструменты и программы обеспечения защищённого выхода в сеть, в том числе предлагаются (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627F91267B3207268074211B77A536329D60CD7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701004   (116798) от 19.02.2024
-
-elementary OS 7.1 Horus [x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116798.jpg" />
-</div>
-
-
-###  Подробнее
-
-elementary OS – дистрибутив Linux с открытым исходным кодом, построенный на базе Ubuntu и использующий среду рабочего стола Pantheon. Система позиционируется как быстрая и бесплатная замена для Windows и MacOS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A84292A64E1A9935E7CA7B7C40D22F3E1CFFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701235   (116634) от 20.02.2024
-
-Astra Linux Special Edition 1.7.5.UU.1 [amd64] 2xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116634.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОС Astra Linux Special Edition 1.7.5 на базе Debian 10 (buster).
-Astra Linux Special Edition 1.7.5 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49625B9901C53E7A5D1DA5626437B9FC2DD0819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701160   (116415) от 21.02.2024
-
-Gentoo Linux 2024-02-18 [i386/amd64] 1xCD, 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_116415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gentoo Linux (произносится дже́нту
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1424E846034A9020573444D1E8B64C4866DBBE3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704418   (114276) от 05.03.2024
-
-Kali Linux 2024.1 [amd64, i386, arm64] 11xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114276.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 февраля 2024 состоялся релиз обновления дистрибутива Kali Linux 2024.1, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF77367F0E6AC10018F09E7B004AE75534A7945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488712   (90916) от 26.04.2012
-
-Kubuntu 12.04 LTS [i386] (1xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 12.10 будет разрабатываться сообществом. Проект является частью проекта Ubuntu и использует его основу. Дистрибутив содержит все необходимые программы, которые вам нужны: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15001C9CD3317C3FF443088BB3729F8DD94512C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

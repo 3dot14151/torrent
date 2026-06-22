@@ -1,3 +1,29 @@
+###  Публикация: 1759309   (38058) от 07.11.2024
+
+Metro Awakening (2024) (1.0 build 16229071) Repack seleZen [VR only]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metro Awakening - это разработанный специально для VR сюжетный приключенческий шутер от первого лица. Погрузитесь в атмосферу вселенной Metro с элементами исследования, стелса и боев. 2028 год. Пережившие ядерный апокалипсис борются за существование в заброшенной московской подземке - последнем пристанище и могиле цивилизации, этом искусственно созданном чистилище, (   Читать дальше...   )Тип издания: RepackРазработчик: Vertigo GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8A67A9401DB0E89873D598FFCF35D3A047BB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166307   (38056) от 07.11.2024
 
 Descent II (1996) [Ru/En] (1.2) Repack 1nomok
@@ -6,7 +32,7 @@ Descent II (1996) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38056.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38054.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Will Rock (2003) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38052.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38043.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Quake Classic (1996) [Ru/En] (1.09) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38041.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38034.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38033.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Turok 2: Seeds of Evil (1998) [Ru/En] (1.4) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38031.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38029.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38028.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38020.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38012.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38007.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Repack Other s [Deluxe Edition] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37845.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37816.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.4.4b/dlc) Repack Let'sРlay [All Fronts]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37727.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37441.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Repack Other s [Ultimate Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37247.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37112.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Black Mesa (2020) [Ru/Multi] (build 14053053/dlc) Repack dixen18 [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36837.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16431800/dlc) Repack FitGirl [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36826.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36790.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36706.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36643.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Far Cry (2004) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36637.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Far Cry (2004) [Ru] (1.0) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4766A8B9CF1F304AA91074E97CEC0CAC7F275535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724687   (36312) от 24.11.2024
-
-PO'ed: Definitive Edition (2024) [Multi] (1.0.594) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36312.jpg" />
-</div>
-
-
-###  Подробнее
-
-PO'ed: Definitive Edition - возвращение легендарного олдскульного шутера от первого лица, где помимо динамичной боевой системы вас ожидает доля отборного юмора. Главный герой был простым поваром, летящим сквозь Галактики на космическом корабле, но однажды хрупкий мир пошатнулся из-за вторжения инопланетных созданий. Пришельцы похитили ваших друзей, а вы, отвлекшись (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5550DF33A6B92BBE231F413757B6DA3CEF1F6FAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1876017   (1072976) от 
+
+VA - Давай Наливай (Русский Шансон Vol 1) (2026) [MP3|320 Kbps] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Семён Блэк - Наливай [02:27]
+02. Артур Лэйк - Еще по одной [02:03]
+03. Ансон - Эй, давай - не тормози [02:22]
+04. Илья Норд - А жизнь идет [02:47](   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FD336A252F8336B556E6CDA7E2735D4EFB93FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875258   (1072797) от 
 
 Vayper - Thug Songs (Блатные и тюремные песни) (2026) AI-generated content [MP3|(V2)] <Русский шансон>
@@ -7,7 +36,7 @@ Vayper - Thug Songs (Блатные и тюремные песни) (2026) AI-ge
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072797.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ Vayper - Песни на стихи Александра Башлачева (Ч�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071394.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ Vayper - Песни на стихи Некрасова Н.А. (Часть 02) (2
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071319.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065768.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064190.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062258.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062256.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061286.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061214.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060842.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060517.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060515.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060514.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060512.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060511.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060510.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060509.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059676.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059675.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059674.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ iSenin - Ветры (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059190.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058927.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058498.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057673.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Александр Асмолов - Старый рубль (2026) AI-gener
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057655.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Александр Асмолов - Старый рубль (2026) AI-gener
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B8EB8BD2AAD50762CC15A36B42178293B5B381B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851339   (1055460) от 03.02.2026
-
-VA - Красивый шансон (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бутырка - Я душу к небу отпущу [00:04:22]
-02 - Виват Басов - С любимыми не расставайтесь никогда [00:03:40]
-03 - Владимир Тимофеев, Ирина Рейн - Грешу и каюсь [00:04:05]
-04 - Геннадий Жаров - Мы разлучились [00:04:05](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6B45299E52E961F595911E6A70AC65405F0B24
 ```
 
 https://mybot314.ru/tekegram_catalog/

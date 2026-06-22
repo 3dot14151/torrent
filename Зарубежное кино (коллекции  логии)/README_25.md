@@ -1,3 +1,107 @@
+###  Публикация: 479825   (87279) от 08.04.2012
+
+Немезида: Квадрология / Nemesis: Quadrilogy (1992, 1995, 1996) DVDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87279.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Кибернетика достигла такого могущества, что любая часть тела может быть заменена, даже мозг. Эта сверхтехнология порождает существа, которые являются скорее киборгами, чем людьми."Жанр: Боевик, ФантастикаРежиссер: Альберт ПьюнАктеры: Blanka Copikova, Эндрю Дивофф, Михал Гучик, Николас Гест, Andrej Lehota, Hracko Pavol, Саймон Поланд, Сью Прайс, Juro Rasla, Норберт ВайссерПеревод: Профессиональный одноголосыйСубтитры: Английские (на "туземную" речь)Продолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E304664F80E1C3AB711DB1ACBCE69754870B28EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469751   (87060) от 07.04.2012
+
+Миссия: невыполнима [Квадрология] / Mission: Impossible [Quadrilogy] (1996-2011) [720p] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой (   Читать дальше...   )Жанр: боевик, триллер, приключенияРежиссер: Брэд БёрдАктеры: Том Круз, Джереми Реннер, Саймон Пегг, Пола Пэттон, Микаэл Нюквист, Владимир Машков, Самули Эдельманн, Иван Шведов, Анил Капур, Леа СейдуПеревод: ДубляжСубтитры: АнглийскиеПродолжительность: 02:05:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478851   (87055) от 07.04.2012
+
+Миссия: невыполнима / Mission: Impossible [Quadrilogy] (1996 -2011) [1080p] BDRemux
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент отряда «Миссия невыполнима» Итан Хант и его коллеги несправедливо обвинены в причастности к взрыву Кремля. Президент инициирует «Протокол Фантом», в результате которого спецподразделение ликвидировано, и Итан остается без какой-либо поддержки. Он намерен очистить свое доброе имя и предотвратить новую атаку, но делать это ему придется вместе с командой коллег, истинных мотивов которых он до конца не знает.Жанр: Боевик, Триллер, ПриключенияРежиссер: Брэд БёрдАктеры: Том Круз, Паула Пэттон, Джереми Реннер, Саймон Пегг, Леа Сейду, Винг Рэймс, Джош Холлоуэй, Том Уилкинсон, Микаель Нюквист, Анил Капур, Даррен Шахлави, Самули Эделманн, Владимир Машков, Марк Горобец, Иван Шведов, Брайан КаспеПеревод: ДублированныйЯзык субтитров: Русский (forced), Русский (full), Английский (forced), Английский (full), Английский (SDH)Продолжительность: 02:12:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477757   (86251) от 03.04.2012
+
+Зеркала / Mirrors (2008-2010) BDRemux [H.264/1080p] [Дилогия, Unrated]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ужасы, Триллер, ДетективРежиссер: Виктор ГарсияАктеры: Ник Стал, Эммануэль Вожье, Ивэн Джонс, Кристи Карлсон Романо, Уильям Кэтт, Лоуренс Тернер, Стефани Онор, Джон Дэвис, Вейн Пер, Лэнс Э. Николс...Перевод: Многоголосый закадровый, Двухголосый закадровыйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476850   (85860) от 01.04.2012
 
 Терминатор 1, 2, 3 & Терминатор: Да придет спаситель / The Terminator & Terminator 2: Judgment Day & Terminator 3: Rise of the Machines & Terminator Salvation (1984/1991/2003/2009)  ...
@@ -6,7 +110,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85860.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85217.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84411.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82724.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82575.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82547.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82335.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81726.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81255.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80688.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79845.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79506.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77231.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73535.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63720.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63246.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63116.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62316.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61469.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60848.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60522.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60410.jpg" />
 </div>
 
 
@@ -577,113 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582652   (59895) от 13.04.2024
-
-Матрица / The Matrix (1999 - 2021) BDRemux [VC-1/H.264/1080p] [Коллекция]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59895.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Матрица» - американская научно-фантастическая медиафраншиза в жанре киберпанк. Началась с фильма «Матрица», снятого в 1999 году братьями Эндрю и Ларри Вачовски. Позднее, в 2003 году, вышло два продолжения: «Матрица: Перезагрузка» и «Матрица: Революция». В том же 2003 году был выпущен аниме-сериал «Аниматрица». Также по мотивам фильмов были выпущены сборники веб-комиксов (   Читать дальше...   )Производство: США / Warner Bros., Village Roadshow PicturesЖанр: фантастика, боевикРежиссер: Энди Вачовски, Ларри ВачовскиАктеры: Киану Ривз, Лоренс Фишбёрн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантольяно, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Моника Беллуччи, Брюс Спенс, Джада Пинкетт Смит, Хэролд Перрино, Гарри Дж. Ленникс, Хельмут Бакайтис, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис,  Джада Пинкетт Смит, Приянка Чопра Джонас, (   Читать дальше...   )Перевод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:16:18 / 02:18:15 / 02:09:16 / 02:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8D5E92B43003011A4CDB242A201B0952334AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310251   (58950) от 22.04.2024
-
-Чужой: Антология / Alien: 40th Anniversary Short Films (2019) WEB-DLRip [H.264/1080p-LQ] (фильмы 1-6 из 6) [PR]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58950.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь 40-летней годовщины выхода на экраны самого первого «Чужого» с неподражаемой Сигурни «Рипли» Уивер в главной роли, студия 20th Century Fox выпустила антологию Alien: 40th Anniversary Shorts из шести короткометражек, посвященных вселенной Чужих. Их сняли молодые режиссеры новой волны и попытались вдохнуть новую жизнь в буксующую в последнее время франшизу, (   Читать дальше...   )Производство: США / 20th Century Fox, TongalЖанр: ужасы, фантастика, короткометражкаРежиссер: Сэм Спир, Кайли Спир, Келси Тейлор, Крис Рединг, Эйдан БрезоникАктеры: Джеймс Пэкстон, Шэрон Дункан-Брюстер, Гайя Уайсс, Обри Вейкинг, Джолин Андерсен, Тэннер Риттенхаус, Эмбер Гастон, Брендан Тейлор, Стефани Чо, Адам Синклер, Кристофер Мюррэй и другиеПеревод: Многоголосый закадровый, профессиональный (LostFilm)Продолжительность: фильмы по ~00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E530CB48E19B9141D82B9434491968C22FEAC119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542446   (58837) от 23.04.2024
-
-Сандра Буллок: Коллекция фильмов (1987-2021) DVDRip, HDTVRip, WEB-DLRip, HDRip, BDRip [H.264]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция фильмов с участием Сандры Буллок.
-У Сандры Буллок есть своя звезда на «Аллее славы» в Голливуде. Ее фильмография наполнена и крайне гениальными картинами, и полными провалами. Она по праву считается звездой киноиндустрии мирового класса.
-   Актриса появляется на экране нечасто, Сандра может позволить себе выбирать сценарии на свой вкус. На гребне успеха Сандра (   Читать дальше...   )Производство: Разные студии.Жанр: Драма, комедия, мелодрама ...Режиссер: Различные в разных фильмах.Актеры: Сандра Буллок и другие.Перевод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: ~81:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB958602901BF9A982DD35995A1D2645A3F6F93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560925   (58604) от 25.04.2024
-
-Джулия Робертс: Коллекция фильмов (1988-2018) DVDRip, HDTVRip, WEB-DLRip, HDRip, BDRip [H.264]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция фильмов с участием Джулии Робертс.
-Американская актриса кино и телевидения, продюсер. Джулия Робертс (настоящее имя - Джули Фиона Робертс). Так случилось, что с детства она была окружена разными актерами, режиссерами и прочими театралами и другими людьми, посещавшими магазинчик "Актера и Писателя", которым владели ее родители. Поэтому и у нее (   Читать дальше...   )Производство: Разные студии.Жанр: Драма, комедия, мелодрама ...Режиссер: Различные в разных фильмах.Актеры: Джулия Робертс и другие.Перевод: Дублированный, профессиональный многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: ~80:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F13E28F113D5E0F68800C51762529889D20CEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

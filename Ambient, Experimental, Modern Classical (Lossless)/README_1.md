@@ -6,7 +6,7 @@ Jean-Michel Jarre - Amazonia & "Binaural Audio - Headphones Only" Version (2021)
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022048.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jean-Michel Jarre - Amazonia (2021) Columbia [FLAC|Lossless|tracks+.cue] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021750.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ How To Disappear Completely (HTDC, FOG & HTDC) - Discography 33 Releases (2012-2
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021683.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Maps and Diagrams - _Modulus (2021) Handstitched* [FLAC 2.0|44.1/48/24|tracks|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021322.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ VA - Nagual 4 (2017) ...txt [FLAC|Lossless|WEB-DL-USB Drive|tracks] <Ambient, Dr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021227.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Steve Roach - Skeleton Era Volume 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021226.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Sufjan Stevens - Meditations (2021) Asthmatic Kitty [FLAC|Lossless|WEB-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021225.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Kiyoko (Synkro & Bering Strait) - Discography 7 Releases (2012-2020) Auxiliary, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021139.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Woob | Journeyman | Max & Harvey | w00b - Discography 51 Releases (1994-2021) Bi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020741.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Mychael Danna & Tim Clément (Tim Clement) - The Best Of Danna & Clément (1999)
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019341.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Anima Mundi - Another World II (1998) Old Europa Cafe [FLAC|Lossless|tracks+.cue
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019114.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Kashya - Discography 20 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018979.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Beta Consciousness - Synesthesia (2021) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018391.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Saphileaum - Collection 16 Releases (2016-2021) Controlled Violence, Norite, Sil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012668.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Inhmost - Everything Is New (2020) La Luna [FLAC 2.0|44.1/24|tracks|WEB-DL] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011634.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ The Gnome | Gnome & Spybey - Discography 16 Releases (2010-2021) Crime League, A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011474.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ LATE - Far North Eleven (2021) Amek Collective [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011000.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Blank Gloss - Melt (2021) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoust
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010485.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Healer - Book of Clouds (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-Sc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010009.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Alessandro Cortini | blindoldfreak - Discography 33 Releases (2009-2021) Hospita
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009908.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ XqST - ∀∃ (2020) Isla [FLAC|Lossless|WEB-DL|tracks] <Tribal, Experimental, A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009724.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Gas - Discography 21 Releases (1996-2020) Mille Plateaux, Kompakt [FLAC|Lossless
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009643.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Max Corbacho - Discography 27 Releases (1998-2021) [FLAC|Lossless|tracks+.cue, t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009634.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Shaded Explorer - Harmonic Growth (2020) Pregnant Void [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009595.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Balmorhea - The Wind (2021) [FLAC|Lossless|tracks + .cue] <Modern Classical, Pos
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009182.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009169.jpg" />
 </div>
 
 

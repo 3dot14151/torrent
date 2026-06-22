@@ -1,3 +1,108 @@
+###  Публикация: 1030431   (674570) от 30.06.2016
+
+Вениамин Брагин | Юный моряк (1980) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674570.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, предназначенной для ребят, мечтающих о морской службе, рассказывается о назначении, устройстве и вооружении надводных и подводных кораблей, основах кораблевождения. Приводятся сведения об устройстве шлюпки, правилах гребли, такелажном делe. Даются рекомендации по обучению плаванию, оказанию первой помощи пострадавшим.Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4FECAF273E62C81B40874CD92860FE14A47003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136356   (674364) от 22.05.2017
+
+Майк Эскью, Роб Истуэй | Математика для мам и пап. Домашка без мучений (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674364.jpg" />
+</div>
+
+
+###  Подробнее
+
+О чем книга
+"Мам, помоги мне с домашкой по математике!", "Пап, я не понимаю задачу, объясни!" - любой родитель младшеклассника рано или поздно сталкивается с такими просьбами. Однако порой мы сами не можем разобраться, как выполнить задание, или наше разъяснение такое сложное, что ребенок сбит с толку, а повторять в пятидесятый раз уже не хватает (   Читать дальше...   )Жанр: Обучение, развитиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC4CB7CEFABABDFD238DEBAD6CD97E3E96C0838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030424   (674143) от 30.06.2016
+
+Александра Соболева, Екатерина Печак | Математика. Считаем уверенно (2010) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для развития математического мышления очень важны детские игры, особенно подвижные и с правилами. Знаете почему?Все просто. Математическое мышление – это не только цифры, это еще и абстрактное мышление, это умение просчитывать ситуацию и способность принимать нестандартные решения.От него зависит даже успех в такой простейшей игре, как «прятки». «А где в «прятках» (   Читать дальше...   )Жанр: МатематикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73AD3646A948AFEB08BF5704775D9A52A2824F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136696   (672864) от 23.05.2017
+
+Мария Суркова | От 14 и старше. Советы и лайфхаки (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет! Ты не поверишь, но я вряд ли многим тебя старше… У меня тоже свои взгляды, свой опыт и своя лень с печеньками. Поэтому и книга эта – не очередная «увлекательная» литература, призванная образумить, научить, привести тебя в удобное для кого-то состояние. Мы же прекрасно понимаем, что не нужно «лечить» или «переделывать» человека с уже сформировавшимся взглядом (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E0EF99DB8F17EEA06F4D324A8293EEB2271B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509990   (672803) от 13.06.2012
 
 Т.Н.Доронова, Е.В.Соловьева, А.Е.Жичкина, С.И.Мусиенко | Дошкольные учреждения и семья [2001] [PDF]
@@ -6,7 +111,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672803.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672066.jpg" />
 </div>
 
 
@@ -62,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670148.jpg" />
 </div>
 
 
@@ -89,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669144.jpg" />
 </div>
 
 
@@ -117,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668494.jpg" />
 </div>
 
 
@@ -145,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_668453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_668453.jpg" />
 </div>
 
 
@@ -175,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667185.jpg" />
 </div>
 
 
@@ -201,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667181.jpg" />
 </div>
 
 
@@ -227,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667020.jpg" />
 </div>
 
 
@@ -255,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_666906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_666906.jpg" />
 </div>
 
 
@@ -283,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666502.jpg" />
 </div>
 
 
@@ -311,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664143.jpg" />
 </div>
 
 
@@ -337,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664005.jpg" />
 </div>
 
 
@@ -363,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663873.jpg" />
 </div>
 
 
@@ -391,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662215.jpg" />
 </div>
 
 
@@ -418,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662022.jpg" />
 </div>
 
 
@@ -444,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662019.jpg" />
 </div>
 
 
@@ -470,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_661456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661456.jpg" />
 </div>
 
 
@@ -498,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_660406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_660406.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660111.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660013.jpg" />
 </div>
 
 
@@ -581,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659600.jpg" />
 </div>
 
 
@@ -592,118 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:371C031347BF62F70B0CF97AD0346EBD4FFD4B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139841   (658896) от 03.06.2017
-
-Татьяна Шклярова | Летняя гимназия на дому. Для каникул между 1 и 2 классами (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летняя гимназия на дому. Для каникул между 1 и 2 классами — Чтобы за длинные летние каникулы будущий второклассник не забыл всё, чему его научили в первом классе, нужно каждый день понемножку заниматься. Поверьте мне: это полезно и с воспитательной точки зрения! Такие занятия не утомят ребёнка, дисциплинируют его и дадут возможность с самого первого дня во втором (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61E1B07054B8843F1A74C04011FDFE74BB658EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903095   (658890) от 30.05.2015
-
-О.М. Невская | Как это работает? Самолет (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочные и наглядные иллюстрации, интересные факты и увлекательные статьи в этой книжке помогут вашему ребёнку увидеть самолёт снаружи и изнутри и понять:
-- что позволяет тяжёлому авиалайнеру взлетать, держаться в воздухе и безопасно приземляться
-- чем отличаются поршневой и реактивный двигатели
-- как устроены лёгкие самолёты, авиалайнеры и даже сверхзвуковые истребители(   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C40B3BEBAFEB7BE583008CE3493BA61E3812F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903137   (658770) от 30.05.2015
-
-Т. В. Шклярова | Справочник для начальных классов (2011) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие предназначено для учеников 3-5 классов, их родителей и учителей.
-Справочник содержит материалы начальной школы и 5 класса по русскому языку, математике, литературному чтению, окружающему миру.
-Пособие даёт ребёнку вспомнить всё что он проходил в начальной школе или ранее в этом году. Особенно актуально просматривать вместе с ребёнком в конце каникул, перед (   Читать дальше...   )Жанр: Книги для школыФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA8647B76CF45E51D32A3DA7B903BE89835C18B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140135   (657703) от 04.06.2017
-
-Том Джексон | Физика. Иллюстрированная хронология науки (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известнейшего британского популяризатора науки - Тома Джексона;
-- Подробная хронология науки физики;
-- Прекрасное оформление, легкая форма повествования.
-(   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E8FAFFD6A01FDCAE7E383BBB3CE23091502C0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

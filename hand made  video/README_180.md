@@ -1,3 +1,29 @@
+###  Публикация: 1801775   (14876) от 12.06.2025
+
+Двойной форсаж / 2 Fast 2 Furious (2003) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший полицейский Брайан О`Коннер с напарником Романом Пирсом собирается перевезти крупную сумму грязных денег известного мафиози Картера Верона. Но на самом деле эта работа является только прикрытием для Брайана, который вместе с тайным агентом Моникой Фуэнтес должен уличить изворотливого преступника.Производство: США, Германия / Mikona Productions GmbH & Co. KG, Original Film, Universal PicturesЖанр: боевик, триллер, криминалРежиссер: Джон СинглтонАктеры: Пол Уокер, Тайриз Гибсон, Ева Мендес, Коул Хаузер, Лудакрис, Том Бэрри, Джеймс Римар, Девон Аоки, Амори Ноласко, Майкл Или, Джин Онг и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1673433B3EAAC241AAC3E556503A29DEF10598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801629   (14868) от 12.06.2025
 
 Каникулы / Vacation (2015) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14868.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14866.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14788.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14763.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14762.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14760.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14758.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14736.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14679.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14649.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14632.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14620.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14619.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14618.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14613.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14607.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14557.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14547.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14533.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14530.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14528.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14526.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14524.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14520.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14486.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F248281D5C4A48E2D46741C4B8917F694469C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802385   (14474) от 16.06.2025
-
-Выкрутасы (2011) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слава Колотилов, простой школьный учитель из сонного приморского городка с небанальным названием «Пальчики», приехал покорять Москву с рукописью романа в руках, а покорил… красавицу Надю. Уже близится свадьба, ресторан заказан и гости приглашены, но цепкие Пальчики не дают Славе вырваться к суженой, подстраивая череду «непреодолимых обстоятельств». Вот и приходится (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: мелодрама, комедия, спортРежиссер: Леван ГабриадзеАктеры: Милла Йовович, Константин Хабенский, Иван Ургант, Александр Кержаков, Сергей Гармаш, Владимир Меньшов, Ольга Тумайкина, Сергей Селин, Галина Логинова, Татьяна Лютаева и др.Перевод: Не требуетсяПродолжительность: 01:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C16FE8926244360A8DBCFC155838BC23E5230D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Francesca Michielin - Riflessi Di Me (2012) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773143.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ R Plus & Dido - The Last Summer (2020) Deluxe Edition [MP3|320 Kbps] <Electronic
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773112.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bananarama - Viva (2009) Deluxe Expanded Edition [MP3|320 Kbps] <Europop, Synthp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771836.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Magic 80s (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771763.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - 100 Disco Classics (2020)  5CD Box Set [MP3|320 Kbps] <Pop, Disco, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771510.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Phoebe Bridgers - Punisher (2020) [MP3|320 Kbps] <Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769877.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Femme Schmidt - Raw (2016) [MP3|320 кб/с] <Pop, Female Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769518.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kygo - Cloud Nine (2016) [MP3|320 кб/с] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769514.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Janet Devlin - Confessional (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769393.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Las Deblas - Dime Quien Es Esa (1980) LP [MP3|320 Kbps] <Electronic, Flamenco, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769380.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Rentals - Q36 (2020) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769243.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jessie Ware - What's Your Pleasure? (2020) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769240.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Haim - Women In Music Pt. III (2020) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769219.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Romantic Love Songs 2020 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769100.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Diana Ross - Supertonic Mixes (2020) (Eric Kupper Remix) [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769094.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - 100 Greatest 80s: Ultimate 80s Throwback Anthems (2020) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769056.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - 100 Greatest 90s Ultimate Nineties Throwback Anthems (2020) [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768899.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Backstreet Boys - DNA (2019) Japanese Edition [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768477.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Summer In The 90s (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768435.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gazebo - Italo By Numbers (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768167.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dalida - Dalida (2018) [MP3|320 Kbps] <Pop, Chanson française>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768146.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Germanys Next Topmodel: Best Catwalk Hits 2017  [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768052.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Hot Parade Dance Winter 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767790.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Yota - Hazy Paradise (2020) [MP3|320 Kbps] <Female Vocal, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767697.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - 90S Baby - Ministry Of Sound (2018) Ministry Of Sound [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767344.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Kim Wilde - Here Comes The Aliens (2018) [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767339.jpg" />
 </div>
 
 

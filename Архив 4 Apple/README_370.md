@@ -1,3 +1,30 @@
+###  Публикация: 941098   (464618) от 26.09.2015
+
+PlistEdit Pro 1.8.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464618.jpg" />
+</div>
+
+
+###  Подробнее
+
+PlistEdit Pro - продвинутый редактор для файлов настроек plist и JSON файлов.
+С PlistEdit Pro, пользователи могут легко изменять эти файлы и оказывать более полный контроль над своими системами. Вы можете использовать PlistEdit Pro в ваших разработках, а также использовать встроенный файловый браузер, который позволяет исследовать и изменять настройки параметров (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 сентября 2015Разработчик: Fat Cat SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F38C12EE1D9A1C8DBC91944BBE1819AB0101CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940935   (464607) от 26.09.2015
 
 iMazing 1.3.2 [Multi/Ru]
@@ -6,7 +33,7 @@ iMazing 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464607.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Carbon Copy Cloner 3.5.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464531.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ SuperDuper! 2.7.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464526.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Templates for Pages 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464472.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464468.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Path Finder 6.0.6 [Eng/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464350.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Pixave 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464164.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ ExpanDrive 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464136.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ MacBooster 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464053.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ Camtasia 2.10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464039.jpg" />
 </div>
 
 
@@ -281,7 +308,7 @@ zCommander Pro 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464035.jpg" />
 </div>
 
 
@@ -310,7 +337,7 @@ DxO FilmPack Elite 5.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464026.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ iDatabase 3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463900.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ Xojo IDE RAD 2016r3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463789.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ Topaz Plugins Bundle (03.10.2016) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463768.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ Dead Cells v1.0.2.23340 (2018) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463185.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ RapidWeaver 7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462109.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ Default Folder X 5.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461976.jpg" />
 </div>
 
 
@@ -499,7 +526,7 @@ Downie 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461975.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ Cocktail 10.0.1 (Sierra Edition) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461974.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ Fission 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461964.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ Wondershare Filmora 7.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461828.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ iCash 7.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461822.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ Little Snitch 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461670.jpg" />
 </div>
 
 
@@ -663,7 +690,7 @@ iSkysoft iPhone Data Recovery 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461537.jpg" />
 </div>
 
 
@@ -675,32 +702,6 @@ iSkysoft iPhone Data Recovery: легко вернет утерянные дан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF4573C8A949B39A6EA643FC432F025FE9A8B3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162241   (461341) от 31.08.2017
-
-Чудо-женщина / Wonder Woman (2017) WEB-DLRip [576p] iPad
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед тем как стать Чудо-Женщиной, она была Дианой — принцессой амазонок, обученной быть непобедимой воительницей. И когда на берегах ограждённого от внешнего мира райского острова, который служил ей родиной, терпит крушение американский пилот и рассказывает о серьёзном конфликте, бушующем во внешнем мире, Диана покидает свой дом, чтобы справиться с этой угрозой. (   Читать дальше...   )Производство: США, Китай, Гонконг, Великобритания, Италия, КанадаЖанр: Фантастика, фэнтези, боевик, приключения, военныйРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Конни Нильсен, Робин Райт, Дэнни Хьюстон, Дэвид Тьюлис, Саид Тагмауи, Юэн Бремнер, Юджин «Храбрый камень», Люси ДэвисПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, АнглийскиеПродолжительность: 02:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9FC54F5557FAC31A215F112A73937F886A45FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

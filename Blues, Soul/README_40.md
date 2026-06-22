@@ -6,7 +6,7 @@ Blues Dudes - Organ Blues (2013) [MP3|320 Kbps] <Blues, Organ, Instrumental>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54675.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Van Morrison - Marin, San Francisco, Sept 71 (2024) [MP3|320 Kbps] <Jazz, Funk, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43669.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Layla Zoe - Into the Blue (2024) Live in Concert [MP3|320 Kbps] <Hard Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43131.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Beth Hart - You Still Got Me (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39599.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ KAT Blue & The True Believers - Start Believin'... (2024) [MP3|320 Kbps] <Blues,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31704.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30780.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gary Moore - Gary Moore Live From Baloise Session (2025) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16827.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Joe Bonamassa - Breakthrough (2025) [MP3|320 Kbps] <Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11073.jpg" />
 </div>
 
 

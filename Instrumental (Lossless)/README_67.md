@@ -6,7 +6,7 @@ Stef Burns - World, Universe, Infinity (2008) [APE|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490359.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Adriana Evans - El Camino (2007) Expansion Records [FLAC|Lossless|tracks + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488011.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Billy The Kid & The Regulators - I Can't Change (2015) [FLAC|image+.cue]<Electri
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487942.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Adriana Evans - Walking With The Night (2010) Expansion Records [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486141.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Magic Red - 4 Альбома (2003 - 2011) [FLAC|Lossless|image + .cue] <Blues-R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486113.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blues Trio - This Train (1994) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485264.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Bo Wilson Band - Magic Man (1996) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483342.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ BlueShot - Crack the Seal (2006) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483338.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Bo Weavil - Split-Up Blues (2009) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483123.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Bob Brozman and His Thieves of Sleep - Blues 'Round the Bend (1995) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483122.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Paul Camilleri - One Step Closer (2011) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482000.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Claude Hay - Roller Coaster (2016) [FLAC|Lossless|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481984.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tommy Z - Sometimes (2013) [FLAC|Lossless|image + .cue] <Blues Rock, Electric Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481690.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Luiz Camporez - Standart Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480558.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lars Kutschke - While We're Here (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480557.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jaya Blues Band - Pesta (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480550.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lyle Odjick and The Northern Steam - Through the Rain (2022) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480546.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Pierce - The Slide Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480544.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Satch Wakefield - The Covid Years_ Part1 (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480437.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nick Evans Mowery - Owners and Pickers (2022) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480436.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ryan Lee Crosby - Winter Hill Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480435.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mike Stevens - Breathe In The World, Breathe Out Mu (2022) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480433.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Eric Ramsey - On the Record (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480431.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lumberjacks - Cut, Split and Stack (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480428.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Sass Jordan - Bitches Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480427.jpg" />
 </div>
 
 
@@ -760,7 +760,7 @@ Scotty Charles - Rockin' the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480425.jpg" />
 </div>
 
 

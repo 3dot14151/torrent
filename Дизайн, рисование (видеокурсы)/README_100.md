@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1849.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ArtStation, LaurentiuN | 3D Weapon Tutorial for Portfolio (2025) PCRec [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1680.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ArtStation, Vizyon Designers | 50 Hard Surface Kitbash + Full Process Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1200.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gumroad, CrossMind Studio | Procedural Thinking - Blender 3D - Small Steps to Bi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1194.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ leManoosh, Mohamed Basil | The Blender Material Mastery - Cracking The Code Of P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1193.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_453.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_341.jpg" />
 </div>
 
 

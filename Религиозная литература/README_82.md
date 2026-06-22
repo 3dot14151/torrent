@@ -1,3 +1,107 @@
+###  Публикация: 580741   (342996) от 25.11.2012
+
+Триод Цветная [1648] [PDF] (Раритетное издание)
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Триодь (греч. Triodion), богослужебная книга, содержащая части богослужения с изменяемыми молитвословиями для подвижных дней года (в зависимости от празднования Пасхи, начиная с Недели о мытаре и фарисее и заканчивая Неделей всех святых). Название книги связано с тем, что каноны (вид церковного гимна), содержащиеся в ней, большей частью состоят из трех песней. Триодь Цветная содержит изменяемые части служб от первого дня Пасхи до Недели Всех святых. Электронная копия Триоди Цветной - один из старинных памятников церковно-славянской письменности. Его данные бесценны как для историков языка, так и для историков искусства. Оно отпечатано в Москве 17 марта 1648 года [01.09.7155 - 17.03.7156].Жанр: Раритеты, Духовная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA94CE33BF4C808844218E5A08681B7F4E7E435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580761   (342719) от 25.11.2012
+
+Евангелие учительное [1633] [PDF] (Раритетное издание)
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учительное Евангелие - один из старинных памятников церковно-славянской письменности. Его данные бесценны как для историков языка, так и для историков искусства. Оно отпечатано в Москве 17 марта 1633 года [6.10.7140 - 17.03.7141] и содержит поучения на тексты от недели о мытаре и фарисее, на праздники. Инициалы и буквицы выделены красной краской. Изображения в книге отсутствуют. Учительное Евангелие хорошо известно в научных кругах. К нему обращался искусствовед и сотрудник Отдела рукописей ГБЛ Ю.А. Неволин, который справедливо писал, что рукопись входит в группу книг, созданных в Московском Кремле и близка к таким книгам, как Лицевое Житие Николая Мирликийского и Лицевой сборник.Жанр: Раритеты, Духовная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EEE01F8DA719CCEC9704F413F7C9CA9EF8A8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954465   (341888) от 07.11.2015
+
+Александр Милеант | Что такое Библия? История создания, краткое содержание и толкование Священного Писания (2013) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341888.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге русского зарубежного православного богослова епископа Александра (Милеанта) простым и доступным языком изложена история написания Библии, разъясняется смысл и значение библейских текстов, приводится толкование книг Ветхого и Нового Заветов. Она будет интересна как методично изучающим, так и всем, кто хочет узнать больше о Библии, об эпохе и ее людях.Жанр: Религия, православиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7C4C27B4C9EBE806B6F196063C6E8F5B73C56E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330395   (341315) от 10.10.2019
+
+Схиигумен Гавриил (Виноградов-Лакербая) (ред.-сост.) | Краткое правило для благочестивой жизни (2018) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Духовные наставления этой небольшой книги написаны для тех, кто не желает годами топтаться на одном месте, но стремится к деятельной жизни во Христе и к духовно-нравственному самосовершенствованию через ежедневную работу над собой. Эти поучения будут чрезвычайно полезны всем, кто твёрдо намерен следовать путём спасения.Жанр: ПравославиеФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46D76BD97C47FB9421BF58D8BB746B1CB5E20BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954500   (341290) от 07.11.2015
 
 Католическая типография Миня (изд.) | Латинская патрология [Patrologia latina] [221 Том] (1844-1855) [PDF]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341290.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Firmin-Didot et Ciz (изд.) | Восточная патрология [Patrolo
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341280.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340280.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340148.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338759.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338604.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335896.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335821.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334543.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334002.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333996.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333984.jpg" />
 </div>
 
 
@@ -329,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333903.jpg" />
 </div>
 
 
@@ -357,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333546.jpg" />
 </div>
 
 
@@ -385,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332603.jpg" />
 </div>
 
 
@@ -411,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331364.jpg" />
 </div>
 
 
@@ -437,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331216.jpg" />
 </div>
 
 
@@ -463,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331202.jpg" />
 </div>
 
 
@@ -489,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329017.jpg" />
 </div>
 
 
@@ -515,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327210.jpg" />
 </div>
 
 
@@ -541,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326767.jpg" />
 </div>
 
 
@@ -570,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324993.jpg" />
 </div>
 
 
@@ -581,110 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D893D04C57672CAA97517C46A9CF3C5C2386278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958599   (324027) от 21.11.2015
-
-Прп. Алексий Карпаторусский | Путь к святости (2009) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена непростой жизни одного из величайших карпаторусских святых, апостола Подкарпатья, жившего на рубеже XIX и XX веков, - преподобного Алексия Карпаторусского, урожденного Александра Кабалюка. Святыми не рождаются, ими становятся; его путь к святости был долог и труден, да он и не может быть иным. Господь многократно ставил его перед нравственным (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E76A6D38C63C4CF869C89AD66921AD731D5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958588   (323981) от 21.11.2015
-
-Зоя Афанасьева (сост.) | Не оставляй Божественной молитвы (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обязательна ли молитва Иисусова для мирян? В чём её сущность? Как научиться ей? Что переживает дух молящегося в смирении сердца христианина? На эти и другие вопросы духовной жизни читатель найдёт ответ в нашей книге.Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB66FD248B9BD37DAC002EA53737B361E9A2524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958581   (323966) от 21.11.2015
-
-М.В. Шкаровский | Русская Православная Церковь в XX веке (2010) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323966.jpg" />
-</div>
-
-
-###  Подробнее
-
-XX век оказался одним из самых сложных, драматичных и трагичных периодов существования России. История Русской Православной Церкви в советскую эпоху была, прежде всего, историей беспрецедентных со времен преследований христиан в первые века нашей эры гонений за веру. В то страшное время было закрыто подавляющее большинство храмов, упразднены все монастыри, разрушена (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A030944034F8407A08D0F4CFE72DC616F2B128C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075081   (323593) от 21.11.2016
-
-И. Л. Бабич, Л. Т. Соловьева (ред.) | Христианство на Северном Кавказе: история и современность (2011) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник статей посвящен истории и современному состоянию христианства на Северном Кавказе. На основе ввода в научный оборот архивных и полевых этнографических материалов авторы исследуют различные стороны православия у казаков и народов Северного Кавказа, а также формы протестанских и иных христианских движений в регионе.Жанр: История христианстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAD7EEDFFC3CCA259A3A2BA4112D692050A9647
 ```
 
 https://mybot314.ru/tekegram_catalog/

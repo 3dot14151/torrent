@@ -1,3 +1,133 @@
+###  Публикация: 1626808   (255117) от 16.04.2023
+
+Deliver Us The Moon (2019) [Ru/Multi] (1.4.5a-rc-1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver Us The Moon - это научно-фантастический триллер, действие которого происходит в ближайшем будущем, когда запасы природных ископаемых Земли оказались исчерпаны. Пытаясь разрешить энергетический кризис, мировые державы создали Всемирное космическое агентство и открыли многообещающий источник энергии на Луне. Всемирное космическое агентство основало на Луне (   Читать дальше...   )Тип издания: LicenseРазработчик: KeokeN InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3810525D0FA0EB5F3C02755B5A25C9C38826DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627623   (254972) от 20.04.2023
+
+New Tales from the Borderlands (2022) [Multi] (10415597/dlc) Repack DjDI [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступите против безжалостных корпоративных правителей в этом нарративном приключении! В постоянно раздираемом войной мегаполисе на планете Прометея вы будете управлять Ану, Октавио и Фрэн... в худший день их жизни. Помогите этим трем милым неудачникам в их попытках изменить мир (и, возможно, даже спасти его)! Уложите на лопатки планетарное вторжение, свирепого подземного (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox Studio QuebecЖанр: Adventure, Third-person, 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A18C38E6FE5300924EA4439B15E31B570E82F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627555   (254942) от 21.04.2023
+
+The Unbeatable Path (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254942.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Unbeatable Path - это леденящий душу хоррор от первого лица, которая испытает вашу смекалку и нервы в адском окружении. Взяв на себя роль Мии, беспокойной молодой женщины, вы должны распутать запутанную историю, наполненную сложными головоломками и загадками, которые будут держать вас в напряжении на протяжении более 10 часов игры. Но берегитесь, каждое ваше (   Читать дальше...   )Тип издания: SceneРазработчик: RecklessGames UGЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B398A898880F964BBC4FFC0098B7E5DA1983DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630552   (254648) от 01.05.2023
+
+I Know This Place..? (chapter I) (2023) [Ru/En] (1.0) Scene Darksiders
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254648.jpg" />
+</div>
+
+
+###  Подробнее
+
+I Know This Place..? (chapter I) приглашает игроков в мистический экспериментальный квест. Начните свое путешествие во времени и пространстве с первой главы, которая перенесет вас в атмосферу 80-90-х годов прошлого века. Завершив игру, вы станете частью уникальной истории и получите возможность влиять на развитие сюжета в будущих главах. Разработчик собираем данные (   Читать дальше...   )Тип издания: SceneРазработчик: SameFrame, RBL LABSЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7476B4699D140DFC697A11B6EE1B6B076E113C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630758   (254626) от 02.05.2023
+
+Project Nightmares Case 36: Henrietta Kedward (2021) [Ru/Multi] (1.06) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа ученых, занимающихся изучением паранормальных явлений, разработала машину, которая может ввести пациента с экстрасенсорными способностями в состояние сна, связав его с вредоносным или проклятым объектом. Проект "Кошмары" занимается исследованием таких объектов, выяснением их истории и пресечением зла, которое они воплощают. В первой части игры мы (   Читать дальше...   )Тип издания: LicenseРазработчик: NC StudioЖанр: Экшны, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Португальский и другиеЯзык интерфейса: Русский, Английский, Испанский, Португальский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756C337FFC84F9F66BE6863A4891B31AF20ACBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630720   (254623) от 02.05.2023
 
 Between (2023) [Ru/En] (1.1.3.200423) Scene Tenoke
@@ -6,7 +136,7 @@ Between (2023) [Ru/En] (1.1.3.200423) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254623.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254616.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Chernobyl: Origins (2023) [Ru/Multi] (Build 10809098/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254599.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Sherlock Holmes The Awakened (2023) [Ru/Multi] (2204_1.1/dlc) License GOG [Premi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254522.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Serial Cleaners (2022) [Ru/Multi] (1.2.3404/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254461.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Lost in Darklight (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254387.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Paradise Killer (2020) [En] (1.3.0) License GOG [Perfect 25 Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253094.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Creepy Tale Collection (2020-2024) [Ru/Multi] (1.0.2d/1.0.1d/1.1/1.0.8) Repack N
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253079.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252537.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252470.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252286.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Quarry (2022) [Ru/Multi] (Build 11105655/dlc) Repack Other s [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252113.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252023.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251852.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251765.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251240.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250678.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Nine Sols (2024) [Ru/Multi] (202511032357.953572b8.0) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250586.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249369.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247798.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ A Light in the Dark / Yeguang (2018) [Ru/Multi] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247761.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ A Light in the Dark – это визуальная новелла с рисов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E07775FDF426A47BBD35D695174F774F0C5DB65E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638878   (247674) от 10.06.2023
-
-Beautiful Desolation (2020) [Ru/Multi] (1.0.7.3 C) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beautiful Desolation - это двухмерная изометрическая приключенческая игра, действие которой происходит в отдалённом будущем. Исследуйте постапокалиптические пейзажи, решайте головоломки, заводите новых друзей и могущественных врагов, выполняйте функции посредника в конфликтах и сражайтесь за свою жизнь, чтобы разгадать тайны мира вокруг Вас.Тип издания: LicenseРазработчик: The BrotherhoodЖанр: Adventure, RPG, Sci-FiЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B7B784AA1AE296A3A2AC5F43F11080A4A7CFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638810   (247671) от 10.06.2023
-
-A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247671.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Plague Tale: Innocence – это невероятный средневековый мир, благодаря поразительным декорациям и таланту опытных разработчиков оживающий под незабываемую музыку, что пробирает до глубины души. Осмелитесь ли вы открыть ужасающую страницу истории и отправиться в приключение, где нет места невинности? Отправляйтесь в путешествие вместе с Амицией и ее младшим братом (   Читать дальше...   )Тип издания: RepackРазработчик: Asobo StudioЖанр: Adventure, Action, Stealth, 3rd PersonЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794F5F6A64B006F1C174D9189B7F945C17DC8891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515056   (247662) от 10.06.2023
-
-The Captain (2021) [Multi] (1.1.4) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы Капитан Томас Уэлму, ученый в Spacefleet, затерянный на другом конце галактики. Темные силы на пути к Земле чтобы её уничтожить и только у вас есть способ их остановить. Мчитесь назад домой по всей галактике. Заведите новых друзей в своём путешествии, а также новых врагов. Всех спасти не получится, кого вы оставите позади? Какие цивилизации вы спасете, а какие (   Читать дальше...   )Тип издания: LicenseРазработчик: Sysiac GamesЖанр: Приключение, Симулятор, ФантаcтикаЯзык субтитров: Английский, Немецкий, Испанский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736CD9AA9AB64FA599DAD9EBF3FEB33FDE89D30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588750   (247447) от 21.06.2023
-
-The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247447.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Entropy Centre - умопомрачительное приключение в мире загадок, где вам предстоит перемещать предметы во времени, чтобы обойти невероятные препятствия и решить сложные загадки. Управляйте ходом времени, проходя через набитые головоломками комнаты к сердцу космической станции на орбите Земли.Тип издания: LicenseРазработчик: Stubby GamesЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6686F0F6219BEA7E8B1A29762DF3A33F8A63F3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540069   (247405) от 23.06.2023
-
-Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы лишь попытаемся ввести вас в огромный фантастический мир, равных которому нет и не было. От горизонта до горизонта простирается древняя империя Д’ни, которая населена тайнами и загадками. Вам, одинокому путешественнику, никто и ничто не будет указывать, что делать. Просто живите, ежесекундно совершая новые открытия, обращаясь к древним манускриптам и изучая новую (   Читать дальше...   )Тип издания: UnofficialРазработчик: Cyan WorldsЖанр: Adventure, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D92F7A47C51AA704EB5713FF3AB9207E954B60
 ```
 
 https://mybot314.ru/tekegram_catalog/

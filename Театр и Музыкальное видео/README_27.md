@@ -1,3 +1,189 @@
+###  Публикация: 635445   (909706) от 26.03.2013
+
+Stooshe - Slip (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0125B6AA5DFF73D4F1521E1D1DB5BF3EC1AB6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635447   (909525) от 26.03.2013
+
+Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F695E2FF9794065A303A1321FBD8579DC1C98A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635452   (909505) от 26.03.2013
+
+Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF8A52CE9EA3AF9C2A97D06878BEED5E029C763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864509   (909481) от 04.02.2015
+
+Демонстрационный DVD-Video диск #3. Dolby Digital 5.1, DTS Multichannel Sound 5.1 [DVD5]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Демонстрационные музыкальные клипы и фрагменты кинофильмовПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635441   (909438) от 26.03.2013
+
+Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635343   (909339) от 26.03.2013
+
+London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990820   (909286) от 26.02.2016
+
+VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клипов для любителей рок и метал.
+Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
+A Sound of Thunder - Murderous Horde.avi
+AC-DC - Are You Ready.avi
+AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291734   (908788) от 06.02.2011
 
 Музыкальный ринг на НТВ. Выпуск №12. Вадим Казаченко vs Алексей Глызин  (05.02.2011) SATRip
@@ -6,7 +192,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908788.jpg" />
 </div>
 
 
@@ -32,7 +218,7 @@ Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908696.jpg" />
 </div>
 
 
@@ -61,7 +247,7 @@ Alisher - Money (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907830.jpg" />
 </div>
 
 
@@ -87,7 +273,7 @@ Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907822.jpg" />
 </div>
 
 
@@ -113,7 +299,7 @@ Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907713.jpg" />
 </div>
 
 
@@ -139,7 +325,7 @@ Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907649.jpg" />
 </div>
 
 
@@ -165,7 +351,7 @@ Louna - Проснись и Пой! (live) (2013) 2*DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907461.jpg" />
 </div>
 
 
@@ -194,7 +380,7 @@ VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907446.jpg" />
 </div>
 
 
@@ -224,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907183.jpg" />
 </div>
 
 
@@ -250,7 +436,7 @@ Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907129.jpg" />
 </div>
 
 
@@ -276,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906869.jpg" />
 </div>
 
 
@@ -303,7 +489,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) Blu-Ray->DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906721.jpg" />
 </div>
 
 
@@ -332,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906622.jpg" />
 </div>
 
 
@@ -362,7 +548,7 @@ Lemmy - The Legend of Motorhead (2010) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906557.jpg" />
 </div>
 
 
@@ -391,7 +577,7 @@ Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906490.jpg" />
 </div>
 
 
@@ -420,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906167.jpg" />
 </div>
 
 
@@ -446,7 +632,7 @@ The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906004.jpg" />
 </div>
 
 
@@ -472,7 +658,7 @@ DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905916.jpg" />
 </div>
 
 
@@ -498,7 +684,7 @@ Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905871.jpg" />
 </div>
 
 
@@ -509,200 +695,6 @@ Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFFDA03AF3FDFC78C45294489E911783A44F62A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635863   (905867) от 28.03.2013
-
-Aida Arami - Diamond (2013) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C6493D8B60D7D3FD60A49F22804B600A7AE6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635748   (905758) от 28.03.2013
-
-Depeche Mode - Heaven (2013) WEB-DLRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCKПродолжительность: 00:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB92CF7C91EB101F7A7E11C6FFC288E69E6B969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368692   (905554) от 22.03.2020
-
-Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый совместный проект вокалистов Крис Хармс (Chris Harms)Производство: Napalm RecordsЖанр: Industrial Deutschland MetalПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2444597C1E6BA139CF8865D4B2CC5C5430E84942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301580   (904643) от 23.02.2014
-
-23 февраля в Большом городе (2011.02.26) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904643.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь главного праздника всех мужчин постсоветского пространства самые талантливые и любимые певицы выступят в самом неожиданном для себя амплуа и исполнят песни, которые зритель до этого привык слышать исключительно в мужском исполнении.
-София Ротару, Лолита, Наталья Королева, Ирина Билык, Тина Кароль, Ани Лорак, Джамала, Ёлка, Светлана Лобода, Ассия Ахат, Алена (   Читать дальше...   )01.Василисы - Ассорти
-02.Группа "Аморальный кодекс" (Арктика, Не Ангелы, Даша Астафьева) - До свидания, папа
-03.Лолита Милявская - Друг
-04.Джамала - Джамайка(   Читать дальше...   )Производство: Украина. Интер, "Студия Квартал-95"Жанр: КонцертПродолжительность: ~ 01:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C1AB1AC83ECD5F66635F063690411FD9DD6069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636679   (904258) от 29.03.2013
-
-Emerson, Lake & Palmer - Live In Belgium (1971) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_904258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emerson, Lake & Palmer (ELP) — английская прогрессив-рок группа, образованная в 1970 году, названная по фамилиям трёх её участников: Кита Эмерсона, Грега Лэйка и Карла Палмера. ELP считается одной из первых супергрупп, поскольку все её участники получили широкую известность до вхождения в группу01. Barbarian
-02. Rondo/Bach Improvisations
-03. Drum Solo
-04. Nut Rocker
-05. Take a Pebble
-06. Knife EdgeЖанр: Концерт, Progressive rock, Symphonic rockПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF862D3CBD048E81AD5DA13CC61CB9D6E828317E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461540   (903884) от 29.02.2016
-
-Armin van Buuren - The Music Videos 1997-2009 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Say Never (Feat. Jacqueline Govaert)
-02. Fine Without You (Feat. Jennifer Rene)
-03. Unforgivable (Feat. Jaren)
-04. In And Out Of Love (Feat. Sharon Den Adel)(   Читать дальше...   )Производство: TME/Open Gate Records, Armada Music BVЖанр: TranceПеревод: ОтсутствуетПродолжительность: 01:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017C1CA2EE3F3BD7F5414E9F153D2433EDB4F99A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636311   (903877) от 29.03.2013
-
-Цирк дю Солей: Сказочный мир / Cirque du Soleil: Worlds Away (2013) HDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США / Reel FX Creative Studios, Strange Weather Films, Cirque du Soleil BurlescoЖанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк БриклэндПеревод: Одноголосый закадровыйПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F91A24405196BC629015625C5C1A06A8937B91
 ```
 
 https://mybot314.ru/tekegram_catalog/

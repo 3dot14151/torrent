@@ -1,55 +1,3 @@
-###  Публикация: 1761284   (10953) от 20.07.2025
-
-Pacific Drive (2024) [Ru/Multi] (1.9.4/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pacific Drive — игра на выживание от первого лица, в которой ваш единственный спутник — автомобиль. Путешествуйте по северо-западу Тихоокеанского побережья и столкнитесь с потусторонними опасностями в Олимпийской зоне отчуждения. Каждая вылазка — это поездка, которая таит испытания. Вам предстоит усовершенствовать свой универсал и обустроить базу в заброшенном гараже. (   Читать дальше...   )Тип издания: RepackРазработчик: Ironwood StudiosЖанр: Экшены, Приключенческие игры, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7445B9A4DDB2F64D9DF9D4F161EBE2BB34835E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712769   (10952) от 20.07.2025
-
-Factorio (2020) [Ru/Multi] (2.0.60/dlc) Repack Other s
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Factorio – игра, в которой вы строите и обслуживаете фабрики. Вы будете добывать ресурсы, развивать технологии, создавать инфраструктуру, автоматизировать производство и сражаться с врагами. В начале игры вам предстоит валить лес, рыть шахты, строить конвейеры и роботов вручную, но вскоре фабрика превратится в мощный индустриальный комплекс с огромными солнечными (   Читать дальше...   )Тип издания: RepackРазработчик: Wube Software LTDЖанр: Стратегия, Строительство, МенеджментЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB4DDF38E2F366B979117AAD6C4E34423184DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740892   (10946) от 20.07.2025
 
 ICARUS (2021) [Ru/Multi] (2.3.0.140074/dlc) Repack FitGirl [Complete the Set Bundle]
@@ -58,7 +6,7 @@ ICARUS (2021) [Ru/Multi] (2.3.0.140074/dlc) Repack FitGirl [Complete the Set Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10946.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.17.30088/dlc) Repack Le
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10849.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1) Repack Necros1404
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10692.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.19-38.257/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10656.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4528/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10518.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Mini Cozy Room: Lo-Fi (2025) [Ru/Multi] (1.02.04/dlc) Repack FitGirl [All in One
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10379.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10326.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Crime Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10299.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Tech Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10286.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Grocery Store Tycoon (2025) [Ru/Multi] (0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10265.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack Other s [Wreckma
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10151.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10132.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Beff Jezos Simulator (2024) [Ru/Multi] (1.1.0.0711) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10114.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sР
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10028.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.38/dlc) Repack FitGirl [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9883.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.38/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9869.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Potion Craft: Alchemist Simulator (2022) [Ru/Multi] (2.0.2.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9809.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Miami Hotel Simulator (2025) [Ru/Multi] (0.13.345.pa) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9696.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9434.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Bus Flipper: Renovator Simulator (2025) [Ru/Multi] (1.0.22r) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9380.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9351.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9300.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9278.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9273.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFA6CB1B263ADE6890102AD744644B7EAB3B972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684887   (9079) от 07.08.2025
+
+House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора стряхнуть пыль с молотка - «Хаус Флиппер» возвращается в новом виде! Покупайте и ремонтируйте заброшенные дома! Или вы предпочитаете строить новые? Теперь можно и это! Примерьте роль флиппера-новичка и заработайте состояние, помогая жителям милого городка Pinnacove.Тип издания: RepackРазработчик: Frozen District, EmpyreanЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C0BB7340ECECE86DD2D39ABAE6DC4CD1AADE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810965   (9052) от 07.08.2025
+
+Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите на мир глазами пчелы! Исследуйте мир, вдохновленный Центральным парком, собирая пыльцу, избегая опасностей и строя собственный процветающий улей. Это издание сочетает оригинальный Bee Simulator с дополнением The Hive, вводя новую механику, режимы игры и свежий весенний контент - всё в одном захватывающем приключении, идеальном для игроков любого возраста.Тип издания: RepackРазработчик: VARSAV Game StudiosЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4214C0895396C6926D28440C27E47C5CF65B93
 ```
 
 https://mybot314.ru/tekegram_catalog/

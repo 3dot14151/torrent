@@ -1,3 +1,110 @@
+###  Публикация: 1675205   (160446) от 08.11.2023
+
+EXIF Sync 1.9.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный инструмент для исправления EXIF ​​в изображениях из различных источников.
+Современные цифровые камеры хранят информацию о времени, когда был сделан каждый снимок,
+непосредственно в файлах изображений. Эти данные используются, например, для сортировки фотографий в правильном порядке.
+Люди часто используют несколько фотоаппаратов для съемки одного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55589CB67EE002A3FDBB2DC8655EE84A6E93B12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675238   (160430) от 08.11.2023
+
+Get Backup Pro 3 v.3.7.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Get Backup Pro - Универсальная утилита для выполнения резервного копирования, клонирования дисков/разделов и синхронизации файлов и папок. Get Backup Pro предлагает двустороннюю синхронизацию, архивирование только измененных файлов, восстановление отдельных файлов и папок, защиту архивов шифрованием.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2008-2022 BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C4A0F237B2FB60958DE1651F4ADC0691B14A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675304   (160398) от 08.11.2023
+
+Wipr – Ad and Tracker Blocker 1.49 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wipr блокирует всю рекламу, трекеры, майнеры криптовалюты, файлы cookie ЕС и уведомления GDPR, а также другие неприятности, поэтому вы можете сосредоточиться на важном для вас контенте при использовании Safari.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 Giorgio CalderollaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDBDAE46C518688CBEA4678883AF21A7338A750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675244   (160339) от 08.11.2023
+
+AweCleaner Professional for Mac 5.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160339.jpg" />
+</div>
+
+
+###  Подробнее
+
+AweCleaner - это универсальное средство для очистки Mac, которое не только помогает пользователям Mac легко и быстро очищать все ненужные файлы, но также может удалять приложения, находить / удалять большие файлы, находить / удалять дублирующиеся файлы, освобождать память, управлять жесткими дисками и т.д. Это комплексное программное обеспечение для очистки также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2023 MagoshareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811113BE5EFEA5A0A988860829637C56BD48D7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675382   (160317) от 09.11.2023
 
 NetShred X 5.8.6 [En]
@@ -6,7 +113,7 @@ NetShred X 5.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160317.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ GrabIt 4.932 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160310.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Dato 5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160300.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ AnyMP4 Data Recovery for Mac 1.3.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160294.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ Yoink 3.6.89  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160282.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Native Instruments Komplete Kontrol 2.9.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160258.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ Project Office X Pro 1.1.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160240.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ Aiseesoft Mac Data Recovery for Mac  1.6.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160232.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ Aiseesoft 4K Converter for Mac 9.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160205.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ Vectorworks 2022  SP3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160195.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ Joyoshare UltFix 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160158.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ Joyoshare iPasscode Unlocker 4.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160126.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ TunesKit iOS System Recovery for Mac 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160108.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ Adobe Animate 2024 v.24.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160088.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ TunesKit iPhone Unlocker 2.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160084.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159939.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ Inklet 2.2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159924.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ Cisdem DVD Burner 6.10.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159907.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ iMedia Cutter 5.6.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159869.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ JetBrains DataGrip for Mac 2023.2.3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159808.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ AudFree Auditior 2.7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159408.jpg" />
 </div>
 
 
@@ -559,7 +666,7 @@ Rest&Move - Break reminder 1.7 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159402.jpg" />
 </div>
 
 
@@ -570,110 +677,6 @@ Rest&Move — это приложение-напоминание о переры
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BFCDF5A83D33C7182347E333E29F8361E1F01D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599919   (159398) от 25.12.2022
-
-DRmare Audio Converter for Mac 2.7.1 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение DRmare Audio Converter - это комплексный конвертер Apple Music и конвертер Audible для преобразования аудиокниг Apple Music, Audible AA/AAX, аудиокниг iTunes и других аудиофайлов в MP3, AAC, M4A и другие форматы, что упрощает прослушивание любой музыки в любом месте и в любое время.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2022Разработчик: © 2022 DRmareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBEFAA626B62934D7627D09BD26031CEE60D689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599992   (159396) от 25.12.2022
-
-Caato Time Tracker Pro 1.1.18 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caato Time Tracker использует трехуровневую иерархию проектов, задач и подробных записей времени. Вы можете добавлять, удалять или редактировать записи на каждом уровне для максимальной гибкости. CSV-Export позволяет легко создавать отчеты с помощью вашего любимого приложения для работы с электронными таблицами.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2022Разработчик: © 2022 CS Software Consultancy LtdПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD1D8DE5C39BF31C90DF38583F1598BA3C2DBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599967   (159387) от 25.12.2022
-
-Viwizard Audio Converter for Mac 3.8.1 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viwizard Audio Converter - это полнофункциональный инструмент для преобразования аудио, который позволяет конвертировать все виды аудиофайлов, включая музыку с защитой FairPlay DRM и незащищенную музыку, аудиокниги в MP3, M4A, AAC, FLAC, WAV, M4B для прослушивания где угодно.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2022 ViWizardПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8895AF289C003F554F334ED1B3E246EB6612384E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599902   (159382) от 25.12.2022
-
-BetterTouchTool 3.986 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159382.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterTouchTool удобное приложение, которое позволяет в продвинутом режиме настроить режимы сенсорной панели, многие другие жесты, не предусмотренные инженерами Apple, но отлично распознаваемые самими устройствами. BetterTouchTool-позволяет настраивать множество различных жестов для MagicMouse и MagicTrackpad, дает возможность настраивать действия на тапы в углах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2022 Andreas HegenbergПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE1C0F915D33E583C1BDBA3E8C695C63F171825
 ```
 
 https://mybot314.ru/tekegram_catalog/

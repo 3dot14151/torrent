@@ -1,3 +1,29 @@
+###  Публикация: 1657694   (189520) от 12.09.2023
+
+Казино / Casino (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не может сравниться с Сэмом Ротстином. Никто не умеет зарабатывать деньги, как он. Никто не умеет работать так самоотверженно и аккуратно, как трудяга Сэм. За свои неоспоримые достоинства Ротстин получил кличку «Ас». И именно поэтому боссы мафии решили отправить Аса заправлять огромным шикарным казино в Лас-Вегасе. А чтобы Сэму никто не мешал работать, мафиози (   Читать дальше...   )Производство: США, Франция / Universal Pictures, De Fina-CappaЖанр: драма, криминалРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Шэрон Стоун, Джо Пеши, Джеймс Вудс, Дон Риклз, Алан Кинг, Кевин Поллак, Л. К. Джонс, Дик Смотерз, Фрэнк ВинсентПеревод: Многоголосый профессиональный (Премьер Мультимедиа, ОРТ), двухголосый профессиональный (Лицензия, РЕН-ТВ)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2916035EFFE2095DC3A7CB09EBE8D45917F5F10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660346   (189504) от 12.09.2023
 
 Спаун / Spawn (1997) BDRip [H.264/1080p-LQ] [Director's Cut] [handmade]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189504.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189275.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189137.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188957.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188756.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188696.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188404.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188394.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188335.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188189.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188179.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188176.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188166.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188163.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188161.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188010.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187996.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187934.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187909.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187906.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187904.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_187898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_187898.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187655.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187651.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187647.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EEA3E1FD42ED0E4F7C612D5E7BBE4BC7CE510FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662590   (187639) от 18.09.2023
-
-Невезучие / La Chevre (1981) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует тип людей, страдающих хроническим невезением. Они опаздывают на поезда, проливают красное вино на белую одежду, на них падают кирпичи. Единственная дочь миллионера Мари, как раз из таких. Не повезло ей в очередной раз — пропала где-то в Латинской Америке. Папаша поручает поиски первоклассному сыщику, а в напарники ему дают такого же невезучего человека. (   Читать дальше...   )Производство: Франция, Мексика, Мальта, Gaumont International, Conacite Uno, Fideline FilmsЖанр: комедия, криминал, приключенияРежиссер: Франсис ВеберАктеры: Пьер Ришар, Жерар Депардье, Педро Армендарис мл., Коринн Шарби, Марица Оливарес, Андре Валарди, Хорхе Луке, Серхио Кальдерон, Мишель Робен, Робер ДальбанПеревод: Дублированный (Советский дубляж), MVO (OPT, Pozitive-Multimedia), DVO (ТВЦ)Язык озвучки: русский, французскийСубтитры: русские (PGS), английские (PGS), французские (PGS)Продолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40E4E629D2E2F8AA53FDBB732C3801EE3DD1C14
 ```
 
 https://mybot314.ru/tekegram_catalog/

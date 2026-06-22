@@ -1,3 +1,57 @@
+###  Публикация: 1517225   (163638) от 14.12.2021
+
+Pocket cleaner Pro 1.5.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pocket Cleaner Pro - это приложение, которое включает набор инструментов для очистки дискового пространства от ненужных файлов, содержащихся на вашем Mac.
+Инструмент удаления - это программное обеспечение для полного удаления приложений и оставшихся файлов, связанных с приложением.
+Finder нежелательных файлов сканирует ваши файлы и позволяет быстро выбирать из их (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Maksym KatrychПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Упрощенный китайский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E1787546028F8E5E07D980EBE434C0CE46D000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346373   (163621) от 19.12.2019
+
+ON1 Photo RAW 2020 14.0.1.8289 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163621.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Photo RAW 2020 включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ON1Поддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Русский, английский, немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1306E7B8A46573D02ECA373109BD66699CF035A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517146   (163620) от 14.12.2021
 
 FileMaker Pro 19 v19.4.2.204 [Multi]
@@ -6,7 +60,7 @@ FileMaker Pro 19 v19.4.2.204 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163620.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ FabFilter Total Bundle v9.12.2021 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163602.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ DMG Canvas 3.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163570.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Things 3 v.3.19.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163565.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163544.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ ACDSee Photo Studio 6 v6.1.1536 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163538.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ Sync Folders Pro 4.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163504.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ AudFree SpoDable for Mac 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163441.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Serviio Pro 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163438.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ FabFilter Total Bundle v.2023.10.31 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163408.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ CupHead v.1.2.4 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163405.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ MarsEdit 4 v4.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163333.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Website Watchman 2.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163329.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ AudKit Spotify Music Converter for Mac 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163324.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ Timemator 2 v2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163322.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ Display Maid 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163317.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ iconStiX 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163312.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ NeoOffice 2017.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163307.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163299.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ PowerPhotos 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163283.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ DRmare Music Converter for Spotify 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163276.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ Viwizard Spotify Music Converter for Mac 2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163269.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163268.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ iVI Video Converter 4 v4.740 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163263.jpg" />
 </div>
 
 
@@ -628,61 +682,6 @@ iVI способна конвертировать и импортировать 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A994E80D719A50C6D10476AF084926AB4E1DD060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432726   (163259) от 18.12.2020
-
-RAW Power 3.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2020Разработчик: Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44957AE0C662E29430FB3B06605AF8A5B3AA10AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432837   (163254) от 18.12.2020
-
-ScreenFlow 9 v9.0.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163254.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFlow - создаем свои скринкасты
-Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
-Простая, но крайне мощная утилита для захвата и записи видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2020Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3CA9097544B28766BC1D01C16404A6ADF3018C
 ```
 
 https://mybot314.ru/tekegram_catalog/

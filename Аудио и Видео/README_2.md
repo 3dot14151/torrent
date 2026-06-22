@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014282.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014154.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013927.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012510.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012285.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012279.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Curses - Next Wave Acid Punx (2021) [AAC|~328 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007502.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Jangrua Vol. I (2020) [AAC|~310 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007500.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Scatman John - Scatman's World (1995) [AAC|~329 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007498.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Fancy - Get Your Kicks (1985) [AAC|~369 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007497.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007496.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Fancy - Contact (1986) [AAC|~359 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007495.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007494.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ottawan - Ottawan (1980) [AAC|~351 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007493.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Garbage - No Gods No Masters (2021) [AAC|~321 Kbps] <Rock, Alternative>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007491.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Muse - Origin of Symmetry (XX Anniversary RemiXX) (2021) [AAC|~347 Kbps] <Altern
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007489.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Ottawan - Ottawan 2 (1981) [AAC|~341 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007488.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007487.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Maroon 5 - JORDI (Deluxe) (2021) [AAC|~319 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007486.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Alicia Keys - Songs in A minor (20th Anniversary Edition) (2021) [AAC|~331 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007483.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Yello - Yello 40 Years (2021) [AAC|~337 Kbps] <Synthpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007482.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007456.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Lumen - Без консервантов. Live (2021) [AAC|~347 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007322.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - Navigator Records 15 (2021) [AAC|~339 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007320.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Lindemann - Live in Moscow (2021) [AAC|~352 Kbps] <Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007319.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Lady Gaga - BORN THIS WAY THE TENTH ANNIVERSARY (2021) [AAC|~332 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007299.jpg" />
 </div>
 
 

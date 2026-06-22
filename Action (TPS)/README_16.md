@@ -1,3 +1,133 @@
+###  Публикация: 1497722   (741877) от 17.01.2022
+
+Shadow Man Remastered (2021) [Ru/Multi] (1.4) License GOG
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Man Remastered - это полная переработка классической игры с восстановленным контентом, ранее вырезанным. Shadow Man – это нелинейный приключенческий боевик от третьего лица, вдохновленный одноименным комиксом Valiant Comics. Игра охватывает два огромных мира. Пройдите через Царство Живых в роли простого смертного Майка Ле Руа и переместитесь в Царство Мертвых, (   Читать дальше...   )Тип издания: LicenseРазработчик: Acclaim StudiosЖанр: Экшн, Приключение, ХоррорЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE78F99361A05D76CAAEC3799D9BC7876366AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217559   (741710) от 05.04.2018
+
+Outbreak: The Nightmare Chronicles (2018) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город и сельская местность охвачены эпидемией. Чудовищные звери и изуродованные остатки людей свободно перемещаются по округе, быстро распространяющаяся мутация убивает все на своем пути. Лидия (Lydia) отделяется от своих оставшихся в живых товарищей и остается совсем одна, прячась в крупном поместье, где её единственной целью становится выживание. Она должна исследовать (   Читать дальше...   )Тип издания: RepackРазработчик: Dead Drop Studios LLCЖанр: Adventure (Horror), Action, 3D, 3rd PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7E915A7D48D0730F2B6153059FB1FE2684F4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282959   (740657) от 15.02.2019
+
+Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Deluxe Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выход Resident Evil 2 состоялся в 1998 году, и теперь одна из самых знаменитых игр всех времен возвращается на современные консоли в совершенно новом облике. Пройдите отдельные кампании за Leon Kennedy и Claire Redfield в новом режиме от третьего лица.Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Shooter), Survival Horror, 3 rd Person, 3D, PuzzleЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D084F7A10DAC4D128685998752C0F9E9EDBA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217893   (740529) от 06.04.2018
+
+Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack xatab
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры разворачивается спустя год после событий Metal Gear Solid: Peace Walker. Вам предстоит вновь вжиться в роль легендарного Снейка, известного также под псевдонимом Биг Босс. Задача: проникнуть на базу «Омега», где держат в плену Чико и Паз.Тип издания: RepackРазработчик: Kojima ProductionsЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F865CCC3B0DE2C93B49B60BC3F1836522148A655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527719   (736295) от 29.01.2022
+
+The Crows Eye (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в приключение с головоломками от первого лица в стенах заброшенного медуниверситета. Раскройте жуткую тайну 20-летней давности и постарайтесь избежать судьбы подопытного кролика в зловещих экспериментах. Не останавливайтесь ни перед чем, ведь в The Crow's Eye нет правил.Тип издания: RepackРазработчик: 3D2 EntertainmentЖанр: Adventure (Horror), Action, Puzzle, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648175708E05F9FEB5218C0DB77F9D2B2CE44B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021340   (732299) от 29.05.2016
 
 The Evil Within (2015) [Ru/Multi] (27.05.2016/dlc) License PROPHET [Complete Edition]
@@ -6,7 +136,7 @@ The Evil Within (2015) [Ru/Multi] (27.05.2016/dlc) License PROPHET [Complete Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732299.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Apocalypse: Party's Over (2016) [En/Pt] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730279.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Elite vs. Freedom (2016) [Eng] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730219.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729458.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729455.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) License GOG [The Full Pack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729295.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) License GOG [Game of the Century E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728103.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Senran Kagura: Shinovi Versus (2016) [En/Ja] (1.0) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726884.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726132.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.090.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722832.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Extinction (2018) [Multi] (1.0) Repack Other s [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720909.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Last Hope: Atomic Bomb - Crypto War (2018) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718985.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Sunset Overdrive (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716269.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Resident Evil 3 (2000) [Ru] (1.1) Repack Kalash49
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715121.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714495.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714037.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713068.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/En] (1.0/upd2) Repack =nemos= [Хbох
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713056.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Driver: San Francisco (2012) [Ru/Multi] (1.04.1114) Reрack R.G. Механик�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713054.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Decepticon [Ultimate Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712231.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (130418) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711259.jpg" />
 </div>
 
 
@@ -538,138 +668,6 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (130418) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344D67109233E760FC090D7DEC3FE4D89865F680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025212   (711196) от 11.06.2016
-
-Senran Kagura: Shinovi Versus (2016) [Jp/En] (1.0) Repack R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Senran Kagura начала своё существование в качестве классического бит-эм-апа для портативной системы Nintendo 3DS, вышедшего в Европе под названием Senran Kagura Burst и объединившего в себе сразу две игры. Именно эти проекты, а также находящаяся в разработке Senran Kagura 2: Deep Crimson, по версии продюсера серии являются ключевыми, что, впрочем, не помешало (   Читать дальше...   )Тип издания: RepackРазработчик: Marvelous AQLЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Японский, АнглийскийЯзык интерфейса: Японский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6AA5C3958A75464E4B5862CD5EFD7DAED448AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025234   (711065) от 11.06.2016
-
-Onechanbara Z2: Chaos (2016) [Jp/En] (1.0) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальность Onechanbara Z2: Chaos заключается в том, что вы не просто управляете каждой из прекрасных девушек, но и можете переключаться между ними прямо по ходу боя, создавая сильные цепочки ударов. Например, подбросив противника в воздух Кагурой, вы можете использовать бензопилу и разрезать монстра на две части, выбрав Сайю. Во время насыщенных боев с множеством (   Читать дальше...   )Тип издания: LicenseРазработчик: TamsoftЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Японский, АнглийскийЯзык субтитров: Японский, АнглийскийЯзык интерфейса: Японский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A437F02FAA50539B590DE27888C1E9D8455313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131187   (710278) от 04.05.2017
-
-Aragami (2016) [Ru/Multi] (01.08/dlc) SteamRip Let'sPlay
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aragami, игра в жанре "стелс", посвященная тайному перемещению с использованием сверхъестественных способностей. То, что вы беззвучно двигаетесь и избегаете источников света, еще не значит, что вы сливаетесь с тенью. Танцуйте с ней, живите в ней, пусть она проходит сквозь вас так же, как вы проходите сквозь нее.Тип издания: SteamRipРазработчик: Lince WorksЖанр: Action, 3D, 3rd Person, StealthЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DEFA3F455C499375847769BDC1B97BC970308E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792558   (707691) от 03.06.2014
-
-Silent Hill: Homecoming (2009) [Ru/En] (1.0) RePack Audioslave
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странные, тревожащие сны начали мучить Алекса Шепарда еще вдали от дома. А когда профессиональный военный, наконец, вернулся в родной городок Шепардс Глен, то обнаружил, что кошмар обернулся явью. В подворотнях сгустился мрак, улицы опустели, а дом самого Алекса превратился в обитель страха и отчаяния. Младший брат пропал, отправившийся на его поиски отец не вернулся, а мама замкнулась в себе и отрешилась от окружающего мира.
-Silent Hill: Homecoming — это достойное продолжение знаменитой серии, каждый эпизод которой натягивает нервы и леденит кровь не хуже первоклассных психологических триллеров и фильмов ужасов. В роли Алекса Шепарда вам вновь предстоит посетить утопающий в вязком тумане городок Сайлент Хилл, где за белесой пеленой скрываются порождения худших ночных кошмаров. Что произошло, пока Алекс отсутствовал и как его брат, еще подросток, связан с царящим вокруг безумием? Найти ответы на эти вопросы можете только вы.(   Читать дальше...   )Тип издания: RePackРазработчик: Double Helix GamesЖанр: Action (Survival horror) / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA141ECFFEC9A9F64C6805CB25AF92EF9C088D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 330020   (707227) от 30.04.2011
-
-The Swarm / Симбионт [Ru] (RePack) 2008 | Apple
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707227.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2008 году человечество столкнулось с угрозой извне огромные корабли пришельцев вошли в атмосферу Земли и атаковали крупнейшие города. Инопланетная раса, позже названная Роем, за тысячелетия миграций по Вселенной впитала в себя сотни видов. Она оказалась практически неуязвима для человеческого оружия. Правительства Земли ответили тактическими ядерными ударами по местам высадки чужаков, однако Рой не понес больших потерь. Человечество же потеряло последнюю надежду на выживание.
-Спасаясь от радиационного кошмара, захватчиков и воцарившегося хаоса, люди ушли под землю. Метро, канализация и подвалы дали убежище побежденному человечеству. Спустя два года после Вторжения, люди уподобились крысам, прячущимся по темным углам подземелий, в то время как на поверхности Земли инопланетяне движутся к ведомой лишь им цели. Однако не все выжившие потеряли надежду, некоторые еще верят, что будущее планеты в руках человечества.Тип издания: RepackЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794EF463974E942E7F409D198318F60CA5DDE759
 ```
 
 https://mybot314.ru/tekegram_catalog/

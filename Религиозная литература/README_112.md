@@ -1,3 +1,109 @@
+###  Публикация: 968503   (147589) от 27.12.2015
+
+Софокл Софоклеос | Иконы Кипра VII -XX веков (1994) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга греческого исследователя Софокла Софоклеоса представляет собой научное издание лучших образцов иконной живописи VII-XX_веков, находящихся на острове Кипр. Во вступительной статье автор анализирует историю развития кипрской религиозной живописи от византийского периода до современности. Отдельные главы посвящены иконам из знаменитых иконостасов - церкви Панагии (   Читать дальше...   )Жанр: ИконографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAC8B237BA24C1ACB78A4546B524F5DEA74AF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519848   (147307) от 25.12.2021
+
+Александр Ананичев | Икона Божией Матери «Знамение» (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Над Русской землёй с первых дней крещения святой верой Христовой распростёрт покров Пречистой Девы. Пресвятая Богородица полюбила Святую Русь, став «страны нашей преславной Защитницей и Церкви Утверждением». Её милосердие, терпение и кротость согревают сердца русских людей, вселяя необоримую веру в небесное заступничество.
+
+Святая Русь издревле называлась уделом (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165AE6D8D2E32A7D58A1AD9E7FE702BD99AC7FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969372   (147299) от 27.12.2015
+
+Козьма Индикоплов | Христианская топография (Космография Козьмы Индикоплова) [Рукопись РГБ. Ф. 173.I. [Собр. МДА] № 102] (1653) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень популярная в средневековой Руси (как, впрочем, и на христианском Востоке в целом) "Христианская топография" Козьмы (Косьмы) Индикоплова (дословно - "плаватель в Индию"), византийского купца, а впоследствии монаха, жившего в VI веке. "Христианская топография" (в славянском переводе "Книгы о Христе, объемлюща весь мир") (   Читать дальше...   )Жанр: Рукопись, космографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DC5B2C12B590CD790BFE561E7E4AA4FD15C3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087432   (146844) от 27.12.2016
+
+В.В. Бычков | Феномен иконы (2009) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146844.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге предпринят всесторонний анализ феномена иконы, игравшего в русской культуре на протяжении многих столетий важнейшую духовно-эстетическую роль. Прослежена история возникновения и становления иконы и ее теории от ранней Византии, Древней Руси до России XX в. Исследование идет на нескольких уровнях: изучено становление теории иконы на богословском, философском, (   Читать дальше...   )Жанр: Иконография, богословиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FA550B3B5F04AB47FEBE96C0CA363B6A5294B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348165   (146273) от 26.12.2019
 
 Николай Гумилёв и др. | Русская духовная поэзия [Сборник] (2011) [FB2]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146273.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145316.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145086.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144951.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144433.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144309.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144089.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143680.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143677.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143623.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143600.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143058.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143009.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143001.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142883.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142700.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142648.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142374.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142333.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141904.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141807.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141458.jpg" />
 </div>
 
 
@@ -576,116 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205476FBAB4A7EEC25658132DB42DE976E79DCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088289   (141172) от 30.12.2016
-
-Прот. Лев Лебедев | Заметки по пастырскому богословию (1999) [PDF, FB2, DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие
-Перед читателем весьма ценный, интересный и живой труд покойного курского протоиерея Льва Лебедева «Заметки по пастырскому богословию». Несколько десятилетий не издавались пособия по пастырскому богословию на русском языке. Известны классический труд митрополита Антония (Храповицкого) «Учение о пастыре, пастырстве и об исповеди» (переиздан заграницей (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1232F79E28102E4DE999DD1763DEA365AEE5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088329   (141151) от 30.12.2016
-
-прот. Лев Лебедев | Москва патриаршая (1995) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141151.jpg" />
-</div>
-
-
-###  Подробнее
-
-К ЧИТАТЕЛЯМ
-
-Настоящая книга состоит из нескольких самостоятельных работ, связанных общей тематикой и общими идеями. Это не только и даже не столько хладнокровные научно-исторические исследования, сколько попытка раскрыть современникам глаза на истоки и причины того, что происходит с нами сейчас и к чему это может привести в будущем. В то же время здесь повесть о (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437C94F61578382B1647B5205514AE8BF9DC5B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195709   (140971) от 30.12.2017
-
-О. Пальванова | Роль трудового коллектива в преодолении религиозных пережитков среди женщин (1983) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуется состояние религиозности среди женщин различных предприятий Ашхабада, прослеживается взаимосвязь проявлений религиозности с демографическими и образовательными характеристиками, отношение женщины к религии в мировоззренческом и культовом планах и т. д.Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51408AEBAC29CED46AF79BA71E43EC0A23FAF33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088297   (140945) от 30.12.2016
-
-Прот. Лев Лебедев | Великороссия: жизненный путь (1999) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140945.jpg" />
-</div>
-
-
-###  Подробнее
-
-РЕЦЕНЗИЯ на книгу о.Льва Лебедева Владимира Черкасова-Георгиевского.
-
-ЗАВЕЩАНИЕ ПАСТЫРЯ
-(   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E1D79F3700FFFCD7465B159E67A6CD2501FD49
 ```
 
 https://mybot314.ru/tekegram_catalog/

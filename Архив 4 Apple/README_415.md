@@ -1,3 +1,57 @@
+###  Публикация: 1254729   (370822) от 15.10.2018
+
+Algoriddim djay Pro 2 (Complete FX Pack) 2.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370822.jpg" />
+</div>
+
+
+###  Подробнее
+
+djay Pro обеспечивает полный инструментарий для выполнения ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию дают Вам бесконечную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: Algoriddim GmbHПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Испанский, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE715CED679F85326105EE121DD2F44B4A58C230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254874   (370816) от 15.10.2018
+
+Alarm Clock Pro 11.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в сро
+
+Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2018Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E235B4C254C97F7DCCA84AFA460EE1B05BD646B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254843   (370815) от 15.10.2018
 
 MacPilot 10 v10.13 [En]
@@ -6,7 +60,7 @@ MacPilot 10 v10.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370815.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ EazyDraw 8 v8.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370814.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ AirRadar 4 v4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370812.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Movist 2 v2.0.0 b22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370807.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Adobe Audition CC 2017 (10.0.0) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370730.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Pacifist 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370673.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ Photos Exif Editor 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370672.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ Screenium 2.1.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_370549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_370549.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ Adobe InDesign CC 2017 (12.0.0.81) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370453.jpg" />
 </div>
 
 
@@ -252,7 +306,7 @@ Delicious Library 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370138.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ Pixave 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370136.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ AnyToISO Pro 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370133.jpg" />
 </div>
 
 
@@ -333,7 +387,7 @@ AudioFinder 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369867.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ Yate 6.0.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369865.jpg" />
 </div>
 
 
@@ -389,7 +443,7 @@ Typinator 8 v8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369857.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ MacX Video Converter Pro 6.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369850.jpg" />
 </div>
 
 
@@ -445,7 +499,7 @@ Cardhop 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369841.jpg" />
 </div>
 
 
@@ -473,7 +527,7 @@ Fenetre 0.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369835.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ Dropshare 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369796.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ Hands Off! 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369742.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ Navicat Premium 12.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369646.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ Liquid | Flow Pro 14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369526.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369479.jpg" />
 </div>
 
 
@@ -638,7 +692,7 @@ Business Mix for Pages 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369377.jpg" />
 </div>
 
 
@@ -652,60 +706,6 @@ Business Mix Set представляет собой прекрасный ком
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF9EAB6C2BB8399153D07CBD51E2126A05A6FEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070192   (369373) от 06.11.2016
-
-OCRKit Pro 16.11.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное распознавание текста для "безбумажного" офиса. Архивирование, поиск, редактирование и перевод, для Mac
-Конвертирование любых файлов формата PDF и графических файлов в файлы формата PDF с возможностью поиска по тексту или в файлы форматов RTF, HTML и TXT.
-OCRKit представляет собой простое и рациональное приложение для конвертирования файлов (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 ноября 2016Разработчик: ExactCODE GmbHПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26637BB071E7F3B11C5CB60327283DC3F65188F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416371   (369367) от 15.10.2020
-
-Easy Data Transform 1.8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: Oryx Digital LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EEF4A7EFAA7E1DCB8F5365023E67E1CEA52AFA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

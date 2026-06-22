@@ -1,3 +1,276 @@
+###  Публикация: 1301238   (586251) от 10.05.2019
+
+Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bridge Over Troubled Water (4:52)
+02. I Am A Rock (3:19)
+03. El Condor Pasa (3:18)
+04. Cecilia (2:44)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14130395253D20C3ED7E41C05AE1BFF4B991311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357947   (586141) от 02.07.2011
+
+Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586141.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gate Of The Shimmering Cave
+2. Song Of The Creek
+3. Dancing Over Pools
+4. Celtic Mist
+5. When The Sun Loves Trees
+6. Silence Of The Eclipse
+7. Stream Garden
+8. Purple Waves
+9. Malibu Trail
+10. Beach Park(   Читать дальше...   )Жанр: RelaxПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE57AD6B2E1DC86A789984355B5BF0EDE139EE59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918553   (585859) от 16.07.2015
+
+Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, World, Ethno, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Native Soul (4:27)
+02. Iron Buffalo, Tracks of Steel (4:58)
+03. Everything is a Circle (7:06)
+04. Sacred Ground (4:19)(   Читать дальше...   )Жанр: Native American, New Age, World, Ethno, FolkПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759E9671B259BCD86479CB8DE04C94740FCD079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357450   (585771) от 02.07.2011
+
+OST Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (ITunes Deluxe Exclusive + Gamestop Exclusive) (2011) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Linkin Park - Iridescent (03:59)
+02 Paramore - Monster (03:20)
+03 My Chemical Romance - The Only Hope for Me Is You (04:32)
+04 Taking Back Sunday - Faith (When I Let You Down) (03:09)
+05 Staind - The Bottom (04:21)
+06 Art of Dying - Get Thru This (02:43)
+07 Goo Goo Dolls - All That You Are (03:12)
+08 Theory of a Deadman - Head Above Water (03:32)
+09 Black Veil Brides - Set the World On Fire (03:40)
+10 Skillet - Awake and Alive (Rock Radio Mix) (03:29)(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E411B4BBE6E7F5515EF97792280D3175A4C0057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357621   (585764) от 02.07.2011
+
+Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9996BABADECEFD4780210A0CC7D44B79141C1093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357682   (585759) от 02.07.2011
+
+Трансформеры 3: Тёмная сторона Луны / Transformers 3: Dark of the moon (by Steve Jablonsky) (2011) [MP3|320 kbps]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark side of the moon (03:49)
+02. Sentinel Prime (03:16)
+03. Lost signal (04:08)
+04. In time you'll see (03:16)
+05. Impress me (03:00)
+06. We were gods once (04:22)
+07. Battle (03:40)
+08. There is no plan (03:36)
+09. We all work for the Decepticons (01:51)
+10. The fight will be your own (04:41)(   Читать дальше...   )2011Жанр: ScoreПродолжительность: 00: 59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAEBCCDEA2A0107A940B2A0A8BF81B838845259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552696   (585650) от 22.05.2022
+
+Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnus Deorem (3:45)
+02. Enae Volare (4:39)
+03. Nomen Adore (3:44)
+04. Something Exciting (3:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79ADB53EEF1DCFE1FF2851EB347048CFC5A32C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040452   (585090) от 06.08.2016
+
+Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
+02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker for Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
+03. Twenty One Pilots - Heathens (03:16)
+04. Action Bronson, Mark Ronson & Dan Auerbach (of The Black Keys) - Standing in the Rain (03:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1B195BD7657A554D5381B0DF13B3B44C78577E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358622   (585081) от 03.07.2011
+
+VA - Pure Spirit Of Relaxation 3CD Boxset (2005) [MP3|320 kbps]<Meditativ, Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_585081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три альбома красивой атмосферной музыки для расслабления ума, тела и души. Послушайте все три, чтобы достигнуть полного расслабления.01. Soothing Sea Of TranquilityЖанр: Meditativ, Relax, New AgeПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6982A4BBD9D6BA6626BEA63CD1F88BC2671FCDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358087   (584933) от 03.07.2011
 
 OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<Electronic, Jazz, Stage & Screen>
@@ -6,7 +279,7 @@ OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584933.jpg" />
 </div>
 
 
@@ -32,7 +305,7 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584880.jpg" />
 </div>
 
 
@@ -61,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584798.jpg" />
 </div>
 
 
@@ -87,7 +360,7 @@ OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584742.jpg" />
 </div>
 
 
@@ -113,7 +386,7 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Loss
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584260.jpg" />
 </div>
 
 
@@ -142,7 +415,7 @@ Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584030.jpg" />
 </div>
 
 
@@ -171,7 +444,7 @@ Zhang Yi - Strings Of Love (2015) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583968.jpg" />
 </div>
 
 
@@ -200,7 +473,7 @@ Daisuke Minamizawa - Solo Guitar no Shirabe - Studio Ghibli Sakuhinshu (2000) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583840.jpg" />
 </div>
 
 
@@ -229,7 +502,7 @@ Michel Pepe - Offrandes (Best Of 2008-2015) (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583448.jpg" />
 </div>
 
 
@@ -258,7 +531,7 @@ Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583406.jpg" />
 </div>
 
 
@@ -287,7 +560,7 @@ Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583103.jpg" />
 </div>
 
 
@@ -318,7 +591,7 @@ Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582944.jpg" />
 </div>
 
 
@@ -347,7 +620,7 @@ VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, B
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582851.jpg" />
 </div>
 
 
@@ -376,7 +649,7 @@ Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582664.jpg" />
 </div>
 
 
@@ -402,7 +675,7 @@ Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contempor
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582423.jpg" />
 </div>
 
 
@@ -431,7 +704,7 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582244.jpg" />
 </div>
 
 
@@ -460,7 +733,7 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582178.jpg" />
 </div>
 
 
@@ -474,265 +747,6 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682080C84E86703FEA60A5884EC51F492A42A9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919904   (581847) от 20.07.2015
-
-Yiruma & Friends - Atmosfera (2015) [FLAC|Lossless|WEB-DL]<New-Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lee Songyi, Choi Eun-Chang & Lee Do Hun - Chaconne [3:55]
-02. Yiruma & HeeKyung Na - I [3:46]
-03. Son Sungjae & Hong Junho - Maybe [3:34]
-04. Yiruma, Ko Sang Ji, Kim Min Seok & Valtinho Anastacio - Yelow room [3:53](   Читать дальше...   )Жанр: New-Age, InstrumentalПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23CD7D5E4E6BF0A5847BC9EB34D9D9325991935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041811   (581464) от 10.08.2016
-
-Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irish Skies
-02. New Life
-03. As One
-04. Boy Buries Mother(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFA416EC135DF10387EF12CBC8FDE1D59D4D4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919753   (581056) от 21.07.2015
-
-Barry Goldberg & John Philip Shenale - Return of the Living Dead 3 (1993) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Title
-02. Enter The Isolation Room
-04. Osc'scope Zombie
-05. Zombie A Go Go(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B3EF4C8280792BB28572BEF29E641F7F8C661F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042093   (580581) от 11.08.2016
-
-Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden Dance
-02. Tragic Dream
-03. Black Wedding
-04. Mischief(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD10BFE5722F450DBAC0119492F1E25A36AB00BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041882   (580142) от 11.08.2016
-
-Mgzavrebi - Mgzavruli (2014) [FLAC|Lossless|tracks + .cue] <Folk, Pop-Rock, Georgian Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ramdeni dghea
-02 - Erti simi
-03 - Tu gamomicvdi khels
-04 - Am dros nughar eli(   Читать дальше...   )Жанр: Folk, Pop-Rock, Georgian FolkПродолжительность: 0:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29599D5D28F1C1405A36F2555DC22A37723D9883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920403   (580131) от 22.07.2015
-
-Little Wolf Band - 4 альбома (1995-2008) discography [MP3|320 кб/с]<Native American, World, Ethno>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer Song
-02. Oweegon
-03. Coyote DanceЖанр: Native American, World, EthnoПродолжительность: 03:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7941122B9663B4C441B24A003FCFCF45C7800B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920390   (580130) от 22.07.2015
-
-Midori - Island Paradise (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Island
-02. Sparkling Light
-03. Temple ShrineЖанр: New Age |Продолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99949D17355FCE711C8475FACA97AD2B394D9A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920589   (578779) от 23.07.2015
-
-Michael Giacchino - Мир Юрского периода / Jurassic World (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bury the Hatchling (1:57)
-02. The Family That Strays Together (1:01)
-03. Welcome to Jurassic World (Michael Giacchino & John Williams) (2:09)
-04. As the Jurassic World Turns (Michael Giacchino & John Williams) (5:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A320A68F498A9E7323C4ACF3B2E631D784CBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302684   (578004) от 18.05.2019
-
-The Blue-Gold Shore of the Beyond (Лазурно-Золотой Берег Запредельного) - Taranaya Namaha (2009) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jishu nam (3:49)
-02. Nai Nai Nai (5:29)
-03. Om Shreshtaya namaha (3:50)
-04. Om Govindaya nama (3:16)(   Читать дальше...   )Жанр: Mantras, Meditative, EthnicПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576FEF36A3FF23015185EA3DC3C81434CA1A0A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 926566   (499092) от 08.09.2015
+
+Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip  [H.264/720p-LQ] [1-5 серии из 5]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам нужен хороший взрыв? Мастер-пиротехник Мэтт Барнетт готов прийти на помощь! Клиенты со всего мира обращаются к нему с самыми невероятными просьбами – Мэтту приходится взрывать бомбы времен Второй мировой войны, метамфетаминовые лаборатории, а также устраивать грандиозные салюты, от которых захватывает дух. Каждый новый заказ – будто испытание, но Барнетт проходит (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B412B5318FDBB892AB74E61759762D95265E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539751   (498847) от 02.09.2012
+
+Странный секс (сезон 3, серии 1-10 из 10) / Strange Sex (2011-2012) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498847.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что происходит в постели, обычно знают только двое, однако герои этой многосерийной программы решили рассказать о своих тайнах, чтобы найти путь к гармоничному сексу. Они испытывают странные влечения, у них бывают странные привычки – и можете поверить, что таких странных историй вы еще не слышали.Жанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00 и 10 х ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8ACA2992F695D3E33DF9FA7AFF4595073E2546B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540746   (498112) от 03.09.2012
+
+Охотники за ураганом / Storm Chasers (2008) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это место называют "Аллей ураганов". Каждый год, весной, на средний запад америки приезжает команда рижессеров и ученых, чтобы проследить и описать одно из самых страшных погодных явлений на планете, используя все современные технологии. Они стремятся попасть в самое сердце торнадо в поисках сведений, которые могут быть использованы для спасения сотен жизней, а также сделать снимок из его эпицентра.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F830591A4AE0A09CDB5237ACADD984BEC0CF2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929652   (496994) от 10.09.2015
 
 Discovery. Ржавая империя / Junkyard Empire (2015) HDTVRip (1-4 серии из ?) (обновляемая)
@@ -6,7 +84,7 @@ Discovery. Ржавая империя / Junkyard Empire (2015) HDTVRip (1-4 с�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496994.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494893.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494890.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Discovery Science: Встреча с инопланетянами: Кванто�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494256.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Discovery: Разрушители легенд. Дрифт в Сан-Франц�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493843.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492016.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Discovery: Разрушители легенд. Специальный выпу�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489576.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489317.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Discovery: Производство: гонка со временем [10 из 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489065.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Discovery.Смертные грехи (7 серий из 7) / Discovery.Deadly S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489062.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Discovery. Смертельный улов / Deadliest Catch (2020) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486772.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Discovery. Затерянные викинги Америки / America's Lost V
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484463.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Discovery: Раскрытие загадки могилы короля Тута 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483997.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Discovery: Трой / Troy (2014) HDTVRip (1 сезон, 1-5 серия из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481581.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Discovery: Трой / Troy (2015) HDTVRip (2 сезон, 1-4 серия из 4)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481399.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Discovery: Миссия "Эверест" / Mission Everest [чч. 1, 2] (2007) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476156.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Discovery: Один день в Освенциме / One Day In Auschwitz (2015)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470706.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Discovery: Выжить после селфи / Still Alive (2015) HDTVRip [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469353.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Discovery:Правда о Нострадамусе / Nostradamus Decoded (2009) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467415.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip (сезон
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465797.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Discovery: Сибирская рулетка (сезон 1, серии 1-4 из 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464108.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463782.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Discovery. Смертельный улов / Deadliest Catch (2014) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462163.jpg" />
 </div>
 
 
@@ -589,86 +667,6 @@ Discovery. Смертельный улов / Deadliest Catch (2014) HDTVRip (С�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580CB91E0B256F1F6445270A1D17853CA8ECD886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513478   (460765) от 11.09.2018
-
-Discovery: Встреча с инопланетянами. Прибытие / Alien Encounters. The Arrival (2012) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460765.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии вы узнаете, как люди отреагируют на приближающийся к Земле корабль с инопланетянами? О последствиях этого события рассказывают ученые и писатели-фантасты вместе с сотрудниками проекта СЕТИ и сыном Карла Сагана, Ником.
-
-Автор рипа ROMBEEKЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60CD03165B722461373F0A53239998E038E3BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513109   (458838) от 12.09.2018
-
-Discovery: Встреча с инопланетянами. Сигнал / Alien Encounters. The Message (2012) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что произойдет, если мы получим сигнал из космоса? Ученые и писатели вместе с сотрудниками проекта СЕТИ и сыном Карла Сагана, Ником рассказывают о последствиях этого события. В этом фильме представлен гипотетический сценарий первого контакта с внеземным разумом. Они уже в пути. Если их техника позволит им попасть сюда, она позволит им сделать, что угодно. Мы больше (   Читать дальше...   )Жанр: Документальный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36AE621DC83751AA65656DFC9103F0C607D5BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058844   (457168) от 06.10.2016
-
-Discovery: Наука магии / The Magic of Science (2013) HDTVRip (1-9 серия из 9)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре профессиональных иллюзиониста из разных стран используют науку для создания магии. Они расскажут, как физика, математика и химия помогают им ошеломлять людей. Это полностью изменит Ваше представление о мире. Вы увидите волшебство на улицах, фокусы со скрытой камерой и иллюзии. А удивив Вас раскроют научные принципы, благодаря которым получилось волшебство. (   Читать дальше...   )Телекомпания: США, Discovery Network International production managementЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F12C563A53D15C1C315E6A88879F19208ED4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

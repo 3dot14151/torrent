@@ -6,7 +6,7 @@ Cesare Cremonini - 1 Album, 1 Single (2022) [MP3|320 Kbps] <Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174551.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ C.C.Catch - The Best Of C.C. Catch (2000) 3 CD [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_173859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173859.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Italove - Chasing Ghosts I-II Albums(2023) [MP3|320 Kbps] <Italo-Disco, Euro-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172593.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Italo 2000 - Italo Rarities (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172270.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Italo 2000 - Italo Rarities Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172092.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ VA - Italo 2000 - Italo Rarities Vol. 3 (2000) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172089.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Dos Décadas Dance 2 (2002) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171898.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Gina T. - Tokyo By Night (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171716.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Mike Mareen - Love-Spy (1985) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171201.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ C.C.Catch - In The Mix - 80's Best (2002) [OGG Vorbis|480 Kbps] <Electronic, Syn
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170400.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - Disco Laser (1979) LP [MP3|320 Kbps] <Electronic, Rock, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170267.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Pado & Co - Pado & Co (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169994.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kongas - Afrodesia (2019) EP (Produced by Cerrone) [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169955.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Panama - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169920.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Blue System - Behind The Silence 2002 (2002) Unofficial Release [OGG Vorbis|480 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169130.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Amanda Lear - The Sphinx•1976-1983 ( 2006 ) 3CD [MP3|320 Kbps] <Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169043.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168866.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Queen Samantha - 3 Albums (1978, 1979) 2 Reissue CD, 2020 [MP3|320 Kbps] <Electr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168854.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Buffalo Featuring Peter Vee - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168581.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mark Farina - 2 Albums (1990, 1992) CD [MP3|320 Kbps] <Electronic, Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167786.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Sophie - 3 Albums (1989 - 1995) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167754.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ El Pasador - Non Stop And Other Hits (2015) CD [MP3|320 Kbps] <Electronic, Funk 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167696.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Sweet Connection - Need Your Passion (2008) CD, Compilation [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167621.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Soirée - Soiree (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166936.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Continent Number 6 - Afromerica (1978) LP [MP3|320 Kbps] <Electronic, Disco, Fun
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166934.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Disco Getters - Disco Disco Disco (1979) LP [MP3|320 Kbps] <Electronic, Funk Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166881.jpg" />
 </div>
 
 

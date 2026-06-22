@@ -1,3 +1,134 @@
+###  Публикация: 614217   (981151) от 05.02.2013
+
+Суррогат / The Sessions (2012) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцатишестилетний Марк О`Брайен, подключенный к аппарату для искусственного дыхания, решает, что больше не хочет быть девственником.Жанр: ДрамаРежиссер: Бен ЛуинАктеры: Джон Хоукс, Хелен Хант, Уильям Х. Мэйси, Мун Бладгуд, Анника Маркс, Ри Перлман, Адам Аркин, У. Эрл Браун, Робин Вайгерт, Блейк ЛиндслиПеревод: Многоголосый закадровый (профессиональный)Продолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B65A9C64DB0EC8097ABD1BA2F0BC030EA3EE456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355622   (980969) от 28.01.2020
+
+Убей ради меня / Kill for Me (2013) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980969.jpg" />
+</div>
+
+
+###  Подробнее
+
+После расставания с деспотичным бойфрендом Аманда ищет соседку по комнате, чтобы разделить расходы за аренду. В колледже она знакомится с Хейли, которая тоже отчаянно пытается убежать от непростого прошлого. Девушки быстро становятся друзьями и заключают пакт — поддерживать и защищать друг друга во всем. Чего бы им это ни стоило…Производство: КанадаЖанр: Триллер, ДрамаРежиссер: Майкл ГринспенАктеры: Кэти Кэссиди, Шеннон Чан-Кент, Торранс Кумбс, Адам ДиМарко, Лини Эванс, Леа Гибсон, Чела Хорсдэл, Колин Лоуренс, Донал Лог, Райан РоббинсПеревод: Профессиональный многоголосый (Лицензия)Субтитры: английскиеПродолжительность: 01:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA34CEAFAC6D6D1DDEAA73F8E5C2B19690F725EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614504   (980883) от 05.02.2013
+
+Покорители волн / Chasing Mavericks (2012) [H.264] DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серфинг — спорт королей. Не каждый сможет справиться с огромными волнами у побережья Калифорнии. Их называют Мавериксами, они достигают 25 метров в высоту. Хессон не раз покорял стихию, но не раскрыл своего секрета никому. Он дал обещание любимой женщине — больше не рисковать жизнью. Но смелость юного Джей подкупила Хессона. Смогут ли они, глядя смерти в лицо, удержаться на гребне волны?.Жанр: Драма, спортРежиссер: Майкл Эптед, Кёртис ХэнсонПродюсер: Кёртис Хэнсон, Брэндон Хупер, Джим МинаганАктеры: Джерард Батлер, Эбигейл Спенсер, Элизабет Шу, Ливэн Рамбин, Скотт Иствуд, Тейлор Хэндли, Александр Канеллакос, Дженика Бергер, Купер Тимберлайн, Чэннон РоуПеревод: ДублированныйПродолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82C692E909DCE91022C7050505B52128D168960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355767   (980806) от 28.01.2020
+
+Ford против Ferrari / Ford v Ferrari (2019) WEB-DLRip [H.265] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взаимоотношениях американского автомобильного конструктора Кэрролла Шелби и отважного британского гонщика Кена Майлза, которые вместе бросили вызов корпорациям и собственным демонам, чтобы создать абсолютно новый спорткар, который смог конкурировать с Ferrari на чемпионате мира, прошедшем во Франции в середине 1960-х.Производство: США, Франция, 20th Century Fox Film Corporation, ...Жанр: Биография, Спорт, Драма, БоевикРежиссер: Джеймс МэнголдАктеры: Кристиан Бэйл, Мэтт Дэймон, Катрина Балф, Трэйси Леттс, Джон Бернтал, Ноа Джуп, Джош Лукас, Ремо Джироне, Рэй Маккиннон, Джей Джей ФилдПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172E1CE572FB509E24C957FD31B4AAB139E560C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435331   (980787) от 14.01.2012
+
+Один день / One Day (2011) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмма — романтична, остра на язык и хочет изменить мир к лучшему. Декстер — плейбой, баловень судьбы и хочет, чтобы мир принадлежал ему.
+Впервые Эм и Декс встретились 15 июля на выпускном в колледже и провели вместе только один день. А потом пришла ночь, и они…решили остаться друзьями. Они будут встречаться в тот же день через год, через два. Но сколько лет должно (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Лоне Шерфиг / Lone ScherfigАктеры: Энн Хэтэуэй, Джим Стёрджесс, Том Мисон, Джоди Уиттакер, Тим Ки, Рейф Сполл, Жозефин Де Ла Буме, Патришия Кларксон, Кен Стотт, Хейда Рид и др.Перевод: ДублированныйПродолжительность: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F868A85D17B076F6E719D3922FE31618892C90C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355717   (980748) от 28.01.2020
 
 Хороший лжец / The Good Liar (2019) HDRip [AVO]
@@ -6,7 +137,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980748.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980725.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980636.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980619.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980616.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980614.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980612.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980597.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980592.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980590.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980588.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980586.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980582.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980577.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980573.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980503.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980462.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980447.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980387.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980345.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEB-DLRip [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980344.jpg" />
 </div>
 
 
@@ -537,136 +668,6 @@ Ford против Ferrari / Ford v Ferrari (2019) WEB-DLRip [MVO]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D31177C16CF91A80C7F6408D223732FA51DA2923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356245   (980342) от 29.01.2020
-
-Толкин / Tolkien (2019) HDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина рассказывает о том, как молодой писатель, будучи изгоем во время обучения, находит дружбу, любовь и вдохновение. Фильм затронет участие Толкина в Первой мировой войне — он служил в британских войсках с 1916-го по 1920-й.Производство: США, Fox Searchlight Pictures, Chernin EntertainmentЖанр: Драма, военный, биографияРежиссер: Доме КарукоскиАктеры: Николас Холт, Al Bollands, Kallum Tolkien, Крэйг Робертс, Гарри Джилби, Колм Мини, Лаура Доннелли, Гильермо Бедуорд, Ниа Гвин, Пэм ФеррисПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5450F9CA7A4A5D8E8A57DBD31000E9AC93EA6208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973462   (980103) от 08.01.2016
-
-В ожидании настоящей любви / True Love Ways (2014) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980103.jpg" />
-</div>
-
-
-###  Подробнее
-
-После повторяющегося сна Северин решает, что она должна пару дней отдохнуть от своего бойфренда Тома. Том заключает сделку с человеком, которого он встречает в баре: Северин похищают.Производство: Германия, ARRI Film & TV Services, Grand Hotel Pictures, Klusfilm BerlinЖанр: Ужасы, ТриллерРежиссер: Матьё СейлерАктеры: Анна Хаусбург, Давид К. Буннерс, Кай Мюллер, Микаэль Грайлинг, Эксел Хартвиг, Бит Марти, Маргарита Руль, Марсель Шнайдер, Кристиан ВеберПеревод: Двуголосый закадровыйПродолжительность: 01:46:11Реклама: Имеются текстовые и голосовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354C0074AADAC26C3121F242BB1E8DA1B6629DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973399   (980041) от 08.01.2016
-
-Покидая Лас-Вегас / Leaving Las Vegas (1995) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вся жизнь кажется кошмаром. Если затяжной запой окончательно разрушил карьеру в серьезной фирме. Может быть, есть смысл уничтожить все, что связывало тебя с прошлой жизнью и начать новую? В блестящем и грешном Лас-Вегасе.Где среди блеска ночной жизни одинокая «ночная бабочка» может оказаться внимательнее и сердечнее любого психоаналитика. Потому что она захочет (   Читать дальше...   )Производство: СШАЖанр: Драма, мелодрамаРежиссер: Майк ФиггисАктеры: Николас Кейдж, Элизабет Шу, Джулиан Сэндс, Ричард Льюис, Стивен Уэбер, Валерия Голино, Эмили Проктер, Стюарт Реген, Ким Эдамс, Грэм Беккел, Аль Хендерсон, Шаши Бхатия, Кэри Лоуэлл, Энн Ланж, Томас Копаче, Винсент Уорд, Люсинда Дженни, Френч Стюарт, Эд Лотер, Вальдемар Калиновски, Майк Фиггис, Дэвид Кригел, Билл Томпсон, Марек Стабровски, Р. Ли Эрми, Маришка Харгитей, (   Читать дальше...   )Перевод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACFDE6DBD307281E01CDB743D1F4277057143C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973430   (979964) от 08.01.2016
-
-Докопаться до сути / Digging Up the Marrow (2014) HDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследования жанра фильмов, основанного на монстрах, принимает неожиданный оборот, когда кинематографисты связываются с человеком, который утверждает, что он может доказать, что монстры существуют.Производство: США / ArieScope PicturesЖанр: ужасы, фэнтези, триллер, драма, детектив, биографияРежиссер: Адам ГринАктеры: Рэй Уайз, Адам Грин, Уилл Бэррэтт, Джош Этье, Райли Вандербилт, Кэйн Ходдер, Сара Эльберт, Том Холланд, Мик Гэррис, Алекс ПардиПеревод: Любительский (одноголосый) (datynet)Продолжительность: 01:28:30Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFCB4D2181C23E5AA4C9F4B076EF107EDF7CAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973318   (979793) от 08.01.2016
-
-Голос улиц / Straight Outta Compton (2015) BDRip [H.264]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979793.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине восьмидесятых годов пятеро молодых ребят с улиц Комптона объединились в хим-хоп группу N.W.A, чтобы рассказать всему миру о насущных проблемах и опасностях, притаившихся на улицах. Агрессивный подход и затрагиваемые трепетные темы текстов помогли простым парням прямиком из Комптона подняться на вершину музыкальной иерархии жанра. Все они росли на улицах, (   Читать дальше...   )Производство: СШАЖанр: Боевик, музыкальный, драма, криминалРежиссер: Ф. Гэри ГрейАктеры: О’Ши Джексон мл., Кори Хоукинс, Джейсон Митчелл, Нил Браун мл., Элдис Ходж, Марлон Йэтс мл., Р. Маркус Тейлор, Карра Паттерсон, Александра Шипп, Пол ДжаматтиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7430DA612C9FA6E74B62B3F71DD4A898EED87718
 ```
 
 https://mybot314.ru/tekegram_catalog/

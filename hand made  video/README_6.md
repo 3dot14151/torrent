@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065738.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065737.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065705.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065686.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065618.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065609.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065607.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065499.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065498.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065493.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [AV1/2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065476.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065466.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065417.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065416.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065406.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065403.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065354.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065304.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065302.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065301.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065294.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065265.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065263.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065211.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065167.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065157.jpg" />
 </div>
 
 

@@ -1,3 +1,83 @@
+###  Публикация: 1088790   (955102) от 01.01.2017
+
+Газета | Обереги для уюта и покоя в доме №18 (122) (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас преследуют неудачи? Нет денег? Муж изменяет? Хотите найти новых друзей?
+Об этом и многом другом на страницах газеты.
+Сканирование и обработка Алёнка 007.Жанр: Магия, приворот, заговор, эзотерикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A9E66894F5174CEDE19146DF22990C35A591B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980975   (954537) от 30.01.2016
+
+Журнал | Дилетант №2 (февраль 2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы. В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B4D79557CF2013D4DE19E3E70DF81E9E4C6C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749682   (954464) от 25.01.2014
+
+Подшивка журналов | Нива [228 выпусков] (1901-1910) [PDF, DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954464.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Нива», русский еженедельный иллюстрированный журнал для семейного чтения, выходивший в Петербурге в 1870-1918 в издательстве А.Ф.Маркса. В «Н.» печатались писатели разных направлений, в том числе П.Д.Боборыкин, И.А.Гончаров, Н.С.Лесков, Д.Н.Мамин-Сибиряк, Д.С.Мережковский, Л.Н.Толстой, А.П.Чехов, И.А.Бунин, А.А.Блок и др. Общественно-политическая жизнь освещалась (   Читать дальше...   )Жанр: Раритеты, периодика, общественно-политическая газетаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E075E12FE124948B35CB2BB7041D53D5BEC16020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980660   (954357) от 30.01.2016
 
 Журнал | Магия и красота №1/с. Спецвыпуск "Магия денег" (2016) [PDF]
@@ -6,7 +86,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954357.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954341.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953872.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953767.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952759.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952356.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952315.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951009.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950592.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950563.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950460.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950443.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950097.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949971.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949886.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949697.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949557.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949548.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949544.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949161.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949091.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948654.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947521.jpg" />
 </div>
 
 
@@ -599,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC221994AEF62DEA119C3B068BB8BF0F2EA1984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090435   (947475) от 06.01.2017
-
-Журнал | Загадки истории №52 (декабрь 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7F937666968CB6D7D22ADD093D994B5045B222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090220   (947443) от 06.01.2017
-
-Газета | Рецепты бабушки Агафьи №1 (77) (январь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Газета о здоровье, красоте и долголетии.
-Тема номера: сибирские травы, советы доктора, кухня русских купцов и многое другое.Жанр: Домоводство, здоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10371EA795E81F786F6EEE14A53FB78C0A81A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982438   (946797) от 04.02.2016
-
-Журнал | Домашняя энциклопедия здоровья №1 (59) (январь 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старая истина: любое заболевание легче предупредить, чем лечить. Касается это в том числе и болезней суставов. Что только их ни «добивает»: травмы, избыточный вес, наследственность, у женщин еще и дефицит эстрогенов...
-И врачи, и травники советуют в один голос: чтобы предотвратить появление и развитие артритов, артрозов, будьте внимательны к себе и не пропустите (   Читать дальше...   )Жанр: Здоровье, домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C349DEEA6848BD70998DE677653C9E2A0209C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

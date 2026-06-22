@@ -1,3 +1,29 @@
+###  Публикация: 916482   (590923) от 08.07.2015
+
+В. Ю. Воскресенский | Об основаниях энтропии (2010) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590923.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей книге высказывается идея о том, что основания термодинамики подлежат исправлению. Два курса высшей школы приводят к парадоксально несовместимым выводам: термодинамика утверждает, что энтропия является следствием второго закона термодинамики; статистическая физика определяет энтропию как следствие первого закона. В книге установлена и устранена причина (   Читать дальше...   )Жанр: Естествознание, История естественных наукФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C30BD6031B69FB7C41BA6F2C297C342CDF13555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919725   (580805) от 21.07.2015
 
 Клиффорд Пиковер | Великая математика. От Пифагора до 57-мерных объектов (2015) [PDF]
@@ -6,7 +32,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580805.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580428.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579374.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575698.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572158.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570652.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570497.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566878.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565223.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561396.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561002.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559421.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559072.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554328.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ C. А. Аррениус | Химия и современная жизнь (1925)
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554256.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552799.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552403.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550011.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549926.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548790.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548476.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548029.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546955.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546381.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546380.jpg" />
 </div>
 
 
@@ -665,33 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E2D576C6EB230F603D784995815FE4F793EC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048205   (546314) от 02.09.2016
-
-Леонард Млодинов | Евклидово окно. История геометрии от параллельных прямых до гиперпространства (2014) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы привыкли воспринимать как должное два важнейших природных умений человека – воображение и абстрактное мышление, а зря: «Евклидово окно» рассказывает нам, как происходила эволюция нашей способности представлять то, чего мы не видим воочию.
-Эта книга – восхитительная смесь научного авторитетного труда и веселого балагурства, она превращает классические теории и (   Читать дальше...   )Жанр: Математика, геометрияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDC5B7C87220915FA97981B5E514BE254616EBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

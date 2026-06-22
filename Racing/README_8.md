@@ -1,3 +1,81 @@
+###  Публикация: 926923   (530921) от 11.08.2015
+
+Project CARS (2015) [Ru/Multi] (2.5.0) Repack R.G. Механики
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Project CARS - это потрясающее гоночное путешествие! Игра Project CARS, протестированная и одобренная страстными поклонниками гонок и реальными гонщиками, принимавшими участие также и в ее создании, представляет собой гоночный симулятор нового поколения, который вобрал в себя невероятную комбинацию фанатской страсти и высокого профессионализма разработчиков.Тип издания: RepackРазработчик: Slightly Mad StudiosЖанр: Racing (Cars) / Simulator / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский,Бразильский (Португальский)Язык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский,Бразильский (Португальский)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2D8413BD8C0D20BDDB5F4D3D41D44526A8768E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927086   (529327) от 12.08.2015
+
+Gas Guzzlers: Combat Carnage / Gas Guzzlers: Убойные гонки (2012) [Ru/En] (1.3.1) Repack R.G. Механики
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gas Guzzlers - динамичные захватывающие гонки на выживание. Игра предлагает множество различных средств передвижения, типов оружия, усовершенствований, бонусов на трассах и оригинальных ландшафтов, а также удобный вид «из-за автомобиля».Тип издания: RepackРазработчик: GamepiresЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB10A06B4E587E2C6703C592605A6C59574D737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928631   (521551) от 17.08.2015
+
+NASCAR Racing 3 (1999) [En] (1.2.1.7/dlc) Repack WinterKiss
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521551.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASCAR Racing 3 - гоночный симулятор, посвященый чемпионату NASCAR. Игрок сможет принять участие в знаменитых кольцевых гонках, сев за руль одной из машин и сорвенуясь с 43-мя реально суцествующими гонщиками чемпионата.Тип издания: RepackРазработчик: Sierra SportsЖанр: Racing (Cars) / Simulator / Sport / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB25DA423530B474E7510A58B41B0ECA5A91160D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929526   (518206) от 20.08.2015
 
 NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
@@ -6,7 +84,7 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518206.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ FIA European Truck Racing Championship (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514783.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Crashday (2017) [Ru/Multi] (1.5.33.911) Repack Other s [Redline Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512543.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Mad Riders + DLC [Multi5] (Steam-Rip/1.0.1.0) 2012 | R.G. Игроманы
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509308.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Mad Riders (2012) [Ru/En] (1.0.1.0/dlc) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506838.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ RC Cars / Недетские гонки + Rammstein [Ru] (RePack) 2002 | irvins
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498703.jpg" />
 </div>
 
 
@@ -157,6 +235,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 203540   (498464) от 11.09.2010
+
+A.I.M. / Механоиды Антология [Ru] (L) 2004-2007
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_498464.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Механоиды: Гонки на выживание» — это соревнования смертоносных машин будущего, на огромных скоростях рассекающих пыльную атмосферу планеты Полигон-4. На просторах Полигона-4 люди и их союзники арлинги проводили ряд военных экспериментов. Позже хозяева покинули испытательный комплекс, но разумные роботы-механоиды продолжили выполнение заложенных в них задач: самосовершенствование и развитие. Сеть механоидов клана Считающих выстроила трассы для испытания многоцелевых боевых машин в действии. Если ты не боишься ураганных скоростей, коварных ловушек и плазменных зарядов, рвущих обшивку твоего гоночного глайдера, то эта игра для тебя. Теперь не надо копить на новый глайдер и думать о том, где взять энергию на новую, более мощную пушку. Сеть предложит тебе любую машину и оружие - только побеждай!Тип издания: лицензияЖанр: Arcade / Racing (Futuristic) / 3DЯзык озвучки: русскаяЯзык интерфейса: только русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 237204   (488571) от 17.09.2010
 
 Crash Time III / Crash Time 3: Погоня без правил  [Ru] (RePack) 2010 | Ultra
@@ -165,7 +269,7 @@ Crash Time III / Crash Time 3: Погоня без правил  [Ru] (RePack) 2
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488571.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Gas Guzzlers: Extreme (2013) [Ru/Multi] (1.8.0.0/dlc) License PROPHET [Gold Pack
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485549.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479539.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ New York Race / Погоня за 5 элементом [Ru] (L) 2001
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461886.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ F1 2012 [Ru] (L) 2012 | FairLight
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459264.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ Super Street: The Game (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458686.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ Euro Truck Simulator 2 (2013) [Ru/Multi] (1.32.3s/dlc) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445957.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ Carmageddon: Reincarnation (2015) [Ru/Multi] (1.2.0.7673) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443668.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ Mantis Burn Racing (2016) [En] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441200.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ Need for Speed: Most Wanted / Modify [En/Ru] (Repack/Mod) 2005/2010 | SSAD
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440606.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ Crash Time 5: Undercover [En/Ge] (L) 2012 | RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_432808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432808.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ F1 2017 (2017) [Ru/Multi] (1.6/dlc) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432117.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429215.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ Automobilista (2016) [Multi] (1.5.24/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429015.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ Dakar 18 (2018) [Multi] (1.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428061.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ BAJA: Edge of Control HD (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427736.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ Baja: Edge of Control HD — обновленная версия оригина�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714E196CF2B8FBBD7A9982F7E0B0F4691ACAF67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324429   (425086) от 09.09.2019
-
-Distance (2018) [En] (1.4) License HI2U
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Distance — атмосферный гоночный платформер. Объединяя футуристические аркадные гонки с паркуром, выживите в смертельном, таинственном, пропитанном неоном городе, прыгая, вращаясь и летая.Тип издания: LicenseРазработчик: RefractЖанр: RacingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9521137533D445BE219B9F683B55B4277F92F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166769   (423251) от 17.09.2017
-
-Need for Speed: Rivals (2013) [Ru] (1.4.0.0) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрите грань между одиночным и многопользовательским режимом в постоянном соперничестве между гонщиками и полицией. Свободно войдите в мир, в котором ваши друзья уже участвуют в гонках и погонях. Забудьте об отдельных режимах игры. Никаких лобби, никакого ожидания. Вы и ваши друзья участвуете в одних и тех же гонках, ваши пути пересекаются, ваши игры сливаются.Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2B817794D6AE389AE5F42577CD6CE01EA0EEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167043   (421099) от 18.09.2017
-
-Moto Racer (1997) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенда среди мотоциклистов и самая запоминающаяся игра в своем жанре на ПК. Сочетание гонок на супербайках почти на скорости света и невероятно закрученных трасс мгновенно стало классикой. У игры много замечательных особенностей: два режима езды (аркадный и симуляция), яркая графика, которая до сих пор выглядит отлично, и огромный выбор мотоциклов.Тип издания: LicenseРазработчик: Delphine SoftwareЖанр: Гонки, Экшн, РаллиЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B17649A009E7BDF9D48F4BD84CF2523B9D238C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167037   (421098) от 18.09.2017
-
-MegaRace 3 (2001) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автогонки? Забудьте. Под вопли ликующей толпы и улетные комментарии Лэнса Бойла вы будете гнать по сменяющим друг друга трассам на транспорте, специально созданном для скорости и сражений. А ваше вооружение представляет собой не какой-то захудалый дробовик, а целую смертоносную машину...Тип издания: LicenseРазработчик: Cryo InteractiveЖанр: Гонки, Экшн, РаллиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1067A22101B036A860355F9E0DEF7731CDB6152
 ```
 
 https://mybot314.ru/tekegram_catalog/

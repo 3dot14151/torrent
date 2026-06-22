@@ -1,3 +1,30 @@
+###  Публикация: 1440090   (1039006) от 16.01.2021
+
+Сварочные работы v1.8 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039006.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении рассмотрены: Ручная дуговая, газовая сварка, сварка полуавтоматом, электродуговая резка различных материалов.
+Особенности сварки разных металлов: стали, чугуна, алюминия, меди, латуни, свинца, никеля.Сварочные швы и соединения.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 6 марта 2018 г.Разработчик: Progressive Digital Inc.Поддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C5D539DF35738490570D43FF6C74A278869A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440205   (1039005) от 16.01.2021
 
 Ace Squadron: WW II Air Conflicts v1.0 [En]
@@ -6,7 +33,7 @@ Ace Squadron: WW II Air Conflicts v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039005.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038997.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038958.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038934.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Planner 5D Interior Design v1.26.4 [Ru/Multi] - Планировщик домо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038908.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Denoise it v1.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038755.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038707.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Dub Music Player Premium v5.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038703.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038440.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038413.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038405.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038220.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038212.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ Dark Days: Zombie Survival v1.5.12 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038177.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ Angry Birds Journey v1.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038165.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ AR Plan 3D v4.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037967.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ OTT Navigator IPTV v1.6.3.8 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037621.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ Carmin v4.1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037424.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ Another World v1.2.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037392.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ Crimsonland v1.3.8 + Mod [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037338.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ VPN Private v1.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037318.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ Ski Tracker v2.3.01 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037173.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ Adobe Master Collection For Android [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037030.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ ePSXe for Android v2.0.14 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037023.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ RuStore 1.3.6 (159) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036921.jpg" />
 </div>
 
 
@@ -655,33 +682,6 @@ RuStore отечественный магазин приложений от VK �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2959B1154FC0647B0FDF1BA9A99BBFB157212B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948152   (1036781) от 24.01.2021
-
-FPse для Android v11.212 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036781.jpg" />
-</div>
-
-
-###  Подробнее
-
-FPSE для Android является самой, быстрый и наиболее совместимы PSone эмулятор для карманных устройств. (Также называется PSX PS1, или Playstation 1)
-FPSE способен отображать все PSOne игры в высоком разрешении, используя OpenGL, который дает выдающуюся  графику!Тип издания: Пиратка (Paid)Релиз состоялся: 29 декабря 2019 гРазработчик: Schtruck & LDchenПоддерживаемая ОС: Android 2.1 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D41B486D2EAD23213A6CF2B90E1B379DECD5BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1876739   (1073362) от 16.06.2026
+
+Могучая девятка / The Mighty Nein (2025) WEB-DL [H.264/720p-LQ] (сезон 1, серия 1-2 из 8) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073362.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о группе преступников и неудачников, которые являются единственными, кто может предотвратить погружение королевства в хаос, когда тайный артефакт, способный изменять реальность, попадает не в те руки.Производство: США, Amazon MGM Studios, Critical Role Productions, MetapigeonЖанр: фэнтези, боевик, комедия, приключенияРежиссер: Юджин ЛиАктеры: Лора Бэйли, Лиам О’Брайен, Мариша Рэй, Мэттью Мерсер, Сэм Ригел, Трэвис Уиллингэм, Талесин Джаффе, Эшли Джонсон, Алан Камминг, Мин-На ВэньПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Язык озвучки: Русский, АнглийскийСубтитры: русские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451AF8B0AA52B520AED057BD5899EEC94E0BAF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876740   (1073361) от 16.06.2026
+
+Могучая девятка / The Mighty Nein (2025) WEB-DLRip (сезон 1, серия 1-2 из 8) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073361.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о группе преступников и неудачников, которые являются единственными, кто может предотвратить погружение королевства в хаос, когда тайный артефакт, способный изменять реальность, попадает не в те руки.Производство: США, Amazon MGM Studios, Critical Role Productions, MetapigeonЖанр: для взрослых, фэнтези, боевик, комедия, приключенияРежиссер: Юджин ЛиАктеры: Лора Бэйли, Лиам О’Брайен, Мариша Рэй, Мэттью Мерсер, Сэм Ригел, Трэвис Уиллингэм, Талесин Джаффе, Эшли Джонсон, Алан Камминг, Мин-На ВэньПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Язык озвучки: Русский, АнглийскийСубтитры: русские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A914060596F303591354B4B161F102F17DA6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876103   (1073099) от 
+
+Среди нас / Among Us (2026) WEB-DLRip [H.265/1080p] [10-bit] (сезон 1, серии 1-10 из 10) HDrezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет мультсериала схож с историей оригинальной игры. Экипаж космического корабля «Скелд» узнаёт, что на борту находится меняющий форму инопланетянин, стремящийся вызвать хаос, саботировать миссию и убить всех. Члены экипажа должны вычислить предателяПроизводство: США / CBS Eye Animation Productions, CBS Studios, IATSE Local 839 (Animation Guild), Innersloth Productions, TitmouseЖанр: мультфильм, ужасы, фантастика, триллер, комедия, детектив, приключенияРежиссер: Мадлен КвирипелАктеры: Эшли Джонсон, Рэндалл Пак, Элайджа Вуд, Лив Хьюсон, Фил ЛаМарр, Дебра Уилсон, Кимико Гленн, Иветт Николь Браун, Уэйн Найт, Дэн СтивенсПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: АнглийскиеПродолжительность: 10 x ~ 00:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C169C71677E197181E0B4EE92845B19C8649569D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875405   (1072600) от 
 
 Среди нас / Among Us (2026) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) [Sub]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072600.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072505.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072503.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072502.jpg" />
 </div>
 
 
@@ -103,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874497   (1072216) от 
+###  Публикация: 1874497   (1072216) от 13.06.2026
 
 Клуб "Хижина" / Il Baracchino (2025) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-2 из 6) VIDEOPROKAT (обновляемая)
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072216.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071292.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071186.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070628.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070600.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070357.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070230.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069658.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069657.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069656.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069655.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069654.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069653.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069652.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069651.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069650.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069649.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069648.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069431.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B6DE59D959D1DA957BD46E09C589870CBCFB272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870749   (1068842) от 14.05.2026
-
-Южный Парк / South Park (2002) UHD WEB-DLRip [AV1/2160p] [4K, SDR, 10bit] (сезон 6, серии 1-17 из 17) Paramount Comedy
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается вокруг приключений четырех школьников. Эрик Картман — грубый, неопрятный и постоянно сквернословящий хулиган, известный садистскими и расистскими замашками. Кайл Брофловски — религиозный мальчик, часто сталкивающийся с нападками одноклассников из-за своей ортодоксальной семьи. Стэн Марш — добросердечный пессимист, который безумно влюблён (   Читать дальше...   )Производство: США, MTV Films, Comedy Central, Paramount+Жанр: для взрослых, комедияРежиссер: Трей Паркер, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Эдриан Бирд, Элиза Шнайдер, Дженнифер Хауэлл, Джесси Томас, Мэри Кэй БергманПеревод: Многоголосый профессиональный (Paramount Comedy (ex MTV))Язык озвучки: РусскийПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F59C41C9E22A04A9772E58FCFC913B8ADDFA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870172   (1068671) от 10.05.2026
-
-Зомби Marvel / Marvel Zombies (2025) WEB-DL [H.265/2160p] [4K, HDR10, DV 8.1, 10-bit] (сезон 1, серии 1-4 из 4) LostFilm, HDRezka, Red Head Sound, TVShows, 1WinStudio, Flarrow Films, LE-Production
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал рассказывает об альтернативной временной линии, когда вселенная Marvel попадает в пучину глобального зомби-апокалипсиса, вызванного вирусом под названием «Голод».Производство: США / Marvel Animation, Marvel StudiosЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Брайан ЭндрюсАктеры: Иман Веллани, Тодд Уильямс, Дэвид Боут, Робин Аткин Даунс, Терри Дуглас, Петр Вальчук, Мэттью Ян Кинг, Эндрю Моргадо, Эшли Пелдон, Кари УолгренПеревод: Дублированный (Flarrow Films), Многоголосый (LostFilm, HDRezka, Red Head Sound, TVShows, 1WinStudio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E219443C549828CABC129FA395C081DAC09A8A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870168   (1068670) от 10.05.2026
-
-Зомби Marvel / Marvel Zombies (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4) LostFilm, HDRezka, Red Head Sound, TVShows, 1WinStudio, Flarrow Films, LE-Production
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал рассказывает об альтернативной временной линии, когда вселенная Marvel попадает в пучину глобального зомби-апокалипсиса, вызванного вирусом под названием «Голод».Производство: США / Marvel Animation, Marvel StudiosЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Брайан ЭндрюсАктеры: Иман Веллани, Тодд Уильямс, Дэвид Боут, Робин Аткин Даунс, Терри Дуглас, Петр Вальчук, Мэттью Ян Кинг, Эндрю Моргадо, Эшли Пелдон, Кари УолгренПеревод: Дублированный (Flarrow Films), Многоголосый (LostFilm, HDRezka, Red Head Sound, TVShows, 1WinStudio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F439ED8E7A32984DDA7A2B21B150D4FDECB8D588
 ```
 
 https://mybot314.ru/tekegram_catalog/

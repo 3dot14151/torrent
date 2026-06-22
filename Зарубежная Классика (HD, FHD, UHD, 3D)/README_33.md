@@ -1,3 +1,55 @@
+###  Публикация: 1273310   (720505) от 26.02.2019
+
+Назад в будущее / Back to the Future (1985) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток Марти с помощью машины времени, сооруженной его другом профессором доком Брауном, попадает из 80-х в далекие 50-е. Там он встречается со своими будущими родителями, еще подростками, и другом-профессором, совсем молодым.Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: Комедия, Приключения, ФантастикаРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Томас Ф. Уилсон, Лиа Томпсон, Мэри СтинбёргенПеревод: Дублированный, профессиональный (студия "Пифагор")Субтитры: Русский, АнглийскийПродолжительность: 01:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3D863FECCA079736A0EAF534121A83957C0283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525611   (720419) от 16.02.2022
+
+Последний киносеанс / The Last Picture Show (1971) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит с ноября 1951 по октябрь 1952 года в небольшом городке Анарин на севере Техаса, приходящего в упадок. Двое закадычных друзей, Сонни Кроуфорд и Дуэйн Джексон, заканчивают школу. Сонни — второй капитан школьной футбольной команды, чувствительный и ответственный, переживающий из-за постоянных проигрышей на межшкольных чемпионатах. У него есть подруга (   Читать дальше...   )Производство: США, BBS Productions, Columbia Pictures Corporation, Last Picture Show ProductionsЖанр: драма, мелодрамаРежиссер: Питер БогдановичАктеры: Тимоти Боттомс, Джефф Бриджес, Сибилл Шепард, Бен Джонсон, Клорис Личмен, Эллен Бёрстин, Айлин Бреннан, Клу Гулагер, Сэм Боттомс, Шэрон УллрикПеревод: профессиональный многоголосый (1 канал), профессиональный двухголосый (Кармен Вмдео)Субтитры: русские, английскиеПродолжительность: 02:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D0F8F70C21472F7F921E597808D02A096DD1FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 790612   (720112) от 28.05.2014
 
 Как украсть миллион / How to Steal a Million (1966) BDRip [H.264/720p-LQ] [10-bit]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720112.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720070.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719850.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719230.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718645.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717692.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717492.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717163.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717159.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716845.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_716764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716764.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715656.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715353.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715345.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714762.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714682.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714354.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714130.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713363.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712731.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712667.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712284.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710614.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710393.jpg" />
 </div>
 
 
@@ -626,61 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:897371296F23C72E225E2BB5FA60B2C31E90BFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129913   (710304) от 04.05.2017
-
-Подозрение / Suspicion (1941) BDRip [H.265/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Викторианская Англия, мир садов, изящных господ, вежливых служащих и прекрасной погоды. Свет повсюду. Даже предполагаемое место убийства главной героини - ослепляюще белые утесы над Ла-Маншем. Тьма лишь в мыслях героев...
-
-Боясь остаться старой девой, Лина второпях выходит замуж за жизнерадостного бездельника Джонни Эйсгарта (первая из 4 ролей Кэри Гранта у сэра (   Читать дальше...   )Производство: сша / RKO Radio Pictures Inc.Жанр: Триллер, ДетективРежиссер: Альфред ХичкокАктеры: Кэри Грант, Джоан Фонтейн, Седрик Хардвик, Найджел Брюс, Мэй Уитти, Изабель Джинс, Хэзер ЭйнджелПеревод: Многоголосый закадровыйСубтитры: английскиеПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643B08E24FFB987BA6872F6CCBD83B26480C7E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791851   (710091) от 02.06.2014
-
-К востоку от рая / East of Eden (1955) BDRemux [1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта картина по праву считается классикой Голливуда и главным фильмом Джеймса Дина — блестящего актера, бунтаря и знаменитости своего времени. Его, еще до окончания съемок, уже прозвали вторым Брандо.
-«К востоку от рая» — экранизация знаменитого романа Стейнбека, романа о семейной драме юноши, который ревнует и страдает, видя как его отец отдает незаслуженное предпочтение (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: ДрамаРежиссер: Элиа Казан / Elia KazanАктеры: Джули Харрис, Джеймс Дин, Рэймонд Мэсси, Берл Айвз, Ричард Давалос, Джо Ван Флит, Альберт Деккер, Лоис Смит, Гарольд Гордон, Ник ДэннисПеревод: Многоголосый закадровый (профессиональный), Двухголосый закадровый (профессиональный), Одноголосый закадровый (авторский)Язык субтитров: Русский (форс. на непереведенные места аудио #3), английский (SDH)Продолжительность: 01:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B008D6214C78B4DF34558A54CB86BA7901485D
 ```
 
 https://mybot314.ru/tekegram_catalog/

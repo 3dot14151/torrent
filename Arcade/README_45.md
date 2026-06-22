@@ -1,3 +1,55 @@
+###  Публикация: 1722404   (56943) от 11.05.2024
+
+MEGATON MUSASHI W: WIRED (2024) [Multi] (3.0.2/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56943.jpg" />
+</div>
+
+
+###  Подробнее
+
+MEGATON MUSASHI W: WIRED бросает вас в кабину гигантского робота в борьбе за выживание человечества. Земля находится под оккупацией инопланетян, и вам предстоит управлять настраиваемым мехом под названием Rogue, чтобы вернуть ее обратно. Игра предлагает глубокую однопользовательскую кампанию. Вы будете играть за молодого пилота, которому доверили мощный Rogue. Сюжет (   Читать дальше...   )Тип издания: RepackРазработчик: LEVEL5 Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06025633F0BAA990FF849EDEFF7AF9EDC04BB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722394   (56921) от 11.05.2024
+
+Ira (2023) [Multi] (1.0.10) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56921.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Ira игроки берут на себя роль Ён, бесстрашной молодой девушки, которая отправляется в героический поиск, чтобы противостоять безжалостным силам Хаоса. Игрокам, вооруженным мощными способностями древнего бога и ее верных апостолов, поручена важнейшая миссия: вернуть разбросанные фрагменты грозного кристалла Ира. Восстановление этого кристалла - единственный способ (   Читать дальше...   )Тип издания: LicenseРазработчик: ABShotЖанр: Шутеры, ЭкшныЯзык субтитров: Английский, Корейский, ЯпонскийЯзык интерфейса: Английский, Корейский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0EE169B8EB5C72B799D0A6D1F2AE3D5F9F3E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722398   (56915) от 11.05.2024
 
 Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
@@ -6,7 +58,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56915.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Gift (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56590.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ruindog (2024) [Ru/Multi] (1.0.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56497.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56387.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ We Need To Go Deeper (2019) [En] (1.6.5.g) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56260.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56183.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56090.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Tchia (2024) [Ru/Multi] (2.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56048.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Besiege (2020) [Ru/Multi] (1.50/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55447.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55435.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55410.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ THE KING OF FIGHTERS XV (15) (2022) [Ru/Multi] (2.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55229.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ ReConnect Exit LOOP (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54501.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Tiny Terry's Turbo Trip (2024) [Multi] (1.28.1701) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54479.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Rocket Rumble (2024) [Ru/Multi] (0.2.221) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54470.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Umbraclaw (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54467.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Rainbow Cotton (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54375.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Mercenary Battle Company: The Reapers (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54316.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54286.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54283.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54107.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54082.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ SOS OPS! (2023) [Ru/Multi] (122/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53999.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ I Don't Fall (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53866.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ I dont Fall – Беллерофон хочет получить статус б
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17FE982594CDFB8ADF290163713DF8C0F7BAA1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730063   (53341) от 14.06.2024
-
-Star Stuff (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Stuff – сыграйте роль инженера Михи, который только устроился на завод по производству звезд и уже сейчас должен включиться в работу, чтобы фабрика продолжала производство, ведь иначе вселенную ждет погибель. Вам будут помогать роботы, которых можно запрограммировать на выполнение определенных задач. Всего вас ждет более 100 разнообразных задач и головоломок, (   Читать дальше...   )Тип издания: SceneРазработчик: Ánimo Games StudioЖанр: Приключенческие игры, Казуальные игры, СтратегииЯзык субтитров: Английский, Немецкий, Японский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Японский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC23AE57D29E12999F7FFBD548308676B992F2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730055   (53334) от 14.06.2024
-
-Wander Hero (2023) [Multi] (1.0.240608) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wander Hero - это увлекательный карточный рогалик, в котором сталкиваются приключения и стратегия! Оставьте позади рутину повседневной жизни и отправляйтесь в двухмерное путешествие по фантастическому миру. Возьмите на себя роль капитана наемников и проведите свою команду тщательно отобранных напарников через случайно возникающие подземелья и города. Но дело не только (   Читать дальше...   )Тип издания: SceneРазработчик: Dimension TravlerЖанр: Инди, RPG, СтратегииЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CF15A919F10B118A867B7C1607BD4F798594B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

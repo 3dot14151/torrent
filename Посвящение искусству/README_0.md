@@ -1,3 +1,81 @@
+###  Публикация: 1602766   (1045948) от 07.01.2023
+
+Жан Ренар: незаметная звезда / Les etoiles de l'ombre: Jean Renard (2022) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045948.jpg" />
+</div>
+
+
+###  Подробнее
+
+120 миллионов проданных пластинок, болеее 1200 произведений, 69 шлягеров... Портрет Жана Ренара, для которого каждый звук — это музыкальная нота. Французский композитор рассказывает о своем необычном жизненном пути и о том, как изменилась его судьба, когда он стал писать песни для Сильви Вартан и Джонни Холлидея.Производство: Франция, TV5MONDE EuropeЖанр: документальный, история, музыка, биографияРежиссер: Монья Фруда, Тьерри Ле НувельПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод Е.Маньен, компания Hiventy by TransPerfect), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CB3E00E093FB236A17BCFDCA72C8E9F4BB0EC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603006   (1045806) от 08.01.2023
+
+Джонни Депп: Культовый Король / Johnny Depp: King of Cult (2021) WEBRip [H.264/720p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонни Депп, изначально известный как кумир подростков из-за его вымученной симпатичной внешности, пережил опасности статуса подростка-сердцееда, чтобы заработать репутацию уважаемого взрослого актера. Джонни Депп, наиболее известный своим эксцентричным и нетрадиционным выбором фильмов, является, пожалуй, одним из самых разносторонних актеров своего времени в Голливуде (   Читать дальше...   )Производство: ВеликобританияЖанр: документальныйРежиссер: Danielle WinterПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34A2DB155C0B7B6FEE18ED1D8A588C572E727A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603415   (1045734) от 09.01.2023
+
+Царство грёз и безумия / Yume to kyoki no okoku / The Kingdom of Dreams and Madness (2013) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о Хаяо Миядзаки, работе над фильмом «Ветер крепчает» и жизни внутри студии Ghibli.Производство: Япония / Bun-Buku, Dwango, EnnetЖанр: документальный, биографияРежиссер: Мами СунадаПеревод: Двуголосый любительский (Лазырь & Lady_Candy), одноголосый любительский (GREEN TEA)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF848A91910AF85B337C68E404031084EE60E0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603769   (1045662) от 10.01.2023
 
 Джонни Депп: Культовый Король / Johnny Depp: King of Cult (2021) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045662.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045568.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045466.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045274.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045196.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044847.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044800.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044727.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044689.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044601.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044600.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043947.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043939.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Coldplay: Голова, полная мечтаний / Coldplay: A Head Full of
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043736.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043703.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043537.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043180.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043117.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042599.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042294.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042169.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042168.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042143.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C556A909F4F1D3DEBDCF768F0165B4EC19F765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437562   (1042034) от 05.01.2021
-
-Места, где обитает вдохновение / Paradis d'artistes! (2020) HDTVRip [H.264/720p-LQ] [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть райские места, где сочетаются искусство и природа. Эти отдалённые места питали воображение художников, скульпторов, дизайнеров, людей искусства, нашедших здесь дом: Поля Гогена, Пабло Пикассо, Ива Сен-Лорана, Сезара Манрике, современных авторов. От бразильских тропических джунглей до греческих островов и пустыни Чиуауа в Техасе - взгляните на места, где обитает (   Читать дальше...   )Производство: Франция, TV5MONDE Europe HDЖанр: Документальный, история, искусствоРежиссер: Лоран БонПеревод: ОтсутствуетСубтитры: Русские (неотключаемые, (перевод Е.Маньен, компания Hiventy))Продолжительность: 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9FFF0C0B08DCCDCCE5F30E58FA00A637BEE981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437516   (1042019) от 05.01.2021
-
-Диего Веласкес, или "Дикий реализм" / Diego Velazquez ou le realisme sauvage (2015) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новаторские работы Диего Веласкеса стали важной вехой в развитии живописи. Художник неустанно искал истину в сочетании света и пространства. Фильм раскрывает зрителю те аспекты, которые делают работы этого испанского живописца периода барокко уникальными, позволяет оценить художественную и эстетическую революционность его картин.Производство: Франция, ARTE, Les Poissons VolantsЖанр: Документальный, история, искусствоРежиссер: Карим АйнузПеревод: одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3F8D7B6D764D5C19F1F8FA8A5E74345A6577E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437400   (1042013) от 05.01.2021
-
-Паваротти / Pavarotti (2019) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проделав долгий путь от сына простого пекаря до лучшего тенора в истории, он собирал до 500 тысяч зрителей и дважды попадал в книгу рекордов Гиннеса. Лучано Паваротти по сей день символизирует недосягаемую высоту не только в искусстве, но и в стремлении сделать жизни людей по всему миру лучше.Производство: Великобритания, США / White Horse Pictures, Diamond Docs, Imagine EntertainmentЖанр: Документальный, биография, музыкаРежиссер: Рон ХовардПеревод: Дублированный ("Мосфильм-Мастер" по заказу Кинокомпании «ВОЛЬГА») (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F478A02EDD3E5FB36E7912C3C3C3E7D34C5E099A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 417283   (10127) от 28.07.2025
+
+Габриэль Гарсиа Маркес | Сто лет одиночества (2004) [MP3, Александр Балакирев]
+
+>>След.
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «XX век. Зарубежная проза».
+Габриэль Гарсиа Маркес – прославленный колумбийский литератор, лауреат Нобелевской премии (1982), один из самых знаменитых писателей ХХ века.
+«100 лет одиночества» (1967) – лучший роман Гарсиа Маркеса, переведенный на языки большинства стран мира и вошедший в сокровищницу мировой литературы. Роман признан шедевром латиноамериканской (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Маргарита БылинкинаИздательство: Студия «АРДИС»Продолжительность: 16:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801A4DDD197FB9757403248E07D9B42DEAA560EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821049   (8534) от 30.09.2025
+
+Джером К. Джером | Томми (Радиоспектакль) (1988) [MP3, Олег Табаков, Марина Неёлова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
+Радиоспектакль роману Джером Клапка Джерома «Томми и Ко» (1904). Рассказ о том, как некий доктор рассмотрел в маленьком оборванце не просто девочку...
+(   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ГостелерадиофондПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B0E89A032DF2D933F67DCE39160094958E94B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812117   (8075) от 13.08.2025
 
 Николай Гоголь | Невский проспект (2020) [MP3, Александр Клюквин]
@@ -6,7 +63,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8075.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8066.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7382.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7357.jpg" />
 </div>
 
 
@@ -114,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7355.jpg" />
 </div>
 
 
@@ -142,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7350.jpg" />
 </div>
 
 
@@ -170,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7337.jpg" />
 </div>
 
 
@@ -198,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7335.jpg" />
 </div>
 
 
@@ -225,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7334.jpg" />
 </div>
 
 
@@ -253,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7224.jpg" />
 </div>
 
 
@@ -282,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7183.jpg" />
 </div>
 
 
@@ -309,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7117.jpg" />
 </div>
 
 
@@ -336,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7055.jpg" />
 </div>
 
 
@@ -364,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7052.jpg" />
 </div>
 
 
@@ -393,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7051.jpg" />
 </div>
 
 
@@ -422,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7041.jpg" />
 </div>
 
 
@@ -450,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7020.jpg" />
 </div>
 
 
@@ -478,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6759.jpg" />
 </div>
 
 
@@ -505,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6742.jpg" />
 </div>
 
 
@@ -531,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6741.jpg" />
 </div>
 
 
@@ -557,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6736.jpg" />
 </div>
 
 
@@ -584,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6565.jpg" />
 </div>
 
 
@@ -612,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6405.jpg" />
 </div>
 
 
@@ -639,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6403.jpg" />
 </div>
 
 
@@ -650,59 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F62D284A617821583A0452806170FA127D79F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814056   (6398) от 22.08.2025
-
-Александр Дюма (сын) | Дама с камелиями (2020) [MP3, Никита Петров (Петроник)]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6398.jpg" />
-</div>
-
-
-###  Подробнее
-
-История любви парижской куртизанки и молодого, романтичного Армана Дюваля. Прототипом Маргариты Готье являлась возлюбленная Дюма Мари Дюплесси, которая в 23 года умерла от туберкулёза. Из-за болезни сильные запахи были для неё непереносимы; аромат роз или гиацинтов вызывал головокружение, поэтому она любила камелии, которые почти не пахнут.Жанр: зарубежная классика, классическая проза, литература 19 века, французская литератураПеревод: Софья Морицевна АнтикИздательство: ИДДКПродолжительность: 06:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9F15CE6770582A81FA4AA77BFBF8D397EA6979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814201   (6290) от 23.08.2025
-
-Исаак Бабель | Как это делалось в Одессе (Радиоспектакль) (2006) [MP3, Евгений Князев, Лев Дуров и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исаак Эммануилович Бабель (1894–1940) – писатель, журналист и драматург, известный своими «Одесскими рассказами» и сборником «Конармия».
-А вы таки знаете, что тот самый Максим Горький дал Исааку Бабелю  дельный совет «идти в люди и набираться жизненных впечатлений», и он их очень даже прилично набрался? И его одесские рассказы, откуда, между нами, мы и почерпнули (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: СиДиКомПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16C6D8B70F0A7A65B79346C042A08523CE22545
 ```
 
 https://mybot314.ru/tekegram_catalog/

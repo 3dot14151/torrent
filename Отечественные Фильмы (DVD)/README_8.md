@@ -1,3 +1,107 @@
+###  Публикация: 1082519   (276738) от 13.12.2016
+
+Одноклассницы (2016) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три подруги Вика, Света и Даша бросают свои дела и едут в Сочи на девичник к бывшей однокласснице Кате, чтобы как следует там оторваться. Веселье в разгаре и шампанское льется рекой, но тут случается то, чего никто не мог ожидать — в самый разгар праздника Катя застает своего жениха с пышногрудой блондинкой. Невеста в истерике. Она запирается в номере и говорит, (   Читать дальше...   )Производство: Россия / Russian World Vision, КинофирмаЖанр: КомедияРежиссер: Дмитрий СуворовАктеры: Светлана Ходченкова, Екатерина Вилкова, Валентина Мазунина, Ольга Кузьмина, Арарат Кещян, Роман Юнусов, Илья Любимов, Антон Макарский, Денис Косяков, Дмитрий ХрусталевПеревод: Не требуется (Русский, лицензия)Субтитры: ОтсутствуютПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE396ACB685DB0C7D2B08542C6AB92447947AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850215   (276061) от 16.12.2014
+
+Горько! 2 (2014) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Россия / Базелевс Продакшн, Кинокомпания «Lunapark», ТаббакЖанр: КомедияРежиссер: Жора КрыжовниковАктеры: Сергей Светлаков, Юлия Александрова, Егор Корешков, Ян Цапник, Сергей Лавыгин, Елена Валюшкина, Александр Паль, Валентина Мазунина, Юлия Стадник, Александр РобакПеревод: Не требуется (русский)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791E91145A308AC37B5D3F24036A1F72F75218BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850315   (276058) от 16.12.2014
+
+Беглецы (2014) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — вне закона, по его пятам идут охотники за головами. Она знает тайгу, как свои пять пальцев, и только вместе они могут остаться в живых. Тайга общая: кто сильнее, тот и прав, а охота уже началась…Производство: Россия, КазахстанЖанр: Триллер, ПриключенияРежиссер: Рустам МосафирАктеры: Пётр Фёдоров, Елизавета Боярская, Валерий Гришко, Сергей Цепов, Александр Самойлов, Ерик Жолжаксынов, Кирилл Анисимов, Юрис Лауциньш, Сейдулла Молдаханов, Гульнур КожахметоваПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8C6979B820EFCDB094D2A4287D89B07F78E0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556084   (267434) от 05.12.2018
+
+Настройщик (2004) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина представляет собой современную интерпретацию мемуаров знаменитого российского сыщика царских времен Аркадия Кошко. Главный герой — настройщик роялей Андрюша — одновременно счастливейший и несчастнейший человек на свете. Счастливейший — потому что он страстно влюблен в самую прекрасную из женщин — Лину, причем она отвечает ему взаимностью. Но Андрей — увы (   Читать дальше...   )Производство: Россия, УкраинаЖанр: драма, комедия, криминалРежиссер: Кира МуратоваАктеры: Георгий Делиев, Алла Демидова, Рената Литвинова, Нина Русланова, Сергей Бехтерев, Наталья Бузько, Жан Даниэль, Владимир Комаров, Алексей Павловский, Юрий ШлыковСубтитры: нетПродолжительность: 02:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F9E12BD5A5E1CD7A8CE4A7235F9FFCDEF0AA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534850   (266455) от 06.12.2018
 
 Бегущая по волнам (2007) DVD9
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266455.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266449.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266439.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266431.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265534.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265459.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265451.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264774.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260964.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260815.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260788.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260583.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260559.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259838.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259831.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257633.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256805.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256399.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255899.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255837.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255632.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254205.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C247C738200F81912EC7F01EFB610B54233044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 240697   (254118) от 12.11.2025
-
-Детям до 16... (2010) DVD5
-
->>След.
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кир, Лея, Даша, Макс — еще студенты. У них все — впервые. Первые слова любви, первый секс, первые совместные мечты, первые ошибки, первые разочарования и первые открытия.Производство: Россия, Красная стрелаЖанр: МелодрамаРежиссер: Андрей КавунАктеры: Анна Старшенбаум, Лянка Грыу, Родион Долгирев, Ирина Мерцалова, Алексей Шевченков, Алексей Горбунов, Дмитрий Кубасов, Павел ПрилучныйСубтитры: отсутствуютПродолжительность: 01:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9892C55FE30538C1BD303336B796AA542B11FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186900   (254090) от 12.11.2025
-
-О чём говорят мужчины (2010) DVD9
-
->>След.
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254090.jpg" />
-</div>
-
-
-###  Подробнее
-
-О чем говорят мужчины? Конечно, о женщинах. Нет, еще о работе, о деньгах, о машинах, о футболе,… но в основном, все-таки, о женщинах. А уж если у них впереди два дня, которые они, вырвавшись из офисов и семей, уехав от всех забот и обязательств, проведут в дороге — два дня, насыщенные событиями и приключениями — то можете быть уверены, что за это время они успеют (   Читать дальше...   )Производство: Россия, Кинокомпания «Квадрат», СтрелаЖанр: МелодрамаРежиссер: Дмитрий ДьяченкоАктеры: Леонид Барац, Ростислав Хаит, Александр Демидов, Камиль Ларин, Нонна Гришаева, Нина Русланова, Сергей Никоненко, Федор Добронравов, Анна Касаткина-Барац, Жанна ФрискеСубтитры: отсутствуютПродолжительность: 01:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4D100C68FD5E55B11CC3EA8BD11AED29BAC02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 102329   (253056) от 11.11.2025
-
-Тот, кто гасит свет (2008) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253056.jpg" />
-</div>
-
-
-###  Подробнее
-
-От руки убийцы одна за другой погибают маленькие девочки. День убийства всегда один и тот же — среда. Город в истерике, газеты пестрят заголовками о неумолимом преступнике, родители боятся отпускать своих детей на улицу. В ходе расследования капитан Петр Моисеев попадает в город Светлогорск. Ему предстоит раскрыть тайны этого маленького городка и вычислить убийцу, (   Читать дальше...   )Производство: Россия, Канал Россия, Нон-стоп Продакшн, Студия ЧерепахаЖанр: ТриллерАктеры: Алексей Гуськов, Екатерина Вилкова, Артур Смольянинов, Екатерина Редникова, Иван Кокорин, Сергей Гармаш, Алексей Горбунов, Андрей Смоляков, Юрий ИцковСубтитры: отсутствуютПродолжительность: 01:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB3BEEA9331C9BD06A20506FFB567F19AAC1876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496370   (253028) от 14.05.2012
-
-Няньки (2012) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валентина — жесткая, хладнокровная владелица крупной туристической фирмы, которой предстоит решение сложной задачи в стране, где женщину, независимо от профессионализма, не может ждать успех в бизнесе — Турции. На помощь она вызывает работников своего уральского филиала Диму и Мишу — безынициативных лодырей, по несчастливой случайности оказавшихся единственными сотрудниками (   Читать дальше...   )Производство: Россия, Enjoy MoviesЖанр: КомедияРежиссер: Ашот КещянАктеры: Николай Наумов, Арарат Кещян, Людмила Артемьева, Аглая Шиловская, Лина Добророднова, Илья Костюков, Глеб Сердюков, Олеся Железняк, Дитер Брандекер, Майкл БэралПеревод: ОригинальныйСубтитры: ОтсутствуютПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

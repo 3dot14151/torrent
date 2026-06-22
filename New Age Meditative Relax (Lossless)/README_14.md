@@ -1,3 +1,36 @@
+###  Публикация: 509646   (672078) от 13.06.2012
+
+John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672078.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  The Watchers  (9:25) 
+2.  Deep Space  (8:09) 
+3.  Aurora  (9:58) 
+4.  Sea Of Tranquility  (7:42) 
+5.  Far Centaurus  (10:49) 
+6.  The Edge  (8:47) 
+
+Послушать:Жанр: New Age, AmbientПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD125067A384F6235260B6EA11D6411D846BF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030793   (670331) от 02.07.2016
 
 Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless|tracks] <New Age, Meditative>
@@ -6,7 +39,7 @@ Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670331.jpg" />
 </div>
 
 
@@ -35,7 +68,7 @@ Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668647.jpg" />
 </div>
 
 
@@ -64,7 +97,7 @@ VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668646.jpg" />
 </div>
 
 
@@ -93,7 +126,7 @@ Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richt
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667810.jpg" />
 </div>
 
 
@@ -122,7 +155,7 @@ Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666721.jpg" />
 </div>
 
 
@@ -151,7 +184,7 @@ Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664342.jpg" />
 </div>
 
 
@@ -180,7 +213,7 @@ Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651997.jpg" />
 </div>
 
 
@@ -209,7 +242,7 @@ Llewellyn - Angel Sleep: Music for Blissful Sleep (2014) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651789.jpg" />
 </div>
 
 
@@ -235,7 +268,7 @@ Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651656.jpg" />
 </div>
 
 
@@ -264,7 +297,7 @@ Kamal - 17 Альбомов (1987 - 2010) [FLAC|Lossless|tracks] <New Age, Medit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651475.jpg" />
 </div>
 
 
@@ -293,7 +326,7 @@ Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649827.jpg" />
 </div>
 
 
@@ -322,7 +355,7 @@ Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649677.jpg" />
 </div>
 
 
@@ -351,7 +384,7 @@ Medwyn Goodall - The Dreamworld (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649543.jpg" />
 </div>
 
 
@@ -380,7 +413,7 @@ Anne Trenning - Beautiful Song (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646708.jpg" />
 </div>
 
 
@@ -409,7 +442,7 @@ Enigma - Enigma 4 - Metamorphosis (2013) Reworked Bootleg [FLAC|Lossless|image +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645610.jpg" />
 </div>
 
 
@@ -438,7 +471,7 @@ John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644034.jpg" />
 </div>
 
 
@@ -467,7 +500,7 @@ Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644027.jpg" />
 </div>
 
 
@@ -496,7 +529,7 @@ Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640113.jpg" />
 </div>
 
 
@@ -525,7 +558,7 @@ Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639996.jpg" />
 </div>
 
 
@@ -554,7 +587,7 @@ V.A. - Pedro Del Mar - The Perfect Lounge Collection (3CD) (2012) [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639003.jpg" />
 </div>
 
 
@@ -589,7 +622,7 @@ Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638229.jpg" />
 </div>
 
 
@@ -618,7 +651,7 @@ Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Ch
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637510.jpg" />
 </div>
 
 
@@ -647,7 +680,7 @@ Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636910.jpg" />
 </div>
 
 
@@ -682,7 +715,7 @@ Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636142.jpg" />
 </div>
 
 
@@ -708,7 +741,7 @@ Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, Ho
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635816.jpg" />
 </div>
 
 
@@ -722,35 +755,6 @@ Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033914   (634360) от 13.07.2016
-
-Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image + .cue] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Will I Be Faithful? (radio edit)    04:06
-02.  Will I Be Faithful? (forever mix)    04:36
-03.  Will I Be Faithful? (heaven cut)    04:37
-04.  Jonas Song    05:16Жанр: New age, EnigmaticПродолжительность: 00:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

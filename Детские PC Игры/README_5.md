@@ -1,55 +1,3 @@
-###  Публикация: 485225   (89953) от 21.04.2012
-
-Мадагаскар / Madagascar [3+] (RePack) [Ru] (2005)
-
->>Детские PC Игры
->>Детские Игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кросс-платформная игра Madagascar, основана на новом мультипликационном фильме с таким же названием. Вступите в веселый мир четырех животных, живущих в Нью-Йоркском зоопарке, с помощью игры Madagascar от студии DreamWorks Animation.. Отправляйся на поиски приключений вместе Алексом, Марти, Мелманом, Глорией и хитроумными пингвинами. Знакомься с новыми персонажами и путешествуй по местам, которых не было в фильме. Проверь себя на живучесть. Рычи, скачи и крутись, как можешь, если хочешь выжить в джунглях МадагаскараТип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD6F532DD03FB35A3EF4FBE6180FD3A331DEF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484967   (89519) от 19.04.2012
-
-Английский язык от А до Z. Часть 1. Миссия: Шпион [5-10 лет] (L) [Ru] (2003)
-
->>Детские PC Игры
->>Развивающие Игры для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть для тех, кто только начинает изучать английский язык. Секретные задания для настоящего шпиона превратят изучение языка в увлекательное занятие. Полученные знания Вы освоите в 11 играх, также тренирующих память, сообразительность и быстроту реакции.Тип издания: ЛицензияРазработчик: Руссобит-М/GFI (ООО «Бествей»)Жанр: ОбучающаяЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D99493F04DF5B96CAFFE80B2808DCDCE76EBD39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485014   (89502) от 19.04.2012
 
 Загадки тигренка Усика [3+ лет] (P) [Ru] (2007)
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89502.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89482.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89475.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Over the Hedge / Лесная братва [10+] (RePack) [Ru] (2006) | NICK0304
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88891.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88685.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88410.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87481.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Alice and the Magic Gardens (P) {7+} [En] 2012
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86341.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ My Horse and Me / Моя любимая лошадка [7-12] (L) [Ru] (2008)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86240.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86213.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86182.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86061.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86031.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86029.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86012.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Pet Hotel Tycoon  / 101 любимчик. Домашний зоопарк {7+} (
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85772.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85414.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85222.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85213.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ The Incredibles: Rise of the Underminer / Суперсемейка. Подзем
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85194.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85009.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84971.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84931.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84745.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC776EDF8D7613B98D640DCF517470A48470A962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473715   (84632) от 26.03.2012
+
+Веселые пальчики. Клавиатурный тренажер [5+] (L) [Ru] (2007)
+
+>>Детские PC Игры
+>>Развивающие Игры для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раз, два, три, четыре, пять – научился я считать! А печатать? А ведь это тоже очень и очень нужно! Помочь вашему малышу в этом смогут «Веселые пальчики». Новый клавиатурный тренажер позаимствовал все самое лучшее у своих многочисленных предшественников. Красочный интерфейс, приятное звуковое сопровождение и несколько уровней сложности помогут ребенку быстро и легко освоить десятипальцевый слепой метод печати. Помимо заданий, предусмотренных самой программой, он сможет ввести в память тренажера абсолютно любой текст – ведь оттачивать технику печати на тексте любимой сказки или стихотворения намного интересней!Тип издания: ЛицензияРазработчик: Компания "Одиссей"Жанр: Обучающие и развивающие игрыЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B1A6CDDACFA74D92565B02608E37E8096439E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472245   (84580) от 26.03.2012
+
+Гном Ричи. Охотник за сокровищами [6+] (L) [RU] (2012)
+
+>>Детские PC Игры
+>>Детские Игры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с золотоискателем гномом Ричи совершите незабываемое путешествие по подземным лабиринтам! Соберите все сокровища и магические грибы, убегайте от гоблинов, которые просто так не отдадут вам свои сокровища и готовы устроить ловушку где угодно и когда угодно. Вас ждет красочная графика, интересная аркадная механика, сто увлекательных уровней, секретные двери, ведущие к бонусным уровням, ну и, конечно же, несметные богатства!Жанр: ArcadeЯзык озвучки: Не требуетсяЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0930AA6B8753DC2FF325195ECBCB36F958BB238
 ```
 
 https://mybot314.ru/tekegram_catalog/

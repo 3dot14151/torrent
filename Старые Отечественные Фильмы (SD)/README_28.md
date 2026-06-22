@@ -1,3 +1,55 @@
+###  Публикация: 1217865   (740114) от 07.04.2018
+
+Бросок (1981) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прапорщик-пограничник Калиткин, уволившись по контузии, работает проводником научной экспедиции в приграничной зоне. Однажды, заметив нарушителей в приграничной зоне, Калиткин не раздумывая вступает в неравную схватку с противником…Производство: СССР, ТаджикфильмЖанр: БоевикРежиссер: Анвар ТураевАктеры: Александр Филиппенко, Людмила Менчинская, Гамид Ходжаев, Гурминч Завкибеков, Михаил Иматшоев, Исфандиёр Гулямов, Анвар Тураев, Владимир Талашко, Галиб Исламов, А. КосивановПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BABB1271DBBA4E3A780B677181D0548CA7120CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218073   (740064) от 07.04.2018
+
+В клешнях чёрного рака (1975) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лифляндия XVII века. На господство и власть в стране претендуют герцог Курляндский, немецкие бароны и польский король. Больше всех от этих притязаний и распрей страдают крестьяне. О том, как псарь Янис, его невеста Мара и друг — кузнец Мартиньш на правах польских послов стали высокими гостями герцога, а сами посланники были отправлены в тюрьму как холопы, рассказывается (   Читать дальше...   )Производство: СССР, Рижская киностудияЖанр: Приключения, Мелодрама, БоевикРежиссер: Александр ЛейманисАктеры: Лилита Озолиня, Гунар Цилинский, Улдис Думпис, Эвалдс Валтерс, Улдис Ваздикс, Вайронис Яканс, Эдуард Павулс, Валентинс Скулме, Янис Грантиньш, Ольга Дреге, Гирт ЯковлевПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966FE6336948C07AC2F3B6B5A08DD33CD1FD8A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217890   (740062) от 07.04.2018
 
 Человек с будущим (1960) DVDRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740062.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737622.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737288.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736670.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736004.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735983.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735755.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735562.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735317.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735314.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735313.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735308.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735150.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734371.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733666.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732628.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731388.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731294.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730413.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728684.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726961.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726251.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725603.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725093.jpg" />
 </div>
 
 
@@ -621,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:129DF791B511646F12FF059F6BCB227DC77C100E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218010   (725036) от 08.04.2018
-
-2-Леонид-2 (1970) VHSRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм построен на классических цирковых репризах известного мима Леонида Енгибарова. Игровой сюжет следует за перипетиями внутреннего состояния главного героя, которое становится творческим импульсом к созданию и исполнению реприз.Производство: СССР / АрменфильмЖанр: КомедияРежиссер: Левон Исаакян, Амаяк ЕгиазарянАктеры: Леонид Енгибаров, Р. Геворкян, С. Клейменова, Николай Геворкян, Степан Арутюнян, Вреж Акопян, Григорий МаркарянСубтитры: ОтсутсвуютПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFE5A6D0F9C1D511720ECB833C9D241F927D74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163081   (723801) от 26.05.2014
-
-Матч состоится в любую погоду (1985) DVDRip (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_723801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спецслужбы получают информацию, что один из участников футбольной команды — вражеский резидент. У него находится микрофильм с секретной информацией. Вскоре его находят мертвым. Пленка микрофильма исчезла. У следователей есть всего несколько дней, чтобы поймать и обезвредить преступника.Жанр: Детектив, драмаРежиссер: Роланд КалниньшАктеры: * Андрейс Жагарс — Пихлер     * Альгис Матулёнис — капитан Иржи Паточка     * Улдис Думпис — Фридрих Курц     * Янис Кубилис — полковник Гомола     * Юрис Лиснерс — Франц Пихлер     * Хирманис Паукшс — Элер     * Инара Слуцка — Геленка     * Лига Лиепиня — Иржина Голикова     * Леонид Грабовскис — брат Голиковой
-В эпизодах:      * Юрис Каминскис, Сергей Юдин, Б. Аханов, А. Богдановичс     * Г. Бинде, У. (   Читать дальше...   )Субтитры: ОтсутствуютПродолжительность: 02:06:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

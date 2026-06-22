@@ -1,3 +1,133 @@
+###  Публикация: 1755669   (40106) от 17.10.2024
+
+Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмоциональное приключение Neva сделала та же команда разработчиков, которая выпустила игру GRIS, тепло принятую критиками и полюбившуюся игрокам. Главная героиня Neva - девушка Альба, которая после встречи с тёмными силами оказалась связана с любопытным волчонком. Вместе они отправляются в опасное путешествие по некогда прекрасному умирающему миру. Альба и волчонок (   Читать дальше...   )Тип издания: RepackРазработчик: Nomada StudioЖанр: Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7ACA71C1A8ECFF498DB5FF91F36BD4D8A41F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756107   (39921) от 19.10.2024
+
+Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите узнать, как рождаются легенды? Как Арсен Люпен, скромный грабитель, стал героем, которого знают все? Сыграйте в приключенческую игру с расследованиями, действие которой происходит в начале XX века. Вас ждет множество головоломок, а также увлекательная история о юности, любви и преступлениях легендарного вора-джентльмена. Играйте как за Люпена, так и за сыщика (   Читать дальше...   )Тип издания: SceneРазработчик: Blazing GriffinЖанр: Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67645B6CD0148EA657AB46DB081534370CCB3697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756087   (39904) от 19.10.2024
+
+A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39904.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Quiet Place: The Road Ahead - это однопользовательская приключенческая игра в жанре хоррор, вдохновленная получившей признание критиков франшизой и рассказывающая историю выживания после нашествия смертоносных существ. В этом эксклюзивном спин-оффе вы пройдете путь молодой женщины, для которой ужасный апокалипсис совпал с разгаром семейного конфликта, и она пытается (   Читать дальше...   )Тип издания: RepackРазработчик: Stormind GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6AF46F17806D4B3F03888A25F59E3A79058E96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756084   (39896) от 19.10.2024
+
+Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы Харуна - квестор, наделенный способностью погружаться в Складку - таинственное измерение, напрямую связанное с нашим миром. В погоне за тайными знаниями Харуне предстоит отточить свое исключительное умение использовать силу Складки в реальности... Однако дар Харуны не остается незамеченным, и она становится целью Восходящих. Эта организация замыслила повлиять (   Читать дальше...   )Тип издания: RepackРазработчик: Reflector Entertainment Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEF14C3D22C308A66F017FDB4F70931BE2F0B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756019   (39881) от 19.10.2024
+
+The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь назад во времени, чтобы спасти будущее, в этом уморительном приключении. Через шесть часов Небесам придет конец. Если только вы их не спасете. Используйте способность путешествовать во времени, чтобы перемещаться между прошлым и будущим на Небесах, в Аду, на Земле и в Хельхейме. Узнавайте что-то в одном времени, чтобы изменить другое, в попытке предотвратить (   Читать дальше...   )Тип издания: RepackРазработчик: Perfectly ParanormalЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC0B0D56AFC1ABADF726DD06AB844B21D5A9276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756039   (39879) от 19.10.2024
 
 A Quiet Place: The Road Ahead (2024) (1.0.0/dlc) Repack FitGirl
@@ -6,7 +136,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39879.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39878.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39845.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39826.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ The Talos Principle II (2) (2023) [Ru/Multi] (2.2.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39732.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39729.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.2.12) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39724.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (1.2.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39626.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39606.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39450.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39263.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39241.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39131.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39054.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39022.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38940.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38936.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38886.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38854.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38833.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38780.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2B2E5C0B3EBAED5D9D95666ADA64D3D816CC10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758110   (38748) от 31.10.2024
-
-Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38748.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире Subnautica ваше судно потерпело крушение в океанической местности, и в ней есть всего одна прямая линия - вниз, ко дну. Пейзажи вокруг вас озаряются солнцем, коралловые рифы красиво переливаются под солнцем, пока вы медленно тонете в сторону бесконечной темноты пространства. Исследование огромного открытого мира позволяет не только окунуться под толщу воды (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758007   (38725) от 31.10.2024
-
-Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Don't Be Afraid 2 - хоррор с видом от первого лица и продолжение одноименной игры 2020 года. Возьмите на себя роль Дэвида, молодого человека, который пытается справиться с жуткой травмой детства, и исследуйте глубины его кошмаров. Переживите самые мрачные моменты жизни Дэвида, исследуя леденящие душу места, собирая улики о его прошлом и решая головоломки, оставленные (   Читать дальше...   )Тип издания: RepackРазработчик: Eneida Games, Cat-astrophe GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C770446D6B8AFE53365B5C94CC39B48D50E9F76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675658   (38660) от 01.11.2024
-
-Tintin Reporter Cigars of the Pharaoh / Репортер Тинтин: Сигары фараона (2023) [Ru/Multi] (2024100901) License GOG
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тинтина и его верного спутника Снежка ждет невероятное путешествие… Познакомившись с профессором Циклоном на борту круизного лайнера в Средиземном море, знаменитый репортер отправляется на поиски гробницы фараона Ки-Оскха. Какие темные секреты скрывает гробница? Совершив путешествие из Египта в Индию через Аравийский полуостров, Тинтин и Снежок раскроют сеть наркоторговцев, (   Читать дальше...   )Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4279196E0F19C499B617ED1E5676043A57742369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487991   (38654) от 01.11.2024
-
-Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Органон замышляет разрушить Депонию, милая Гоул (снова) исчезла, а антигерой Руфус всё время путается у себя под ногами. Всё, о чём мечтал изобретательный и свободолюбивый Руфус, было оставить планету Депония, превратившуюся в гигантскую свалку, и отправиться в Элизиум - орбитальную станцию и настоящий рай для высших слоёв общества. Гоул, девушка из Элизиума, от (   Читать дальше...   )Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, Point & Click, QuestЯзык озвучки: Английский, Немецкий, ИтальянскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC0E7ABCCFEE9F7E1AF79FA6285742C2476804F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487984   (38652) от 01.11.2024
-
-Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38652.jpg" />
-</div>
-
-
-###  Подробнее
-
-В долгожданном продолжении приключенческой игры "Депония", которая получила массу положительных отзывов, сумасшедшая сага переходит на новый уровень. При этом "Депония 2: Взрывное приключение" оказывается ещё более безумной, чем первая часть и захватывает игрока с первой секунды. Руфус мог бы образумиться, стать дружелюбным и внимательным, и ему (   Читать дальше...   )Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, Point & Click, QuestЯзык озвучки: Английский, Немецкий, Итальянский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CAD74230189BB66038DCA77DEA304C8D43FA33
 ```
 
 https://mybot314.ru/tekegram_catalog/

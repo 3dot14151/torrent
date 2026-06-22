@@ -1,3 +1,57 @@
+###  Публикация: 1412528   (418052) от 29.09.2020
+
+QuarkXPress 2020 16.1 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Quark Software Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FD1C2E40132FFF87F2654723F0FF973F0CB04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412437   (418050) от 29.09.2020
+
+Elmedia Player Pro 7.14 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A260FE212F2FF2638A384A52AA4B69E7ED46C1AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251523   (418035) от 01.10.2018
 
 Cookie 5 v5.9.1 [Multi]
@@ -6,7 +60,7 @@ Cookie 5 v5.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418035.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ Privatus 6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418034.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Canary Mail 2.13 (v436) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418032.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Redacted 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417931.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ PDF Protector 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417930.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ TouchDesigner Pro 099.2020.26630 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417907.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ eMail Address Extractor 3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417854.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ Movavi Screen Recorder 5.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417850.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Live Home 3D Pro 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417840.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ cDock 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417774.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ USBclean 3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417772.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ iMazing 2.12.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417735.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ iMazing 2.7.1 (9565) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417502.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ NetWorker Pro 8.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417263.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ Screen Wonders 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417262.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ Mellel 5 v.5.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417253.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ Viper FTP 6.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417252.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ Hides 5.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417250.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ Smart Converter Pro 3 v.3.1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417249.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ Hands Off! 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417197.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ Wattagio 1.13 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417123.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ BBEdit 14.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417116.jpg" />
 </div>
 
 
@@ -598,7 +652,7 @@ Elmedia Player Pro 8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417115.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ Ethernet Status - LAN Status  5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417111.jpg" />
 </div>
 
 
@@ -636,58 +690,6 @@ Ethernet Status - LAN Status  5.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AAED5B8989BC905BA232D16442104659D2D30DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573001   (417100) от 29.08.2022
-
-OmniPlayer Pro - Media Player 2.0.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417100.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2022Разработчик: © 2021 Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD179736311E7A73F3F01C52AF61B1C236A473B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572998   (417099) от 29.08.2022
-
-SiteSucker Pro 5.0.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417099.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2022Разработчик: © 2021 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4752F661383B9B52A77FCAECE0E53197CD1DB019
 ```
 
 https://mybot314.ru/tekegram_catalog/

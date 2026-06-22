@@ -1,3 +1,107 @@
+###  Публикация: 1577296   (191169) от 05.11.2022
+
+Lovecraft's Untold Stories 2 (2022) [Ru/Multi] (0.9.049b) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lovecraft’s Untold Stories 2 – ролевой экшен с элементами rogue-like, сюжет которого продолжает историю Lovecraft’s Untold Stories. В этой игре герои переходят на новый этап борьбы с неведомым, а новый стиль графики делает происходящее гораздо более захватывающим. Собирайте выпадающие случайным образом добычу и ресурсы, мастерите из них снаряжение, исследуйте старые (   Читать дальше...   )Тип издания: LicenseРазработчик: LLC Blini GamesЖанр: Экшны, Ролевая игра, RoguelikeЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329C3C79331B2BA90D8872D568261D0E86FC225C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659013   (190344) от 10.09.2023
+
+The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License PLAZA [Enhanced Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190344.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Fall of the Dungeon Guardians - Dungeon Crawler RPG с видом от первого лица, вдохновением для которой послужила классика в лице Dungeon Master и Might & Magic. В игре современная боевая система, основанная на механике триптиха "танк, дамагер, хилер". Исследуйте огромное подземелье, полное опасностей, тайн и секретов, в dungeon crawler с тактическими (   Читать дальше...   )Тип издания: LicenseРазработчик: Mana GamesЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB94796D57B93B708C5F5BECB3F4C5946091114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509769   (189864) от 11.09.2023
+
+Gordian Quest (2020) [Ru/Multi] (1.4.2) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Землю поразило жуткое проклятие. Отныне тут царит тьма, бродят чудовища, наживаются на чужом горе негодяи, а трусы бегут отсюда. Но появляются герои. Возглавь отряд героев, чтобы спасти мир и уничтожить корень зла, что поглотило все вокруг. Падёшь ли ты под ударами врагов или станешь жертвой собственных неверных решений? Твое путешествие начинается.Тип издания: LicenseРазработчик: Mixed Realms Pte Ltd, Swag Soft Holdings Pte LtdЖанр: Ролевая игра, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB57E2159C06D600DCCBF231C8873EB44BD9B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661088   (188688) от 14.09.2023
+
+ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188688.jpg" />
+</div>
+
+
+###  Подробнее
+
+2037. Накано, Токио. Поллон Такаока и его лучший друг Кросс Юмикава зарабатывают на жизнь, работая профессиональными хакерами везде, где только можно; везде, где не затронула катастрофа "Печальное утро", произошедшая 6 февраля 2036 года. Однажды Поллон объявляет, что собирается "сбежать", несмотря на то, что он одинок. Однако в месте, где никого (   Читать дальше...   )Тип издания: SceneРазработчик: MAGES. Inc.Жанр: Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7886A22CD77B2691610BB996E260A752CED52D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661112   (188640) от 14.09.2023
 
 God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +110,7 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188640.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188357.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ XEL (2022) [Ru/Multi] (1.0.7.3/dlc) License GOG [Save the World Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188291.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ XEL (2022) [Ru/Multi] (1.0.7.3/dlc) License GOG [Save the World Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188290.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Swords and Fairy 7 (2021) [Multi] (2.1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187854.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187269.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ PAYDAY 3 (2023) [Ru/Multi] (1.0.0.0.624677) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186134.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Diablo II (2000) [En] (1.14d/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186086.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184767.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183497.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183420.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182046.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Earthlock: Festival of Magic (2016) [Ru/Multi] (1.1.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181730.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Bound By Blades (2022) [Multi] (1.7.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181340.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179877.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179172.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Dust to the End (2021) [Ru/Multi] (1.0.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178873.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Dragon Quest XI: Echoes of an Elusive Age (2018) [Ru/Multi] (1.0/dlc) Repack xat
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177054.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177037.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176408.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Surge (2017) [Ru/Multi] (55623) License GOG [Augmented Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176157.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Pentiment (2022) [Multi] (1.0.1212) License Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175226.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Pentiment выделяется своей двухмерной рисованн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F844D5682E1EE10A83E5639155F387B152455DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667905   (174866) от 10.10.2023
-
-Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте за викинга по имени Эйвор, которого с самого детства готовили стать бесстрашным воином. Вам предстоит повести свой клан из безжизненной ледяной Норвегии, чтобы обрести новый дом на плодородных землях Англии IX века. Вы должны основать селение и любыми средствами обуздать этот непокорный край, чтобы обеспечить себе место в Вальгалле. В те времена Англия представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: RPG, 3rd Person, Action, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDC140D03522530BA15D3483DB90AA2EADA8638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668039   (174338) от 11.10.2023
-
-Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды на мирное королевство обрушилась страшная беда. В наступившем хаосе люди стали обманывать и предавать друг друга. Их король с помощью своего могущественного волшебства лишил людей способности говорить и бросился в Бездну. Его дочь, принцесса, плакала нескончаемым потоком слез, пока ее не заключили в гигантскую хрустальную каплю. Спустя много лет после этих (   Читать дальше...   )Тип издания: SceneРазработчик: Marvelous Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Японский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Японский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1101079059577FC0C581BA1C43447583028FB116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668342   (173532) от 12.10.2023
-
-The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173532.jpg" />
-</div>
-
-
-###  Подробнее
-
-В The Lamplighters League соберите разношерстную команду необычных людей, каждый из которых вооружен своими талантами и неповторимыми личностями, и без устали преследуйте Запрещенный Суд по всему миру. Эта игра сочетает в себе инфильтрацию в реальном времени, пошаговый тактический бой и сюжет, наполненный эскападами и загадками. Отправляйтесь в путешествие по миру, (   Читать дальше...   )Тип издания: RepackРазработчик: Harebrained SchemesЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B6AAE9F6CE074AAC8AD82D3576F41DB7EB4FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826705   (173450) от 20.10.2025
-
-Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соберите отряд и вернитесь в Забытые Королевства. Вас ждет история о дружбе и предательстве, выживании и самопожертвовании, о сладком зове абсолютной власти. Ваш мозг стал вместилищем для личинки иллитида, и она пробуждает в вас таинственные, пугающие способности.Тип издания: RepackРазработчик: Larian StudiosЖанр: Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71411864770CD5E012EB34FF41E1FFACEDF74BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

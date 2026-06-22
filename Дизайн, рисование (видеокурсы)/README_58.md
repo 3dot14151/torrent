@@ -6,7 +6,7 @@ Artefactoschool, Игорь Хайков | Времена года (2022) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234092.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ CG Cookie, Kent Trammell | Creating Hair Cards for Realtime Characters in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233904.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Watermedia, Татьяна Ширбидова | Акварельные прак�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233738.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Enterclass, Ольга Гусева | Весна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233699.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Pixel Front, Wesley Versteeg | An introduction to vellum grains, RBD & colliders
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233543.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Allegorithmic, Daniel Thiger | Creating Photorealistic Procedural Materials in S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233527.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ The Gnomon Workshop, Jason Shum | Combat Animation for Games (2017) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233519.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ CGMA, Nicolas Weis | Environment Design for Animation Workshops (2016) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233509.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ The Gnomon Workshop, Vitaly Bulgarov | Robotic 3D Design for Entertainment (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233480.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233371.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Udemy, Lindsay Marsh | Graphic Design Masterclass - Learn GREAT Design (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233297.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Pluralsight, Sophie Jameson | CINEMA 4D UV Mapping Fundamentals (2018) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233094.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233076.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Sketchpark, Мария Мусиенко | Запредельная иллюст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232735.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ CG Cookie, Kent Trammell | Short Film Character Production in Blender (Creating 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232710.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Blender Cloud, Pablo Vazquez | Cartoon Character Creation - Venom's Lab! 2 (2014
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232497.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ FlippedNormals, Emiel Sleegers | Creating Custom Decals for Games - In-Depth Tut
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232391.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Gumroad, Jan Urschel | Procedural Landscapes in Blender (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232318.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232267.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Artstation, Aaron Villarreal | Creating a Stylized Diorama | Aaron Villarreal (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232161.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232093.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Lectoroom, Мария Павлова | Букет клубники маслом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231997.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ World Of Level Design | UE4 Fundamentals Vol.1: The Essential Beginner's Guide t
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231973.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Art box school | Mини цветы. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231964.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Art box school | Листья. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231955.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Art box school | Эффектный пейзаж. Масло (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231945.jpg" />
 </div>
 
 

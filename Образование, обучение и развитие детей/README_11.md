@@ -1,3 +1,112 @@
+###  Публикация: 422632   (1021067) от 14.04.2021
+
+O.B. Александрова | Учим таблицу умножения (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Письменные случаи табличного умножения и деления вызывают у младших школьников наибольшие затруднения. Предлагаемое пособие предназначено для самостоятельной работы учащихся начальных классов, как в школе так и дома.
+Книга поможет родителям и педагогам сформировать и закрепить навыки деления и умножения у учащихся начальной школы.Жанр: Издание для дополнительного образованияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F33DDF281AA6FD8F9E9806949D67FEFE4A6B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350423   (1020889) от 15.04.2021
+
+И.А. Лыкова | Изобразительная деятельность в детском саду: планирование, конспекты занятий, методические рекомендации. Старшая группа (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее пособие содержит систему развивающих занятий изобразительной деятельностью в старшей группе детского сада: приоритетные задачи на учебный год, системное планирование и 96 вариативных конспектов (сценариев) с конкретными методическими рекомендациями.
+Автором представлен новый подход к художественно-творческому развитию детей, в котором гармонично (как на (   Читать дальше...   )Жанр: Практическое пособие, методические указанияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21694A25B643B9886945AD229A638A15CCBA5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 670977   (1020812) от 16.04.2021
+
+И.В. Галузо, В.В. Голубев | Космический калейдоскоп: задачи и рекорды Вселенной (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание представляет собой сборник задач, позволяющих развить у школьников навыки логического мышления, творческого отношения к поставленной проблеме. С этой целью предлагаются задачи, начинающиеся словами "Представьте себе.", "Оцените.", "Если бы." Интерес представляют нетрадиционные "Задачи–рисунки".
+
+Сборник предназначен (   Читать дальше...   )Жанр: Обучающий материалФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301EA207A2806823BDEDCED1F30C9659EE63DC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349451   (1020757) от 16.04.2021
+
+В.А. Егупова  | Ломоносовская школа. Изучаю мир вокруг. Для детей 5-6 лет. Часть 2 (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные задачи пособия-расширение и детализация представления детей о предметах, явлениях природы,человеке, общественной жизни и формирование новых навыков правильного поведения в социальной среде, бережного отношения к богатствам приоды и общества.
+Разноообразные практические задания ориентированы на обогащения словарного запаса ребенка, совершенствования навыков (   Читать дальше...   )Жанр: Развивающая литература для дошкольниковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7214CD9D842C38865C66A3A493C46AAA78E82B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359576   (1020740) от 16.04.2021
 
 Ю.М. Колягин, В.А. Оганесян | Учись решать задачи (1980) [DJVU]
@@ -6,7 +115,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020740.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020730.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020728.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020675.jpg" />
 </div>
 
 
@@ -114,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020604.jpg" />
 </div>
 
 
@@ -140,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020600.jpg" />
 </div>
 
 
@@ -166,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020596.jpg" />
 </div>
 
 
@@ -192,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020589.jpg" />
 </div>
 
 
@@ -218,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020568.jpg" />
 </div>
 
 
@@ -244,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020566.jpg" />
 </div>
 
 
@@ -270,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020553.jpg" />
 </div>
 
 
@@ -296,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020491.jpg" />
 </div>
 
 
@@ -322,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020472.jpg" />
 </div>
 
 
@@ -349,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020470.jpg" />
 </div>
 
 
@@ -376,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020438.jpg" />
 </div>
 
 
@@ -402,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020437.jpg" />
 </div>
 
 
@@ -428,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020436.jpg" />
 </div>
 
 
@@ -454,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020433.jpg" />
 </div>
 
 
@@ -480,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020432.jpg" />
 </div>
 
 
@@ -506,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020419.jpg" />
 </div>
 
 
@@ -532,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020418.jpg" />
 </div>
 
 
@@ -560,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020395.jpg" />
 </div>
 
 
@@ -571,115 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D133387BB88D5980CCFE9B95B16D370CE4CFF2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463742   (1020309) от 19.04.2021
-
-К.Э. Ачасова | Английский язык. Имя существительное. Тренажер для начальной школы (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит правила и упражнения по английскому языку для отработки лексико-грамматических навыков по теме "Имя прилагательное". В конце тренажёра есть ключи, которые помогут проверить правильность выполнения заданий.
-Оценить свои знания можно по специальной шкале самооценки.Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4BCD04075FB64E03B30E1D677A9AEDAABE1C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463729   (1020302) от 19.04.2021
-
-К.Э. Ачасова | Английский язык. Имя прилагательное. Тренажер для начальной школы. 3-4 классы (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит правила и упражнения по английскому языку для отработки лексико-грамматических навыков по теме "Имя прилагательное". В конце тренажёра есть ключи, которые помогут проверить правильность выполнения заданий.
-Оценить свои знания можно по специальной шкале самооценки.Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AD661C962D5336EE687C2217497C1F1EE359B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463733   (1020290) от 19.04.2021
-
-Л.И. Ковальчук (ред.) | Альбом умного малыша. Английский язык. Тренажер по чтению (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020290.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даются основные правила чтения английских букв и буквосочетний, а также задания для закрепления полученных навыков чтения. Несложные слова с русской транскрипцией и переводом, схемы написания букв и правила чтения звуков, занимательные головоломки сделают процесс обучения приятным и простым.
-Книга поможет сделать самые первые шаги в изучении английского языка (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F4BC353BE518BF2E833E30228786A0D8F8A8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463753   (1020270) от 19.04.2021
-
-Виктория Державина | Английский язык. Фразовые глаголы и идиомы для школьников (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга включает в себя английские фразовые глаголы, а также идиомы, значение которых не всегда можно понять, даже если перевести каждое слово. Все примеры сопровождаются объяснениями, небольшими историческими справками, а также яркими иллюстрациями.
-
-С помощью этого пособия школьники могут заниматься дома самостоятельно, прибегая к помощи взрослых только в (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505A608520A0C2E9292FC36B9915D3203457716F
 ```
 
 https://mybot314.ru/tekegram_catalog/

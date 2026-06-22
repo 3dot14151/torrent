@@ -1,3 +1,84 @@
+###  Публикация: 417389   (319229) от 30.11.2011
+
+Андрей Усачёв - Что снится сказкам? (2011) [MP3|192 kbps]<Сказочные колыбельные>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319229.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сказочные колыбельные
+Автор текстов: Андрей Усачёв
+1. Что снится сказкам?
+2. Колыбельная кузнечику(   Читать дальше...   )Жанр: Сказочные колыбельные и музыкаПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264274   (318153) от 30.11.2010
+
+Валентин Постников | Карандаш и Самоделкин на острове Гигантских насекомых (2008) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебный художник Карандаш и мастер Самоделкин снова пускаются в далекое путешествие - на этот раз на воздушном шаре. Им предстоит перелететь Индийский океан и очутиться на таинственном острове, населенном дикими племенами и гигантскими насекомыми. Узнав тайну острова, Карандаш и Самоделкин вместе со своими друзьями делают необыкновенные открытия. Даже козни их (   Читать дальше...   )Жанр: Сказочная повестьПродолжительность: 03:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6757C1443153EB56340173438645C0EA7125F35C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264295   (318147) от 30.11.2010
+
+VA - Хор Венских мальчиков (2000) [MP3|320 kbps]<Классика для  детей>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Классика для  детейПродолжительность: 03:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9589F5F2F3E272B041A1768B119EC758B74B88C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 264314   (318139) от 30.11.2010
 
 VA - Новогодний подарок (2006) [MP3|192 kbps]<Детские песенки>
@@ -6,7 +87,7 @@ VA - Новогодний подарок (2006) [MP3|192 kbps]<Детские п
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318139.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ VA - Союз Детский 3 (2016) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317188.jpg" />
 </div>
 
 
@@ -64,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316780.jpg" />
 </div>
 
 
@@ -90,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316380.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316354.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315637.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315534.jpg" />
 </div>
 
 
@@ -198,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314941.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ VA - Осенних песен листопад... (2015) [MP3]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314914.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ VA - Песенки-веселушки (2012) [MP3|320 kbps] <детские п�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314913.jpg" />
 </div>
 
 
@@ -282,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314088.jpg" />
 </div>
 
 
@@ -308,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313906.jpg" />
 </div>
 
 
@@ -334,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313128.jpg" />
 </div>
 
 
@@ -363,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312595.jpg" />
 </div>
 
 
@@ -389,7 +470,7 @@ VA - Чижик-Пыжик. Песни для всей семьи (2012) [MP3|32
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312391.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ VA - Новогодние Детские Песни (2013) [MP3|192 кб/с]<Д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312388.jpg" />
 </div>
 
 
@@ -447,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310683.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ Raimond Lap - 2 albums (2004, 2005) [MP3|320 кб/с]<Classical, Instrumental, N
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310347.jpg" />
 </div>
 
 
@@ -505,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310249.jpg" />
 </div>
 
 
@@ -531,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310106.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ VA - Песни для малышей. Зимушка-Зима (2002) [MP3|256 k
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308557.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ VA - Лучшие детские песни (старые и новые) (2015) 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307955.jpg" />
 </div>
 
 
@@ -616,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307436.jpg" />
 </div>
 
 
@@ -630,90 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F21B6E6C2610BAED6080F2EACDD2DEE8A6F083CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330671   (307339) от 23.10.2019
-
-Кирилл Домбровский | Остров неопытных физиков (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307339.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Остров неопытных физиков» - это приключенческая повесть, сюжет которой строится на фантастическом предположении: четверо московских школьников получили, возможность по своему усмотрению менять некоторые физические константы и закономерности (уменьшать трение, увеличивать плотность воды, «пускать время обратным ходом», мгновенно переноситься в любую точку земного (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 07:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5228545E50F439A298D447401B292C287388AE2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266519   (306697) от 05.12.2010
-
-VA - Disney's - Family Christmas - Collection (2003) [MP3|320 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306697.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jingle Bells (Mickey & His Friends) 2:11
-2. Frosty the Snowman (Jeff Gunn) 2:09
-3. Joy To the World (The Disney Holiday Chorus) 2:11
-4. Deck The Halls (Mickey Mouse and The Gang) 2:38(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE73B9D580B5B300A6FD7D89C5857B1A49FCDBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266333   (306285) от 05.12.2010
-
-Л. Головченко - Колыбельные природы (2006) [MP3|192 kbps]<Колыбельные песни и музыка для детей>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русские народные мелодии и лучшие классические произведения в неповторимом сочетании со звуками природы помогут Вашему малышу крепко заснуть.Колыбельные лета
-1. Во поле березка стояла
-2. Я пойду по улице
-3. Веночек(   Читать дальше...   )Жанр: Колыбельные песни и музыка для детейПродолжительность: 02:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB2A3FB52C6508A318F86966DF1F6ED13FCC5FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

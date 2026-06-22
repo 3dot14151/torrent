@@ -1,3 +1,30 @@
+###  Публикация: 1802161   (11984) от 10.07.2025
+
+Сплошные неприятности / Nothing But Trouble (1991) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издатель финансового журнала Крис вызвался отвезти в Атлантик-сити обворожительную адвокатессу Дайану, за ними увязалась парочка латиноамериканских миллионеров - брат и сестра - Фаусто и Реналда. Все надеялись на веселое времяпрепровождение, а вышло...
+Начались все беды с сущего пустяка: Крис нарушил правила дорожного движения в провинциальном городке. За его шикарным (   Читать дальше...   )Производство: США / Applied Action, Warner Bros.Жанр: комедияРежиссер: Дэн ЭйкройдАктеры: Чеви Чейз, Дэн Эйкройд, Джон Кэнди, Дэми Мур, Вэлри Бромфилд, Тейлор Негрон, Рэймонд Дж. Бэрри, Брайан Дойл-Мюррэй, Джон Уэсли и др.Перевод: Дублированный, многоголосый, авторскийЯзык озвучки: Русский, английскийСубтитры: Английские (PGS, SDH)Продолжительность: 01:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82C56E165E85E52F2252B3251D41F91514CA0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802127   (11980) от 10.07.2025
 
 Дюна / Dune (1984) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Расширенная версия] [hand made Upscale AI]
@@ -6,7 +33,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11980.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11879.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11875.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11849.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11798.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11668.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11666.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11648.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11641.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11638.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11635.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11622.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11615.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11613.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11225.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11001.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10966.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10962.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10959.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10928.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10908.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10726.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10620.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10584.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10541.jpg" />
 </div>
 
 
@@ -648,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C5C40F10D0546907393C35A3CCC0ADB3A3F5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808444   (10512) от 24.07.2025
-
-Билли Мэдисон / Billy Madison (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великовозрастный балбес Билли Мэдисон, наследник невероятно богатого владельца сети отелей, проводит круглые сутки в разглядывании непристойных журнальчиков, поглощая пиво и устраивая идиотские розыгрыши.
-Правда, довольно скоро ему приходится взяться за ум: Мэдисон-старший сообщает Билли, что собирается передать бизнес подхалиму мистеру Гордону, и единственное условие, (   Читать дальше...   )Производство: США / Robert Simonds Productions, Universal PicturesЖанр: комедияРежиссер: Тамра ДэвисАктеры: Адам Сэндлер, Брэдли Уитфорд, Джош Мостел, Бриджит Уилсон, Норм МакДоналд, Марк Белцмэн, Ларри Хэнкин, Тереза Мерритт, Дина Платиас, Даррен МакГэвин и др.Перевод: Многоголосый (Lizard Cinema Trade, Первый Канал, СТС), двуголосый (Премьер Видео Фильм)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH), (PGS)Продолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8911B276CA3A02173B34834AF32009E3B298D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

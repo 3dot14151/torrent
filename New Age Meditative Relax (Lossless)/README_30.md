@@ -1,3 +1,33 @@
+###  Публикация: 1512148   (63124) от 13.03.2024
+
+Deep Forest - Studio Albums (15 releases) (1992-2023) [APE, Flac|Lossless|image + .cue, tracks + .cue] <World music, Ambient, House>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Forest - французский дуэт, состоящий из музыкантов, Мишеля Санчеса (Michel Sanchez) и Эрика Муке (Eric Mouquet). Создают музыку в стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Их звучание было описано как «этно-интроспективная музыка в стиле эмбиент».
+В 1994 году они (   Читать дальше...   )1992 - 1994 - World Mix
+1995 - Boheme
+1997 - Comparsa
+2000 - Pacifique(   Читать дальше...   )Жанр: Electronic, new-age, ambient, world, ethnic electronicaПродолжительность: 13:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9B6A4BEF278DD4FF4F1DE8800A610444AFDF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710544   (61601) от 27.03.2024
 
 Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +36,7 @@ Tantric Sex Background Music Experts - Entrance to Sex (2024) [FLAC|Lossless|WEB
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61601.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (201
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60377.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ VA - Erotic Spa: Blissful Time (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55610.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ Oriental Collection, Oriental Soundscapes Music Universe - Orient Music Adventur
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54677.jpg" />
 </div>
 
 
@@ -122,7 +152,7 @@ David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50998.jpg" />
 </div>
 
 
@@ -151,7 +181,7 @@ Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43993.jpg" />
 </div>
 
 
@@ -180,7 +210,7 @@ Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42293.jpg" />
 </div>
 
 
@@ -209,7 +239,7 @@ Pregnant Women Music Company - Harmony for Two: Music to Soothe Pregnancy Stress
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41780.jpg" />
 </div>
 
 
@@ -238,7 +268,7 @@ Pregnant Women Music Company - Calm Raining: Relaxation for Pregnant Woman (2024
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41778.jpg" />
 </div>
 
 
@@ -267,7 +297,7 @@ Chris Conway - Guiding Light (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40958.jpg" />
 </div>
 
 
@@ -296,7 +326,7 @@ David Arkenstone - Fairy Fantasy (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38981.jpg" />
 </div>
 
 
@@ -325,7 +355,7 @@ Medwyn Goodall - Rhythm of the Ancients 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38926.jpg" />
 </div>
 
 
@@ -354,7 +384,7 @@ Gregorian - 25/2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Crossover, Sy
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37115.jpg" />
 </div>
 
 
@@ -383,7 +413,7 @@ Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36577.jpg" />
 </div>
 
 
@@ -412,7 +442,7 @@ Joe Berluck - The Erotic Voice of Joe Berluck (1970) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36366.jpg" />
 </div>
 
 
@@ -441,7 +471,7 @@ VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36139.jpg" />
 </div>
 
 
@@ -470,7 +500,7 @@ Michael Hedges - Aerial Boundaries (1984) [FLAC|Lossless|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35116.jpg" />
 </div>
 
 
@@ -499,7 +529,7 @@ Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33958.jpg" />
 </div>
 
 
@@ -528,7 +558,7 @@ Autogenic Training Channel - Ayurveda Music (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32932.jpg" />
 </div>
 
 
@@ -557,7 +587,7 @@ VA - Only the Best Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31566.jpg" />
 </div>
 
 
@@ -586,7 +616,7 @@ Jean-Michel Jarre - Musik Aus Zeit Und Raum (1983) Reissue, 1984, Polydor [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28261.jpg" />
 </div>
 
 
@@ -615,7 +645,7 @@ Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27316.jpg" />
 </div>
 
 
@@ -644,7 +674,7 @@ Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27292.jpg" />
 </div>
 
 
@@ -673,7 +703,7 @@ Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27290.jpg" />
 </div>
 
 
@@ -702,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19610.jpg" />
 </div>
 
 
@@ -717,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB404B043E8B3CCA94AF78C168DCD591A6E0CF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799521   (16559) от 28.05.2025
-
-Jean Michel Jarre - The Concert In China (1982) Reissue, 1984, Polydor 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orient Express
-02. Magnetic Fields Part I
-03. Magnetic Fields Part III
-04. Magnetic Fields Part IV(   Читать дальше...   )Жанр: Electronic, Instrumental, New AgeПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12DF3ACC8A2C1A826ABB1B38FDD9BBAA1C80FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

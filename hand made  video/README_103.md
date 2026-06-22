@@ -1,3 +1,29 @@
+###  Публикация: 1679436   (137035) от 25.11.2023
+
+Легенда / Legend (2015) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Близнецы Реджи и Ронни Крэй — культовые фигуры преступного мира Великобритании 1960-х. Братья возглавляли самую влиятельную бандитскую группировку Ист-Энда. В их послужном списке были вооруженные грабежи, рэкет, поджоги, покушения, убийства и собственный ночной клуб, куда доезжали даже голливудские знаменитости. Среди их жертв — криминальные авторитеты Джек МакВитти (   Читать дальше...   )Производство: Великобритания, Франция, США / Anton, Cross Creek Pictures, Working FilmsЖанр: криминал, триллер, драмаРежиссер: Брайан ХелгелендАктеры: Том Харди, Эмили Браунинг, Дэвид Тьюлис, Даффи, Кристофер Экклстон, Чазз Пальминтери, Пол Андерсон, Джошуа Хилл, Колин Морган, Тара ФитцджеральдПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24268D19D456FD0EFBD724E6BFD5ABB29C318507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824871   (136936) от 16.10.2025
 
 На Дерибасовской хорошая погода, или На Брайтон Бич опять идут дожди (1992) DVDRip [H.264/2160p] [4K, SDR] [Hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136936.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136934.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136836.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136783.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136782.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136764.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_136323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_136323.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135127.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135114.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135083.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135073.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134805.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134759.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134448.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134405.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134183.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134122.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134121.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134113.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134061.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134055.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134023.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133801.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133705.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133671.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FEEA02480E20701890EBD43D1B00D0B76683B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680688   (133595) от 30.11.2023
-
-Привидение / Призрак / Ghost (1990) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влюблённая пара Сэм и Молли возвращается домой после приятного вечера, когда на них нападает грабитель. Защищаясь, Сэм погибает и становится призраком. Он узнаёт, что его смерть не была случайной, а над его возлюбленной нависла смертельная опасность. Чтобы предупредить Молли, Сэм начинает обход практикующих медиумов и, о чудо! - находит женщину, которая действительно (   Читать дальше...   )Производство: США / Paramount Pictures, Howard W. Koch ProductionsЖанр: мелодрама, фэнтези, триллер, драмаРежиссер: Джерри ЦукерАктеры: Патрик Суэйзи, Деми Мур, Вупи Голдберг, Тони Голдвин, Стэнли Лоуренс, Кристофер Дж. Кин, Сьюзэн Бреслау, Мартина Дэйнан, Рик КлеберПеревод: Дублированный ("Voize" по заказу IVI, СТС), многоголосый профессиональный (UPR, Киномания, Премьер)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F978F502E3105754A4BD527F815620BFE2C49C
 ```
 
 https://mybot314.ru/tekegram_catalog/

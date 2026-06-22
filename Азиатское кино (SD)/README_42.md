@@ -1,3 +1,81 @@
+###  Публикация: 952892   (351016) от 03.11.2015
+
+Гелиос / Chek dou (2015) WEBRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный террорист по кличке «Гелиос» похищает некоторое количество урана и теперь планирует создать ядерную бомбу, чтобы затем продать её одной из гонконгских террористических организаций. Главный инспектор городской полиции Ли Инь Мин, профессор физики Сиу Чи Ян и два эксперта по оружию, приехавших из Южной Кореи несмотря на противоречия, возникающие между ними, (   Читать дальше...   )Производство: Гонконг, Китай, СШАЖанр: фэнтези, боевик, триллер, криминалРежиссер: Лок Мэн Люн, Ким-Чинг ЛюкАктеры: Джеки Чун, Ник Чун, Шон Юе, Дженис Ман, Чи Чжин Хи, Чхве Ши Вон, Юн Джин И, Жозефин Ку, Вэньюань Фэн, Чан ЧэньПеревод: Любительский (двухголосный закадровый) den904 & DeadSnoПродолжительность: 01:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68683F28C5A2F93972DF76875127DA81D2587E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577994   (350069) от 21.09.2022
+
+Под жарким солнцем / Yang guang can lan de ri zi / In the Heat of the Sun (1994) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет вертится вокруг нескольких школьных друзей. Вместе с героями зритель проживает несколько месяцев в коммунистическом Китае, в течение которых герои проходят «процесс взросления», переживая типичные для любого подростка процессы социализации - участие в уличной «тусовке», драки, первую любовь.Производство: Китай, Гонконг, China Film Co-Production Corporation, Dragon FilmЖанр: драма, мелодрамаРежиссер: Цзян ВэньАктеры: Ся Юй, Вэй Чен, Shaobo Dai, Хуа Фэнг, Фэн Сяоган, Гэн Лэ, Dong Han, Цзян Вэнь, Лю Бинь, Лю СяонинПеревод: Авторский (Юрий Сербин)Язык озвучки: русский, китайскийСубтитры: английские, русские (ВадНес), китайские, французскиеПродолжительность: 02:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E830C5AB3ACFECD7C1E5C3BC10152A4414F469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578360   (347601) от 22.09.2022
+
+Телохранитель из Пекина / Zhong Nan Hai bao biao / The Defender (1994) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свидетели долго не живут - так гласит жестокое правило преступного мира. Когда молодая женщина Мишель Юн становится единственной очевидицей убийства, совершенного могущественным злодеем, никто не сомневался, что дни её сочтены. Но нет правил без исключений. Из Пекина прибывает таинственный телохранитель, нанятый другом Мишель. Поначалу героиня не верит, что от него (   Читать дальше...   )Производство: Гонконг, Eastern Productions, Golden Harvest Company Ltd.Жанр: боевик, криминал, триллерРежиссер: Кори ЮэньАктеры: Джет Ли, Кристи Чунг, Кент Чэн, Колин Чоу, Джои Люн, Вэй-Квок Нг, Вай-лим Чу, Чань Чун-Тай, Сек Чан, Джеки ЧунгПеревод: Многоголосый (Видеосервис), авторский (Визгунов; Живов)Субтитры: английскиеПродолжительность: 01:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0355CAC2E489835A6394739C2D1E8B496CA9408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418624   (346795) от 25.10.2020
 
 Ложные улики / Gui ma zhi duo xing / All the Wrong Clues (1981) BDRip [AVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346795.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346347.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346138.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346004.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344946.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344126.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344114.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343849.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343247.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342240.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342101.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340808.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339762.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339255.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339110.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338573.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335974.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335877.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335314.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335298.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334057.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333946.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333826.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83699766C255BD29C4DF5D66DAAF4415386BCCC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955558   (333348) от 11.11.2015
-
-Дикий город / Bou Chau Mai Sing (2015) HDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отставной полицейский, содержащий бар, помогает пьяной девушке и привозит ее домой. Когда его брат отправляется, чтобы проводить, проспавшуюся после бурной ночи девушку, на них нападают бандиты и увозят незнакомку в неизвестном направлении. Он бросается ее спасать, понимая, что все больше погружается пучину лжи и преступлений, который он, верный зову полицейского (   Читать дальше...   )Производство: Гонконг, Beijing East Light Film Co., East Light Film, Mei Ah Films Production Co. Ltd.Жанр: Боевик, Триллер, КриминалРежиссер: Ринго ЛамАктеры: Луис Ку, Шон Юе, Лия Тун, Сяо-Чуань Чан, Джек Као, Сэм Ли, Филип Нг, Дейв Вон, Саймон ЯмПеревод: Двухголосый закадровый, любительский (2D)Язык субтитров: АнглийскийПродолжительность: 01:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0686B8BFE44FBC6F4C49E67A9D780A1C825C683B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955547   (333201) от 11.11.2015
-
-Дикий город / Bou Chau Mai Sing (2015) WEBRip
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отставной полицейский, содержащий бар, помогает пьяной девушке и привозит ее домой. Когда его брат отправляется, чтобы проводить, проспавшуюся после бурной ночи девушку, на них нападают бандиты и увозят незнакомку в неизвестном направлении. Он бросается ее спасать, понимая, что все больше погружается пучину лжи и преступлений, который он, верный зову полицейского (   Читать дальше...   )Производство: Гонконг, Beijing East Light Film Co., East Light Film, Mei Ah Films Production Co. Ltd.Жанр: Боевик, Триллер, КриминалРежиссер: Ринго ЛамАктеры: Луис Ку, Шон Юе, Лия Тун, Сяо-Чуань Чан, Джек Као, Сэм Ли, Филип Нг, Дейв Вон, Саймон ЯмПеревод: Двухголосый закадровый, любительский (2D)Язык субтитров: КитайскийПродолжительность: 01:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC02825129E909D3D8E908975FF603EAE9D74EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420479   (332539) от 01.11.2020
-
-Ох, дикость / Ah, koya / Ah, Wilderness / Wilderness: Part One (2017) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ближайшее будущее. Действие разворачивается в Синдзюку, Токио. Синдзи выходит из колонии для несовершеннолетних. Барикан страдает от заикания и чрезмерной застенчивости. Двое непохожих и чужих людей, обременённых проблемами, встретятся в боксёрском зале, чтобы стать друзьями и разрешить, казалось, безнадежные ситуации с помощью бокса.Производство: Япония, My Theater D.D., TV Man UnionЖанр: Драма, спортРежиссер: Ёсиюки КисиАктеры: Масаки Суда, Ян Ик-чун, Дэндэн, Рику Хагивара, Аоба Кавай, Таэ Кимура, Акари Киносита, Кацуя Кобаяси, Анна Конно, Ко МаэхараПеревод: Двуголосый любительский (RealFake)Субтитры: отсутствуютПродолжительность: 02:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949CB22D4A8D6D2BC6438FD528F1898EF3EEFD42
 ```
 
 https://mybot314.ru/tekegram_catalog/

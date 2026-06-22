@@ -1,3 +1,55 @@
+###  Публикация: 1566821   (211519) от 31.07.2022
+
+Соник 2 в кино / Sonic the Hedgehog 2 (2022) BDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поселившись в Грин-Хилз, Соник стремится доказать, что у него есть все задатки настоящего героя. И геройское испытание не заставляет себя долго ждать: злодейский доктор Роботник вновь строит козни. На этот раз — с загадочным напарником Наклзом. Вместе они разыскивают бесценный изумруд, в котором заключены силы, способные уничтожать целые цивилизации. Соник объединяется (   Читать дальше...   )Производство: Япония, США / Paramount Pictures, Sega Sammy Group, Original FilЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Джефф ФаулерАктеры: Джеймс Марсден, Джим Керри, Бен Шварц, Тика Самптер, Идрис Эльба, Наташа Ротуэлл, Адам Палли, Шемар Мур, Ли Мадждуб, Коллин О’ШонессиПеревод: Дублированный (SDI Media / IYUNO SDI Group)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 02:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D0A483FB6E0F29799DE84A64694BB0C5781C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601478   (211113) от 01.01.2023
+
+Приключения Тедди / Teddybjornens jul (2022) WEB-DLRip [H.264] [PR]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211113.jpg" />
+</div>
+
+
+###  Подробнее
+
+На рождественской ярмарке Марианна замечает ожившую игрушку — плюшевого медвежонка Тедди. Это то, о чем она мечтала всю жизнь! Однако медвежонка выигрывает другой: теперь Тедди и его новый лучший друг, ежик Болла, отправятся в новогоднее путешествие, полное приключений, чтобы вернуться к девочке.Производство: Норвегия / FantefilmЖанр: приключения, семейныйРежиссер: Андреа ЭкербомАктеры: Марте Клерк-Нильссен, Джон Ф. Брунгот, Вегард Странд Эйде, Лене Конгсвик Йохансен, Марианн Холе, Ян Гуннар Рэйсе, Кай Ремлов, Марианне Крогнесс, Надер Хадеми, Медина ИкбалПеревод: Дублированный (CPI Films)Язык озвучки: Русский, НорвежскийСубтитры: русские (полные)Продолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32639FFF8883E33C41B5CA532D4C72CD041AA24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554002   (209801) от 17.01.2023
 
 Приключения Пиноккио / Le avventure di Pinocchio (1972) BDRip [H.264] [VO]
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209801.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209164.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208324.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207397.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207373.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207019.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205108.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204946.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204754.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204751.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204640.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204454.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204024.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203663.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202610.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201805.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199837.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199498.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_199095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199095.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197843.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197621.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196643.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196230.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195267.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEEC3B7CD7EC3262C7AA5EB01EC30962E5425031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657117   (193041) от 02.09.2023
-
-Цветок красного папоротника / Where the Red Fern Grows (1974) WEBRip [H.264] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193041.jpg" />
-</div>
-
-
-###  Подробнее
-
-10-летний Билли Колман постоянно грезил иметь стремительных охотничьих гончих, поработав на ранчо, он за 2 года скопил довольно средств и купил 2-ух щенят. Сам воспитал их а также тренировал до того времени, пока они 3-е не стали самой наилучшей охотничей компанией в долине. А сколько еще приключений их ожидает в лесах а также полях волшебного края...Производство: США / Doty-Dayton ProductionЖанр: драма, семейныйРежиссер: Норман ТокарьАктеры: Джеймс Уитмор, Беверли Гарлэнд, Джек Джинг, Лонни Чэпмен, Стюарт Петерсен, Джилл Кларк, Джинна Уилсон, Билл Турман, Билл Данбар, Рекс КорлиПеревод: многоголосый профессиональный, одноголосый любительскийЯзык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86576BCBFEFFEEB058CA323101449C76290B468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587337   (192760) от 30.10.2022
-
-Ночь в магазине ужастиков / Spirit Halloween (2022) WEB-DLRip [H.264] [Локализованная версия]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне Хэллоуина в городе открывается магазин ужастиков. Группа друзей решает тайком устроить в нем развеселую вечеринку. Но внезапно появляется незваный гость — таинственный призрак магната-миллионера. Его сногсшибательные шутки и другие очень странные события не дадут друзьям забыть этот праздник.Производство: США / Hideout Pictures, Particular Crowd, Strike Back StudiosЖанр: фэнтези, детектив, приключения, семейныйРежиссер: Дэвид ПоагАктеры: Донован Колан, Джейден Джей Смит, Дилан Фрэнкел, Марисса Рейс, Рэйчел Ли Кук, Билли Рой, Кристофер Ллойд, Алия Кэллоуэй, Марла Гиббс, Брэд КартерПеревод: дублированный (Мосфильм-Мастер)Субтитры: английские (full, SDH)Продолжительность: 01:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC47897DE9799A9602F3BE6FF1E215B1B6A07F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

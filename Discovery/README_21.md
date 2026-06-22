@@ -1,3 +1,81 @@
+###  Публикация: 946044   (227160) от 13.12.2015
+
+Discovery. Смертельный улов / Deadliest Catch (2015) HDTVRip (Сезон 11, Серии 1-18 из 18, + спецвыпуск)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал, который рассказывает о соревновании рыболовецких судов в Беринговом море во время сезонов ловли королевского краба и краба-опилио (стригуна). База действий - Датч-Харбор, порт на небольшом острове Амакнак в бухте Уналашка, близ острова Уналашка из группы Алеутских островов. Команды судов подвергаются огромному риску. В любой момент можно получить травму или (   Читать дальше...   )Производство: США, Discovery NetworkЖанр: Документальный, приключения, реалити-ТВПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3DCB80A667FB778208C8A79795E0B3AEDCAFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083005   (217775) от 19.12.2016
+
+Discovery. Османы и христиане: Битва за Европу / Ottomans Versus Christians: Battle for Europe (2016) HDTVRip [H.264/720p-LQ] (1-3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершите путешествие вглубь истории, во времена, когда Восточная Европа была ареной противоборства между христианами и османами.Телекомпания: Pilot Production, Discovery ChannelЖанр: Документальный,история, исследованиеПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:44:00 (серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F035D600809C04681596221C11CA7F109EA08B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 303499   (217276) от 06.12.2019
+
+Discovery: Я не должен был выжить / I Shouldn't Be Alive (2005-2010) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал, повествующий о людях, оказавшихся в шаге от верной гибели, для которых встреча со смертью стала переломным эпизодом в биографии, тяжелым испытанием и – началом новой жизни. Подобное может произойти с каждым!Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 45-50 мин. серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3850B9870F694FB52C1EAF4C12D429EA9F4FE3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967170   (215930) от 19.12.2015
 
 Discovery: Разрушители легенд. Челюсти: месть / Mythbusters vs. Jaws (2015) DVB (Сезон 15, эпизод 13) [Discovery]
@@ -6,7 +84,7 @@ Discovery: Разрушители легенд. Челюсти: месть / Myt
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215930.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Discovery. История Пластика / The Story of Plastic (2019) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214168.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Discovery. Люди, которые продали Кубок Мира / The Men
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213393.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213207.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Discovery. Отравление в Солсбери / Secrets of the Salisbury P
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205839.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Discovery. Виагра: маленькая голубая таблетка, и�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_200994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200994.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199490.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Discovery. Канализационные водолазы / Sewer Divers / (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196625.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Discovery: Тайны катакомб Ватикана / Mystery Of The Lost Ca
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192623.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Discovery: В поисках Святого Грааля / In Search of the Holy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192385.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191172.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Discovery. Потерянный город Тутанхамона / Tut's Lost C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190541.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187056.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Discovery: Покушение на Гитлера / Virtual History: The Secret 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186400.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Discovery. Взрывая историю / Blowing up History (2022) HDTV [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185776.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Discovery: Современные Шерлок Холмсы / In the Mind of Cri
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180053.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Discovery. Джереми Уэйд: Тайны океана / Mysteries of the D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179597.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Discovery. Московская осада / The Moscow Siege (2002) SatRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178719.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Discovery: Будущее с Джеймсом Вудсом / Futurescape with Ja
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178004.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Discovery: Тайна убийства Наполеона / The Napoleon Murder 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177294.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Discovery: Техногенная катастрофа: Японская тра�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176454.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Discovery: Высадка союзников - цветная съемка / D-d
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175485.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175481.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B135905315CE73ED529D8B09FA8CEE39C80FB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337618   (168523) от 12.12.2019
-
-Discovery. Загадки высадки на Луну / Truth Behind the Moon Landing (2019) HDTVRip (серии 6 из 6)
-
->>След.
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посадка на Луну в 1969 году считается одним из величайших достижений человечества и эпическим путешествием трех легендарных космонавтов. Но так ли это? За прошедшие годы возникло множество теорий, утверждавших, что прилунение было имитацией, величайшим мошенничеством в истории. В этой программе эксперты и ученые изучают все варианты, чтобы раз и навсегда развеять (   Читать дальше...   )Производство: США, Big Fish Entertainment, Discovery ChannelЖанр: Документальный, космос, расследованиеРежиссер: Машума АббасПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73247AABA8F42ADD324A1B1759FF261B78BB58AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516323   (166652) от 10.12.2021
-
-Discovery: Nasa и SpaceX: путешествие в будущее / NASA and SpaceX: Journey to the Future (2020) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперты из SpaceX и NASA готовы навсегда изменить область исследования космоса. Заглянем за кулисы команд инженеров SpaceX, сотрудников НАСА и ученых, готовящихся к коммерческому полету на Международную космическую станцию.Жанр: ДокументальныйРежиссер: Эндрю ЛесснерПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC7239AD81CDA689DD93DE935D8359A2B31CB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517060   (164084) от 13.12.2021
-
-Discovery: Последние тайны долины Царей / Valley of the Kings: The Lost Tombs (2021) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда ведущих экспертов проводит раскопки в восточной и западной Долинах царей, чтобы открыть их последние тайны и составить подробную карту и являются хроникой крупнейших раскопок в Египте за 100 лет. Доктор Захи Хавасс исследует печально известную Долину царей в поисках сокровищ королевы Нефертити среди других бесценных артефактов из Нового Королевства.Производство: Великобритания / Blink FilmsЖанр: Документальный, ИсторияРежиссер: Катерина ТуррониПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8DA48B8038C8FA6CAA9633096BB64B7281DFF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

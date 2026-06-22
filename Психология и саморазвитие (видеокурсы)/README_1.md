@@ -1,3 +1,29 @@
+###  Публикация: 1855763   (1058603) от 25.02.2026
+
+МИФ.Курсы, Ирина Гиберманн | 7 конфликтов бессознательного (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058603.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 психодинамических конфликтов — система, на которую опираются психоаналитики, чтобы «читать» бессознательное. Вы тоже можете «читать» себя. Модель OPD, которую изучим, помогает распознать свои конфликты и — может быть, впервые — не повторить. Каждая реакция — послание психики. И если его расшифровать, увидишь, что внутри. Почему мы смеёмся, когда внутри всё обрывается? (   Читать дальше...   )Производство: МИФ.КурсыЖанр: видеокурс, обучающий курс, психология, философия, саморазвитиеЯзык озвучки: русскийПродолжительность: 13:04:37Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3417CA89D48BD4DF64AF51F3203E1D5612FD3960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855756   (1058400) от 25.02.2026
 
 Культурно-просветительский центр "Архэ", Андрей Макаров | Риторика - наука и искусство влиятельной речи (2025) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058400.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058144.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055716.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054974.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054176.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054088.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Mindvalley, Джон Бутчер, Мисси Бутчер | Книга жизн
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052177.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ The Great Courses, Стивен Новелла | Игры разума: Науч
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052103.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051478.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ TutorPlace, Анна Литвиненко (Дробот) | Ораторское 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051474.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050647.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050142.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Level One, Леонид Немцев | Вечные книги: от «Гамл�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050128.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049291.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049289.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Liveclasses, Анатолий Ясинский | Ценности и конфл�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049288.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ TutorPlace, Илья Тараканов | Как помочь близкому �
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048064.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Level One, Анна Кигай | Свобода глазами философо�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047980.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Lectera, Lectera | Профессии будущего. Работа на сов
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046790.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ TutorPlace, Эрика Байрамова | Как бросить курить 2
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046765.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044904.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042992.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042755.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042733.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042726.jpg" />
 </div>
 
 
@@ -660,35 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D78FCE38DD1FC8ABA112177AD628CB432DE645D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437184   (1042512) от 03.01.2021
-
-Елена Мирная | Перерождение. Исцеление судьбы (2017) PCRec
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы будем возвращать вам вашу судьбу, а так же - все, что было предназначенно вам судьбой! Счастье, здоровье, жизненную энергию и силы, удачу и благосостояние, материальные блага и нужным вам людей, события и жизненные обстоятельства.
-
-Содержание:
-(   Читать дальше...   )Жанр: ВидеокурсыПродолжительность: 06:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CBB43B0F87E44547F77865293EC87996FE7E1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

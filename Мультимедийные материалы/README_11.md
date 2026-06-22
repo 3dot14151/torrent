@@ -1,3 +1,29 @@
+###  Публикация: 209357   (271641) от 30.11.2018
+
+ИДДК | Иглотерапия и точки Акупунктуры [2007] [ISO]
+
+>>Мультимедийные материалы
+>>Мультимедийные справочники, Энциклопедии
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта электронная энциклопедия содержит разнообразную теоретическую и практическую информацию по акупунктуре и иглоукалыванию. Рассматриваются различные методы рефлексотерапии, даются советы по выбору специалиста, приведена подробная информация по меридианам и оборудованию для иглоукалывания. Отдельно рассматриваются основные представления Восточной Медицины.Жанр: МедицинаФормат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6847B1CB0BECD67416DAF1614D63823DCB6C32A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 426751   (271389) от 24.12.2011
 
 DVD приложение к журналу Хакер №01 (156) [2012][unpacked][RUS]
@@ -6,7 +32,7 @@ DVD приложение к журналу Хакер №01 (156) [2012][unpacke
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271389.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268440.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ DVD приложение к журналу "Хакер" №06 (161), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258393.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255984.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Stepik, Антон Телышев, Дмитрий Назарков | Продв�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255328.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Stepik | Продвинутая работа с ошибками в Go (Golang) 
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255327.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ HTML Academy | Онлайн-курс «Webpack» (2023) [unpacked] [AD]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254710.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Cambridge English Grammar in Use  & Etc (1CD & Books)
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254474.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Design-Genetics-Studio | Уроки Joomla! 1.5.x [2009] [NRG]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253807.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ Atmel Corp | ATMEL AVR/AVR32 Technical Library May 2012 [2012] [ISO]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248271.jpg" />
 </div>
 
 
@@ -289,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237077.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ HTML Academy | Протоколы и сети: основы (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236766.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ HTML Academy | Анимации, часть 1. CSS-анимации (2022) [unpa
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235715.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ HTML Academy | TypeScript, часть 1. Теория типов (2022) [unpacke
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235703.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ HTML Academy | Регулярные выражения для фронтенде
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235668.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234504.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234468.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Medialife | Трек с нуля до готового результата в F
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234428.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234423.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233597.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ HTML Academy | Паттерны проектирования (2022) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230156.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225435.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225061.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ video2brain | Creating Composites in Photoshop [2012][En][unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222986.jpg" />
 </div>
 
 
@@ -674,7 +700,7 @@ DVD приложение к журналу "Хакер" №12 (167), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222861.jpg" />
 </div>
 
 
@@ -686,35 +712,6 @@ DVD приложение к журналу "Хакер" №12 (167), 2012 [unpac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E27DC99DF363BD2DEE614B593A57D5B7296088F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513683   (221696) от 30.11.2021
-
-WebForMySelf, Бернацкий Андрей | Верстка-Мастер. Полное руководство (2021) [unpacked] [AD]
-
->>Мультимедийные материалы
->>Компьютеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только востребованные технологии. Новый видеокурс от Webformyself дает только востребованные современные технологии и стандарты верстки. Только то, за что работодатели и заказчики готовы платить.
-Овладейте современной адаптивной версткой с нуля
-Новейшие стандарты: HTML5, CSS3, Sass, Gulp, Flexbox, Grid…
-Реально много практики: три работы в портфолио по итогу(   Читать дальше...   )Жанр: Вёрстка сайтовФормат: unpacked
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12EB16CE27167329818841CECAB902F9427B74F
 ```
 
 https://mybot314.ru/tekegram_catalog/

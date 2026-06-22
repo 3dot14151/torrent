@@ -1,3 +1,135 @@
+###  Публикация: 995713   (883823) от 11.03.2016
+
+Голодные игры: Сойка-пересмешница. Часть II / The Hunger Games: Mockingjay - Part 2  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китнисс Эвердин и своенравный Пит Мелларк пытаются выиграть гражданскую войну между самодержавным Капитолием и истерзанными войной районами Панема...Производство: США, Германия, Lionsgate, Studio Babelsberg and Color ForceЖанр: фантастика, приключенияРежиссер: Френсис ЛоуренсАктеры: Дженнифер Лоуренс, Джош Хатчерсон, Лиам Хемсворт, Вуди Харрельсон, Дональд Сазерленд, Филип Сеймур Хоффман, Джулианна Мур, Уиллоу Шилдс, Сэм Клафлин, Элизабет Бэнкс, Махершала Али, Джена МэлоунПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Английский, испанскийПродолжительность: 02:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC781AE871EC93DA95311F460B59F18396C007D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103960   (883052) от 13.02.2017
+
+Бесценная / Priceless  (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс, потерявший опеку над своей дочерью, соглашается на то, чтобы доставить посылку, проехав через всю страну, не задавая лишних вопросов. Но когда он понимает, что поставляет, то сталкивается с выбором, который изменит его жизнь...Производство: СШАЖанр: драма, мелодрамаРежиссер: Бен СмеллбоунАктеры: Джим Пэррак, Дэвид Кокнер, Бьянка А. Сантос, Эмбер Мидфандер, Джоэл Смолбон, Лора Каннингэм, Джоди Линн Томас, Сара Минник, Трэвис Хаммер, Кристен Рейкс, Люче Рэйнс, Диана ГайтирираПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанский, французскийПродолжительность: 01:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AB5F064CAC669C630D2E8EBB1158B5FB9DBE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995776   (882116) от 12.03.2016
+
+Защитник / Concussion  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка потрясена чередой неожиданных и необъяснимых смертей знаменитых спортсменов. Разгадать загадку предстоит талантливому молодому нейрохирургу, но, как оказалось, не все готовы услышать жестокую правду...Производство: Великобритания, Австралия, США, Village Roadshow Pictures, Scott Free Productions, LStar Capital, The Cantillon Company, The Shuman CompanyЖанр: драма, биография, спортРежиссер: Питер ЛандесманАктеры: Уилл Смит, Алек Болдуин, Альберт Брукс, Гугу Эмбата-Ро, Дэвид Морс, Арлисс Ховард, Майк О’Мэлли, Эдди Марсан, Хилл Харпер, Адевале Акинойе-Агбаже, Стивен Мойер, Ричард Т. ДжонсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанскийПродолжительность: 02:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D042FAAE49E1F5A66E43E2D09C57F3F41878098B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495020   (882063) от 11.09.2021
+
+Вуайеристы / The Voyeurs (2021) WEB-DL [H.264/1080p] [EN / EN, RU, multi Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переехав в квартиру своей мечты, Пиппа и Томас замечают, что их окна выходят прямо на квартиру напротив, невольно приглашая их стать свидетелями изменчивых отношений привлекательной пары соседей. Но опрометчивая попытка анонимного вмешательства в чужую жизнь запускает цепь событий, неизбежно ведущих к катастрофе.Производство: США / Divide/Conquer, Amazon StudiosЖанр: триллерРежиссер: Майкл МоханАктеры: Сидни Свини, Наташа Лю Бордиццо, Бен Харди, Джастис Смит, Кэйтлин Александр, Кэтрин Кинг, Мадлен Харви, Дэниэл Гроган, Джиллиан Харрис, Jimmy CaspeurПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: Русские, английскиеПродолжительность: 01:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38429B0849B258DBE6ADB99196A0A9C5FEB5D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373048   (881701) от 05.04.2020
+
+Псы 3: Во имя принципов / Psy 3: W imie zasad (2020) WEB-DLRip [H.264/720p-LQ] [POL] [PR]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Po 25 latach odsiadki Franz Maurer wkracza w nową Polskę, gdzie nic nie jest takie, jak zapamiętał. Wkrótce ponownie spotyka Nowego.
+
+После нескольких лет тюремного заключения Франц Маурер выходит из тюрьмы и попадает в новую Польшу, в которой нет ничего такого, что он помнил. Кто и что ждет человека, который последние четверть века ничего (   Читать дальше...   )Производство: Польша / Wonder Studio, Polsat, Cyfrowy PolsatЖанр: боевик, драма, криминалРежиссер: Владислав ПасиковскийАктеры: Богуслав Линда, Марцин Дороциньский, Цезары Пазура, Ян Фрыч, Себастьян Фабияньский, Томаш Шухардт, Мирослав Бака, Доминика Вало, Артур Жмиевски, Войцех ЗилинскиПеревод: отсутствуетЯзык озвучки: ПольскийСубтитры: отсутствуютПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20861589CB00B9926F69385AEFA1155DA3022AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104729   (879950) от 15.02.2017
 
 Взаперти / Shut In  (2016) BDRip [H.264/1080p] [EN]
@@ -6,7 +138,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879950.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879888.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879857.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879775.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879652.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879392.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879381.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877192.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877118.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876278.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874950.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ XX / XX (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874679.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873642.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873378.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872623.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869838.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869395.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867989.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867700.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867684.jpg" />
 </div>
 
 
@@ -526,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867682.jpg" />
 </div>
 
 
@@ -537,139 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81488F9F43782A359AA7F1CC350CDC9181C1E2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105061   (867533) от 22.02.2017
-
-Лев / Lion (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик из трущоб, Сару, потерялся в возрасте 5 лет. Ему удалось выжить и найти новый дом в Австралии. 25 лет спустя он чудом вернулся в родной дом и встретился с матерью.Производство: США, Австралия, Великобритания / Weinstein Company, The, Screen Australia, See-Saw Films, Aquarius Films, Sunstar Entertainment, Narrative CapitalЖанр: ДрамаРежиссер: Гарт ДэвисАктеры: Дев Патель, Николь Кидман, Руни Мара, Дэвид Уэнэм, Санни Павар, Абхишек Бхарате, Приянка Бозе, Кхуши Соланки, Шанкар Нисоде, Танништа Чаттерджи ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68431187F408EF3F96453E44B01AD95D9D233867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644427   (867059) от 17.04.2013
-
-Ценный груз / Cargo (2013) WEB-DLRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время зомби – апокалипсиса перед отцом стоит цель – спасти ценный груз, свою маленькую дочь.
-Короткометражка заняла первое место на австралийском фестивале TropfestЖанр: Короткометражный, Ужасы, ДрамаРежиссер: Ben Howling & Yolanda RamkeАктеры: Andy Rodored, Alison Galagher, Ruth Venn
-
-За Рип  Спасибо  	vankorsПеревод: НемойПродолжительность: 00:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A696940FB3BB661E886C6B6F340E25B81475829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497444   (864674) от 22.09.2021
-
-Время / Old (2021) WEB-DL [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправившись в отпуск на тропический остров, семья с двумя детьми решает последовать совету менеджера отеля и посетить прекрасный уединенный пляж. Кроме них на пляже оказываются и другие постояльцы: семейство с маленькой дочкой, пара среднего возраста и популярный репер. Но вскоре расслабленный отдых сменяется паникой, когда компания обнаруживает труп и замечает, (   Читать дальше...   )Производство: США / Universal Pictures, Blinding Edge Pictures, Perfect World PicturesЖанр: триллер, драма, фантастикаРежиссер: М. Найт ШьямаланАктеры: Гаэль Гарсиа Берналь, Вики Крипс, Руфус Сьюэлл, Кен Люн, Никки Амука-Бёрд, Эбби Ли, Аарон Пьер, Алекс Вулф, Эмбет Дэвидц, Элайза СканленПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6E2087002704684984E45E1B87B50C6D81EFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108128   (864630) от 24.02.2017
-
-Не стучи дважды / Don't Knock Twice  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мама сдала Хлою в приют ещё совсем маленькой девочкой, потому что не могла заботиться о ней. Много лет спустя она хочет забрать дочь обратно, чтобы доказать, что теперь может защитить её. И защищать есть от чего - Хлоя с другом по глупости постучали в дверь старого дома, где по городской легенде жила ведьма, которая похитила их товарища несколько лет назад, и теперь (   Читать дальше...   )Производство: ВеликобританияЖанр: ужасыРежиссер: Карадог В. ДжеймсАктеры: Люси Бойнтон, Кэти Сакхофф, Хавьер Ботет, Ник Моран, Джордан Болджер, Пунех Хаджимохаммади, Ричард Милан, Меган Пурвис, Каллум Гриффитс, Селин Эванс, Гэбриел Тримбл, Бротон Дэвис ДэвидПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7CFF60EB8AFAFA708791CFB68F0E0960E08DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108295   (864414) от 24.02.2017
-
-Уличный кот по кличке Боб / A Street Cat Named Bob  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о том, как Джеймс Боуэн, восстанавливающийся от наркотической зависимости уличный музыкант, встретил рыжего уличного кота и его жизнь изменилась в лучшую сторону.Производство: ВеликобританияЖанр: драма, комедия, семейный, биографияРежиссер: Роджер СпоттисвудАктеры: Люк Тредэвэй, кот Боб, Рута Гедминтас, Джоанн Фроггатт, Энтони Хэд, Даррен Эванс, Тони Джайавардена, Адам Ричез, Льюэлла Гидеон, Лоррейн Эшборн, Акбар Курта, Джон ХеншоуПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2653F7AE8E6767111725D22E0905424C21D63543
 ```
 
 https://mybot314.ru/tekegram_catalog/

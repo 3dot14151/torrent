@@ -6,7 +6,7 @@ Middle 1.5.18 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032344.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Screen Tin‪t 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032342.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Default Folder X 5.7.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031676.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paste Queue (Multi Clipboard) 1.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031644.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mirror for Chromecast TV 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031177.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Numi 3.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031176.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mirror for Android TV 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030708.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Parallels Desktop Business Edition with Apple M1 Сhip  16.3.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030538.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Master of Typing - Tutor 1.9.15 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029798.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bandizip: Archiver 7.22 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029788.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Gifox Pro 2 v2.2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028907.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Adguard 2.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027812.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ cmd c 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027728.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Hazel 5.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026970.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ iClock Pro 5.8.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026967.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Geekbench 5 v5.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026777.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Cardhop 1.3.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026026.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ KCNcrew Pack 03-15-21 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026018.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Duplicate Music Cleaner 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026008.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ TotalFinder 1.13.10 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025951.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BetterZip 5 v5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025754.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Wondershare PDFelement Pro 7.6.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025751.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ BatChmod for Mac 17b5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025432.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Windows Grid 1.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025307.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Topaz Products Unlock Kit 2 for Mac [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024822.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Sharks 3D 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024387.jpg" />
 </div>
 
 

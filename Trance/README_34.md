@@ -1,3 +1,177 @@
+###  Публикация: 1254847   (370689) от 15.10.2018
+
+VA - Vocal Trance Top 50 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren pres. Perpetuous Dreamer - The Sound Of Goodbye (Above & Beyond US Radio Edit)
+02. Dart Rayne & Yura Moonlight feat. Katty Heath - Stole The Sun (Allen & Envy Radio Edit)
+03. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
+04. Ronski Speed & Sir Adrian - The Space We Are (John O'Callaghan (   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 03:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2377F402A878FF5D41F5D25EE70726884110034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176139   (370144) от 22.10.2017
+
+VA - Who's Afraid Of 138?! Top 15 - 2017-10 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ben Gold - Pilot  3:21
+02.  Dogzilla - Without You  3:58
+03.  Chris Schweizer - Rapture  2:19
+04.  Heatbeat - Total Ownage  3:26(   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A7B54C99A90F8FE9188CC5F328734C84D677B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255083   (368309) от 16.10.2018
+
+VA - Progressive Amsterdam (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Betsie Larkin - Unite (Ruslan Radriges Remix)
+02. Millennial Vs Bigtopo & Omar Diaz - Bassa Marea (Extended Mix)
+03. Michael Milov & Claire Willis - Anywhere With You (Extended Mix)
+04. Ruslan Radriges & U-Jeen - Sky Voyager (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF6A051A6CD20A11189053DC56F7E5E807E4E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255085   (368307) от 16.10.2018
+
+VA - Trance Rave Vol. 4 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MalYar & Victor - Aurora (Original Mix)
+02. MalYar & Victor - Aurora (Make One Remix)
+03. Titus1 & Novan - Where (Festival Mix)
+04. Titus1 & Novan - Where (Dub Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7BEEA7AAF80FEE1384121077CF9CD2E0F46877F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328120   (368171) от 28.09.2019
+
+VA - FSOE Festival Hits (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila - It's All About The Melody (Original Mix)
+02. Dan Stone - Vargo (Original Mix)
+03. Ferry Tayle - Thoughts (Original Mix)
+04. Liam Wilson - 20 Stories (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21707C5CF9093D56917F57E29BAF56F1DB4554D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328105   (368168) от 28.09.2019
+
+VA - Markus Schulz - Global DJ Broadcast:Top 20 September (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & BT - I Need Love (Extended Mix)
+02. Radion6 & Davey Asprey - Spin-Off (Extended Mix)
+03. Mike EFEX - Wolfenstein (Extended Mix)
+04. Cosmic Gate - Light Years (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112EE4789688C76E03C1EF506A05D4F88E9D16BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328037   (368158) от 28.09.2019
 
 VA - Black Hole Trance Music (09-19) - (2019) [MP3|320 Kbps] <Trance>
@@ -6,7 +180,7 @@ VA - Black Hole Trance Music (09-19) - (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368158.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Mental Asylum Contrast (Mixed By Indecent Noise) (2019) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366382.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Subculture (Mixed by Craig Connelly & Factor B) (2019) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366374.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366228.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Amsterdam 2018 (Mixed by Ultimate & Abstract Vision ) (2018) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366045.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365084.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Trance Pioneers  001 - 009 (2010 - 2015) [MP3|320 кб/с]<Trance , Uplifti
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364936.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Black Hole Trance Music 10-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362856.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 October (2018) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361637.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ Solarstone - 6 Albums , 17 Compilations (2001 - 2014) [MP3|256 - 320 кб/с]<Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360974.jpg" />
 </div>
 
 
@@ -293,7 +467,7 @@ VA - Black Hole Trance Music 10-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359039.jpg" />
 </div>
 
 
@@ -322,7 +496,7 @@ VA - Beautiful Vocal Trance - Chapter 3 (2019) [MP3|320 Kbps] <Trance, VocalTran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358925.jpg" />
 </div>
 
 
@@ -351,7 +525,7 @@ VA - Epic Emotional Uplifting Trance (2019) [MP3|320 Kbps] <Trance, VocalTrance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358913.jpg" />
 </div>
 
 
@@ -380,7 +554,7 @@ VA - Uplifting Trance 2017 (2016) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357354.jpg" />
 </div>
 
 
@@ -409,7 +583,7 @@ VA - Ronski Speed - Best Of Selections (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356734.jpg" />
 </div>
 
 
@@ -438,7 +612,7 @@ VA - Uplift Recordings - Chapter 1 (2019) [MP3|320 Kbps] <Trance, Vocal Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356647.jpg" />
 </div>
 
 
@@ -467,7 +641,7 @@ Robert Nickson - Tellurian (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356640.jpg" />
 </div>
 
 
@@ -496,7 +670,7 @@ VA - Black Hole presents Best Of Vocal Trance Vol.1 (2019) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356420.jpg" />
 </div>
 
 
@@ -525,7 +699,7 @@ VA - Vocal Trance Euphoria (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356413.jpg" />
 </div>
 
 
@@ -554,7 +728,7 @@ VA - DJ Sakin Pres. Club Trance Future Edition Vol.3 (2018) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354556.jpg" />
 </div>
 
 
@@ -568,180 +742,6 @@ VA - DJ Sakin Pres. Club Trance Future Edition Vol.3 (2018) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A164532EA9AFE1AC44E51983E18477F084A7FD18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329386   (354431) от 04.10.2019
-
-VA - Uplifting Trance Only (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tycoos - Observer (Original Mix)
-02. Jameson Tullar - Cast a Spell (Original Mix)
-03. Rohan Murphy - Thunderstorm (Original Mix)
-04. Mousai Sound - You Belong To Me (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9A3E6EAAA706F4074F41FA675877984CF6F790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329396   (354183) от 04.10.2019
-
-VA - Best of Trance Vol. 02 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromedha - To The Horizon And Back (Original Mix)
-02. Vintage & Morelli - Riptide (Original Mix)
-03. Sound Quelle - Mastaje (Extended Mix)
-04. Proff - For The Last Time (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB18AEDDE17E85E217A4AC9043F473EC36BAF796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072024   (354098) от 12.11.2016
-
-Robert Miles - Dreamland (2016) Remastered [MP3|320 Kbps] <Trance>
-
->>След.
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children (Dream Version) (Remastered) 7:10
-02. Fable (Message Version) (Remastered) 6:27
-03. Fantasya (Remastered) 5:38
-04. Landscape (Remastered) 6:06(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F965B23B17BAC825D5A20045C8CF548DBE150193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178809   (354091) от 29.10.2017
-
-VA - Ferry Corsten presents Corsten's Countdown October (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila vs Ferry Corsten - Camellia
-02. Markus Schulz presents Dakota - In Search Of Something Better (extended mix)
-03. Alpha 9 - Lily (extended mix)
-04. Solarstone & John 00 Fleming - Hemispheres (Expanded)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6C7A604D3A34F9D289D393A46265B4A5785480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178184   (353832) от 29.10.2017
-
-VA - Best of Uplifting Vocal Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Watts - Break Without The Pain (Original Mix) 06:07
-02. Victoriya - Nothing Remains (F.G. Noise Remix) 07:35
-03. Ana Criado - Border Line (Original Mix) 06:02
-04. Susana - Only Summer Knows (Original Mix) 07:25(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6186CE1BED666DD5879B0FD396A40781B6A7750E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329551   (352249) от 05.10.2019
-
-VA - Trance Escapades (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laucco vs Tecnomind - Waterfall (Original Mix)
-02. M3R-T - BIRTH (Aeden Remix)
-03. Ar-2 - SandStorm (Radio Edit)
-04. Etasonic - No Words Can Tell This (Steve Dekay OrchesTrance Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:620016135B9C1D80E759AC676E226C803A299CEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

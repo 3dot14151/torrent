@@ -1,3 +1,56 @@
+###  Публикация: 305612   (855922) от 07.03.2011
+
+Мелодия | Детские сказки с винила. Часть 2. (2010) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта аудиокнига посвящена нашим детям. Здесь представлены сказки, которые оцифрованы с виниловых пластинок. Многие сказки вы помните с детства - это то, что связывает нас с самым прекрасным и радостным периодом нашей жизни. Выбирайте свою сказку слушайте сами и дайте послушать вашим детям, я думаю, им понравится. Им предоставится уникальная возможность услышать шипение, (   Читать дальше...   )Жанр: Сказка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0231D51358FCB25CD169C41E72561614D0DCB29B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001179   (855821) от 27.03.2016
+
+Филипп Керр | Джинн и Королева-кобра (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые приключения Джона и Филиппы Гонт — нью-йоркских близнецов, в каждом из которых проснулся добрый джинн. В эпопее британского писателя Ф.Б.Керра «Дети лампы» чудеса случаются на каждом шагу: их творят представители добрых и злых джинн-кланов, постоянно борющихся друг с другом.
+В третьей части цикла, «Джинн и Королева-кобра», в беду попадают дядя близнецов Нимрод (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA28ED49174CDBD125A5CA350430CEE646AD26C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110186   (855618) от 01.03.2017
 
 Джеймс Крюс | Мой прадедушка, герои и я (1973) [MP3]
@@ -6,7 +59,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855618.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855460.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854299.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854297.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854295.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854132.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853890.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853558.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Richard Vallance - No More Crying (2012) [MP3|192 кб/с]<New age, Relax>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852959.jpg" />
 </div>
 
 
@@ -252,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852657.jpg" />
 </div>
 
 
@@ -281,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852035.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850423.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849588.jpg" />
 </div>
 
 
@@ -359,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849228.jpg" />
 </div>
 
 
@@ -388,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848370.jpg" />
 </div>
 
 
@@ -414,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846844.jpg" />
 </div>
 
 
@@ -443,7 +496,7 @@ VA - Любимые Песенки из Новых Мультфильмов (201
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846160.jpg" />
 </div>
 
 
@@ -472,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845295.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841431.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ VA - Классическая музыка для детей.Танцы. (2008) 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840658.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839781.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838363.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838239.jpg" />
 </div>
 
 
@@ -637,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838057.jpg" />
 </div>
 
 
@@ -648,60 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1EF9BFC3F0CFBFBED45E2E77133147C9A04830F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310244   (837558) от 18.03.2011
-
-Д.Н.Мамин-Сибиряк | Сказки [2006] [MP3, Николай Федорцов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837558.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Школьная библиотека" знакомит своих юных слушателей с творчеством замечательного русского писателя Дмитрия Наркисовича Мамина-Сибиряка.
-В этот сборник вошли сказки, которые писатель рассказывал своей маленькой дочке Аленушке. В них яркие краски солнечного дня, красота щедрой русской природы. Вместе с Аленушкой вы попадете в волшебную страну, где оживают (   Читать дальше...   )Жанр: Сказки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8146C047A30749954BA278AE5D62964E78E11903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501584   (835262) от 10.10.2021
-
-Фрида Нильсон | Хедвиг и прекрасная принцесса. Книга 4 (2021) [MP3, Роза Шмуклер]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835262.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хедвиг и прекрасная принцесса» – четвёртая (и последняя) история из серии о деревенской девочке Хедвиг, которая живёт в такой глухомани, что иногда ей не то что поиграть, но и поговорить не с кем. В этой книге – снова приключения, открытия, ссоры и примирения, радости и печали этой озорной и такой настоящей девчонки!
-Хедвиг уже в третьем классе. И в начале учебного (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Мария ЛюдковскаяПродолжительность: 02:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C744E974A73FE227CA4DB0DC51D67FF9084733FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

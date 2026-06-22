@@ -1,3 +1,82 @@
+###  Публикация: 236980   (486715) от 18.09.2010
+
+Необстрелянные / 71: В огне / Pohwasogeuro / 71: Into the Fire (2010) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях.
+Август 1950 года. Корейский полуостров охвачен огнём военных пожарищ. Южнокорейские войска вынуждены отступать под натиском Корейской народной армии. Линию фронта удалось стабилизировать лишь у реки Нактонган. Здесь идут кровопролитные бои. Роте, состоящей из 71 студента-новобранца, приказано держать оборону Пхоханской средней (   Читать дальше...   )Производство: Корея Южная / Taewon Entertainment, UBU Film, H Plus CommunicationЖанр: боевик, драма, военный, историяРежиссер: Джон Х. ЛиАктеры: Чха Сын-вон, Квон Сан-у, Чхве Сын-хён, Ким Сын-у, Ким Хе-сон, Ку Сон-хван, Щин Хён-тхак, Мун Джэ-вон, Ким Дон-бом, Тхак Тхы-инПеревод: Одноголосый закадровыйПродолжительность: 01:55:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566043   (486290) от 27.07.2022
+
+Атакуй заправки! / Juyuso seubgyuksageun / Attack the Gas Station! (1999) DVDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды вечером четыре гопника решают ограбить местную бензоколонку. Удачно завершив свою миссию, друзья приходят к выводу, что грабёж заправок является весьма прибыльным и интересным бизнесом. А так как других заправочных станций поблизости не наблюдается, парни решают нанести визит на уже обчищенную ими бензоколонку. Однако за время, прошедшее с их последнего посещения, (   Читать дальше...   )Производство: Южная Корея, CJ Entertainment, Fun and HappinessЖанр: Комедия, боевик, криминалРежиссер: Ким Сан-джинАктеры: Ли Сон-джэ, Ю О-сон, Кан Сон-джин, Ю Джи-тхэ, Пак Ён-гю, Чон Джун, Ли Ё-вон, Ли Джон-хёк, Ким Су-ро, Ли Вон-джонПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, КорейскийСубтитры: английские, корейскиеПродолжительность: 01:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5014290E75EE354D5DDEA215FEF292D34CE9D3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405211   (485011) от 29.08.2020
+
+Игра оборотня: Побег из тюрьмы / Jinrou gemu: Purizun bureiku / The Werewolf Game: Prison Break (2016) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японская серия фильмов на выживание "The Werewolf Game", аналог игры " Мафия". 4 фильм данной серии "Побег из тюрьмы". Акари Инуи и несколько других ребят были похищены и заперты. Чтобы пройти игру, им нужно убивать и постараться самим остаться в живых. Последний выживший получит в награду сто миллионов йен.Производство: Япония, AMG EntertainmentЖанр: Ужасы, триллерРежиссер: Синъя АябэАктеры: Ририа Баба, Сёго Хама, Канон Ханакагэ, Даити Канэко, Рина Кояма, Нацуми Окамото, Наоя Симидзу, Рё Синода, Ютаро Ватанабэ, Касуми ЯмаяПеревод: Двуголосый любительский (XDUB DORAMA)Субтитры: отсутствуютПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D3EF6E394B4DCDF5234012226C2BA33E8D6DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545635   (484657) от 10.09.2012
 
 Звонок / Ringu / The Ring (1998) BDRip
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484657.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484527.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484335.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482958.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481298.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481265.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481247.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481040.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480439.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479909.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478219.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477348.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474807.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473751.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472641.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469431.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468377.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468164.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466406.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463912.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463837.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461685.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460931.jpg" />
 </div>
 
 
@@ -590,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60CA2DB8E2187E0BCA0EB7B800C2003BE9BD725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718587   (459491) от 10.09.2020
-
-Орудие смерти / A-i-deul... (2011) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальной истории — нераскрытом убийстве, известном в Корее под названием «исчезновение лягушачьих детей». В 1991 году пять учеников начальной школы сказали своим родителям, что собираются наловить лягушек на близлежащей горе. Они никогда не вернулись домой.Производство: Корея ЮжнаяЖанр: Триллер, криминал, драмаРежиссер: Ли Гю МанАктеры: Пак Ён У, Рю Сын Рён, Сон Дон Иль, Сон Чжи Ру, Ким Ё Чжин, Пак Пён Ын, Ким Гу Тхэк, Ми-хён Пак, Ли Сан Хи, Ток-чжэ ЧжоПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99CFF5745C51EE5E8916D45DC2BD2CB8E8DAE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568600   (459323) от 09.08.2022
-
-Киллер-хранитель / Киллер: Девчонка должна умереть / Deo killeo: jukeodo doeneun ai / The Killer (2022) WEBRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный в прошлом наемный киллер Уи-ганг теперь примерный семьянин. Когда его жена уезжает в отпуск, то просит любимого мужа оказать небольшую услугу — присмотреть за 17-летней дочерью подруги. Юн-Джи очень наивная и беспечная девочка, которая не должна попасть в беду. Но когда Юн-Джи похищают, Уи-ганг понимает, что ему придется вспомнить свое прошлое и встать (   Читать дальше...   )Производство: Южная Корея, Ascendio, iHQЖанр: боевикРежиссер: Чхве Джэ-хунАктеры: Чан Хёк, Брюс Хан, Ли Со-ён, Ли Сын-джун, Пан Ын-джон, Чха Тхэ-хёнПеревод: Многоголосый любительский (АрхиAsia) | Присутствует ненормативная лексикаЯзык озвучки: Русский, корейскийСубтитры: АнглийскиеПродолжительность: 01:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1CC7A235EF8791C81CB9101B5A08AF486A8943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321459   (458648) от 24.08.2019
-
-Золотой сон / Goldeun seulreombeo (2018) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный курьер Ким Гон-у попадает в неприятности, связанные с могущественным человеком. Парня считают виновным в покушении на кандидата в президенты, и теперь за ним охотится полиция и спецназ.Производство: Южная Корея, Zip CinemaЖанр: Драма, триллер, боевикРежиссер: Но Дон-сокАктеры: Кан Дон-вон, Хан Хё-джу, Ким И-сон, Ким Сон-гюн, Ким Дэ-мён, Ю Джэ-мён, Юн Ге-сан, Пэк Пон-ги, Чон Со-мин, Ли Джун-хёкПеревод: Многоголосый закадровый, любительский (STEPonee)Субтитры: Английские (внешние)Продолжительность: 01:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B1F420348C6A6F19DD3EFFA1C3E97110E57F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

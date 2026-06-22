@@ -1,3 +1,58 @@
+###  Публикация: 1624084   (238158) от 04.04.2023
+
+FSNotes 6.2.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238158.jpg" />
+</div>
+
+
+###  Подробнее
+
+FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983E32C25C0532C95DE0078E52FCED0D4E5F7D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638322   (238155) от 07.06.2023
+
+SnapMotion Unlimited 5.1.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238155.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
+SnapMotion имеет два режима:
+● Ручной режим, где вы можете извлекать изображения точно в установленное время.
+● Режим пакетной обработки, где вы можете извлечь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2023Разработчик: © 2012-2020 Jérémy VizziniПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CA1B69D192F711BFB5FF7038554BADFED7303B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445644   (238150) от 06.02.2021
 
 AnyDroid 7 v7.4.0 [Multi]
@@ -6,7 +61,7 @@ AnyDroid 7 v7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238150.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ MetaImage  2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238147.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ File List Export 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238134.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ Geekbench 5 v5.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238128.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ RAR Extractor Max-Unzip Winrar 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238118.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ Integrity Plus 10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238113.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ GroupsPro 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238104.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ Disk Xray 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238099.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ FSNotes 6.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238083.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ DirEqual 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238076.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ Scrutiny 10 v10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238073.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ Dash 5.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238069.jpg" />
 </div>
 
 
@@ -329,7 +384,7 @@ BusyContacts 2023.1.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238065.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ PullTube 1.8.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238061.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ Usher 2.0 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238060.jpg" />
 </div>
 
 
@@ -409,7 +464,7 @@ Yate 6.3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238049.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ Boxy SVG 3  v3.61.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238046.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ Screenium 3 v3.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238035.jpg" />
 </div>
 
 
@@ -489,7 +544,7 @@ Omni Recover 3 v3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238014.jpg" />
 </div>
 
 
@@ -516,7 +571,7 @@ A Better Finder Rename 11 v11.37 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238009.jpg" />
 </div>
 
 
@@ -543,7 +598,7 @@ Dropzone 4 Pro 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237984.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ iShowU Instant (Advanced) 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237972.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ Xliff Editor 2.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237961.jpg" />
 </div>
 
 
@@ -624,7 +679,7 @@ AudioSwitcher 3.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237954.jpg" />
 </div>
 
 
@@ -635,59 +690,6 @@ AudioSwitcher - небольшая утилита, которая находит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45703881B3F26B80EC6B313D6E3009C366CAC521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638387   (237951) от 08.06.2023
-
-Timer RH PRO  2.11.0 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timer RH PRO - утилита для управления собственным временем.Тип издания: macOS SoftwareРелиз состоялся: 07.06.2023Разработчик: © 2014-2021 3bitlabПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C130C801B43F132EC0DB3644B5E5227826832AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446275   (237949) от 08.02.2021
-
-MiniNote Pro 5.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237949.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы, которые можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
-В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF1E72B5A3073C4BFBAF4C21F5FDD84D4D3CF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

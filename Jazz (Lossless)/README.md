@@ -7,7 +7,7 @@ Frank Sinatra - Everything Happens To Me (1996) Compilation [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072725.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Kammerflimmer Kollektief - There are actions which we have neglected and which n
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072609.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Joel Fausto & Illusion Orchestra - Hello (2016) [FLAC|Lossless|Web-DL|tracks] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071987.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Mahavishnu Orchestra With London Symphony Orchestra, Michael Tilson Thomas - Apo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071906.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Mahavishnu Orchestra - Visions Of The Emerald Beyond (1975) Reissue, Remastered,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071904.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Weather Report - Black Market (1976) Unofficial Release, 1998, ДОРА [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071903.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Weather Report - Heavy Weather (1977) Unofficial Release, 1998, ДОРА [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071902.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Weather Report - Mr. Gone (1978) Reissue, Remastered, Repress, 1991, Columbia [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071901.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Weather Report - Night Passage (1980) Reissue, Remastered, 1991, Columbia [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071900.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - London Jazz Classics (1993) Reissue, 2026, Soul Jazz Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071707.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Chris Botti - In Boston (2009) Live [FLAC|Lossless|image + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071450.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Nu Funk, Vol. 12 (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071432.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Jazz Ladies (2006) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071251.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Oleta Adams - Circle of One (1990) [FLAC|Lossless|image + .cue] <Smooth Jazz, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070969.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070012.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Duke Ellington - Satin Doll (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069662.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Liza Minnelli - Liza Minnelli At Carnegie Hall (1987) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067389.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Sam Levine - Saxy Time: Music To Make Love To (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067266.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ United Future Organization - No Sound Is Too Taboo (1994) [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065848.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Spyro Gyra - Heart of the Night (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065223.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - The Detective's Tears (Noir Jazz Compilation) (2026) Signora Ward Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062573.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Vandell Andrew - 2.14 (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062494.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Norman Brown - Authentically Norman (2026) [FLAC|Lossless|WEB-DL|tracks] <Smoth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061867.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Chris Standring - Time of Change (2026) [FLAC|Lossless|WEB-DL|tracks] <Smoth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061866.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Jazz Bar Nights - Classic & Modern Lounge Jazz (2026) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060341.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Rick Braun - Rick Braun Plays Chuck Mangione (2026) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059770.jpg" />
 </div>
 
 

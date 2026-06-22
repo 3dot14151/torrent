@@ -6,7 +6,7 @@ Charlie Barnet - Classic Jazz Archive 1939 - 1945 (2004) 2CD, Membran Music [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932341.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fourplay - Energy (2008) [FLAC|Lossless]<Smooth-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932187.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Ella Fitzgerald & Count Basie - On The Sunny Side Of The Street (1984) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932071.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Jason Parker Quartet - Homegrown (2014) [FLAC|Lossless|WEB-DL|tracks] <Hard Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931083.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Victor Feldman - Rio Nights (1977/1987) TBA Records[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931078.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Rene Thomas - Hommage A… Rene Thomas (1974) Remaster, 2015, Solid Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931057.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Gene Krupa - Quadromania: Drummin' Man (1938-1949) 4CD, 2005, Membran Music Ltd.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931056.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Anne Quillier 6tet - Daybreak (2016) [FLAC|Lossless|tracks + .cue] <Contemporary
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931049.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ John Coltrane - A Love Supreme (1964) 2008, Verve[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931041.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Baptiste Herbin - Interferences (2016) [FLAC|Lossless|WEB-DL|tracks] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931038.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Laura Ellis - Broken, Lovely (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931006.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Earl Klugh - Crazy For You (1995) Blue Note[FLAC|Lossless|tracks + .cue] <Jazz S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930990.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Jorge Pardo & Chano Dominguez - 10 de Paco (1995) Nuevos Medios[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930987.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Enrico Pieranunzi, Andre Ceccarelli, Diego Imbert - Menage A Trois (2016) Bonsai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930943.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Miles Davis - Sketches Of Spain / And The Modern Jazz Giants (1954, 1956, 1959) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_930930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_930930.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hiromi Uehara - Spark (2016) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Progressive 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930843.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Karen Souza - Essentials II (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930737.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jack McDuff with Jimmy Forrest - Tough 'Duff (1960) 1995, Prestige[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929456.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Tiziana Ghiglioni - Sings Gaslini (1995) Soul Note[FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929455.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Modern Jazz Quartet - Modern Jazz Archive (1951, 1952) 2CD, 2004, Membran Music[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929394.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Alfredo Rodriguez - Tocororo (2016) Mack Avenue[FLAC|Lossless|tracks + .cue] <La
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929390.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ John Pizzarelli - Dear Mr. Cole (1995) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929389.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Lambert, Hendricks & Ross - Four Classic Albums 1957 - 1959 (2018) 2CD, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929148.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Archie Shepp - Ballads for Trane (1984) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929133.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Caro Emerald - Deleted Scenes From The Cutting Room Floor: Acoustic Sessions (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929065.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Perico Sambeat - Javier Vercher Quartet: Infinita (2007) 2009, Fresh Sound Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927992.jpg" />
 </div>
 
 

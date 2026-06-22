@@ -6,7 +6,7 @@ Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deu
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315773.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und O
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315678.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Schubert - Piano Sonatas - Christian Zacharias (Vol.2) (2CDs) (1998) [FLAC|image
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309924.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Schubert - Piano Sonatas - Christian Zacharias (Vol.1) (3CDs) (1998) [FLAC|image
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309825.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Arturo Benedetti Michelangeli - Bach, Brahms, Mozart Klavierstücke (1950-1952) 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306325.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Chopin - Preludes (Maurizio Pollini) (1990) [FLAC|Lossless]<Classical, Romantic 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_296882.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252326.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249458.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Rudolf Buchbinder, Strauss, Schubert, Schumann, Beethoven, Chopin - Soirèe De V
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244009.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - The Best 50 of Beautiful Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242777.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Relaxing Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241831.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - The Best 50 of Romantic Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241503.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - The Best of Classical Music - The Greatest Piano Sonatas (2023) [FLAC|Lossl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239973.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Gymnopedie Chilled Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235947.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Classical Piano - Peaceful music to fall asleep (2019) [FLAC|Lossless|WEB-D
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221100.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ezio Bosso - The 12th Room (2017) [FLAC|Lossless|tracks + .cue] <Classical, Neoc
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221060.jpg" />
 </div>
 
 
@@ -459,35 +459,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653677   (214199) от 17.08.2023
-
-Anne Louise Brillon de Jouy, Nicolas Horvath  Complete Piano Sonatas - Complete Piano Sonatas (2021) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214199.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-[1]-[2] Sonnatte in A minor
-[3]-[4] Sonata No.1 in C minor
-[5]-[6] Sonata No.2 in B flat major(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414916EF4A1158204257D2153CBC2BB5919989B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652602   (206152) от 16.08.2023
 
 VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -496,7 +467,7 @@ VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206152.jpg" />
 </div>
 
 
@@ -517,35 +488,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655108   (193917) от 24.08.2023
-
-Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Hands (2022) 2 x CD [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193917.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Sonata for keyboard 4-hands Op.4 in F
-1. I. Allegro molto
-2. II. Adagio(   Читать дальше...   )Жанр: Classical, FortepianoПродолжительность: 01:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5463252875C3D8EA62F7C0721E7052CC7A9DA15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589912   (188801) от 14.11.2022
 
 Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -554,7 +496,7 @@ Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|t
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188801.jpg" />
 </div>
 
 
@@ -583,7 +525,7 @@ Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022)
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177921.jpg" />
 </div>
 
 
@@ -612,7 +554,7 @@ VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176580.jpg" />
 </div>
 
 
@@ -633,35 +575,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671851   (171008) от 26.10.2023
-
-Sofiane Pamart - Noche (2023) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noche
-02. Corazon
-03. Vera
-04. Miedo(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DD651DE0FEAF4F20CC2D1478EFE380DF0DEF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599665   (159618) от 24.12.2022
 
 Peter Jablonski - Chopin: Complete Mazurkas, Vol.1 (2022) [FLAC|Lossless|image + .cue] <Classical, Piano>
@@ -670,7 +583,7 @@ Peter Jablonski - Chopin: Complete Mazurkas, Vol.1 (2022) [FLAC|Lossless|image +
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159618.jpg" />
 </div>
 
 
@@ -699,7 +612,7 @@ Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154136.jpg" />
 </div>
 
 
@@ -728,7 +641,7 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152890.jpg" />
 </div>
 
 
@@ -742,6 +655,99 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:101EC89FAA883BF50146C76595D8F53052882AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271184   (146896) от 25.12.2018
+
+Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adeste Fideles
+02. Ave Maria
+03. Away In A Manger
+04. The First Noel(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC91F61D47127A3060545C0625D1D210DF820BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969903   (143117) от 29.12.2015
+
+J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossless|image+.cue] <Classical, Chamber Music, Recitals, Baroque Period, Toccata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toccata for keyboard in F sharp minor, BWV 910 (BC L146) (11:25)
+02. Toccata for keyboard in C minor, BWV 911 (BC L142) (13:13)
+03. Toccata for keyboard in D major, BWV 912 (BC L143) (11:50)
+04. Toccata for keyboard in D minor, BWV 913 (BC L144) (14:26)(   Читать дальше...   )Жанр: Classical, Chamber Music, Recitals, Baroque Period, ToccataПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586472   (135570) от 22.12.2012
+
+Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variations, Etude>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: classical, pianoПродолжительность: 01:03:17
+
+Composer: Franz Schubert (1797-1828)
+Composer: Franz Liszt (1811-1886)
+Performer: Sviatoslav Richter - piano
+
+Tracklist:
+Piano Sonata No. 21 in B flat major, D. 960:
+01. Molto moderato    (25:50)
+02. Andante sostenuto    (09:57)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

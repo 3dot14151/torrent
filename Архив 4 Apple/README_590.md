@@ -1,3 +1,57 @@
+###  Публикация: 1429949   (175232) от 08.12.2020
+
+Bootstrap Studio 5.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
+Он поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
+Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD422772C151B3B7910334E3B1BF9AA16381624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429984   (175228) от 08.12.2020
+
+Fission 2.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соединить или разделить файлы или просто разделить большой файл на несколько частей для последующего редактирования - все это сделает с легкостью Fission, к тому же, без потери качества, в противоположность другим редакторам. Так, что вы можете получить идеальное качество звука даже при редактировании MP3 и AAC файлов. Вырезать одну часть из файл, а на ее место вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Rogue AmoebaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACE8DB860D692806D0DF2720C11988D468707A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430022   (175225) от 08.12.2020
 
 Morph Age 5.1 [Multi]
@@ -6,7 +60,7 @@ Morph Age 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175225.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ App Cleaner & Uninstaller Pro 8.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175220.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Whisk 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175212.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Vidmore Player 1.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175209.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ CrossOver 23.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175205.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Exposure Software Snap Art 4 v4.1.3.351 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175200.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Vidmore Video Converter 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175194.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ AYVY 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175162.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ Dark Reader for Safari 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175152.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ Adobe InCopy 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175131.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ Zoc Terminal 8.01.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175096.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ Adobe XD 35.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175061.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Exposure X6 Bundle v6.0.2.124 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175053.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ Disk Drill Enterprise 4.1.206 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174993.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ Final Cut Pro X 10.6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174983.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ CleanMyMac X 4.14.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174976.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ Adobe Bridge 2021 11.0 incl. ARC13.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174953.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Capture One 21 Pro 14.0.0.275 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174901.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ Keep It 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174841.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ OmniGraffle Pro 7 v7.18.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174838.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ Dato 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174832.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ File List Export 2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174828.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ SpamSieve 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174826.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ OmniFocus Pro 3.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174823.jpg" />
 </div>
 
 
@@ -630,59 +684,6 @@ OmniFocus Pro 3.15 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34A8270ED7DFB717F20F7EAD094A685B583A92B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668230   (174814) от 11.10.2023
-
-Fork 2.34 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и удобный клиент git. Fork с каждым днем ​​становится все лучше и лучше, и мы рады поделиться с вами нашими результатами. Список коммитов - Изменения рабочего каталога - Бок о бок Diff - Сводка и статистика менеджера репозиторияТип издания: macOS SoftwareРелиз состоялся: 22.09.2023Разработчик: © 2023 Danil PristupovПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83961DC28750F20EF649450B787C2F1ED4BC9DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668211   (174806) от 11.10.2023
-
-Mimestream 1.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mimestream сочетает в себе мощь macOS с расширенными функциями Gmail для нового типа почтового клиента, который позволяет вам легко перемещаться по электронной почте.
-Как собственное приложение, написанное на Swift, Mimestream использует всю силу macOS, чтобы обеспечить быстрый и мгновенно знакомый опыт. Вместо использования протокола IMAP Mimestream использует API (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2023 Mimestream, LLC.Поддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA73C109E9ADA523FB4A494AAAA10F8CDA9C866
 ```
 
 https://mybot314.ru/tekegram_catalog/

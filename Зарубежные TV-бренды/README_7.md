@@ -1,3 +1,29 @@
+###  Публикация: 974343   (976509) от 11.01.2016
+
+Звездное выживание с Беаром Гриллсом - Барак Обама / Running Wild with Bear Grylls (2015) HDTVRip [H.264/1080i] [DVO]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом сезоне популярного проекта "Звездное выживание с Беаром Гриллсом" вместе со знаменитым экспертом-экстремалом навстречу приключениям отправится президент США Барак Обама! Влиятельный политик пройдет 48-часовой курс выживания в горах Аляски, где ему предстоит преодолевать горные реки, штурмовать крутые склоны и питаться тем, что удастся поймать или (   Читать дальше...   )Телекомпания: DiscoveryЖанр: ДокументальныйПеревод: Профессиональный двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF304FCE65E937D7E95068B934FA14C39A80A44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 848850   (976507) от 11.01.2016
 
 NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007) BDRip [H.264/720p]
@@ -6,7 +32,7 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976507.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ PBS: Сканеры древнего мира / Time scanners (2013) HDTVRip [H.
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976502.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ History Channel: Вселенная. Звуки из космоса / The Univer
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976075.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ History Channel: Вселенная. Микровселенна / The Universe. 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976014.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975629.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975180.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974344.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974283.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974271.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973021.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ NG. Осушить океан: корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972947.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972888.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ History Channel: Древние пришельцы (3 сезон: 16 серий 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972671.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ History Channel: Вселенная. Как космос изменял ход �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971957.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ History Channel: Вселенная. Немезида: злобный двойн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971836.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971762.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971749.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971696.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ NG: Апокалипсис: Вторая мировая война: Развяз
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970602.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ NG: Запреты. Опознавательные знаки / Taboo. Marks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970584.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970288.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970115.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969968.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ National Geographic: Расследования авиакатастроф. См
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969600.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969464.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3292DF6C69CC9B345444855E41A68F83A3B0BA13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440588   (969430) от 17.01.2016
-
-NG: Расследования авиакатастроф: Посадка на Гудзон / National Geographic: Air Crash Investigation: Landing on the Hudson (2011 (эфир от 21.01.2012)) IPTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая история самолета, который вскоре после взлета из-за столкновения со стаей птиц совершил аварийную посадку на воду в центре города.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29CE1E9608D1AC38F078D1360FAC87D903EF79E
 ```
 
 https://mybot314.ru/tekegram_catalog/

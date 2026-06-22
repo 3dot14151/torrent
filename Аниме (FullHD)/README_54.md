@@ -6,7 +6,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106404.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kekkon Yubiwa Monogatari | Сказание об обручальных коль
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103558.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Busou Shinki: Moon Angel / Шинки - боевой Лунный Ангел [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88664.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Goshuushou-sama Ninomiya-kun / My Heartfelt Sympathy, Ninomiya-kun / Прими�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86396.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ RideBack | Райдбэк [2009, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83117.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81693.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Code Geass Hangyaku no Lelouch R2 Special Edition: Zero Requiem / Code Geass: Le
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76584.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Zero no Tsukaima: Futatsuki no Kishi / The Familiar of Zero: The Rider of the Tw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_73298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73298.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Gekijouban Mononoke: Karakasa | Mononoke the Movie: The Phantom in the Rain | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70933.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Hige o Soru. Soshite Joshikousei o Hirou. | Higehiro: After Being Rejected, I Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70596.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Thunderbolt Fantasy: Seiyuu Genka | Thunderbolt Fantasy: Bewitching Melody of th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68454.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki | Thunderbolt Fantasy: Sword Seekers | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68449.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 2 | Thunderbolt Fantasy: Sword Seekers 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68423.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Juusenki L-Gaim II: Farewell My Lovely + Pentagona Dolls | Heavy Metal L-Gaim II
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68314.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Nomo no kuni | The Land of NOMO | Земля НОМО [2025, Web] WEB-DL 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68188.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66368.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Mononoke | Мононокэ [2007, TV, 12 эп.] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66361.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66343.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus' Bride Season 2 | Невест
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66341.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66338.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66327.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66324.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66319.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66318.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66317.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66316.jpg" />
 </div>
 
 

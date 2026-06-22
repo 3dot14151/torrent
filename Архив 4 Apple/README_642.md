@@ -1,3 +1,58 @@
+###  Публикация: 1518787   (153252) от 21.12.2021
+
+URL Manager Pro 5.8.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153252.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935E7FBA690AE9AFE9B0CF2B515B4B9F19F7D563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518816   (153244) от 21.12.2021
+
+Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F79A136C97CB2F98C70F7CB69EB6B901B29858F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518830   (153222) от 21.12.2021
 
 MarsEdit 4 v4.5.7 [En]
@@ -6,7 +61,7 @@ MarsEdit 4 v4.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153222.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Website Watchman 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153214.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ PaintCode 3 v3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153204.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Wifiner - WiFi Analyzer 1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153191.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ WiFiSpoof 3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153185.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ GoodNotes 5 v5.7.56 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153131.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ ImageRanger Pro Edition 1.8.7.1827 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153115.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ Usher 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153062.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ IconFly - Create icons from images 3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153028.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ PhotosRevive 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153023.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ Wondershare Filmora 7.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152996.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ Final Draft 12 v12.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152957.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ TG Pro (Temperature Gauge Pro) 2.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152944.jpg" />
 </div>
 
 
@@ -358,7 +413,7 @@ Deliver 2.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152929.jpg" />
 </div>
 
 
@@ -384,7 +439,7 @@ Xojo IDE RAD 2016r4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152880.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ CleanMyMac X 4.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152878.jpg" />
 </div>
 
 
@@ -440,7 +495,7 @@ FxFactory Pro 7.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152872.jpg" />
 </div>
 
 
@@ -467,7 +522,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152841.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ Wondershare PDFelement Pro 8.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152825.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ Geekbench 5 v5.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152788.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ Find Any File (FAF) 2.4b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152764.jpg" />
 </div>
 
 
@@ -574,7 +629,7 @@ Invisor - Media File Inspector 3.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152753.jpg" />
 </div>
 
 
@@ -602,7 +657,7 @@ Chain Timer 9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152734.jpg" />
 </div>
 
 
@@ -628,7 +683,7 @@ FoneDog Toolkit for Android 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152724.jpg" />
 </div>
 
 
@@ -639,58 +694,6 @@ FoneDog Android Data Recovery специализируется на восста
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A7A63C438D6EFB22A1BF73CD60DD0506B8A5648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601136   (152703) от 30.12.2022
-
-System Toolkit 5.9.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152703.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80592CEDA10FAE567C2A5DF1C7ED92E70D09B2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601074   (152676) от 30.12.2022
-
-NetWorker Pro 8.5.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152676.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E08F5CB3AE9AB7C4A7DBE722F1C77B52A9C33A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

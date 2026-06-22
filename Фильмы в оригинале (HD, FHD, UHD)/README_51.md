@@ -1,3 +1,133 @@
+###  Публикация: 1838961   (261573) от 26.11.2025
+
+Голубая луна / Blue Moon (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261573.jpg" />
+</div>
+
+
+###  Подробнее
+
+47-летний поэт-песенник Лоренц Харт вечером 31 марта 1943 года сидит в баре «Сарди» в день премьеры успешного мюзикла «Оклахома!», который написал его бывший партнёр Ричард Роджерс. Жизнь и карьера Лоренца пошли на спад, он начал злоупотреблять алкоголем, и этот мюзикл стал первым, который Ричард написал в дуэте с другим поэтом. Однако Харт пришёл в бар не только (   Читать дальше...   )Производство: США, Ирландия / Sony Pictures Classics, Cinetic Media, Concord OriginalsЖанр: драма, мелодрама, комедия, биография, история, музыкаРежиссер: Ричард ЛинклейтерАктеры: Итан Хоук, Маргарет Куолли, Бобби Каннавале, Эндрю Скотт, Giles Surridge, Патрик Кеннеди, Джона Лис, Саймон Делани, Дэвид Роул, Cillian SullivanПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A62FBE1D0EB4D56595C1B84B676D25661AFACEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838894   (261476) от 25.11.2025
+
+Бугония / Bugonia (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два молодых человека, одержимые теориями заговора, похищают высокопрофильную генеральную директоршу крупной компании, уверенные, что она — инопланетянка, намеренная уничтожить планету Земля.Производство: Ирландия, Великобритания, Канада, Корея Южная, США / Focus Features, Element PicturesЖанр: комедия, фантастикаРежиссер: Йоргос ЛантимосАктеры: Эмма Стоун, Джесси Племонс, Алисия Сильверстоун, Эйдан Делбис, Дж. Кармен Галиндес Баррера, Марк Т. Льюис, Ванесса Энг, Седрик Дюморне, Ставрос Халкиас, Мамма ЧерриПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A87D0F90B71FA43F48D5C6CC132E60984F9DBA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838244   (259877) от 21.11.2025
+
+Сны поездов / Train Dreams (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало XX века. Лесоруб и железнодорожник Роберт Грейниер проводит многие месяцы вдали от дома на работе: он валит лес, укладывает шпалы и помогает строить мосты. Он становится свидетелем не только того, как жизнь и страна вокруг него меняются, но и того, какой ценой даются эти изменения простым рабочим и трудовым мигрантам.Производство: США / Black Bear, Kamala FilmsЖанр: драмаРежиссер: Клинт БентлиАктеры: Джоэл Эдгертон, Клифтон Коллинз мл., Фелисити Джонс, Альфред Синг, Дэвид Пол Олсен, Джон Патрик Лори, Chuck Tucker, Rob Price, Пол Шнайдер, Brandon LindsayПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE53453F2F3D2EB1C0C9463733CDC32A4F81CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838160   (258049) от 21.11.2025
+
+Семейный план 2 / The Family Plan 2 (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь, когда дни наемного убийцы Дэна остались позади, все, чего он хочет на Рождество, — это провести время со своими детьми. Но когда он узнает, что у его дочери свои планы, он заказывает семейную поездку в Лондон — ставит их всех под прицел неожиданного врага.Производство: США, Великобритания / Apple Original Films, Skydance ProductionsЖанр: боевик, комедия, семейныйРежиссер: Саймон Селлан ДжонсАктеры: Марк Уолберг, Мишель Монахэн, Кит Харингтон, Зои Маргарет Коллетти, Ван Кросби, Peter Lindsay, Theodore Lindsay, Реда Эльазуар, Сидсе Бабетт Кнудсен, Санджив БхаскарПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (forced, full, SDH)Продолжительность: 01:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE518AC8DD991097D41882F7C84BF6829DE4E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838040   (257791) от 20.11.2025
+
+Проблемы с шампанским / Champagne Problems (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исполнительный директор отправляется во Францию, чтобы до Рождества обеспечить приобретение известного бренда шампанского, но ее планы рушатся, когда она влюбляется в очаровательного парижанина, который, как выясняется, является сыном основателя компании.Производство: США / FullDawa Films, Grumpy EntertainmentЖанр: мелодрама, комедияРежиссер: Марк Стивен ДжонсонАктеры: Том Возничка, Минка Келли, Флула Борг, Завьер Сэмюэл, Мэйв Куртье-Лилли, Тибо де Монталембер, Астрид Ветналл, Митчелл Маллен, Шон Эмсинг, Floran RoyerПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A308C556803ADE4C21788571838EA69BE5AF9AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836728   (254112) от 12.11.2025
 
 Рождество с бывшим / A Merry Little Ex-Mas (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254112.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252497.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252081.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250621.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250477.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249503.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245717.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243573.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243450.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243433.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243146.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240609.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240220.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240140.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240083.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240066.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239541.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237144.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236296.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234844.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234461.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE073946B9CF7DEEF86788D7098065C241526F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645084   (233052) от 07.07.2023
-
-Залог / Pawn / Dambo (2020) WEB-DL [H.264/1080p] [KOR / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инчхон, 1993 год. Грозный снаружи, но добрый внутри коллектор Ту-сок пытается взыскать долг с нелегальной иммигрантки и забирает в качестве залога её семилетнюю дочь Сын-и. Но женщина попадает в поле зрения миграционной службы и перед депортацией даёт Ту-соку телефон дяди, который выплатит её долг и заберёт девочку. Но пока Сын-и вынужденно живёт в квартире Ту-сока (   Читать дальше...   )Производство: Южная Корея, CJ EntertainmentЖанр: драма, комедия, семейныйРежиссер: Кан Дэ-гю / Dae-gyu KangАктеры: Сон Дон-иль, Пак Со-и, Ким Хи-вон, Ха Джи-вон, Ким Юн-джин, Ким Джэ-хва, Тео Ю, Чон, Ин-ги, Хон Сын-хи, Ким Мин-джуПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: русские, английскиеПродолжительность: 01:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8712C4283AB2541B36BB20B2E0A362FE42261430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643233   (232912) от 30.06.2023
-
-Мисс Пэк / Miss Baek / Mi-sseu-baek (2018) BDRip [H.264/1080p] [KOR / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшая заключенная Пэк Сан-а, женщина с непростым прошлым, после смерти матери въезжает в её квартиру. Постоянно видя на улице босую 11-летнюю девочку, над которой издеваются родители, мисс Пэк решает ей помочь.Производство: Южная Корея / LiTTLE BiG PiCTURES, Sega Sammy EntertainmentЖанр: драмаРежиссер: Ли Джи-вон / Lee Ji-wonАктеры: Хан Джи-мин, Ким Щи-а, Ли Хи-джун, Квон Со-хён, Ли Джу-ён, Пэк Су-джан, Чан Ён-нам, Ким Сон-ён, Ли Джон-ын, Чон Сок-хоПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: русские (18+), английскиеПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD2BAE06E24CF762F6A0B227F5E9981AA89D6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579581   (232657) от 27.09.2022
-
-Пустота / Nix (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья отправляется в страшное путешествие в собственное безумие, когда сталкивается с таинственной сущностью.Производство: США / All Roads ProductionsЖанр: ужасы, триллерРежиссер: Энтони ФеррантеАктеры: Джеймс Зимбарди, Ди Уоллес-Стоун, Майкл Паре, Энджи Дик, Скайлер Калеб, Niesha Renee Guilbot, Анджела Коул, Майкл Деворзон, Эмили Киллиан, Трэйси ПфауПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DC45625DB740B38544BB8C93592CE3FCAC9225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554170   (232239) от 29.05.2022
-
-Чрезвычайная ситуация / Emergency (2022) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовые к легендарной вечеринке, трое студентов колледжа должны взвесить все за и против вызова полиции, когда сталкиваются с неожиданной ситуацией.Производство: США / Amazon Studios, Temple Hill EntertainmentЖанр: Триллер, драма, комедияРежиссер: Кэри УильямсАктеры: АрДжей Сайлер, Дональд Уоткинс, Себастьян Чакон, Сабрина Карпентер, Мэдди Николс, Мэдисон Томпсон, Диего Абрахам, Саммер Мэдисон, Джиллиан Рабин, Патрик Ламонт мл.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, немецкие и др.Продолжительность: 01:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93C8DCCA68FAD79824991E78F1EF124463EFEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580199   (232221) от 30.09.2022
-
-Экзорцизм моей лучшей подруги / My Best Friend's Exorcism (2022) WEB-DL [H.264/1080p] [EN / RU, EN, Multi Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие подруги Эбби и Гретхен борются с потусторонним демоном, который вселяется в тело Гретхен.Производство: США / Endeavor Content, Gotham GroupЖанр: комедия, ужасыРежиссер: Дэймон ТомасАктеры: Элси Фишер, Амайя Миллер, Рэйчел Кану, Кэти Ан, Клэйтон Ройал Джонсон, Крис Лоуэлл, Нэйтан Андерсон, Синтия Эванс, Рэйчел Леа Коэн, Джон СтоунбернерПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (Full, SDH) и др.Продолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D712E84D1A1E4FBC72960C1A6402F96E65D6CD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1191678   (264172) от 14.12.2017
+
+Джанфранко Равази | Краткая история души (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество всегда искало ответ на вопрос: что такое душа; одни считали ее накрепко привязанной к телу, другие — чистым духом. Следы души приводили к сердцу человека, к совести и даже к разуму. Светские исследователи отождествляли ее с психе или с системой нейронов, верующие чувствовали, что она — бездна света, в которой открывается Бог. На страницах этой книги (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929142D5AFD8B25282D2DB7E9C26F352D8D9B171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191668   (264142) от 14.12.2017
+
+Акоп Мегапарт | Книга пятницы [Урбатагирк / Ուրբաթագիրք] (1512) [PDF] [ARM]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая печатная книга на армянском языке называлась Урбатагирк ("Книга пятницы") и была издана в 1512 году в Венеции Акопом Мегапартом ("Грешником"). Об Акопе Мегапарте практически ничего не известно, так же как и о том, почему он именовал себя Грешником (или Грешным). В тот период Армения находилась под владычеством Османской империи, и существенную (   Читать дальше...   )Жанр: МолитвенникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BBA5E1F2B4CBE6D3DB17ABD5167F06619B0F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191940   (263890) от 15.12.2017
+
+Протоиерей Григорий Дьяченко | Вопросы на исповеди детей (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книга известного церковного пастыря и проповедника начала XX в. - протоиерея Григория Дьяченко - уникальна. До настоящего времени нет ни одной работы, которая могла бы ей соответствовать по знанию детской души с точки зрения христианской педагогики, по назидательности и одновременно лёгкости и красоте изложения.
+
+Книга призвана помочь родителям подготовить (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFEE4C355FFA43BA79FCAB26634EE9FDD94CA6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191971   (263882) от 15.12.2017
+
+Б. П. Кандидов | Религиозная контрреволюция 1918-20 гг. и интервенция [очерки и материалы] (1930) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача настоящей брошюры заключается в том, чтобы показать деятельность религиозных учреждений и духовенства по организации интервенции. Однако классовый смысл этой деятельности не будет вполне ясен, если не помнить той обстановки, на фоне которой вели свою работу божьи служителя, служители бога-калитала. Поэтому автор считал необходимым первую главу посвятить краткой (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B696AE755ADB1797BB2287BE671CF0FF425DC5F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191941   (263808) от 15.12.2017
 
 Свт. Игнатий Брянчанинов | Слово о смерти (2010) [FB2, EPUB]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263808.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263305.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263214.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263149.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263069.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262932.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262908.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262840.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262839.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262835.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262288.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262249.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262130.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261981.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261821.jpg" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260425.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256461.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256453.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255517.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255475.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255334.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255307.jpg" />
 </div>
 
 
@@ -575,112 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8D269AD13776AABD7F82CE1FC84AA26E4923215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625737   (255305) от 11.04.2023
-
-Епископ Иаков (Тисленко) | Иноческий молитвослов (2014) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255305.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь 1000 летия подвига жизни во Христе Крестителя Руси – святого равноапостольного князя Владимира. Сей молитвослов издан благословением Преосвященного Иакова, епископа Нарьян-Марского и Мезенского.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF767C35AEBF0032955B326343E39F34C1953A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625754   (255298) от 11.04.2023
-
-Преподобный Ефрем Сирин | Избранные творения (2014) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые читателю в этой книге избранные творения одного из величайших подвижников первых веков христианства – преподобного Ефрема Сирина – помогут каждому христианину продвинуться на пути к спасению – главной задаче в жизни любого человека.
-
-Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8CEA9AC8C4184043EC2A31AF643AC04A74CED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627627   (255021) от 19.04.2023
-
-Священник Андрей Горбунов | Тайна зверя. Опыт объяснения пророчеств Апокалипсиса (2004) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта брошюра предназначена для тех, кто имеет духовный слух и способен услышать предупреждение Божие: «Кто имеет ухо, да слышит» (Откр. 13, 9). Основной отрицательный образ Апокалипсиса - «зверь». Что означает этот образ? В чем различие между «зверем из моря», «зверем из земли» и «зверя из бездны»? Как понимать слова Апокалипсиса о «числе имени зверя», о «говорящей (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA536DF74A064EC81969B235F524AC065E00AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629721   (254752) от 27.04.2023
-
-Святитель Феофан Затворник | Что есть духовная жизнь и как на нее настроиться (2013) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Феофан Затворник (в миру Георгий Васильевич Говоров; 1815–1894) – богослов, публицист-проповедник. Он занимает особое место среди русских проповедников и святителей XIX века. Святитель видел свое служение Церкви Божией в подвиге духовно-литературного творчества. «Писать, – говорил он, – это служба Церкви нужная». Всю свою пастырскую деятельность он посвятил (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E275736691C1DF64D56BA1BF7F4AB6F04D763C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

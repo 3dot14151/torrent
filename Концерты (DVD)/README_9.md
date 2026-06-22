@@ -1,3 +1,63 @@
+###  Публикация: 556976   (409681) от 12.10.2012
+
+Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409681.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
+
+Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
+2. Barcelona - La Nit performance
+3. How Can I Go On - La Nit performance
+4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD86860149166F6F5DC748E8BFF8D39C2676780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169170   (403935) от 26.09.2017
+
+Legends of Rock 'N' Roll - Live '89 (2000) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_403935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный концерт, записанный в Риме в 1989 году, известный также под названием "The Giants of Rock", в котором одновременно участвуют настоящие легенды и "крёстные отцы" рок-н-ролла: Джеймс Браун, Рэй Чарльз, Литтл Ричард, Бо Дидли, Джерри Ли Льюис, Фэтс Домино и Би Би Кинг.01. James Brown - Papa`s Got a Brand New Bag
+02. James Brown - I feel Good (I Got You)
+03. Bo Diddley - Bo Diddley
+04. Bo Diddley - I’m a Man(   Читать дальше...   )Производство: США, Eagle VisionЖанр: Концерт, рок-н-ролл, рокПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C0129528269D94E282F1874E1E9E74974EA40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563758   (401754) от 24.10.2012
 
 Metallica - 30th Anniversary Show's in The Fillmore (2012)2x DVD9
@@ -6,7 +66,7 @@ Metallica - 30th Anniversary Show's in The Fillmore (2012)2x DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_401754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_401754.jpg" />
 </div>
 
 
@@ -32,7 +92,7 @@ The Doors - Live At The Bowl '68 (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397969.jpg" />
 </div>
 
 
@@ -58,7 +118,7 @@ Gregorian: Epic Chants - Live in Zagreb [Limited Edition] (2012) [H.264] DVDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397927.jpg" />
 </div>
 
 
@@ -87,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397815.jpg" />
 </div>
 
 
@@ -113,7 +173,7 @@ Twisted Sister - Live At The Astoria (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396921.jpg" />
 </div>
 
 
@@ -148,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_396819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396819.jpg" />
 </div>
 
 
@@ -175,7 +235,7 @@ Manowar - The Day The Earth Shook - The Absolute Power (2006) 2*DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395788.jpg" />
 </div>
 
 
@@ -209,7 +269,7 @@ Scorpions - World Wide Live (1985) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395211.jpg" />
 </div>
 
 
@@ -235,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_392666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392666.jpg" />
 </div>
 
 
@@ -264,7 +324,7 @@ The Concert For New York City (2001) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391141.jpg" />
 </div>
 
 
@@ -293,7 +353,7 @@ Aerosmith - Music From Another Dimension! (Deluxe Edition) (Bonus DVD) (2012) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_383065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_383065.jpg" />
 </div>
 
 
@@ -325,7 +385,7 @@ Nirvana - Live At Reading Festival [1992] (2009) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_379910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379910.jpg" />
 </div>
 
 
@@ -354,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376804.jpg" />
 </div>
 
 
@@ -382,7 +442,7 @@ Santana - Santana IV: Live at the House of Blues, Las Vegas (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375660.jpg" />
 </div>
 
 
@@ -411,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_371123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_371123.jpg" />
 </div>
 
 
@@ -437,7 +497,7 @@ Queen: концерт на cтадионе Уэмбли / Queen: Live At Wembley
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369753.jpg" />
 </div>
 
 
@@ -466,7 +526,7 @@ Masami Okui - GIGS 2006 evolution (2007) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363138.jpg" />
 </div>
 
 
@@ -497,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361270.jpg" />
 </div>
 
 
@@ -526,7 +586,7 @@ Celebrating Jon Lord. Live at The Royal Albert Hall (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358124.jpg" />
 </div>
 
 
@@ -555,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357513.jpg" />
 </div>
 
 
@@ -590,7 +650,7 @@ Evanescence - Synthesis Live (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356321.jpg" />
 </div>
 
 
@@ -619,7 +679,7 @@ Masami Okui - GIGS 2007 Masami Life (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355946.jpg" />
 </div>
 
 
@@ -650,7 +710,7 @@ Masami Okui - GIGS 2006 GodSpeed (2006) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355942.jpg" />
 </div>
 
 
@@ -681,76 +741,13 @@ AC/DC - Live At Donington (1991) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_355091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355091.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Жанр: Hard RockПеревод: ОригинальныйПродолжительность: 01.57.55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577882   (354767) от 20.11.2012
-
-Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354767.jpg" />
-</div>
-
-
-###  Подробнее
-
-A bonus DVD in the deluxe versions features the dress rehearsal at Shepperton Studios, filmed a few days before the O2 concert. The band play the entire set that was to be performed at the O2, and this DVD gives the customer a unique insight into the final rehearsal. The rehearsal is filmed by a single camera in SD and recorded in stereo.1. Shepperton Rehearsal 06.12.07
-2. Zeppelin Media Moment
-3. Tampa Opening FilmЖанр: Hard RockПродолжительность: 1:56:45 + 0:03:39 + 0:01:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577993   (354760) от 20.11.2012
-
-Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_354760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Led Zeppelin - Celebration Day (Live at London O2 Arena 2007)
-
-01. Good Times Bad Times
-02. Ramble On
-03. Black Dog
-04. In My Time Of Dying
-05. For Your Life
-06. Trampled Under Foot
-07. Nobody's Fault But Mine
-08. No Quarter(   Читать дальше...   )Жанр: RockПродолжительность: 2:04:04
 
 ## Скачать торент
 ```bash

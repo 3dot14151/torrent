@@ -1,3 +1,29 @@
+###  Публикация: 1385852   (796471) от 26.05.2020
+
+Warhammer 40000: Dawn of War – Soulstorm (2008) [Ru/En] (1.2) Repack xatab
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796471.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Warhammer 40 000: Dawn of War - Soulstorm» — третье по счету, полностью самостоятельное дополнение для получивший множество наград стратегии «Warhammer 40 000: Dawn of War» включает в себя две абсолютно новые расы: жутких Темных Эльдаров, способные забирать души павших противников и использовать их в своих мрачных ритуалах, и таинственных Сестер Битвы, а также масштабную (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: RTSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952FE5106E35A8B8C1C5E4A8ED0218C1DBDA7BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385835   (795740) от 27.05.2020
 
 Heroes of Might and Magic IV / Heroes of Might and Magic 4 (2004) [Ru/En] (3.0/dlc) Repack xatab [Complete Edition]
@@ -6,7 +32,7 @@ Heroes of Might and Magic IV / Heroes of Might and Magic 4 (2004) [Ru/En] (3.0/d
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795740.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Punk Wars (2021) [Ru/Multi] (1.0.6) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794606.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Total War Anthology (2009-2013) [Ru/En] Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791355.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Europa Universalis IV / Europa Universalis 4 (2013) [Multi] (1.32/dlc) License C
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789545.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.09.00/dlc) Licens
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787787.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Steel Division 2 (2019) [Ru/Multi] (36778/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786609.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.2.301/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786259.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Sid Meiers: Civilization VI /  Sid Meiers: Civilization 6 (2016) [Ru/Multi] (1.0
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782813.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Desperados III (3) (2020) [Ru/Multi] (1.1.18) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782207.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Carrier Command: Gaea Mission (2012) [Ru/Multi] (1.6.0011) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781980.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Stellaris (2016) [Ru/En] (2.0.2/dlc) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776621.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Space Tycoon (2019) [En/Ch] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772526.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.1/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770102.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.0/dlc) License PROPER - P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769445.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ SpellForce 2 (2017) [Ru/Multi] (2.01.8596) License PLAZA [Anniversary Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768380.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Etherlords 2: The Second Age / Демиурги 2 (2003) [Ru/En/Ge] (1.03/1.01) 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767569.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766730.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Galactic Civilizations II (2011) [En] (2.1.0.3/dlc) License GOG [Ultimate Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766729.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ SpellForce 2 (2017) [Ru/En/Ge] (2.01.85906) License GOG [Anniversary Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766696.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's Americ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765991.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Cossacks: Imperia / Казаки: Империя [Multi5/Ru] (P/Mod) 2006 | Levi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764670.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Charterstone (2020) [Multi] (1.2.7) License GOG [Digital Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761516.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Rep
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757688.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Lic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757681.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Medieval II: Total War + Kingdoms [Ru] (RePack) 2007 | R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757425.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Medieval 2: Total War квинтэссенция всего лучшего, че
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F6EDD1F5E7043D3C565FE5372A52B4A58C37C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018093   (757076) от 19.05.2016
-
-The Mims Beginning (2016) [En] (1.0.0.280) License CODEX
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757076.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Mims Beginning – стратегия в реальном времени, смешанная с симулятором бога, где вам предстоит взять на себя управление колонией Мимов. Мимы – это добродушные и забавные высокоразвитые существа, путешествующие по галактике в поисках подходящих для колонизации планет. Однажды их межгалактический корабль потерпел крушение, и наши маленькие колонизаторы были вынуждены (   Читать дальше...   )Тип издания: LicenseРазработчик: Squatting PenguinsЖанр: Strategy (God Sim, Real-time), 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965B19E2C05083A98C28E76AA6E42AC2CE673AE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

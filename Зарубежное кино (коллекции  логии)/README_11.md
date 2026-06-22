@@ -1,3 +1,57 @@
+###  Публикация: 714719   (565275) от 08.07.2018
+
+Арнольд Шварценеггер (1969-2013) BDRip, HDTV [H.264/1080p-LQ] [Коллекция из 27 фильмов]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия фильмов с участием знаменитого актёра. Полное имя — Арнольд Алоис Шварценеггер.
+Арнольд с 1969 года начал сниматься в фильмах, как это делали многие его кумиры. Для ряда фильмов Арнольду приходилось существенно снижать вес. Он берёт уроки актёрского мастерства и старается избавиться от акцента.
+Первые фильмы публика приняла сдержанно; успех пришёл после «Конана-варвара». (   Читать дальше...   )Производство: США, Millennium FilmsЖанр: Экшн, Боевик, Фантастика, Триллер, Комедия, ПриключенияРежиссер: Джеймс Кэмерон, Пол Верховен, Джон МакТирнан, Роб Шмидт, Джо Линч и тд..Актеры: Арнольд Шварценеггер, Шэрон Стоун, Карл Уэзерс, Линда Хэмилтон, Эдвард Ферлонг, Роберт Патрик, Джейми Ли Кёртис и тд...Перевод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, Русские (Пучков), АнглийскиеПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3890B020A5F31920A9F83D99A92312FA2DACB5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529434   (564312) от 01.08.2012
+
+Хищник: Антология / Predator: Anthology (1987-2010) BDRip [H.264/720p-LQ]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наемник Ройс невольно вынужден возглавить группу профессионалов, выполняющих загадочную миссию на неизвестной планете. За исключением опального доктора все они — хладнокровные убийцы: наемники, гангстеры, осужденные и участники отрядов смерти людские «хищники». Но когда их начинает систематически преследовать и истреблять невообразимое чудовище, становится очевидно, (   Читать дальше...   )Жанр: Боевик, Приключения, ФантастикаРежиссер: Нимрод АнталАктеры: Эдриан Броуди, Тофер Грейс, Алиси Брага, Уолтон Гоггинс, Олег Тактаров, Лоренс Фишбёрн, Дэнни Трехо Луис, Одзава Чангчьен, Махершалалхашбаз Али, Кэри ДжонсПеревод: Дублированный, украинский дублированный, авторский одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DA965844CA4990196AB4C47EDF0E43C1C9F838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920938   (562284) от 01.08.2015
 
 Робокоп: Трилогия / RoboCop: Trilogy (1987/1990/1993) BDRip [H.264/1080p]
@@ -6,7 +60,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562284.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550167.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549964.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549129.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548090.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548051.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546520.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545050.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544841.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541892.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541651.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540907.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538185.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535863.jpg" />
 </div>
 
 
@@ -372,6 +426,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366585   (534477) от 24.07.2011
+
+Чужой против Хищника: Дилогия / Alien vs Predator: Dilogy (2004, 2007) [720p] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_534477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атакованный «Предалиеном», жутким гибридом Хищника и Чужого, корабль Хищников терпит крушение в лесах, окружающих маленький техасский городок. И пока на сигнал о помощи, посланный в момент падения, спешит подкрепление, Чужие успевают инфицировать половину населения города...Жанр: Ужасы, Фантастика, БоевикРежиссер: Колин Штраус, Грег ШтраусАктеры: Стивен Паскуале, Рейко Эйлсворт, Джон Ортиз, Джонни Льюис, Эриель Гейд, Кристен Хагер, Сэм Траммелл, Роберт Джой, Дэвид Петкау, Том Вудрафф мл., Йен Уайт, Чела Хорсдэл, Meshach Peters, Matthew A. Ward, Michal Suchanek, Дэвид Хорнсби, Крис Мартин, James Chutter, Phil Uhler, Kevin Haaland, Джина ХолденПеревод: Профессиональный (полное дублирование)Продолжительность: 01:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B338536328FD461137981CEA50B84A9FCD22D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 367470   (532598) от 25.07.2011
 
 Ганнибал Лектер / The Hannibal Lecter (1986 -2007) BDRemux [H.264/1080p] [Пенталогия]
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532598.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529315.jpg" />
 </div>
 
 
@@ -433,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527615.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525200.jpg" />
 </div>
 
 
@@ -486,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522556.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522555.jpg" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520691.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520644.jpg" />
 </div>
 
 
@@ -592,93 +672,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519651.jpg" />
 </div>
 
 
 ###  Подробнее
 
 2018 год. Джон Коннор — человек, чья судьба — возглавить Сопротивление электронному мозгу Скайнет и армии Терминаторов. Но в будущее, с верой в которое он возвращен, вклинивается таинственный Маркус Райт: незнакомец, чьи последние воспоминания рисуют камеру смертников. Коннор должен понять, кто такой Маркус — посланник будущего или спасшийся из прошлого. И на фоне (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, Триллер, ДрамаРежиссер: МакДжиАктеры: Кристиан Бэйл, Сэм Уортингтон, Мун Блудгуд, Хелена Бонем Картер, Антон Ельчин, Джадагрейс, Брайс Даллас Ховард, Коммон, Джейн Александр, Майкл Айронсайд, Иван Г’Вера, Крис Браунинг, Дориан Нконо, Бет Бэйли, Виктор Дж. Хо, Бастер Ривз, Кевин Уиггинс, Грег Серано, По Чан, Бабак Тафти, Брюс МакИнтошПеревод: Дублированный, Многоголосый закадровый, Одноголосый закадровыйСубтитры: РусскиеПродолжительность: 01:57:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313567   (518944) от 14.07.2019
-
-Поворот не туда / Wrong Turn (2003-2014) BDRip [H.264] [Antology]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия фильмов ужасов совместного американо-немецкого производства.
-
-Сюжеты первых трех частей франшизы следуют в хронологическом порядке, в то время как сюжет четвертой части повествует о событиях, случившихся задолго до событий первой части. Пятый и шестой фильмы франшизы рассказывают о событиях, происходивших в промежутке времени между событиями четвертой и первой (   Читать дальше...   )Производство: США, Германия, Канада / Summit Entertainment, Constantin Film, Media Cooperation One, Twentieth Century Fox, 20th Century Fox Home EntertainmentЖанр: ужасы, триллерРежиссер: Роб Шмидт, Джо Линч, Деклан О’Брайэн, Валерий МилевАктеры: Десмонд Хэррингтон, Элиза Душку, Эммануэль Шрики, Эрика Лирсен, Генри Роллинз, Тексас Бэттл, Том Фредерик, Джанет Монтгомери, Джил Колирин, Дженнифер Пудавик, Теника Дэвис, Кейтлин Либ, Даг Брэдли, Камилла Арведсон, Саймон ДжинтиПеревод: Многоголосый, ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:24:14 / 01:36:57 / 01:32:02 / 01:33:21 / 01:30:48 / 01:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EEA3A301328F858B4E8A6FF4F81BFBBB709572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314651   (514856) от 18.07.2019
-
-Белый шум / White Noise (2005, 2007) HDRip [H.264] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514856.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Белый шум» — американский мистический триллер с элементами фильма ужасов 2005 года режиссёра Джеффри Сакса. В основе сюжета фильма — предположение о том, что в белом шуме можно услышать голоса умерших людей. Премьера фильма состоялась 7 января 2005 года. В 2007 году вышло продолжение фильма — «Белый шум 2: Сияние».Производство: Великобритания, Канада, США / Universal Pictures, Gold Circle Films, White Noise UK Ltd., Brightlight PicturesЖанр: ужасы, триллер, драма, детектив, фэнтезиРежиссер: Джеффри Сакс, Патрик ЛюссьеАктеры: Майкл Китон, Чандра Уэст, Дебора Кара Ангер, Иэн МакНис, Сара Стрэйндж, Николас Элиа, Майк Допуд, Марша Режис, Брэд Сивон, Митчелл Костерман, Нэйтан Филлион, Кэти Сакхофф, Крэйг Фэйрбрасс, Адриан Холмс, Кендалл Кросс, Терил Ротери, Уильям МакДональд, Джошуа Дж. Баллард, Дэвид Милчард, Теган МоссПеревод: ДублированныйСубтитры: Русские (полн.), английские (полн. х2)Продолжительность: 01:37:53 / 01:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DA41E2EE00BE647D2AEF8604E95121C3DABB7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536755   (513139) от 19.08.2012
-
-Обитель Зла: Квадрология / Resident Evil: Quadrilogy (2002, 2004, 2007, 2010) [1080p] BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элис продолжает свой путь в мире, поражённом вирусной инфекцией, превращающей людей в нежить. Героиня ищет оставшихся в живых, чтобы вывести их в безопасное место. Её смертельная битва с корпорацией Амбрелла выходит на новый уровень…Жанр: Ужасы, Фантастика, Боевик, ПриключенияРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Эли Лартер, Ким Коутс, Шоун Робертс, Серджо Перис-Менчета, Спенсер Лок, Борис Коджо, Вентворт Миллер, Сиенна Гиллори, Кейси БарнфилдПеревод: Дублированный, ОдноголосыйЯзык субтитров: Русские (forced, Stevvie, mr_greenwood) АнглийскиеПродолжительность: 01:36:52
 
 ## Скачать торент
 ```bash

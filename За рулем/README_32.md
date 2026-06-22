@@ -1,3 +1,108 @@
+###  Публикация: 965019   (228450) от 13.12.2015
+
+Главная дорога (12.12.2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228450.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88C28632D6DFA593147A205408EE60AB5E71669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965090   (228283) от 13.12.2015
+
+Первая передача на НТВ. Автомобильная передача. Выпуск №231 (13.12.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228283.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80DD4D63DC55A5F150FBD08BBDF5DF9BB970789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513052   (227405) от 27.11.2021
+
+Главная дорога (27.11.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227405.jpg" />
+</div>
+
+
+###  Подробнее
+
+03:03 Штраф за опасное вождение: остановит ли он лихие гонки по улицам? И за что именно должен быть штраф?
+07:15 Не завелся! Эту фразу часто слышат с наступлением холодов: старый аккумулятор не справляется, нужно менять его на новый — может, поставить мощнее, с запасом? Многие автомобилисты сомневаются — не сгорит ли чувствительная электроника современного автомобиля? (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79259BC94A5D2491CC54BABD083F0F5B2A94C901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341918   (227251) от 30.11.2019
+
+Главная дорога (30.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227251.jpg" />
+</div>
+
+
+###  Подробнее
+
+К хмельным напиткам с нулевым градусом многие относятся скептически, но всё чаще водители выбирают безалкогольное пиво на праздниках и пикниках. Ведущие "Главной дороги" Андрей Федорцов и Денис Юченков вооружились профессиональным алкотестером, пригласили в столичный центр наркологии добровольцев и выпили ящик "нулёвки". Так ли безобидна она оказалась?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD161C112FB54C30066B6023147D20D1710D91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342182   (225771) от 01.12.2019
 
 Первая передача на НТВ. Автомобильная передача (1.12.2019) SATRip
@@ -6,7 +111,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225771.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225712.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2015) 
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225192.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222056.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220691.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219917.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219530.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217314.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216776.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216492.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216380.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215580.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214925.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214027.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214015.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213865.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211903.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211890.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211855.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211847.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211840.jpg" />
 </div>
 
 
@@ -560,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211711.jpg" />
 </div>
 
 
@@ -574,113 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C607D9628F9DD8CB93D2D5B1F3A7DE6F6054DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638956   (211683) от 12.06.2023
-
-Discovery: Махинаторы / Wheeler Dealers (2021-2022) WEBRip [H.264/1080p] (сезон 17, серии 1-20 из 20)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Бюджет всегда ограничен, к примеру, в первом сезоне он составлял 1000 , во 2-м — 2000 , в 3-м — 3000 . Иногда Майк добивается разрешения продюсера на увеличение суммы для покупки эксклюзивных и редких авто.
-Майк покупает машину, передаёт (   Читать дальше...   )Производство: Великобритания, AttaBoy for Discovery ChannelЖанр: телепередача, автомобилиУчастники: Майк Брюэр, Paul Brackley, Ant AnsteadПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99F829CD84A8B63D7CD74C4BAD2B344232D1ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638984   (211681) от 12.06.2023
-
-Discovery: Махинаторы / Wheeler Dealers (2020-2021) WEBRip [H.264/1080p] (сезон 16, серии 1-16 из 16)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Бюджет всегда ограничен, к примеру, в первом сезоне он составлял 1000 , во 2-м — 2000 , в 3-м — 3000 . Иногда Майк добивается разрешения продюсера на увеличение суммы для покупки эксклюзивных и редких авто.
-Майк покупает машину, передаёт (   Читать дальше...   )Производство: Великобритания, AttaBoy for Discovery ChannelЖанр: телепередача, автомобилиУчастники: Майк Брюэр, Paul Brackley, Ant AnsteadПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1410E7493B041573D595C9D0509130EF939748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638942   (211622) от 12.06.2023
-
-Discovery: Махинаторы / Wheeler Dealers (2023) WEBRip [H.264/1080p] (сезон 18, серии 1-10 из 10) [AD]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Бюджет всегда ограничен, к примеру, в первом сезоне он составлял 1000 , во 2-м — 2000 , в 3-м — 3000 . Иногда Майк добивается разрешения продюсера на увеличение суммы для покупки эксклюзивных и редких авто.
-Майк покупает машину, передаёт (   Читать дальше...   )Производство: Великобритания, AttaBoy for Discovery ChannelЖанр: телепередача, реальное ТВУчастники: Майк Брюэр, Paul Brackley, Ant AnsteadПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 каждая серияРеклама: Присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD6D46AD8C97B270E114E27B6EEA13AE5904D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641842   (210645) от 24.06.2023
-
-Главная дорога (24.06.2023) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самому или за деньги? Переезд страшнее пожара, но когда сталкиваются с таким испытанием, нужно решить сразу несколько важных вопросов, например — все сделать своими силами или заплатить профессионалам? Сколько на самом деле стоит переезд? Андрей Федорцов и Денис Юченков посчитали, как дешевле перевезти вещи, а заодно показали, как правильно их упаковать и безопасно (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A9F74FD6167FBE280DA1D61E892B435E9F8F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

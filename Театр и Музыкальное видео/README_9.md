@@ -1,3 +1,92 @@
+###  Публикация: 600638   (998531) от 09.01.2013
+
+Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600636   (998523) от 09.01.2013
+
+EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubstepПродолжительность: 00:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1E6DE4071AC9AEFDD14683D39FC5FF1DF46E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599448   (998520) от 09.01.2013
+
+U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rev-Raptor
+02. Dominator
+03. Thunderball
+04. Leatherhead
+05. Independence Day
+06. Screaming For A Love-Bite
+07. Heart Of Gold
+08. Vendetta
+09. Princess Of The Dawn
+10. I Give As Good As I Get(   Читать дальше...   )Жанр: Heavy MetalРежиссер: Geffen RecordsАктеры: Udo Dirkschneider, Igor Gianola, Fitty Wienhold, Francesco Jovino, U.D.O.
+
+Пересобранный  BluRay. За исходный Blu-Ray cпасибо -Перевод: ОтсутствуетПродолжительность: 2:25:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601103   (998364) от 10.01.2013
 
 DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
@@ -6,7 +95,7 @@ DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998364.jpg" />
 </div>
 
 
@@ -32,7 +121,7 @@ Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998332.jpg" />
 </div>
 
 
@@ -58,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998260.jpg" />
 </div>
 
 
@@ -84,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998019.jpg" />
 </div>
 
 
@@ -110,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998013.jpg" />
 </div>
 
 
@@ -136,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997981.jpg" />
 </div>
 
 
@@ -162,7 +251,7 @@ Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997817.jpg" />
 </div>
 
 
@@ -194,7 +283,7 @@ Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997663.jpg" />
 </div>
 
 
@@ -223,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997650.jpg" />
 </div>
 
 
@@ -249,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997649.jpg" />
 </div>
 
 
@@ -282,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997642.jpg" />
 </div>
 
 
@@ -311,7 +400,7 @@ Helene Fischer - Live/Zum ersten Mal mit Band und Orchester  (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997136.jpg" />
 </div>
 
 
@@ -337,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996877.jpg" />
 </div>
 
 
@@ -366,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996648.jpg" />
 </div>
 
 
@@ -401,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996597.jpg" />
 </div>
 
 
@@ -427,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995990.jpg" />
 </div>
 
 
@@ -456,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995809.jpg" />
 </div>
 
 
@@ -485,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995794.jpg" />
 </div>
 
 
@@ -514,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995789.jpg" />
 </div>
 
 
@@ -543,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995761.jpg" />
 </div>
 
 
@@ -569,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995749.jpg" />
 </div>
 
 
@@ -595,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
 </div>
 
 
@@ -626,7 +715,7 @@ ABBA - ABBA (Deluxe Edition) (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
 </div>
 
 
@@ -640,101 +729,6 @@ c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605356   (995480) от 20.01.2013
-
-Duran Duran - A Diamond In the Mind (2011) [720] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в центре Манчестера, одиннадцатиметровая арена .была черной, когда начался концерт. Очень эффектным стал выход группы на сцену в струях белого дыма струйка белого дыма, Duran Duran
-Великолепные визуальные эффекты и и инсталляции на протяжении всего концерта и приглашенные звезды сделали шоу поистине незабываемым.
-Ле Бон написал позднее в Twitter: ""Я просто люблю музыку, здесь мы все на одной стороне!"01. Return to Now
-02. Before the Rain
-03. Planet Earth
-04. View to a Kill
-05. All You Need Is Now
-06. Blame the Machines
-07. Safe (In the Heat of the Moment)
-08. The Reflex
-09. Man Who Stole a Leopard
-10. Girl Panic!(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605831   (995443) от 20.01.2013
-
-Лучшие клипы / The best videos of all time (Enigmatic) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era  - Come Into My World
-02. Messiah project -  Insomnia
-03. Enigma - Sadeness
-04. Devaldi - Indian Sunrise(   Читать дальше...   )Жанр: Музыка, EnigmaticПродолжительность: 01:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDA46B161AA648515988428CC1A1EC60D5B318D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605938   (995439) от 20.01.2013
-
-Лучшие клипы / The best videos of all time (Disco) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - He Is Your Brother
-02. Donna Summer - I feel love
-03. Arabesque - Friday Night
-04. Bad Boys Blue - Come Back And Stay(   Читать дальше...   )Жанр: Музыка, DiscoПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

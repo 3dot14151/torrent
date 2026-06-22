@@ -1,3 +1,90 @@
+###  Публикация: 1332006   (314037) от 20.10.2019
+
+JD Miller - Afterglow (2019) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314037.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Inside a Dream (4:41)
+ 2 - Game Of Love (4:49)
+ 3 - Inception (4:26)
+ 4 - Icarus (3:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC71C4C441FBA03A75D300896D208E0D8E8F5B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332387   (314013) от 20.10.2019
+
+Dream Company - The Wildest Season (2019) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314013.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Days in Blue[3:39]
+ 2 - Mine Mine Mine[3:42]
+ 3 - Scared to Be Loved[3:59]
+ 4 - Salvation[3:54](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A4322B53FA75EEAD95ECB02CDEFFBBD2D4E836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332186   (313999) от 20.10.2019
+
+Danger Zone - Don't Count on Heroes (2019) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Demon or Saint[4:56]
+ 2 - Faster Than Love[4:40]
+ 3 - Somewhere out of Time[4:17]
+ 4 - Destiny[4:12](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9017CEAEE38F40A7E7B84583392D127ED61FE9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960120   (309953) от 27.11.2015
 
 Aerosmith - Collections (2007) [MP3|~225 кб/с (V1)]<Rock, Hard Rock>
@@ -6,7 +93,7 @@ Aerosmith - Collections (2007) [MP3|~225 кб/с (V1)]<Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309953.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Black Sabbath - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308722.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Black Stone Cherry - The Human Condition (2020) [MP3|320 Kbps] <Hard Rock, South
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308342.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Juicy Lucy - Do That And You'll Lose It (2006) [MP3|320 кб/с]<Rock, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307971.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Jet - Get Born (2003) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307888.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Turbowolf - The Free Life (2018) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307621.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Rainbow - Best Ballads (1998) [MP3|320 кб/с]<HardRock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307060.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ Vanilla Fudge - Out Through The In Door Tribute To Led Zeppelin (2016) [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306569.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Accept - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306196.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Airbourne - Boneshaker (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305268.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Stephen Pearcy (ex-Ratt) - View To A Thrill (2018) Japanese Edition [MP3|320 Kbp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303394.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Black Sabbath - The End (2017) Live [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302884.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Ian Paice and Forever Deep - Made in Verona (2010) [MP3|320 кб/с]<Hard Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301103.jpg" />
 </div>
 
 
@@ -394,7 +481,7 @@ Deep Purple - The Infinite Live Recordings, Vol. 1 (2017) [MP3|320 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301080.jpg" />
 </div>
 
 
@@ -423,7 +510,7 @@ Jorge Salan - Tempus (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299943.jpg" />
 </div>
 
 
@@ -452,7 +539,7 @@ VA - 80s Hard Rock Anthems (2016) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Soft R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299702.jpg" />
 </div>
 
 
@@ -481,7 +568,7 @@ Foreigner - The Best Of Foreigner 4 & More (2014) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295657.jpg" />
 </div>
 
 
@@ -510,7 +597,7 @@ VA - Hard Life. Heavy Music. Metallection (3CD) (2001-2004) [MP3|320 кб/с]<Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294927.jpg" />
 </div>
 
 
@@ -539,7 +626,7 @@ Santa Cruz - Katharsis (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294871.jpg" />
 </div>
 
 
@@ -568,7 +655,7 @@ Hardbone - Tailor-Made (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294188.jpg" />
 </div>
 
 
@@ -597,7 +684,7 @@ Silked & Stained - Goes Up to Eleven (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291311.jpg" />
 </div>
 
 
@@ -626,7 +713,7 @@ Trixie - Shelter (2006) [MP3|320 Kbps] <Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288479.jpg" />
 </div>
 
 
@@ -655,7 +742,7 @@ Deaf Rat - Ban the Light (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287707.jpg" />
 </div>
 
 
@@ -669,93 +756,6 @@ Deaf Rat - Ban the Light (2019) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D1A498001F0F98F941CDF19F392F862882568D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186084   (287132) от 24.11.2017
-
-Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born to Touch Your Feelings (Studio Edit)
-02. Still Loving You
-03. Wind of Change
-04. Always Somewhere(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B332B169D9E2B7B3249EAE5FF469A6DDB68B5250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963990   (285798) от 09.12.2015
-
-Good Rats - Ratcity In Blue (1976) Remastered, 1998, Uncle Rat Music [MP3|320 кб/с]<Art, Glam, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Does It Make You Feel Good
-02. Boardwalk Slasher
-03. Ratcity in Blue
-04. Reason To Kill(   Читать дальше...   )Жанр: Art, Glam, Hard RockПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7518ADB8E91D4B4F992EF246300B3C6ED64126FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963852   (285789) от 09.12.2015
-
-Growl - Growl (1974) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake Your Money Maker
-02. Young And Grazy
-03. I Wonder
-04. Working Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31660D29740DF8A2B82C6195672364DEBE2B1B70
 ```
 
 https://mybot314.ru/tekegram_catalog/

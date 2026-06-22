@@ -6,7 +6,7 @@ VA - Radio Hits 2022 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531644.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Karen Marie Orsted (MØ) - No Mythologies to Follow (2014) [MP3|320 кб/с]<Ind
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531610.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Kiss Kiss Play Summer 2018 [MP3|320 Kbps] <Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531281.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The #1 Album: 60S Pop (2019) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530815.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mr. Zivago - Tell By Your Eyes (2002) [MP3|320 кб/с]<Italo-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530655.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ One-T - The One-T ODC (2003) 20th Anniversary Remastered, 2022, Minority [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528859.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Roland Bocquet - 3 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Disco, Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528550.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Eighth Wonder - 2 Albums (1987, 1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528484.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Saint Etienne - Saturday Boy (2019) Single [MP3|320 Kbps] <Alternative Dance Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528232.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Le Son Dancefloor Summer (2016) [MP3|256~320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528121.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Patrick Cowley - 3 Studio Albums (1981-1982) LP [MP3|320 Kbps] <Electro, Hi NRG,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527665.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Het Allerbeste Uit Radio1 Classics 1000 (2017) [MP3|320 Kbps] <Pop, Rock, O
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527658.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Top Of The Pops: Dance (3CD) (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526968.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ My Mine - Stone (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525875.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Rock & Dance On 45 (1982) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524721.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Kosmolok - Happy Birthday Rock 'N' Roll (A Rock Musical) (1980) LP [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524717.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - NRJ Summer Hits Only (3CD) (2017) [MP3|320 Kbps] <Pop, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524645.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Bim - Two (2015) [OGG| 448-524 кб/с]<Alternative, Indie Pop, ELectronic, Acou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524064.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Kontor Summer Jam (2018) [MP3|320 Kbps] <Dance, Disco, House, Trance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522904.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ MKTO - MKTO (2014) [OGG| 471-522 кб/с]<Pop, Teen Pop, Hip-Hop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522547.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - NRJ Hits Caliente (2019) [Explicit] [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521331.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Definitive 70s (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521150.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Dancefloor Summer Hits 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520333.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Ariana Grande - Sweetener (2018) [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520051.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Simply The Best: Voices (2013) 3CD [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519544.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ VA - Die Grosse 90er Sause - Alle Starken Hits Der 90er (2019) [MP3|320 Kbps] <D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519370.jpg" />
 </div>
 
 

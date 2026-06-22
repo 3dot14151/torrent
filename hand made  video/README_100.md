@@ -1,3 +1,32 @@
+###  Публикация: 1269941   (154772) от 20.12.2018
+
+Владимир Кузьмин - О чем то лучшем Live (2004) от ALEXnROCK WEBRip
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый лучший концерт русского рокера! Издатели оригинального DVD напортачили с видео и загубили напрочь звук. Видео почистил от шума и звук вставил с CD версии концерта. Всем любителям творчества Кузьмина и настоящего, крутого рока, рекомендую! Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01. 17 лет
+02. Еще вчера
+03. Когда меня ты позовешь?
+04. Я не Казанова(   Читать дальше...   )Жанр: RockПродолжительность: 02:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3376B0CB78E6E8EFA8986DC54FE808EEE2EDE4F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593962   (153669) от 15.11.2023
 
 Брат и Брат 2 (Дилогия) (1997, 2000) WEBRip [H.265/2160p] [4K, SDR , 10-bit] [Open Matte] [handmade AI Upscale]
@@ -6,7 +35,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153669.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153631.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153576.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153182.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153035.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152511.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ Belinda Carlisle - Belinda Live! Good Heavens Tour! (1988) DVDRip [hand made 60f
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152378.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152363.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152310.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152136.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151924.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151909.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151511.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151364.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151343.jpg" />
 </div>
 
 
@@ -403,7 +432,7 @@ Bryan Adams - Video Collection от ALEXnROCK (2018) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151101.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150662.jpg" />
 </div>
 
 
@@ -458,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150661.jpg" />
 </div>
 
 
@@ -484,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150660.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150622.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150606.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150597.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150332.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150251.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150217.jpg" />
 </div>
 
 
@@ -653,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F49BA6FBAE70B666F7CF86C711AC38E18C6E1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589097   (150131) от 14.12.2012
-
-Убойное Рождество Гарольда и Кумара / A Very Harold & Kumar 3D Christmas (2011) BDRip [1080p] [Вертикальная анаморфная стереопара 3D] [Hand Made 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло шесть лет после приключения в проливе Гуантанамо. На этот раз закадычные друзья Гарольд Ли и Кумар Пател сорвали праздник, случайно спалив дотла призовую рождественскую ель тестя Гарольда.Жанр: КомедияРежиссер: Тодд Штраус-ШульсонАктеры: Джон Чо,  Кэл Пенн,  Нил Патрик Харрис,  Пэттон Освальт,  Изабелла Жельняк,  Остин Бикел,  Инга Р. Уилсон,  Бобби Ли,  Томас Леннон,  Амир БлюменфилдПеревод: Многоголосый закадровый, профессиональный (Лицензия), Двугоголосый закадровый, профессиональный (Кубик в Кубе), Одноголосый закадровый, профессиональный (А. Дольский)Продолжительность: 01:29:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

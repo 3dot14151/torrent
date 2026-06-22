@@ -1,3 +1,29 @@
+###  Публикация: 473597   (84562) от 26.03.2012
+
+Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны древности 4. Оракул из Ура. Коллекционное издание (P) [Ru] 2012
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в новое приключение и станьте свидетелем любовного треугольника в фантастической игре жанра "три в ряд" и "я ищу". Отправьтесь в прошлое, разберитесь, где любовь, а где романтика, насладитесь поисками пропавших сокровищ и найдите самые великолепные драгоценности всех времен! Познакомьтесь с тремя друзьями по имени Эмма, Руперт и Себастьян и присоединяйтесь к ним в их путешествии по всему миру. Насладитесь игрой в десяти различных сценах, решите все хитрые головоломки, преодолейте все препятствия и откройте для себя множество мини-игр в коллекционном издании!(   Читать дальше...   )Тип издания: ПираткаЖанр: Логическая, Три в ряд, Квест, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский ("Наша Версия")
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E38698530DAC851304D872D6A9CF132601B978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471153   (83509) от 21.03.2012
 
 Liong: The Lost Amulets / Liong. Утраченные амулеты (P) [Ru] 2012
@@ -6,7 +32,7 @@ Liong: The Lost Amulets / Liong. Утраченные амулеты (P) [Ru] 20
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83509.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83470.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83191.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Cubis Gold 2 (P) [En] 2008
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83072.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Turbo Gems (P) [En] 2010
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83041.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82758.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Mobiloid (L) [En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82685.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Tunes Jungle Adventure / Нотки: Приключения в джунглях 
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82638.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82145.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Space Sieged (L) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82016.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81180.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80908.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80807.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80329.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ My Diary / Мой дневник (L) [Ru/En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79599.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ The Sims Carnival BumperBlast (L) [En] 2008
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79555.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79515.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Papers, Please (2013) [Ru/Multi] (1.4.11.124) Repack EXROW
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65663.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ GWENT: Rogue Mage / ГВИНТ: Маг-Отступник (2022) [Ru/Multi] (1.0
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59260.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Tents and Trees (2024) [Ru/Multi] (2404041009) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58361.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Kubikon 3D (2024) [Multi] (1.0.12) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55365.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Regency Solitaire (2015) [En] (1.21) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55302.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Regency Solitaire II (2024) [En] (1.04) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55286.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53066.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ BYTES: The Reverse Tower Defense (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53030.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ BYTES: The Reverse Tower Defense – это вариация традицион�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF11F9DB4BC93DED0D1745601FB2782C5F40A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735141   (50876) от 06.07.2024
-
-KoroNeko (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50876.jpg" />
-</div>
-
-
-###  Подробнее
-
-KoroNeko – откройте двери для нашей предельно расслабляющей головоломки! Исследуйте кавайный мир, познакомьтесь с милыми персонажами и просто хорошо проведите свое время за успокаивающими путешествиям. Сможете ли вы помочь братьям и сестрам освободиться от гнета коварной ведьмы? Скорее возьмите эту великолепную банку с желе, чтобы катить ее как можно дольше и освободить (   Читать дальше...   )Тип издания: SceneРазработчик: NomadroidЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Английский, Немецкий, Арабский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Арабский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBEBE77D1BDE8195C039B2CB1006F8FA601457C
 ```
 
 https://mybot314.ru/tekegram_catalog/

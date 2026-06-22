@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019565.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019436.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018342.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018182.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016058.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014891.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014642.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013765.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013457.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012589.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004428.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004427.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Comedy Club (2010-2020) SATRip/WEB-DLRip [Выпуск: 201-526] (Обновля
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002089.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990539.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985397.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984618.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976710.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975290.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Stand Up (26.01.2020) WEB-DLRip (сезон 7, выпуск 11)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974015.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Stand Up (02.02.2020) WEB-DLRip (сезон 7, выпуск 12)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974004.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968567.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964228.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959288.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Stand Up / Фильм о проекте (16.02.2020) WEB-DLRip
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958040.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Stand Up (16.02.2020) WEB-DLRip (сезон 7, выпуск 13)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957916.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955015.jpg" />
 </div>
 
 

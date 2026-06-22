@@ -1,3 +1,134 @@
+###  Публикация: 1058239   (449987) от 09.10.2016
+
+Brothers: A Tale of Two Sons (2013) [Ru/Multi] (1.0/u1) License GOG
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brothers: A Tale of Two Sons, эмоциональная приключенческая игра о двух братьях и их путешествии в поисках самих себя. Что сказать, жизнь не очень-то добра к этим двум мальчикам. Не успели они оправиться от потери матери, как трагедия снова пришла к ним в дом: их отец заболел, и спасти его может только волшебная вода жизни.Тип издания: LicenseРазработчик: Starbreeze Studios ABЖанр: Adventure (Puzzle), 3D, 3rdЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F383968B580C2D103586A59C83664570AC7038A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163773   (445742) от 07.09.2017
+
+Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – журналист, которому один старый путешественник захотел рассказать свою историю, хотя его уже более 50 лет считают обманщиком и чудаком. История эта – о путешествии в таинственную страну Центральной Америки под названием Амерзон. По словам старика, оттуда он привез с собой большое яйцо, связанное с верованиями и ритуалами индейского племени, в том числе с размножением (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroidsЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85654724AF11350360203DE203B5CB6229F44CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552670   (445422) от 27.09.2012
+
+Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на гигантскую мусорную свалку под названием Депония! Среди огромного числа ее жителей есть один простой, но очень своенравный паренек Руфус, который никак не может смириться со своей жалкой судьбой. Как и все остальные бедняки, он обречен прожить весь остаток своей жизни, в прямом смысле этого слова, на свалке. Больше всего на свете он мечтает попасть в мир богатых, который находится в поднебесном городе Элизиуме прямо над облаками. И однажды ему улыбается удача: прямо с небес на него падает загадочная девушка по имени Гоул. Парень решается помочь прекрасной девушке вернуться обратно к своему мужу. Когда Руфус понимает, что он и ее муж похожи как две капли воды, в голове у него рождается дьявольский план, как проложить себе дорогу в высшее общество. Тем не менее, не всё складывается так гладко: Руфус не может устоять перед красотой и обаянием прекрасной дамы и влюбляется в нее. Любовь творит с ним невероятные вещи, изменяя нашего героя в лучшую сторону прямо на глазах.
+Помогите Руфусу, бедному пареньку со свалки, завоевать сердце небесной девушки. Только с ее помощью он может выбраться из Депонии и, неожиданно для себя, спасти планету.(   Читать дальше...   )Тип издания: RepackЖанр: Point-and-click QuestЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44B951CAC69DCB0F368863F769552C7E5078F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943765   (444056) от 05.10.2015
+
+The Beginner's Guide (2015) [Ru/En] (1.0) Repack R.G. Механики
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444056.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Beginner's Guide, новая игра от создателя The Stanley Parable Дейви Редена. Вся задумка игры состоит в том, что к нам в руки попадает персональный компьютер незнакомого человека. Рассказчик, предлагая запустить несколько видеоигр, позже спрашивает, что же мы поняли о хозяине ПК? Нам предстоит окунуться в чужую жизнь и постараться осознать одинок ли этот человек, (   Читать дальше...   )Тип издания: RepackРазработчик: Everything UnlimitedЖанр: Adventure / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2FEC0F7857128D11FD14F51ACA2FE8EA773948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188898   (443680) от 19.09.2018
+
+Battle Chef Brigade (2017) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battle Chef Brigade - это отрисованная вручную приключенческая игра в жанре фэнтези, в которой вам придется охотиться на монстров, выполняя различные комбо, и готовить блюда, решая увлекательные головоломки. В фэнтезийном королевстве Виктусия члены элитной Бригады боевых шеф-поваров пользуются глубочайшим почтением всего народа за умение искусно убивать монстров (   Читать дальше...   )Тип издания: LicenseРазработчик: Trinket StudiosЖанр: Экшн, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E576F071C127A56BE06CF5B19EA6AB7C534308A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 243785   (443051) от 09.10.2010
 
 The Whispered World  / Ускользающий мир [Ru] (L) 2010
@@ -6,7 +137,7 @@ The Whispered World  / Ускользающий мир [Ru] (L) 2010
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443051.jpg" />
 </div>
 
 
@@ -34,7 +165,7 @@ Penumbra: Black Plague / Пенумбра 2: Дневники мертвецов
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_443038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443038.jpg" />
 </div>
 
 
@@ -62,7 +193,7 @@ Lost Horizon 2 (2015) [En] (1.0.3) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441803.jpg" />
 </div>
 
 
@@ -88,7 +219,7 @@ Solstice (2016) [En] (1.4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441680.jpg" />
 </div>
 
 
@@ -114,7 +245,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd1/dlc) License HOODLUM [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441418.jpg" />
 </div>
 
 
@@ -140,7 +271,7 @@ Transference (2018) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441314.jpg" />
 </div>
 
 
@@ -166,7 +297,7 @@ LOST EMBER (2019) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439779.jpg" />
 </div>
 
 
@@ -192,7 +323,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04a) Repack xatab (обновляема�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439756.jpg" />
 </div>
 
 
@@ -218,7 +349,7 @@ My Brother Rabbit (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436847.jpg" />
 </div>
 
 
@@ -244,7 +375,7 @@ Late Shift (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436390.jpg" />
 </div>
 
 
@@ -270,7 +401,7 @@ Stay Close (2016) [En] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436370.jpg" />
 </div>
 
 
@@ -296,7 +427,7 @@ Beatbuddy: Tale of the Guardians (2013) [Ru/Multi] (1.2.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435787.jpg" />
 </div>
 
 
@@ -322,7 +453,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.5898046) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435656.jpg" />
 </div>
 
 
@@ -348,7 +479,7 @@ A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) License GOG [Digital Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431288.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ Still Life 2 (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430054.jpg" />
 </div>
 
 
@@ -400,7 +531,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (1.0.0.1) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429676.jpg" />
 </div>
 
 
@@ -427,7 +558,7 @@ Okaeri (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429221.jpg" />
 </div>
 
 
@@ -453,7 +584,7 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. Механики [Dilogy / �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428732.jpg" />
 </div>
 
 
@@ -479,7 +610,7 @@ Toren (2015) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428627.jpg" />
 </div>
 
 
@@ -505,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426681.jpg" />
 </div>
 
 
@@ -531,7 +662,7 @@ Path to Mnemosyne (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424118.jpg" />
 </div>
 
 
@@ -542,136 +673,6 @@ Path to Mnemosyne предлагает вам отправиться в гипн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E2B1B0166722A75A4BB4979B7CDAA1800B26C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083714   (423431) от 17.09.2017
-
-Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episode 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Batman: The Telltale Series - видеоигра об одном из самых популярных героев вселенной DC Сomics рассказывает совершенно новую, самостоятельную историю, полную увлекательных приключений и неподдельного драматизма. Миллиардер и супергерой - Брюс Уэйн ведет двойную жизнь, и его сложно назвать нормальным человеком. Представьте на его месте себя и приготовьтесь встретить (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A1E2605500BED5F4BD935D6B59184106DDB76E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065025   (422944) от 21.10.2016
-
-Overclocked: A History of Violence / Overclocked. Оправданная жестокость (2007) [Ru/En] (1.1) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Overclocked, действие которой разворачивается на фоне страшной грозы, обрушившейся на Нью-Йорк, исследует вечную и в то же время самую актуальную проблему человечества - насилие. Этот психологический хоррор смешивает пугающие художественные элементы, используя самые необычные повествовательные структуры. Мир игры смешивает границы между воспоминаниями и иллюзиями, (   Читать дальше...   )Тип издания: LicenseРазработчик: House of TalesЖанр: Adventure, Interactive MovieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B212E60F3D143B7B63935D1439026CB4FE1575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021785   (422817) от 21.10.2016
-
-The Descendant (2016) [En] (3.2/dlc) Repack Other s [Episode 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422817.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Descendant — это приключенческая игра в сеттинге техногенного апокалипсиса, выполненная в стилистике мультфильма. В результате полного криогенного апокалипсиса, человечеству пришлось уйти под землю, и там начинать выстраивать новую жизнь.Тип издания: RepackРазработчик: Gaming Corps ABЖанр: Adventure (Space), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5EF584112D43A62C13A0652CBF284D838CB0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324713   (422780) от 10.09.2019
-
-The Walking Dead: The Telltale Definitive Series (2019) [Ru/Multi] (1.0) License CODEX
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422780.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Walking Dead: The Telltale Definitive Series содержит все четыре сезона, дополнение 400 Days и The Walking Dead: Michonne — всего 23 уникальных эпизода, которые подарят игрокам более 50 часов игры. Издание с графическими улучшениями, бонусами от создателей и тщательно воссозданными классическими меню — это лучший способ пройти путь Clementine и узнать, чем заканчивается (   Читать дальше...   )Тип издания: LicenseРазработчик: Skybound GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775C897BBE28E47F1407DBF26728216208CE3B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412231   (420073) от 28.09.2020
-
-The Vanishing of Ethan Carter (2014) [Multi] (1.04) License GOG [Redux]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра The Vanishing of Ethan Carter теперь доступна в версии Redux – переработанной с помощью Unreal Engine 4 оригинальной игры для PC. The Vanishing of Ethan Carter – сюжетная мистическая игра от первого лица, полностью посвященная исследованию и открытиям. Никаких битв и никаких взрывов. Если игра и нанесет вам травму, надеемся, вы ее не заметите.Тип издания: LicenseРазработчик: The AstronautsЖанр: Экшн, Приключение, ХоррорЯзык озвучки: Английский, ПольскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8BBBBB4BF5A23806EBEB1980C01D29B7813349
 ```
 
 https://mybot314.ru/tekegram_catalog/

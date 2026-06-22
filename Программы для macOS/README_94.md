@@ -1,3 +1,58 @@
+###  Публикация: 1571318   (433834) от 21.08.2022
+
+Pacifist 4.0.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pacifist — удобная распаковка .pkg
+Если вы являетесь активным пользователем Mac OS, то вполне вероятно, что однажды вам уже было необходимо открыть файл с расширением .pkg. Сделать это можно при помощи нескольких способов, но приложение под названием Pacifist позволяет сделать это наиболее быстро и удобно.Тип издания: macOS SoftwareРелиз состоялся: 20.08.2022Разработчик: © 2001-2021 CharlesSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A60CA7557C52F2548A233DAF41863E94ADE9986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249510   (433459) от 24.09.2018
+
+Mellel4 v4.1.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
+
+Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.09.2018Разработчик: RedleXПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B99827415A7B9F752E182736AD579368516142F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249589   (433452) от 24.09.2018
 
 Fantastical 2 v2.5.4 [Multi]
@@ -6,7 +61,7 @@ Fantastical 2 v2.5.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433452.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ ChatMate for WhatsApp 4.3.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433311.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ SMARTReporter 3.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433288.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ BrowserFreedom 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432519.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ AnyMP4 MOV Converter 6.3.10 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432254.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ Capture One Pro 10 v10.2.105 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432209.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ Intensify CK (Pro) 1.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432142.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ RightFont 6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431842.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ AICopy - Docs, Article Creator 2.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431774.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Word Counter Pro 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431763.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ Folder 1.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431762.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ popCalendar 1.8.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431375.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ iNet Network Scanner 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431200.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ Mindjet MindManager 11 v11.2.111 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430552.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ Raya Pro 2.0 & InstaMask 1.0 fix - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430039.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ Antivirus Zap Pro 3.10.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429829.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ IconJar 2.11.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429768.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ WaterMarker 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429329.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ Money 4.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429288.jpg" />
 </div>
 
 
@@ -516,7 +571,7 @@ CCleaner Professional Edition for Mac 1.18.28 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429240.jpg" />
 </div>
 
 
@@ -544,7 +599,7 @@ QR Factory 2.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429179.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ OmniPlan Pro 3 v3.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429133.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ AirBeam Pro 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428945.jpg" />
 </div>
 
 
@@ -625,7 +680,7 @@ Hear 1.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428817.jpg" />
 </div>
 
 
@@ -638,59 +693,6 @@ Hear значительно улучшает качество звука в фи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:557EA69A31D0E0783AF4D7F9F75F3BA4C96B65C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946197   (428645) от 12.10.2015
-
-ForkLift 2.6.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428645.jpg" />
-</div>
-
-
-###  Подробнее
-
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
-На ForkLift стоит обратит внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 октября 2015Разработчик: BinaryNightsПоддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C996E89130376FD3DB5EF29220441289E633A602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411480   (427553) от 25.09.2020
-
-Audulus 3 v3.5.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audulus - это минималистичное модульное приложение для обработки звука. С Audulus вы можете создавать синтезаторы, создавать новые звуки или обрабатывать аудио. И все это с обработкой в ​​реальном времени с низкой задержкой, подходящей для живых выступлений. Пользовательский интерфейс Audulus понятный, простой и легкий в освоении, что позволяет сосредоточиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2018Разработчик: Audulus LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8331466D2E6226D9855A22C75AF0750135E99A
 ```
 
 https://mybot314.ru/tekegram_catalog/

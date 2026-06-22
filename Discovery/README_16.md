@@ -1,3 +1,83 @@
+###  Публикация: 513478   (460765) от 11.09.2018
+
+Discovery: Встреча с инопланетянами. Прибытие / Alien Encounters. The Arrival (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460765.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой серии вы узнаете, как люди отреагируют на приближающийся к Земле корабль с инопланетянами? О последствиях этого события рассказывают ученые и писатели-фантасты вместе с сотрудниками проекта СЕТИ и сыном Карла Сагана, Ником.
+
+Автор рипа ROMBEEKЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60CD03165B722461373F0A53239998E038E3BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513109   (458838) от 12.09.2018
+
+Discovery: Встреча с инопланетянами. Сигнал / Alien Encounters. The Message (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что произойдет, если мы получим сигнал из космоса? Ученые и писатели вместе с сотрудниками проекта СЕТИ и сыном Карла Сагана, Ником рассказывают о последствиях этого события. В этом фильме представлен гипотетический сценарий первого контакта с внеземным разумом. Они уже в пути. Если их техника позволит им попасть сюда, она позволит им сделать, что угодно. Мы больше (   Читать дальше...   )Жанр: Документальный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36AE621DC83751AA65656DFC9103F0C607D5BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058844   (457168) от 06.10.2016
+
+Discovery: Наука магии / The Magic of Science (2013) HDTVRip (1-9 серия из 9)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре профессиональных иллюзиониста из разных стран используют науку для создания магии. Они расскажут, как физика, математика и химия помогают им ошеломлять людей. Это полностью изменит Ваше представление о мире. Вы увидите волшебство на улицах, фокусы со скрытой камерой и иллюзии. А удивив Вас раскроют научные принципы, благодаря которым получилось волшебство. (   Читать дальше...   )Телекомпания: США, Discovery Network International production managementЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F12C563A53D15C1C315E6A88879F19208ED4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523685   (454781) от 23.09.2012
 
 Discovery: Фантасты-предсказатели (Пророки научной фантастики). Мэри Шелли [сезон 1 серия 1]/ Prophets of Science Fiction. Mary Shelly (2011) HDTVRip
@@ -6,7 +86,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454781.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Discovery: Плутон: первая встреча / Direct from Pluto-The Fir
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453238.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ Discovery. Самая странная погода на Земле / Strangest 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452414.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452361.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2015) HDTVRip (3 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451032.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ Discovery: Америка: факты и домыслы / America: Facts vs. Fic
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447119.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ Discovery: Ангелы и демоны. Факты или домыслы? / Ang
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446641.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445984.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444918.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ Discovery: Разрушители легенд. В поисках утрачен
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444748.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ Discovery: Разрушители легенд. Трансформеры / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444601.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444600.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441168.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ Discovery: Первые обитатели Америки / America's First Nati
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435144.jpg" />
 </div>
 
 
@@ -371,7 +451,7 @@ Discovery: Прежде чем мы покорили Землю / Before We Rule
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432893.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ Discovery. Техногеника. Шагающий экскаватор (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432153.jpg" />
 </div>
 
 
@@ -423,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431569.jpg" />
 </div>
 
 
@@ -449,7 +529,7 @@ Discovery. Взгляд изнутри / Inside West Coast Customs (2017) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427220.jpg" />
 </div>
 
 
@@ -475,7 +555,7 @@ Discovery. Взрывая историю / Blowing up History (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423594.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ Discovery. Как это работает? / How it's made? (2016-2019) WEB-DL [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422422.jpg" />
 </div>
 
 
@@ -527,7 +607,7 @@ Discovery. Дороги России: Ладога (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421114.jpg" />
 </div>
 
 
@@ -553,7 +633,7 @@ Discovery: Жизнь отвратительных животных / Nasty by N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418663.jpg" />
 </div>
 
 
@@ -579,7 +659,7 @@ Discovery. Дороги России: Уфа - Магнитогорск (2016) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416165.jpg" />
 </div>
 
 
@@ -590,84 +670,6 @@ Discovery. Дороги России: Уфа - Магнитогорск (2016) H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4439375EC2C17E1C03E52774005FD266662D03A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948033   (415612) от 18.10.2015
-
-Discovery: Разрушители легенд. Взрыв на воде / MythBusters. Blow It Out Of The Water (2015) SATRip  (Сезон 15, эпизод 07) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415612.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3ABAFDFCC45515A0556327BA8334C640B648B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948034   (415491) от 18.10.2015
-
-Discovery: Разрушители легенд. Полёт фантазии / MythBusters. Flights of Fantasy (2015) SATRip  (Сезон 15, эпизод 08) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415491.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F65E45B3D2758AE14F5AA5F7E89489AC09E304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167854   (412294) от 22.09.2017
-
-Discovery: Загадки планеты Земля / What on Earth? (2015-2017) HDTVRip (сезон 1-3, серии 1-30 из 30)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем больше спутников запускают в космос, тем меньше на Земле остается слепых пятен. Теперь, когда снимки из космоса стали частью общедоступных программ, таких как «Google Earth», на суше и на море вдруг стали обнаруживаться различные аномалии. Увлекательная программа «Загадки планеты Земля» возвращается с новым сезоном, где мы продолжим исследовать тайны и загадки (   Читать дальше...   )Производство: США / Discovery Communications, LLCЖанр: Документальный, научно-познавательныйРежиссер: Дэниэл Эдвардс ...Перевод: Одноголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998B366B15CBFAA4BB2BF6C4AC519D5121EE8AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

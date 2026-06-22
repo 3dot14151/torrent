@@ -1,3 +1,58 @@
+###  Публикация: 1339611   (265348) от 20.11.2019
+
+Blocs 3.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
+
+Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2019Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBCD8CBC2E9F252B16B28F5F500A4B22AFC71BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339682   (265322) от 20.11.2019
+
+Sketch 60.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
+Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AC5B6486B8FED79F34E701322A7F77D62DA95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339708   (265321) от 20.11.2019
 
 Wirecast Pro 13.0.2 [Multi]
@@ -6,7 +61,7 @@ Wirecast Pro 13.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265321.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Cookie 5.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265286.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ Antivirus Zap 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265176.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Carbon Copy Cloner 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265158.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ iDatabase 3.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265144.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ PaintCode 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265133.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ Macgo Mac Blu-ray Player Pro 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265130.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ TG Pro (Temperature Gauge Pro) 2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265098.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ Tipard Blu-ray Player for Mac 6.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265073.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ ABBYY Lingvo Dictionary для Mac 1.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265071.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ Bartender 3 v.3.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265054.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ Adobe Photoshop Lightroom Classic CC 2018 v7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264928.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ BATTLETECH  v1.3.0.413r (25481) (2018) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264814.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ Alfred 4 Powerpack 4.0.7 (1126) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264712.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ Yate 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264711.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ Debookee 7 v7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264710.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ Athentech Perfectly Clear Complete 3 v3.9.0.1697 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264709.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Application Wizard 4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264703.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ DoYourData AppUninser Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264701.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ Acorn 6 v6.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264700.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ Duplicate File Finder Pro 6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264678.jpg" />
 </div>
 
 
@@ -576,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264675.jpg" />
 </div>
 
 
@@ -602,7 +657,7 @@ Things 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264443.jpg" />
 </div>
 
 
@@ -630,7 +685,7 @@ DuplicateViewer 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264311.jpg" />
 </div>
 
 
@@ -641,58 +696,6 @@ DuplicateViewer 3.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:725CB1D2D86328AAD39BA23FED0E6DCEE5B9521E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340015   (264310) от 22.11.2019
-
-GarageSale 8 v8.0.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: iwascoding GmbHПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70953D32983654B104E2BA3F20F80AE2B527850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340007   (264309) от 22.11.2019
-
-ExactScan Pro 19.11 (build 19.11.12) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264309.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BC7B03FEEB5F7F0C14D2642B9B8BE59EEF5DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

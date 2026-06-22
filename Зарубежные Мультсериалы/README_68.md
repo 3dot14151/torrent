@@ -1,3 +1,185 @@
+###  Публикация: 1798254   (8139) от 13.08.2025
+
+Гримсбург / Grimsburg (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-13 из 13) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гениальный детектив Марвин Флейт возвращается в Гримсбург, город, где у каждого в шкафу есть секрет, а то и не один. И пусть Марвин способен поймать клоуна-каннибала и распутать сложное дело, есть нечто, в чем он не может разобраться — в собственной семье. Он твердо намерен искупить вину перед бывшей женой, которую он никогда не переставал любить, даже если это означает (   Читать дальше...   )Производство: США / Gizmotech Industries, The Jackal Group, Fox EntertainmentЖанр: комедия, для взрослыхРежиссер: Джек Перкинс, Рой Бурдин, T.G. Hopkins, Mark Garcia,  Caitlin Vanarsdale, Orlando GumatayАктеры: Джон Хэмм, Рэйчел Дрэч, Эринн Хэйс, Грег Чун, Кевин Майкл Ричардсон, Алан Тьюдик, Каньехтио Хорн, Рози Перес, Петр Вальчук, Венди Маклендон-Кови и другиеПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4735574F344619A6A785618E6ACE2EBA8274E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798248   (8124) от 13.08.2025
+
+Гриффины / Family Guy (2025) WEB-DL [H.264/1080p] (сезон 23, серии 1-18 из 18) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Типичная американская семья, члены которой способны разбить все возможные стереотипы. А говорящая собака с сигаретой и сухим мартини... А грудной малыш, мечтающий поработить весь мир... Разве это отклонение? Это катарсис в каждом эпизоде.Производство: США / 20th Century Fox Television, Film Roman Productions, Fuzzy Door Productions, Hands Down EntertainmeЖанр: мультфильм, комедияРежиссер: Джеймс Пурдум, Доминик Бьянчи, Питер ШинАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Дэнни Смит, Патрик Варбертон, Джон Винер, Алек Салкин, Ральф ГарменПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FA70F1D3160FE7F3D92C0FBEDDF87A0792037C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812228   (8099) от 13.08.2025
+
+Железный человек и его невероятные друзья / Iron Man and His Awesome Friends (2025) WEB-DL (сезон 1, серии 1-10 из 10) заКАДРЫ
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный гений и по совместительству тусовщик Тони Старк (Мэйсон Бломберг) решает, что спасать мир в одиночку — моветон. Он собирает команду вундеркиндов, чтобы с высокотехнологичным размахом решать городские проблемы. Первая на очереди — остановить наглого робота-клептомана по имени Альтрон.Производство: США / Atomic Cartoons, Disney Jr., Marvel Animation, Marvel Entertainment, 	Marvel Studios Inc.Жанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Майкл ДоудингАктеры: Тэлон Варбертон, Лорен Том, Стивен Тоболовски, Джон Стамос, Фред Таташиор, Гари Энтони Уильямс, Мо Коллинз, Джеки Гарри, Дэвид Кэй, Мэйсон Бломберг и другиеПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: русскийСубтитры: русские (на песни)Продолжительность: ~ 00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC55EFB52EAA7DAAF2AE63A1B99553246372437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813512   (6948) от 19.08.2025
+
+Думлэндс / Doomlands (2024) WEB-DL [H.264/1080p-LQ] (сезон 2, серия 1-5 из 5) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о жизни печально известного Дэнни Дума и начинающего бармена Ланди, которые разливают пиво по адской пустоши в своем передвижном пабе «Оазис». Столкнувшись с безжалостными пустынными бандами, уродами, крадущими память, и даже ужасными граффити в ванной, все, что нужно сделать этой команде, чтобы выжить, — это не убивать друг друга.Производство: США, Канада, Look Mom! ProductionsЖанр: Для взрослых, мультфильм, комедия, приключенияРежиссер: Марк Литтл, Кайла Лоретт, Джош О'кифАктеры: Кайла Лоретт, Эшли Поупелка, Марк Литтл, Скотт Фарли, Джош КруддасПеревод: Многоголосый профессиональный (NewStation) - Присутствует ненормативная лексика!Язык озвучки: русский, английскийСубтитры: английские, испанские, французскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F633025EAE6EF901D20A5DBFF78F9E56E6D6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814744   (5889) от 26.08.2025
+
+Астронавт / Astronauta (2024) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 1-6 из 6) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сериала повествует о кризисах и открытиях Перейры, астронавта, отстраненного от работы в Бразильском космическом агентстве (BRASA). После исчезновения коллеги во время миссии на Луну он возвращается в космос, не подозревая, что попадает в инопланетную ловушку, которая может угрожать всему человечеству.Производство: Бразилия, Birdo StudioHBO, Latin America Originals, Home Box Office Latin America (HBO)Жанр: Научная фантастика, приключения, драмаРежиссер: Роджер КиссАктеры: Марко Пигосси, Мел Лижбоа, Карол Крешпу, Франсишку ЖуниорПеревод: Многоголосый профессиональный (NewStation)Язык озвучки: русский, английский, португальскийСубтитры: английские, испанские, португальскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2525402F853C5E6D5FA6136D02AB76A45CD6A68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815272   (5367) от 29.08.2025
+
+Дигман! / Digman! (2023) WEB-DL [H.264/1080p] (Сезон 1, серии 1-10 из 10) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие комедийного мульсериала разворачивается в удивительном мире, в котором есть место настоящим чудесам. Здесь храбрые и одарённые археологи наделены особенными привилегиями - они обладают невероятной популярностью. Представители младшего поколения равняются именно на них. Талантливые и сообразительные детишки мечтают поскорее вырасти и пойти по их стопам. Им (   Читать дальше...   )Производство: США / CBS Studios, MTV Entertainment Studios, Party Over HereЖанр: мультфильм, комедия, приключенияРежиссер: Майк МэйфилдАктеры: Энди Сэмберг, Митра Джухари, Тим Робинсон, Гуз Кхан, Дэйл Соулс, Мелисса Фумеро, Тим Медоуз, Нил Кэмпбелл, Джавани Линаяо, Дэвид Кэй и другиеПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: ~ 00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B305EFC825E4CCDA33F1FC77E43073752AF60A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815732   (4935) от 31.08.2025
+
+Лило и Стич / Lilo & Stitch: The Series (2003 - 2006) WEB-DL [H.264/1080p] (сезон 1-2, серии 1-65 из 65) Невафильм
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живущая на Гавайях девочка Лило встречает очаровательную, но несколько странную собачку по имени Стич. Не ведая, что Стич — на самом деле результат инопланетного генетического эксперимента, к тому же скрывающийся от властей своей планеты, девочка берет его домой.Производство: США, Австралия / Disney Television AnimationЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейный, детскийРежиссер: Майк Джирард, Виктор Кук, Дон МаккиннонПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09B3527271EAF2725C054CA556895F42D11E69D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799433   (4367) от 05.09.2025
 
 Рик и Морти / Rick and Morty (2025) WEB-DL [H.264/720p] (сезон 8, серии 1-10 из 10) Сыендук, TVShows, HDRezka, LE-Production, 1Win Studio, RedRussian1337
@@ -6,7 +188,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4367.jpg" />
 </div>
 
 
@@ -33,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4360.jpg" />
 </div>
 
 
@@ -60,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3942.jpg" />
 </div>
 
 
@@ -86,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3854.jpg" />
 </div>
 
 
@@ -112,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3851.jpg" />
 </div>
 
 
@@ -138,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3836.jpg" />
 </div>
 
 
@@ -164,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3286.jpg" />
 </div>
 
 
@@ -190,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2611.jpg" />
 </div>
 
 
@@ -217,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2183.jpg" />
 </div>
 
 
@@ -243,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_443.jpg" />
 </div>
 
 
@@ -269,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_404.jpg" />
 </div>
 
 
@@ -295,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_386.jpg" />
 </div>
 
 
@@ -321,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_350.jpg" />
 </div>
 
 
@@ -347,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145.jpg" />
 </div>
 
 
@@ -373,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137.jpg" />
 </div>
 
 
@@ -399,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136.jpg" />
 </div>
 
 
@@ -425,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130.jpg" />
 </div>
 
 
@@ -451,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33.jpg" />
 </div>
 
 

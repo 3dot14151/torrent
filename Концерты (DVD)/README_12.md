@@ -1,3 +1,60 @@
+###  Публикация: 1266676   (269093) от 03.12.2018
+
+Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Beth Hart, состоявшегося 4 мая 2018г в зале The Royal Albert Hall.01. As Long As I Have A Song
+02. For My Friends
+03. Lifts You Up
+04. Close To My Fire(   Читать дальше...   )Производство: Provogue/Mascot Label GroupЖанр: RockРежиссер: Nigel DickАктеры: Beth Hart & bandСубтитры: отсутствуютПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080E9AB255F93D54AFF2A7C7CFD0B9DB96D5589D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 104052   (269038) от 03.12.2018
+
+Григорий Лепс - Парус Live (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Григория Лепса в Кремле "Парус" (Высоцкий 21 века)
+Идея записать песни Владимира Высоцкого возникла ещё 5 лет назад, когда впервые на концерте памяти великого артиста Григорий Лепс исполнил «Парус».
+Мощный темперамент, мужественная харизма, умение петь сердцем – то, что объединило двух певцов и то, что сделало возможным сам факт существования проекта, (   Читать дальше...   )Жанр: КонцертРежиссер: Даниил МишинАктеры: Ирина Завьялова, Роман Грачев, Анна Горнова, Михаил Чуваков, Ирина Усачева, Светлана Кирилина, Сергей БакинСубтитры: ОтсутствуетПродолжительность: 02:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5B2C89E93EDF9FD7A8E49B57C2106A2F8C6406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189568   (268732) от 08.12.2017
 
 Extreme - Take Us Alive (2009) DVD9
@@ -6,7 +63,7 @@ Extreme - Take Us Alive (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268732.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Bad Company - In Concert. Merchants of Cool (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268700.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268346.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267605.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266810.jpg" />
 </div>
 
 
@@ -148,7 +205,7 @@ Gary Moore - The Definitive Montreux Collection (2007) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264100.jpg" />
 </div>
 
 
@@ -177,7 +234,7 @@ Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra / Robin Gibb - L
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259360.jpg" />
 </div>
 
 
@@ -203,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249061.jpg" />
 </div>
 
 
@@ -232,7 +289,7 @@ Black Sabbath – Undead And Alive (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248491.jpg" />
 </div>
 
 
@@ -262,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248202.jpg" />
 </div>
 
 
@@ -297,7 +354,7 @@ Joe Bonamassa - Live From The Royal Albert Hall (2009) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231872.jpg" />
 </div>
 
 
@@ -324,7 +381,7 @@ ZZ TOP - Double Down Live 1980 * 2008 (2009) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231853.jpg" />
 </div>
 
 
@@ -353,7 +410,7 @@ Joe Bonamassa "Live at rock palast" DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231235.jpg" />
 </div>
 
 
@@ -379,7 +436,7 @@ Joe Bonamassa - An Acoustic Evening At The Vienna Opera House (2013) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231161.jpg" />
 </div>
 
 
@@ -408,7 +465,7 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230950.jpg" />
 </div>
 
 
@@ -434,7 +491,7 @@ Deep Purple: Around The World Live (2008) (4 DVD Box Set) 3*DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230250.jpg" />
 </div>
 
 
@@ -464,7 +521,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229852.jpg" />
 </div>
 
 
@@ -493,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227792.jpg" />
 </div>
 
 
@@ -522,7 +579,7 @@ Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222735.jpg" />
 </div>
 
 
@@ -551,7 +608,7 @@ Gary Moore. Live at Monsters of Rock (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212838.jpg" />
 </div>
 
 
@@ -580,7 +637,7 @@ THE JEFF HEALEY BAND «SEE THE LIGHT» (1989) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212788.jpg" />
 </div>
 
 
@@ -606,7 +663,7 @@ Bonnie Tyler - Live In Germany (1993/2011) DVD5 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212763.jpg" />
 </div>
 
 
@@ -635,7 +692,7 @@ Blue Cheer: Rocks Europe (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212760.jpg" />
 </div>
 
 
@@ -664,7 +721,7 @@ Umbra Et Imago – 20 (2011) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199297.jpg" />
 </div>
 
 
@@ -675,64 +732,6 @@ Umbra Et Imago – 20 (2011) 2xDVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D313A93CD3615F21E51E3948F1F803158769EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653037   (192663) от 03.09.2023
-
-Asia – Resonance / The Omega Tour (2010) DVD5 (Live In Basel, Switzerland)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192663.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD-1 I Believe
-DVD-2 Only Time Will Tell
-DVD-3 Holy War
-DVD-4 Never Again(   Читать дальше...   )Производство: Frontiers Records – FR CDVD 580, ItalyЖанр: Pop Rock, Prog RockРежиссер: Bernhard BaranАктеры: Asia: Steve Howe, Carl Palmer, Geoffrey Downes, John WettonПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: НетПродолжительность: 01:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5932C622218B41B7A633D93AE0BCC0BDDDE9CEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653108   (192586) от 03.09.2023
-
-Asia – Axis XXX Live San Francisco (2015)  DVD5 (Recorded Live at the Regency Ballroom)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192586.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD-1 Introduction
-DVD-2 Only Time Will Tell
-DVD-3 Wildest Dreams
-DVD-4 Face On The Bridge(   Читать дальше...   )Производство: Frontiers Music SRL – FR CDVD 694, ItalyЖанр: Pop Rock, Prog RockРежиссер: Paul BillingsАктеры: Geoffrey Downes, Steve Hove, Carl Palmer, John WettonПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: НетПродолжительность: 01:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0DD003D230BD470273967FE3C3226202D280EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

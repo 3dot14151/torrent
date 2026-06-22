@@ -1,3 +1,90 @@
+###  Публикация: 1362469   (949562) от 23.02.2020
+
+Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949562.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:41| 01. Days Gone
+|03:36| 02. The Freakshow
+|03:36| 03. We've All Done Things
+|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362271   (949552) от 23.02.2020
+
+John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949552.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:37| 01. Wake the Girls
+|04:02| 02. Train North
+|02:31| 03. Skagway, Alaska
+|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C901D57BEC474EA9C5CB8BD649F47C7DAF2E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088737   (948836) от 05.01.2017
+
+NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Party Next Door feat. Drake - Come and See Me (3:56)
+02.Drake - Hype (3:30)
+03.Drake - Pop Style (3:30)
+04.Majid Jordan - Every Step Every Way (3:35)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5F112D82B21A6C0A861C92D2AF9E2508299C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 133766   (948720) от 05.01.2017
 
 Григорий Гладков - Падал прошлогодний снег (Музыка к мультфильму) (1983) [MP3|128 кб/с]<Soundtrack>
@@ -6,7 +93,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948720.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948416.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948315.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948312.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948228.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Austin Wintory - John Wick Hex (Original Game Soundtrack) (2019) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948226.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ David Arnold & Michael Price - Sherlock - Original Television Soundtrack Music F
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947932.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945857.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Justin E. Bell - The Outer Worlds (Original Soundtrack) (2019) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945299.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Tom Holkenborg aka Junkie XL - Deadpool (Original Motion Picture Soundtrack) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945217.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942587.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942410.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942400.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941596.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и З�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941438.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ M83 - Suburra (2015) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938232.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Keegan DeWitt - All the Bright Places / Все радостные места (Mu
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937950.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ VA - Бильядрная братия / The Rack Pack (Music From The Mition Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937154.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933478.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928891.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тё
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925662.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924325.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924012.jpg" />
 </div>
 
 
@@ -664,93 +751,6 @@ Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79EE645FFE5B452A654BE4799FBB2B48E7EB873A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366290   (923562) от 11.03.2020
-
-Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soundtrack, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:12| 01. Neon Drive
-|04:13| 02. Prototype
-|03:17| 03. Netrunner
-|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B23881A7F868FC8FD80B78F8F637034DA6160EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366524   (922336) от 12.03.2020
-
-Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922336.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:07| 01. In Serbia
-|02:35| 02. The Rematch
-|03:34| 03. The Interview
-|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366462   (922247) от 12.03.2020
-
-Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922247.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Hay
-|01:29| 02. Dead Reith
-|01:29| 03. Life's Rich Tapestry
-|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
 ```
 
 https://mybot314.ru/tekegram_catalog/

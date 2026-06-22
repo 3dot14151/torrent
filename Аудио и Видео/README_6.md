@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997458.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997399.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997376.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997370.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997363.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996974.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996942.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996851.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996817.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996815.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996805.jpg" />
 </div>
 
 
@@ -294,13 +294,39 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996612.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Роберт и Альфред — фокусники-иллюзионисты, которые на рубеже XIX и XX веков соперничали друг с другом в Лондоне. С годами их дружеская конкуренция на профессиональной почве перерастает в настоящую войну. Они готовы на все, чтобы выведать друг у друга секреты фантастических трюков и сорвать их исполнение. Непримиримая вражда, вспыхнувшая между ними, начинает угрожать жизни окружающих их людей…Жанр: триллер, драма, детективРежиссер: Кристофер НоланАктеры: Хью Джекман, Кристиан Бэйл, Майкл Кейн, Пайпер Перабо, Ребекка Холл, Скарлетт Йоханссон, Саманта Мэхурин, Дэвид Боуи, Энди Серкис, Дэниэл Дэвис, Джим ПиддокПеревод: ДублированныйФормат: MP4 (контейнер m4v)Продолжительность: 02:10:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603963   (996413) от 17.01.2013
+
+Гавана, я люблю тебя / 7 dias en La Habana (2012) BDRip [ATV2/iPad | 720p]
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_996413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастера мирового авторского кино сняли 7 маленьких увлекательных историй, действие которых происходит в Гаване.Жанр: драмаРежиссёр: Лоран Канте, Бенисио Дель Торо, Пабло Траперо, Элиа СулейманПродюсер: Лорен Боден, Дидар Домери, Альваро ЛонгарияВ ролях: Джош Хатчерсон, Эмир Кустурица, Даниэль Брюль, Элиа Сулейман, Владимир Крус, Мирта Ибарра, Хорхе Перугоррия, Дэйзи Гранадос, Мелвиз Санта Эстевес, Луис Альберто ГарсияПеревод: Русский многоголосый (профессиональное дублирование)
 
 ## Скачать торент
 ```bash
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996380.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996374.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996369.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996359.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996355.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996350.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996347.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996346.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996331.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996319.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996317.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996282.jpg" />
 </div>
 
 
@@ -638,39 +664,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995538.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Конец 1960-х; успешный журналист Уорд расследует дерзкое убийство влиятельного шерифа-расиста в маленьком южном городке. Его цель — освободить несправедливо осуждённого и заодно сделать вместе с коллегой из Лондона сенсационный материал. Журналистам помогает юный разносчик газет Джек — родной брат Уорда, и невероятно сексапильная блондинка Шарлотта: она влюбилась по переписке в того самого заключенного из камеры смертников. Каждому из героев есть что скрывать и чего бояться — но раскалённый воздух Юга пробуждает самые тёмные и горячие желания…Жанр: триллерРежиссер: Ли ДэниелсАктеры: Мэттью МакКонахи, Зак Эфрон, Николь Кидман, Джон Кьюсак, Мейси Грэй, Дэвид Ойелоуо, Скотт Гленн, Нед Беллами, Ниалла Гордон, Эдрик БраунПеревод: Одноголосый закадровыйФормат: MP4 (контейнер m4v)Продолжительность: 01:46:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606049   (995527) от 20.01.2013
-
-Боксер / Парень из Филадельфии / The Philly Kid (2012) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995527.jpg" />
-</div>
-
-
-###  Подробнее
-
-После 10-летнего тюремного заключения освобожден под честное слово борец-бывший чемпион Национальной Атлетической Ассоциации. Теперь чтобы спасти жизнь другу он должен сделать невозможное для себя, проиграть в серии борцовских поединков в клетке.Жанр: боевик, драма, спортРежиссер: Джейсон КоннериАктеры: Уэс Чэтэм, Девон Сава, Сара Батлер, Нил МакДонаф, Лаки Джонсон, Крис Браунинг, Адам Мервис, Бернард Хок, Ава Богл, Эрик Скотт Вудс, Майкл Джей Уайт, Эндрю Сенсениг, Рич Клементи, Ронда Флойд Агийар, Ричард Эрвуд, Грэйлен Брайант Бэнкс, Эндрю Бентлер, Кайл Брэдли, Дэнни Космо Хиггинботтом, Дженнифер Куликкья, Джон Эванс, Дж.Д. Эвермор, Дуглас М. Гриффин, Меган Харман, Брэндон Хэйес, ЛаТойя Джонсон, Трэйси Джонсон, Блисс Келли, Лейси ЛамбертПеревод: Профессиональный (двухголосый закадровый) R5Формат: MP4 (контейнер m4v)Продолжительность: 01:34:00
 
 ## Скачать торент
 ```bash

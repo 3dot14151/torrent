@@ -1,3 +1,109 @@
+###  Публикация: 382448   (1027690) от 06.03.2021
+
+О. Кувыкина | Письма насекомых. Научные развлечения (2009) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кто захочет признаться в симпатии к насекомым: их странный, фасетчатоглазый, хитиновый мирок настолько чужд нашему теплокровному людскому миру, что неизменно кажется источником смутной опасности и угрозы… Однако если мы узнаем о «таракашечках» немного больше, возможно, они покажутся нам менее отталкивающими? Книга биолога Ольги Кувыкиной – сборник симпатичных, (   Читать дальше...   )Жанр: Мир животных. НасекомыеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B814BBABF02FE1C43274FA8E9D47F5951F6904E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679491   (1027682) от 06.03.2021
+
+Е.Ю. Сухаревская |  Окружающий мир. Итоговая работа за курс начальной школы. 4 класс (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит: 10 вариантов итоговой работы по предмету "Окружающий мир" за курс начальной общеобразовательной школы, инструкции для учителя, план работы, рекомендации по переводу тестовых баллов в школьные оценки. Каждая работа включает в себя текст и задания базового и повышенного уровней сложности. Пособие может быть также использовано для стартовой (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659677A8E918E9D2D2F02F40422DE3E5A86A4861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679585   (1027650) от 06.03.2021
+
+О.Н. Крылова | Математика. Итоговая аттестация. 2 класс. Типовые тестовые задания (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие полностью соответствует новому образовательному стандарту (второго поколения) для начальной школы. Книга содержит 10 вариантов типовых тестовых заданий итоговой аттестации за курс 2-го класса. Назначение пособия — отработка практических навыков учащихся по математике.
+
+Сборник предназначен для учащихся 2-х классов начальной школы, учителей и методистов, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:295490A1BD112C37889C08F3B95FFCA1A27DE33A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379572   (1027647) от 06.03.2021
+
+М. Ди Специо | Занимательные опыты. Электричество и магнетизм (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все можно зарядить... Простые и увлекательные опыты по электричеству и магнетизму! Как увидеть невидимое магнитное поле; что можно притянуть обычным магнитом; какая часть магнита самая сильная; как склеить предметы электростатическим клеем; как собрать передатчик кода Морзе. Все необходимые для опытов материалы легко найти дома или недорого купить. Кроме того, все (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B9900B07D99DD167B1C427B78DCC7A3B6746C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 385011   (1027632) от 06.03.2021
 
 С.И. Волкова | Математика. Контрольные работы. 1-4 классы. Пособие для учителей общеобразовательных учреждений (издание 2-е) (2009) [DjVu]
@@ -6,7 +112,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027632.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027532.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027491.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027479.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027458.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027452.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027310.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027308.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027160.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027137.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027034.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027022.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027021.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026853.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026849.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026710.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026679.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026671.jpg" />
 </div>
 
 
@@ -487,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026650.jpg" />
 </div>
 
 
@@ -513,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026647.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026637.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026619.jpg" />
 </div>
 
 
@@ -580,111 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48FDBBD18B28DB75E56AE70AD68DD580F0714F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372047   (1026521) от 13.03.2021
-
-О.Д. Ушакова | Как написать: НЕ или Ни, слитно или раздельно? Справочник школьника (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги серии «Средняя школа» помогут учащимся выполнить любое домашнее задание, подготовиться к диктанту и контрольной работе, повторить изученные темы. Книги также пригодятся в работе учителям и будут хорошим руководством для родителей, которые хотят проверить качество знаний своих детей.Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004FA88A96CB322670C829E7A11B1D885A884518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375912   (1026506) от 13.03.2021
-
-О.Д. Ушакова | 75 упражнений на все правила русского языка. 2 класс (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026506.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены упражнения по русскому языку разного уровня сложности для учащихся 2-го класса. Цель выполнения предложенных упражнений – тщательная отработка всех изучаемых во 2-м классе орфограмм, а также формирование у учащихся конкретных умений и навыков и доведение до автоматизма навыков грамотного письма.
-Сборник может быть использован на уроке учителем, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19E1D89F5FB3C8FF1AA0DC25F2FA8A8006626DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372054   (1026505) от 13.03.2021
-
-О.Д. Ушакова | Орфографический разбор слова. Словарик школьника (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026505.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены план и многочисленные образцы орфографического разбора слов. Слова для словарика отобраны в рамках орфографического минимума для начальной школы и младших классов средней общеобразовательной школы.Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23A978E3EF7C7830C06AB2E0EF62016E1A9AB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463049   (1026478) от 13.03.2021
-
-О.Д. Ушакова | Английский в таблицах и схемах для младших школьников (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для школьников начальных классов и для родителей, которые хотят помочь своим детям закрепить знания, полученные на уроках английского языка.Жанр: Учебник, английский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C29D09D6BC12ED93F23FE05CC678E2E6985B8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

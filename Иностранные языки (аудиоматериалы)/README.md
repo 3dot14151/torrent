@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071940.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071057.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Oxford University Press | Life Vision (A1-C1) (2022) [PDF, MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070551.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057575.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057305.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Thomas Booth | English for Everyone. Illustrated English Dictionary (2022) [MP3]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053800.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052825.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jane Iva, Дмитрий Гурбатов | Американские истор�
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016516.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Paul Pimsleur | Немецкий для русскоговорящих (1999; 20
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941359.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ G. Trombley / Дж. Тромбли и др. | Korean from zero! 1 / Корейс
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923756.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890330.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886947.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886932.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828594.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824514.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822718.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820783.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797327.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714601.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658582.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645244.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613844.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590832.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589803.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585669.jpg" />
 </div>
 
 
@@ -676,25 +676,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 540489   (501885) от 30.08.2012
+###  Публикация: 230250   (511650) от 28.08.2010
 
-ЕШКО | Английский для высшего уровня [1996] [PDF, MP3]
+Paul Pimsleur | Сверхбыстрое овладение английским языком [2010] [MP3]
 
->>Обучающие аудиоматериалы
+>>След.
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_511650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курс «Английский язык для высшего уровня» предназначен для тех, кто уже в достаточной степени овладел грамматикой английского языка и хочет продолжать углублять и совершенствовать свои знания. Программа обучения английскому языку построена по методу, разработанному в Европе и используемому на протяжении 50 лет. Вашему вниманию представлены 32 урока курса ЕШКО "Английский для высшего уровня". Пределов изучения английского языка не существует. Как долго бы Вы ни занимались изучением английского языка, всегда найдутся сферы, в которых Вы можете почувствовать себя неуверенно. А поэтому не останавливайтесь никогда на достигнутом. Курсы английского языка для высшего уровня помогут Вам в этом.Жанр: учебное пособие (с аудиосопровождением)
+Курс «Сверхбыстрое овладение английским...» поможет вам выучить язык, не выходя из дома, прикладывая минимум усилий, за максимально короткий срок - речь идет о считанных месяцах. Даже если раньше вам это совершенно не удавалось, и даже если вы уже не верили в свои способности это сделать. От вашей мечты вас отделяет лишь несколько месяцев!Жанр: Иностранные языкиФормат: MP3, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:591F004C970044E5150B274875A06A978F89C9D1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

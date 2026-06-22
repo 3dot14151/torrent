@@ -1,3 +1,108 @@
+###  Публикация: 1094094   (931627) от 16.01.2017
+
+Без обмана. Смертельный банкет (2017.01.09) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652219EC77F6C3963C483B537058816BD5C91F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986525   (931081) от 14.02.2016
+
+Акценты (14.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воскресная информационная программа «Акценты». Расскажет о том, как развивались самые яркие события в стране и мире в течение прошедшей недели, и представит оперативные новости текущего дня.
+Расставить акценты над самыми обсуждаемыми новостями недели зрителям поможет информация из первых уст – прямые включения свидетелей и непосредственных участников событий, а также (   Читать дальше...   )В этом выпуске: Разбить палатку: кто зарабатывал миллионы на шаурме и пончиках? Что вырастет на обломках самостроя? Никто не застрахован: каждый десятый полис в стране фальшивый. Но летом нас всех перестрахуют! А ваш полис настоящий?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F777B41E71109E52B87702ACFE266ED614C1B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094427   (930953) от 17.01.2017
+
+Вести в 20-00. Большие Вести. Россия 1 (17.01.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F144BA763722F4A78FECAD7A8413588227262820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986422   (930948) от 14.02.2016
+
+Чудо техники (2016.02.14) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930948.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49A555700839E3BF8D5DAF59B710039839C0EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094360   (930908) от 17.01.2017
 
 Осторожно, мошенники! Смертельное исцеление (2017.01.17) SATRip
@@ -6,7 +111,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930908.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930901.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930667.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930561.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930022.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929348.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928961.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928932.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927974.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927973.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927837.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927666.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927601.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927403.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927203.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926226.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926153.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925010.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924674.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924673.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924671.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924374.jpg" />
 </div>
 
 
@@ -570,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF71159D25FD8C5C70E250EB9B1ACE7AC18B4022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095749   (924337) от 21.01.2017
-
-Советские мафии. Пираты Южного порта (2017.01.18) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобиль в советское время был не средством передвижения, а социальной меткой. Есть "Москвич" - молодец! А если модные "Жигули" и дорогая "Волга", значит жизнь абсолютно удалась! Но машин на всех не хватало, и в стране процветали спекулянты, которые добывали дефицитные автомобили по сложным схемам и толкали за три цены. А в 70-е годы (   Читать дальше...   )Телекомпания: ТВЦЖанр: Документальный, расследование, криминалПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2959C9739845F2DBAEBCE57E9A85EFA134CDC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988379   (922894) от 19.02.2016
-
-Вести в 20-00. Большие Вести. Россия HD (19.02.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922894.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577186EE345B688D1CB31DDE4FE80A10772A519A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988174   (922893) от 19.02.2016
-
-В теме. Добро на войну? (18.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922893.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Турции совершено два теракта за сутки. Жители Турции боятся приближаться к военным автомобилям. В стране два теракта за сутки, и оба раза мишенями стали солдатыТелекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DBD86316A760B267A739525592693D314A7B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988133   (922890) от 19.02.2016
-
-Линия защиты. Курсы безумия (2016.02.17) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждую неделю, в прайм-тайм, фильм-репортаж – о нас, о главных и спорных моментах нашей с вами жизни. Это больше, чем новости. Мы освещаем самые актуальные события и проблемы, а авторы программы готовы взглянуть на них со своей особой, индивидуальной точки зрения. Все интересное, необычное, зрелищное, что заслуживает вашего внимания, найдёт отражение в нашем эфире.Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2EE361E1F1083FEA616EAF415DB72C76A3F7DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1335570   (286185) от 03.11.2019
+
+Первая передача на НТВ. Автомобильная передача (03.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лобовое в трещинах: какие проблемы начинаются после замены лобового стекла? Понаберут по объявлению: заправщик вместо бензина залил дизель. Что делать? Он там кофе пьет, а за ним уже очередь: можно ли наказать «барина», занявшего место на АЗС возле колонки? Деревья вдоль дороги как оружие массового поражения — одним ударом испортили сразу несколько машин. Кто за (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7145F86EEF47979030CE5B5FBE3478DB75D311C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186520   (286023) от 25.11.2017
+
+Главная дорога (2017.11.25) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286023.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB13F40A9152403034F9C64B244EC9E763157901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186809   (284434) от 26.11.2017
+
+Первая передача на НТВ. Автомобильная передача (2017.11.26) SATRip (выпуск 311)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284434.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0765674780BDF2F7A10E646CDB59696E35DF54A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079688   (282502) от 10.12.2016
+
+Гранд тур / The Grand Tour (2016) WEBRip [H.264/1080p-LQ] (сезон 1, серия 3) Jaskier
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282502.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Amazon StudiosЖанр: Реальное ТВ, комедияПеревод: Многоголосый закадровый, профессиональный - JaskierЯзык субтитров: русский, английскийПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCB63D866D05153A50A940462D316514CFACAF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079687   (282501) от 10.12.2016
 
 Гранд тур / The Grand Tour (2016) WEBRip [H.264/1080p-LQ] (сезон 1, серия 3) Gears Media
@@ -6,7 +110,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282501.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282323.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282142.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282133.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280032.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278642.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278637.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278408.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278295.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278266.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276238.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274897.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274615.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273519.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272589.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272397.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272057.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271458.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270891.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268968.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268201.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267956.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FF15721841BAA31FD90495454E5F9B300CE0F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190528   (267492) от 09.12.2017
-
-Гранд тур / The Grand Tour (2017) WEBRip [H.264/720p-LQ] (сезон 2, серия 1) AlexFilm
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267492.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Amazon StudiosЖанр: Реальное ТВ, комедияПеревод: Многоголосый закадровый, профессиональный - AlexFilmСубтитры: Английские, отключаемыеПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAB63B5A1C43B9F475290ABA72E8849837315D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190619   (267044) от 10.12.2017
-
-Первая передача на НТВ. Автомобильная передача (2017.12.10) SATRip (выпуск 313)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267044.jpg" />
-</div>
-
-
-###  Подробнее
-
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B07D85B2EAF6A524E85DFF5CC2150550D11DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267790   (264890) от 08.12.2018
-
-Главная дорога (08.12.2018) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264890.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске ведущие Андрей Федорцов и Денис Юченков проверят на себе и на добровольцах: как долго после лечения успокоительными и обезболивающими не стоит садиться за руль. Также в выпуске протестируют классический внедорожник Chevrolet TrailBlazer: родом из Америки, но собран в Питере - с чем ещё, помимо неприлично маленького объёма дизеля, ржавеющих дверей (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5696941E4116525C1D9E820B62B434B534C9E315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340286   (263981) от 23.11.2019
-
-Главная дорога (23.11.2019) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если авария произошла у вас на глазах: проехать мимо или остановиться и помочь? В новом выпуске программы ведущие "Главной дороги" Андрей Федорцов и Денис Юченков проведут тест на безлюдной дороге и выяснят, кого среди нас больше — тех, кто готов остановиться и помочь раненым, или тех, спокойно проедет мимо только что разбившейся машины.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4E8EC4ED8CEB6028F800781F67D14AC42A2A44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1188303   (274635) от 02.12.2017
+
+Eisfabrik - Null Kelvin (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sein Erstes Lied (2:46)
+02. Shadows (4:12)
+03. Soon Enough (3:29)
+04. The Choice (4:18)(   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37ACDB79111487A3377207D1A11E4B6002A95A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189676   (270276) от 06.12.2017
+
+Nova - 2 Albums (1982, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Space>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270276.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Nova" - электронный музыкальный коллектив, получивший популярность в Европе благодаря предлагаемым альбомам в первой половине 80-х годов. Один их хитов - инструментальная композиция "Аврора" достигла  1-го места в Голландском Топ 40 в 1982 году.01. Aurora (3:44)
+02. Arrive (5:42)
+03. Xenos (5:14)
+04. Horizon (3:55)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SpaceПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB25C962BB721C2E96F37B17CF328A0B91086024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266709   (269175) от 03.12.2018
 
 Mi-Sex - 5 Studio Albums (1979-2016) Collection [MP3|320 Kbps] <New Wave, Pop Rock, Synth-pop>
@@ -6,7 +64,7 @@ Mi-Sex - 5 Studio Albums (1979-2016) Collection [MP3|320 Kbps] <New Wave, Pop Ro
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269175.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ W O L F C L U B - W O L F C L U B (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268389.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ W O L F C L U B - Chasing The Storm (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268387.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ W O L F C L U B - Infinity (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268384.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ HOME - Odyssey (2014) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267809.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Carpenter Brut - CARPENTERBRUTLIVE (2017) [MP3|320 Kbps] <Synthwave, Dark Synth,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264115.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Rise of the Synths (Official Companion Album) LP (2017) [MP3|320 Kbps] 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262241.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ The Salt Collective - 3 Albums (2023-2025) [MP3|320 Kbps] <Power-Pop, New-Wave, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260612.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Max Cruise - Night Cruise (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255506.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Curiosity Killed the Cat - Misfit (1987) US 12" Single [MP3|320 Kbps] <Synth-Pop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255099.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250324.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Space Odyssey - Trip One: New Year's Voyage (2016) [OGG Vorbis|480 Kbps] <E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249628.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ M83 - Fantasy (2023) [MP3|320 Kbps] <electronic-pop, synth-pop, Indie>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249507.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Space Odyssey - Trip Three: New Year’s Voyage 2018 (2017) 2 CD [OGG Vorbi
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249381.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Metropolis - Metropolis (2018) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245709.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ TV Players - Big City Visions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244559.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Space Odyssey - Trip Five: New Year's Voyage 2019 (2018) 2 CD [OGG Vorbis|4
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243714.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Johan Tronestam - Androids (2022) [MP3|320 Kbps] <Berlin-School, Space Music>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242201.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ New Arcades - Until Now: The Decade Retrospective (2022) [MP3|320 Kbps] <Synthwa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242180.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ William Control - Sex Cult (2023) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239628.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239057.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ System Glow - Cities (2022) EP [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238600.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Landscape - Xcursions 2 Other Versions (2023) [MP3|320 Kbps] <New Wave, Synthpop
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231317.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231095.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Landscape - Before and After (2023) [MP3|320 Kbps] <New Wave, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1970076C51EDB58ACDAA187A591EAB50F82C14A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648561   (231067) от 23.07.2023
-
-Landscape - Landscape a Go-Go (The Story of Landscape 1977-83) (2023) 5CD, Remaster [MP3|320 Kbps] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Excursions 2 Other Versions
-01. Einstein a Go-Go (Einstein on the Floor 2023 Remix) [00:02:34]
-02. One Rule for the Rich (UK Cassette Album Mix) [00:04:17]
-03. Japan (12-Inch Version) [00:05:07](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 05:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE32FBB761D9362EEAB4A64DEBF3CF66872FFE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649782   (228540) от 29.07.2023
-
-Brian Hamilton - Metro Man (1984) LP [MP3|320 Kbps] <Rock, New Wave, Lo-Fi, Electro>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Metro (Metro Man) (5:35)
-02. I Can't Stand It (2:55)
-03. Pleasurepain (3:47)
-04. Space Dancing (4:31)(   Читать дальше...   )Жанр: Rock, New Wave, Lo-Fi, ElectroПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED239190475CB134DC124439FBA534BD937657B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

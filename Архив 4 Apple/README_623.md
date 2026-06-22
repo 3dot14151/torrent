@@ -1,3 +1,55 @@
+###  Публикация: 1432796   (163014) от 18.12.2020
+
+Adobe Premiere Rush v1.5.40 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подарите своим каналам потрясающий поток с Premiere Rush, совершенно новым приложением для создания и обмена онлайн-видео. Он прост в использовании, работает на всех ваших устройствах и изменит способ создания контента.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C5D338848FDDF94A10314BC19BAE7F368088C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517474   (163013) от 15.12.2021
+
+PullTube 1.7.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2021Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14543C72E8F215F137BA4F32EFBF3755DAE6A349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517395   (163009) от 15.12.2021
 
 Network Kit 9.0.1 [Multi]
@@ -6,7 +58,7 @@ Network Kit 9.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163009.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ PDF Search + PDF Converter 11.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163003.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ A Better Finder Rename 11 v11.41 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162998.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Sketch 70.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162983.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162968.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ KCNcrew Pack 12-15-21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162935.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Monterey Cache Cleaner 17.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162928.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Audiobook Builder 2 v2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162925.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Adobe Substance 3D Sampler 3.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162920.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Adobe Media Encoder 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162910.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Adobe Substance 3D Designer 11.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162895.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ zCommander - File Manager for Mac 6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162882.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ BusyContacts 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162879.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Do Your Data Recovery Pro 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162845.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ iShot Pro-ScreenShot Recording 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162752.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ ProFind 1.19.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162749.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Maxon Cinema 4D Studio R25.113 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162735.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ ColoFolXS 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162721.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Keep It 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162720.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ VideoDuke 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162708.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ KCNcrew Pack 12-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162692.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ CheckBook Pro 2.7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162678.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Adobe Substance 3D Painter 7.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162665.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ SuperDuper! 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162643.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ SuperDuper! - утилита для клонирования жесткого д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43FC623896753894466C0607988B728F932477D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674289   (162637) от 04.11.2023
-
-Nevercenter CameraBag Photo 2023.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162637.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
-Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3282CBC39B3BAEE06F09DC2F9BDD4CE2739E81BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674288   (162631) от 04.11.2023
-
-Nevercenter CameraBag Pro 2023.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162631.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4046F8066A1BA15E8D3C441F722211C1553B4D22
 ```
 
 https://mybot314.ru/tekegram_catalog/

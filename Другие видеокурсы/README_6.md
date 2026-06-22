@@ -1,3 +1,32 @@
+###  Публикация: 1131682   (706305) от 06.05.2017
+
+Радислав Гандапас | Ораторское искусство 2.0 (2014) CamRip [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот мастер-класс по уникальности и ценности содержания считается VIP-программой Радислава.
+
+Сейчас, в начале XXI века, ораторское искусство переживает период упадка. Трудно назвать блестящего оратора, который был бы нашим современником. Трудно вспомнить хоть одно выступление, на котором не было бы скучно.
+(   Читать дальше...   )Жанр: Ораторское искусствоПродолжительность: 03:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E722BE1D68A05C288FF73C55D7B7D8574FA61642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131692   (704385) от 07.05.2017
 
 К.П. Петров | Лекции генерала Петрова по теории общественной безопасности (КОБ) (2004) DVDRip
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704385.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701407.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Academia / Academia (2010) SATRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_697880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697880.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687290.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Hubert Sicard | Видеоролики от Хьюберта Сикарда [201
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670083.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660997.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660992.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657614.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ Surgical Techniques in Ophthalmology | Хирургические техники
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655658.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654766.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ Convert Monster | Эффективные объявления (2015) PCRec [H.26
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654083.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ Convert Monster | Интенсивный курс по таргетирован�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654055.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ Convert Monster | Идеальный Яндек.Директ 2.0 (2014) PCRec [H
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654052.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ Convert Monster | Идеальный Landing Page 2.0 (2015) PCRec [H.264]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654046.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653558.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652074.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649087.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Lynda.com | Основные навыки обучения / Study Skills Fundam
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648285.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646333.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644338.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643408.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637069.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637066.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636937.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Neointegral | Саи Гаятри / Sai Gayatri (2012) [H.264] SATRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634342.jpg" />
 </div>
 
 
@@ -686,32 +715,6 @@ Tanna Sarva PrachodayatЖанр: музыка для медитацииПрод�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD69B7E8CC87E4D0ACFC580AF5F7989465F4934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909746   (625192) от 18.06.2015
-
-Максим Шаинский | Руководство самостоятельного путешественника. Видеогид I - II (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из видеокурса вы узнаете, как организовать своё путешествие от А до Я, узнаете все алгоритмы и методы, которые помогут сделать ваше путешествие комфортным и безопасным, а также он поможет вам максимально сэкономить деньги, не экономя на качестве отдыха. Путешествуйте оригинально, не как все. В видеокурсе есть всё необходимое для этого.Жанр: ПутешествиеПродолжительность: 23:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1206227A75EEC193C738092B8BCEDEC6586476EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

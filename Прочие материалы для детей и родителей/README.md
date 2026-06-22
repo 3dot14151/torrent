@@ -1,4 +1,31 @@
 https://t.me/izofen
+###  Публикация: 1874916   (1072212) от 
+
+Евгения Миловидова | Привет, мама! Давай знакомиться? Физиогномика для родителей (2026) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1072212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусство разбираться в людях по их мимике, особенностям лиц и тел называется физиогномикой. В литературоведении это прием (средство художественной выразительности), с помощью которого авторы описывают внутренний мир, характер или скрытые мотивы персонажа через его внешность, мимику и черты лица.
+А что, если такие знания использовать в общении с вашими детьми? Благодаря (   Читать дальше...   )Жанр: Нон-фикшн литература. Прикладная (популярная) психологияИздательство: ФениксФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72AB94375FB671DABA9DA2090F2EB101AAE080E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492419   (1042427) от 03.01.2021
 
 Сергей Марнов | Дети - Дар Божий, или опыт православного усыновления (2011) [PDF]
@@ -7,7 +34,7 @@ https://t.me/izofen
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042427.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041469.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038208.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028184.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027924.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025183.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024836.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024708.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024678.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023760.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017909.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017716.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004482.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988994.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983764.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973009.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957230.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955218.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944170.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937041.jpg" />
 </div>
 
 
@@ -543,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935462.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908882.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905914.jpg" />
 </div>
 
 
@@ -621,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885480.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878663.jpg" />
 </div>
 
 
@@ -659,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD161283C2D413E7DB6E58B1C9C3E806F568FDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996872   (877091) от 15.03.2016
-
-Г. Панина | Вязаные мишки с описаниями и шаблонами (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданный своими руками милый мишка из пушистой пряжи украсит интерьер любой детской и станет вашему малышу верным товарищем по играм на многие годы. А чтобы вязать его было легко и приятно, воспользуйтесь простыми и понятными описаниями из этой книги. Здесь вы найдете советы по выбору пряжи, спиц и крючка, глазок и пуговиц, приемы вязания спицами и крючком, набивки (   Читать дальше...   )Жанр: РукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE27E809C47B02403DD8E8E700CFF88ADA476BC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

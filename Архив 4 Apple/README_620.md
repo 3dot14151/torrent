@@ -1,3 +1,55 @@
+###  Публикация: 1432371   (164189) от 17.12.2020
+
+Easy Data Transform 1.11.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преобразование файлов Excel и CSV без программирования с помощью Easy Data Transform.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: Oryx Digital LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC73376853987D9A513B8BA6E06BDE8AC7EC38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432366   (164131) от 17.12.2020
+
+TechSmith Camtasia 2020 Studio v2020.0.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFB0F75F5585574DFF980D8F7B33B5ADED530A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432373   (164126) от 17.12.2020
 
 Mountain Duck 4.3.3 [Multi/Ru]
@@ -6,7 +58,7 @@ Mountain Duck 4.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164126.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Apple Remote Desktop 3.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164038.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Red Giant Magic Bullet Suite 13.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163986.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Qbserve 1.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163936.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ DupeZap 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163924.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ Parallels Desktop Business Edition 17.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163867.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ DoYourData File Eraser Pro 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163826.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ Calendar 366 II v2.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163825.jpg" />
 </div>
 
 
@@ -226,7 +278,7 @@ File List Export 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163824.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ DoYourData AppUninser Pro 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163816.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ UctoX 2 v2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163814.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ FileAssistant 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163807.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ URL Manager Pro 5.8.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163804.jpg" />
 </div>
 
 
@@ -363,7 +415,7 @@ NeoOffice 2017.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163800.jpg" />
 </div>
 
 
@@ -390,7 +442,7 @@ Sublime Merge Dev Build 2065 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163796.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ PCalc 4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163767.jpg" />
 </div>
 
 
@@ -443,7 +495,7 @@ MacClean360 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163759.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ Pixelmator 3.9 Classic [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163756.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ Donemax DMmenu 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163753.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ Imperator: Rome v.1.3.2 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163741.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ Pixelmator Pro 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163714.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ DoYourData Start Menu Pro 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163696.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ Adobe After Effects 2024 v.24.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163689.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ SILKYPIX Developer Studio Pro 10E v10.0.17.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163664.jpg" />
 </div>
 
 
@@ -639,60 +691,6 @@ SILKYPIX Developer Studio Pro — мощное приложение, котор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D73CDD50F4858D887EFE06100E0F1DECFB1F9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517225   (163638) от 14.12.2021
-
-Pocket cleaner Pro 1.5.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pocket Cleaner Pro - это приложение, которое включает набор инструментов для очистки дискового пространства от ненужных файлов, содержащихся на вашем Mac.
-Инструмент удаления - это программное обеспечение для полного удаления приложений и оставшихся файлов, связанных с приложением.
-Finder нежелательных файлов сканирует ваши файлы и позволяет быстро выбирать из их (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2021Разработчик: © 2021 Maksym KatrychПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Упрощенный китайский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E1787546028F8E5E07D980EBE434C0CE46D000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346373   (163621) от 19.12.2019
-
-ON1 Photo RAW 2020 14.0.1.8289 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163621.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Photo RAW 2020 включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ON1Поддерживаемая ОС: macOS 10.12 SierraЯзык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1306E7B8A46573D02ECA373109BD66699CF035A
 ```
 
 https://mybot314.ru/tekegram_catalog/

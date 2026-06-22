@@ -6,7 +6,7 @@ The Michelle Taylor Band - Dirty Love (2018) [MP3|320 Kbps] <Blues Rock, AOR>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381690.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rory Gallagher - The Best Of (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381046.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Eric Clapton - Happy Xmas (2018) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379419.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Blues Sisters (2017) Vol.1 [MP3|320 Kbps] <Blues Rock, Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378773.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bibi Ahmed - Adghah (2019) [MP3|320 Kbps] <Blues, World, Psychedelic>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378646.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ina Forsman, Ally Venable & Katarina Pejak - Blues Caravan 2019 (2019) Live [MP3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378495.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Floyd Dixon - His Complete Aladdin Recordings (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377590.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Rediscovered Blues: Capitol Blues Collection (2CD) (1995) [MP3|320 кб/с]
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377581.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Johnny Winter - Paradise Blues (2018) Live [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377507.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Boogie Town - Resting Blues Face (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377385.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Beth Hart - War In My Mind (2019) (Deluxe Edition) [MP3|320 Kbps] <Blues, Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376366.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Petrovitch Band - Уездные хроники (2010) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376246.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Claudette King - Good Ole Bluz (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375116.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Layla Zoe - Gemini (2018) 2CD [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374939.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Howlin' Mojo Bones - One Foot in the Blues (2022) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373245.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Genuine Houserockin' Music V (1993) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370427.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Shemekia Copeland - Outskirts Of Love (2015) [MP3|320 кб/с]<Contemporary Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370422.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Taj Mahal & The Hula Blues Band - Live from Kauai (2015), Double CD [MP3|320 к�
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370363.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mojo Man - Mojo Man (2015) [MP3|320 кб/с]<Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370220.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ T-Bone Walker - The Complete Capitol/Black & White Recordings (1995) [MP3|320 к
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370060.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Joe Bonamassa - Blues Of Desperation (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369547.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jimmy Thackery & The Drivers - Spare Keys (2016) [MP3|320 Kbps] <Blues-Rock, Ins
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369136.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Katie Kern - Blues For The Highway (2017) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367632.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dirk Stelder - Neer (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366866.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mojo Society - Mojo Groove (2006) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366186.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - The Blues White Album (2002) [MP3|320 Kbps] <Blues, Cover>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366040.jpg" />
 </div>
 
 

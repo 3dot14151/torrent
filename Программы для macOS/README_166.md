@@ -1,3 +1,108 @@
+###  Публикация: 1272480   (142994) от 28.12.2018
+
+Perfect Diet Tracker 3.10.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfect Diet Tracker - Данная программа предназначена для мониторинга дневной нормы потребления калорий. В Perfect Diet Tracker включена база данных, содержащая более 110,000 наименований продуктов, и она постоянно обновляется. В программе поддерживаются как эмпирические, так и количественные измерения. Включена возможность добавлять виды продуктов, оценивать их (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: Byoni LtdПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4FDF6F4362C3630183B5C9AD078B194096A00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435729   (142801) от 29.12.2020
+
+Net Worth Pro 2 v3.4.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Net Worth Pro - отслеживайте свою чистую стоимость, используя собственные категории активов и пассивов. Применяйте собственные теги к категориям. Поддерживает активы и обязательства в иностранной валюте.
+Чистая стоимость - это самый важный показатель ваших личных финансов. Отслеживание вашего собственного капитала дает вам наиболее точную картину вашего полного финансового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2020Разработчик: Blue Plum SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3772E8843D1C41844EFBDC02EF38DA9E0D629DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435738   (142722) от 29.12.2020
+
+Zee Timer 7.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный мульти-таймер на каждый день.Тип издания: macOS SoftwareРелиз состоялся: 27.12.2020Разработчик: Roman SevastyanovПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1297CEC3E0337DFD38D1B7CD1D12C70D130DEB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435737   (142593) от 29.12.2020
+
+Typing 2.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший способ научиться чему-то - играть, наше приложение, играючи, поможет вам быстро научиться слепой печати.Тип издания: macOS SoftwareРелиз состоялся: 28.12.2020Разработчик: Roman SevastyanovПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F65F352BC9B302F792EF153433D2EA6970665C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679050   (142591) от 23.11.2023
 
 NCH DreamPlan Plus 8.61 [En]
@@ -6,7 +111,7 @@ NCH DreamPlan Plus 8.61 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142591.jpg" />
 </div>
 
 
@@ -35,7 +140,7 @@ UltraCompare 23.1.0.30 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142535.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ Firetask | Task List & Planner 4.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142509.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ Task Calendar 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142448.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ JixiPix Premium Pack 1.2.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142395.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ AnyMP4 iOS Toolkit for Mac 9.1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142383.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ GraphicConverter 11 v11.5.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142341.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142318.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ ScreenFloat-Better Screenshots 1.5.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142302.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ PhoneRescue for iOS on Mac 4.2.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142190.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ Magoshare Data Recovery Professional 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142020.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Free 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142008.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Live Home 3D Pro Edition 4.8.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141897.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ Adobe Muse CC 2017.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141864.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ Adobe Dreamweaver CC 2017 (17.0.1) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141839.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ OmniPlan Pro 3 v3.10.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141773.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ Symantec Endpoint Protection 4.3.1 RU1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141148.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ WidsMob Viewer 2.10 (1266)[Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141116.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ Easy App Locker Pro for Mac 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140970.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ Scrollow 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140907.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ Duplicate Finder and Cleaner for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140851.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ Fashion Art 1.3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140839.jpg" />
 </div>
 
 
@@ -576,112 +681,6 @@ Fashion Art 1.3.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F00176B3105A094D2E8287801FB2410027EFD872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520647   (140819) от 29.12.2021
-
-Audio Editor - Merge Split And Edit 1.5.8 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Editor - Merge, Split And Edit - программа для редактирования аудио на macOS. Этот софт позволит вам редактировать любой файл в формате WAV на вашем компьютере. Вы сможете с легкостью обрабатывать, обрезать, копировать и вставлять выбранные вами части дорожки. Простое в использование приложение позволяет без лишних усилий создавать и сохранять ваши проекты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © Music Paradise, LLCПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A51619A8C3E1F68203659D76366A943C59516C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520688   (140670) от 29.12.2021
-
-Benchmark AI - System Monitor for Mac 1.1.2 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенью 2020 года компания Apple совершила очередной технологический прорыв, выпустив свой первый чип, разработанный специально для Mac. Невероятно мощный чип M1 с рекордной производительностью стал поистине настоящим прорывом не только для Apple, но и для всей компьютерной индустрии.
-Мы разработали приложение Test the Future, чтобы Вы могли сравнить Ваш Mac с новейшими (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2021Разработчик: © 2021 EcoComputers, JSCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3808FE4A92AD336C6A5E1943EA0F864D3181BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088139   (140619) от 30.12.2016
-
-Tuner - experience YouTube music 3.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите неограниченную музыкальную библиотеку? Именно поэтому мы разработали Tuner, музыкальный плеер YouTube для вашего Mac.
-Tuner позволяет передавать музыку из YouTube, с дружественным пользовательским интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 08 декабря 2016Разработчик: Muhammad Al BassiounyПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B1BBEC9D719A3630CB31C54DDB2B0E3CC4493E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520716   (140572) от 29.12.2021
-
-Cisdem Video Player 5.6.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem Video Player - это видео и аудиоплеер, который поддерживает практически любые мультимедийные файлы (включая видео 5K и Full HD 1080P) без дополнительных кодеков или плагинов. Он обеспечивает лучшее воспроизведение видео в формате HD без буферизации или сбоев. Вы можете загружать файлы субтитров автоматически и легко добавлять файлы субтитров. Поддерживая более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2021 Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF24FBB9A2D8D0645FCEE2BC7254714BF485CB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

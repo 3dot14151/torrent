@@ -1,32 +1,3 @@
-###  Публикация: 1242416   (515131) от 22.08.2018
-
-The Gary Burton Quartet With Eberhard Weber - Passengers (1977) 1988, ECM [FLAC|Lossless|tracks + .cue] <Post Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Journey [9:19]
-02. Nacada [4:15]
-03. The Whopper [5:33]
-04. B & G (Midwestern Nights Dream) [8:27](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BF5906C6E708FFF852AC9ABEA649CFB61F4BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314974   (515098) от 18.07.2019
 
 Mason Razavi - Quartet Plus, Volume 2 (2017) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
@@ -35,7 +6,7 @@ Mason Razavi - Quartet Plus, Volume 2 (2017) OA2 Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515098.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Bengan Janson, Jan Lundgren, Ulf Wakenius (2011) Ladybird [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515097.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Ahmad Jamal - Marseille (2017) Jazz Village [FLAC|Lossless|image + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515095.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Sophie Milman - Make Someone Happy (2007) Linus [APE|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515089.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Grant Green - 5 Original Albums (1961 - 1965) 5CD, 2018, Universal [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515079.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Blues! - The Best Of The Best Part I - Part V (2003) Unofficial Release [MP
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514907.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Bobby Gentilo - Gentilo (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514684.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Bob Doug - Mirage (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_514683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_514683.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Voodoo Ramble - Can't Write a Pop Song (When You've Got The Blues) (2022) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514681.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Williboy Taxi - Down the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514680.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Bonnie and the groove Cats - The Last Gap (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514677.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Wayne Madder - Unconditional (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514676.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Xander and the Peace Pirates - Order out of Chaos (2022) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514674.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Steve Tibbetts - Hellbound Train: An Anthology (2022) Remastered[FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514673.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Brad Wilson - Brad "Guitar" Wilson (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514672.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Bonnie Raitt - Just Like That (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514577.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Vaneese Thomas - Fight the Good Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514516.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Ethel Waters - Am I Blue?: Ethel Waters Sings 'Em (1923 - 1940) 2CD, 2019, Retro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514515.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Blue Mitchell - Heads Up! (1967) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514125.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Masabumi Kikuchi - Wishes / Kochi (1976) /2015, Universal/[FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514124.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Chico Hamilton - And The Players (1976) /2013, EMI Music/[FLAC|tracks+.cue]<Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514122.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Shawna Yang - Simple Life (2015) [FLAC|tracks|WEB-DL]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514100.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Thelonious Monk - Thelonious Himself (1957) /2008, Concord/[FLAC|tracks+.cue]<Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514099.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ The Australian Jazz Quartet & Quintet (1956) /2014, Solid Records/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514098.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ The Bill Evans Trio - I Will Say Goodbye (1977) /2012, Universal/[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514092.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ The Bill Evans Trio - I Will Say Goodbye (1977) /2012, Universal/[FLAC|tracks+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C7809FDDE93E8E2D46B9C79AF3CF569AD64D176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931013   (514087) от 24.08.2015
+
+VA - Sensual Jazz Lounge, Vol. 1 (2015) [MP3|320 кб/с]<Jazzy, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richy Kicklighter - On and On (07:09)
+02. Ross Milligan - East Wes Side (03:40)
+03. MX47 - Groovy Nocturne (04:15)
+04. Jive Ass Sleepers - The Look of Lust (05:07)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Jazzy, LoungeПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4747A33EB611951F483C6C8A5E0FC973D8663E51
 ```
 
 https://mybot314.ru/tekegram_catalog/

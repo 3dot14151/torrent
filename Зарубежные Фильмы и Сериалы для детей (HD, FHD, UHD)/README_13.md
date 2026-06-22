@@ -1,3 +1,81 @@
+###  Публикация: 1316923   (503208) от 29.07.2019
+
+Мой друг мистер Персиваль (Штормовой мальчик) / Storm Boy (2019) BDRemux [H.264/1080p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Майкл Кингли был еще маленьким мальчиком, он вместе с отцом жил на побережье. Однажды он спас птенца пеликана и вырастил его. Майкл назвал его мистером Персивалем. Между ним и птицей возникла необычайная связь. Спустя много лет, когда Майкл уже стал пенсионером, образы прошлого заставляют его окунуться в детские воспоминания. Ими он делится со своей внучкой...Производство: Австралия / Ambience Entertainment, Best FX AdelaideЖанр: Драма, приключения, семейныйРежиссер: Шон СитАктеры: Джай Кортни, Эрик Томсон, Джеффри Раш, Симона Аннан, Дэвид Галпилил, Моргана Дейвис, Шанталь Контури, Финн Литтл, Лука Аста Сарделис, Тревор ДжемисонПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: АнглийскиеПродолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A7ED81C6B5CEC472225D79C670E581786B0D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316934   (503125) от 29.07.2019
+
+Мой друг мистер Персиваль (Штормовой мальчик) / Storm Boy (2019) BDRip [H.264/1080p] [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Кингли, некогда успешный бизнесмен, а теперь пенсионер, рассказывает своей внучке историю о том, как в детстве он спас и вырастил необычайного пеликана, мистера Персиваля. Их удивительные приключения и особая связь оказали глубокое влияние на всю его жизнь.Производство: Австралия / Ambience Entertainment, Best FX AdelaideЖанр: Драма, Приключения, СемейныйРежиссер: Шон СитАктеры: Джай Кортни, Джеффри Раш, Дэвид Галпилил, Эрик Томсон, Финн Литтл, Шанталь Контури, Моргана Дейвис, Симона Аннан, Тревор ДжемисонПеревод: Многоголосый профессиональныйСубтитры: Русские (Forced), Английские, КитайскиеПродолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D07EF95CBEA484DFAD87F32D66AA852F518032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564646   (499583) от 19.07.2022
+
+Мой волк / Mystere / Vicky and Her Mystery (2021) BDRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмилетняя Виктория переезжает с отцом из города в горы. Однажды на прогулке они знакомятся с пастухом, и он дарит девочке щенка по кличке Секрет, который становится ей лучшим другом. Лишь позже семья понимает, что из этого ласкового комочка шерсти вырастет опасный хищник. Но дружба не знает границ.Производство: Франция / Radar Films, Solar Entertainment, GaumontЖанр: семейный, приключенияРежиссер: Дени ИмберАктеры: Венсан Эльбаз, Шанна Кейль, Мари Жиллен, Эрик Элмоснино, Чеки Карио, Эрик Савен, Ромен Ланкри, Венсан Деньяр, Эцио Саттер, Monique BarbaratПеревод: Дублированный (KION)Субтитры: ОтсутствуютПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE872295984EBF6142B469B75965748DD3D5B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935533   (498127) от 09.09.2015
 
 Кокоша – маленький дракон / Der kleine Drache Kokosnuss (2014) BDRip [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498127.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495628.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490836.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490815.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488638.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488637.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488626.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488535.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488532.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488459.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487765.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484578.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482728.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478484.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476405.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474516.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473893.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465532.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464957.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464093.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463966.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463680.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462983.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1266AA581C4DAE7B4D9EE5C6D8C8E349BF2EAFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941613   (459535) от 28.09.2015
-
-Прогулки с динозаврами / Walking with Dinosaurs (2013) BDRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459535.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прогулки с динозаврами» — это увлекательное путешествие с полным погружением в 3D-реальность, созданную по инновационной технологии CGI. Мы увидим, как выглядели динозавры, как они жили и с какими опасностями им пришлось столкнуться. Главный герой истории — храбрый динозаврик Патчи, он самый маленький в семье, но именно ему предстоит стать лидером и спасти своих (   Читать дальше...   )Производство: США, Великобритания, Индия / Animal Logic, BBC WorldwideЖанр: Анимация, приключения, семейныйРежиссер: Бэрри Кук, Нил НайтингейлАктеры: Чарли Роу, Карл Урбан, Ангури Райс, Джон Легуизамо, Джастин Лонг, Скайлер Стоун, Тия Сиркар, Клэй Сэвадж, Джуд Тинсели, Мэри Мэтилин МаусерПеревод: ДублированныйЯзык субтитров: русский, украинский, английский, английский (SDH)Продолжительность: 01:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8698C8452FAEF0B07AEF1F9BA866245758227428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568866   (457926) от 10.08.2022
-
-Спичечный человек / L'uomo fiammifero (2009) BDRip [H.264/720p] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457926.jpg" />
-</div>
-
-
-###  Подробнее
-
-11-летний Симоне вынужден всё время торчать дома, помогая строгому отцу ухаживать за скотиной и выполняя его поручения. Но Симоне мечтает о встрече со Спичечным человеком, о котором ему рассказывала мама и который способен исполнить любое желание. Но мамы больше нет, а вера в Спичечного человека осталась. Поэтому Симоне повсюду оставляет письма Спичечному человеку (   Читать дальше...   )Производство: Италия, M.A.G. Special EffectsЖанр: фэнтези, драмаРежиссер: Марко КьяриниАктеры: Франческо Паннофино, Марко Леонци, Габриэль Манфреди, Грета Кастанья, Джузеппе Матту, Анналиса Усай, Франко Ди Санте, Давид Кьюриосо, Армандо КастаньяПеревод: любительский одноголосый (Семён Ващенко)Субтитры: русские (Calabi под редакцией prostotak), английскиеПродолжительность: 01:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6397D91D67AD81BCAD4D6BFA65F78597FEA319C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568829   (457924) от 10.08.2022
-
-Решение с арахисовым маслом / The Peanut Butter Solution (1985) BDRip [H.264/720p] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457924.jpg" />
-</div>
-
-
-###  Подробнее
-
-11-летний Майкл отправляется в переполненный призраками дом, а там от страха теряет сознание. И у него выпадают все волосы! Привидения рассказывают ему о чудодейственном рецепте для восстановления волос, но когда он смешивает все ингредиенты, происходит то, чего Майкл совсем не ожидал...Производство: Канада, Les Productions La Fête Inc., Téléfilm Canada, Société Générale du Cinéma du QuébecЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Майкл РуббоВ ролях: Мэтью Маккэй, Силак Сейсенеси, Элисон Дарси, Майкл Хоган, Хелен Хьюз, Гриффит Брюэр, Гарри Хилл, Эдгар Фруатье, Пэт ТомпсонПеревод: любительский одноголосый (Семён Ващенко)Субтитры: русские (Северный), английскиеПродолжительность: 01:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2E07D0500CC0F1FEBBA5F60814D85AC93F6902
 ```
 
 https://mybot314.ru/tekegram_catalog/

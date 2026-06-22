@@ -1,3 +1,32 @@
+###  Публикация: 1033075   (640290) от 10.07.2016
+
+Волейбол. Гран-при 2016. Женщины. Финал шести. Бангкок(Таиланд). Группа J1. Таиланд – Россия (08.07.2016) WEB-DL [H.264/1080p-LQ][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640290.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 июля 2016, пятница. 14:00 МСК
+ Финальный этап. 1-й дивизион. Группа J. 3-й игровой день
+Стадион:  Хуамарк Индор Стэдиум (Бангкок, Таиланд), 9200 зрителей (61 % при вместимости 15000)
+Судья 1:  Тауфик Будая (Тунис)(   Читать дальше...   )Жанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEB6F65FB053B9B4A56F5AEFE984462849E1DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033349   (640008) от 10.07.2016
 
 Формула 1. Гран-При Британии. Гонка (2016) HDTV [H.264/1080i]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640008.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639952.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639922.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ NHL 10/11, SC: Финал, матч №3: Boston Bruins vs Vancouver Canucks (06
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639784.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639679.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639678.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639603.jpg" />
 </div>
 
 
@@ -189,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639596.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639568.jpg" />
 </div>
 
 
@@ -248,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639567.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639566.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639565.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639564.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639563.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639562.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639508.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639390.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639333.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638994.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ NG: Суперсооружения: Мегазаводы. Форд F-150 / MegaS
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638868.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638312.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638039.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638038.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637934.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637924.jpg" />
 </div>
 
 
@@ -683,32 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C381B2D541C6B740D8DD00957CA3C302D6195C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348355   (637889) от 09.06.2011
-
-NHL 10/11, SC: Финал, матч №4: Boston Bruins vs Vancouver Canucks (08.06.2011) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. NHL. Кубок Стэнли, финал, 4-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 02:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B4E5E7DF410F64F0FA4E28FB29203BA5657020
 ```
 
 https://mybot314.ru/tekegram_catalog/

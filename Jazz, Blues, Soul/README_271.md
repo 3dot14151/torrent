@@ -1,32 +1,3 @@
-###  Публикация: 1313328   (524512) от 08.07.2019
-
-Heather Newman - Rise From The Flames (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Coming For You
-02. Zakary
-03. She Sure Looks A Lot Like Me
-04. You MeanTo Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC87DC90414DB21D2613E44741A40A1C211C905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240534   (524473) от 12.08.2018
 
 Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
@@ -35,7 +6,7 @@ Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524473.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literatur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524417.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Oberg - Blues As Blues Can Get (2009) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524371.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Neal Black & Larry Garner - Guilty Saints (2016) [FLAC|Lossless|image + .cue] <M
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524353.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Rocky Athas - Let My Guitar Do The Talking... With My Friends (2014) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524266.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Leaders - Mudfoot (1986) /Bellaphon/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524130.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ George Wein And The Storyville Sextet - Metronome Presents Jazz At The Modern (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524129.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Gene Ammons - Brasswind (1974) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Soul Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524128.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Chet Baker - Chet In Paris: The Complete Barclay Recordings Of Chet Baker (1955-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524119.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Wayne Shorter - Super Nova (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524110.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Dave Stryker - Eight Track III (2019) Strikezone Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523759.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Matthieu Bore - Fats Domino's True Spirit (2001) [FLAC|Lossless|image + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523755.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Illinois Jacquet - The Illinois Jacquet Story: Groovin' (1944 - 1951) 2002, Prop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523705.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Romain Pilon - Copper (2018) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523702.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Jimmy Smith - The Classic Verve Albums Collection (1962 - 1964) 4CD, 2019, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523543.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Jazz Sabbath - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523490.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Reinhard Flatischler - Schinore (1987) /Puls Productions/[APE|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523343.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Hurricane Ruth - Born On The River (2014) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523341.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Charlie Rouse - Epistrophy (1988) /1997, 32 Jazz/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523340.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Alune Wade & Harold Lopez-Nussa - Havana -Paris- Dakar (2015) [FLAC|tracks|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523339.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Concerto for Jazz Band & Symphony Orchestra - Liebermann, Stravinsky, Ellington 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523338.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ The Stella Vees - Don't Tell Me Your Name (2015) [MP3|320 кб/с]<Chicago & Wes
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523336.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Aysha - Take Me Higher (2015) [MP3|320 кб/с]<Smooth Jazz, R&B>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523331.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Jools Holland - Finding The Keys. The Best Of (2011) [MP3|320 kbps]<Blues, Jazz,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523060.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Errol Rackipov Group - Distant Dreams (2017) OA2 Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523033.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Errol Rackipov Group - Distant Dreams (2017) OA2 Records [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33423DAED0D589EB444B4F36ADBA7F5C8B10F623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313690   (523031) от 10.07.2019
+
+Geof Bradfield - African Flowers (2010) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, African Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butare [5:23]
+02. Piano Solo [2:26]
+03. The Children's Room [5:49]
+04. Lubumbashi [7:18](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, African JazzПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EF4ECF3A8751E9797C070178CBFF4BB34F0AC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

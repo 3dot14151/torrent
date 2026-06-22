@@ -1,3 +1,29 @@
+###  Публикация: 481925   (88112) от 12.04.2012
+
+Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизаций [Ru]  (P) 2006
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это компьютерная игра в жанре RTS, разработанная чикагской студией Midway Games. Игра повествует о войнах, происходящих в древности между Грецией, Египтом, Персией и Римом. В игре присутствует небольшое отличие от других стратегий, это так называемая изюминка - главным героем можно управлять от 3-его лица, и в это время он становится невероятно силён, что даёт вам возможность месить противников в капусту. Плюс герой с каждым уровнем становится намного сильнее.Тип издания: ПираткаЖанр: Стратегия в реальном времениЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9558B2F457F680233A835D683E75CD66C9EEC73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 451136   (87501) от 09.04.2012
 
 Cannon Fodder 3 [Ru] (RePack) 2012 l Fenixx
@@ -6,7 +32,7 @@ Cannon Fodder 3 [Ru] (RePack) 2012 l Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87501.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87497.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85433.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Worms: Reloaded: Game of the Year Edition + 7 DLC [Ru] (RePack/1.0.0.475) 2012 |
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85038.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Combat Mission: Red Thunder (2023) [En] (2.13/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69455.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69435.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Tank Operations: European Campaign (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62813.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62730.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62616.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.02.941) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62494.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61295.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (2.7.6/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61238.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Repack FitGirl [Vanguard E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61152.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60722.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Scene Tenoke [Vanguard Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60428.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59981.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ John Wick Hex (2019) [Ru/Multi] (1.03) Scene DARKSiDERS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59245.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58104.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58077.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57551.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57253.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57054.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ The Land Beneath Us (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56178.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.8/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55685.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55582.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C90291D345BC51B13642E8D44F2C0486698DF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727288   (54737) от 01.06.2024
-
-Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцать лет назад суперзлодеи одержали победу. За это время они выстроили антиутопический город, где обладать суперсилами само по себе преступление. Никому не удавалось воспрепятствовать им... до этого момента. Capes - пошаговая стратегия о супергероях, в которой тебе предстоит создать команду персонажей и освободить город. Выполняя сюжетные и патрульные миссии, (   Читать дальше...   )Тип издания: RepackРазработчик: Spitfire InteractiveЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9367A0AA280030460A5BAABEB0E01E99C43724A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

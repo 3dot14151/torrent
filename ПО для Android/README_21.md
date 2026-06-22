@@ -1,3 +1,32 @@
+###  Публикация: 1444937   (1034142) от 03.02.2021
+
+PC Remote v7.4.2 Vip [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monect PC Remote - это бесплатное приложение, которое позволяет вам управлять ПК через Wi-Fi или Bluetooth локально или удаленно.
+
+Ключевая особенность:
+- Играйте во все виды компьютерных игр с встроенными датчиками и специально разработанными макетами кнопок, и вы можете редактировать их по своему желанию(   Читать дальше...   )Тип издания: Пиратка (Vip)Релиз состоялся: 3 февраля 2021 г.Разработчик: MonectПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA839F0A89E711A8EB047C5320310234FBCA4131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618382   (1034069) от 11.03.2023
 
 Floor Plan Creator v3.6.2 [Ru/En]
@@ -6,7 +35,7 @@ Floor Plan Creator v3.6.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034069.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034047.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ AudioBooks. Аудиокниги бесплатно v4.0.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034043.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033868.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033618.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ NUM - No UI Movies v1.0.60 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033602.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Sun Locator Pro v4.20 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033514.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ Olympia Pro v21.2.1 [En] - Gym Workout & Fitness Trainer
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033468.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ Avito автопоиск с оповещениями v1.15.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033363.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033353.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ VLC for Android 3.5.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033338.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033195.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ Call Blocker / Блокировщик звонков v4.5.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033182.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032865.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032681.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ AirReceiver v4.9.5 FTV/MITV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032163.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032035.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ Resize Me! v2.01.2 [Ru/Multi] - изменение размера изображ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031971.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ SketchAR v4.57 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031835.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ WeatherPro Premium v5.6.2 [Ru/Multi] - Прогноз погоды от MeteoGro
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031449.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031264.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Facetune2 - Фоторедактор селфи, ретушь и фильтры 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030869.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030837.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ WinZip v6.1.1 Premium  [En] – Zip UnZip Tool
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030448.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030367.jpg" />
 </div>
 
 
@@ -658,32 +687,6 @@ Radarbot - это Ваш помощник на дороге. Это единст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E98FD0247442FA58B45B306E3A0FE43D666F82F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447355   (1030217) от 20.02.2021
-
-Лучшие книги о любви: классика мировой литературы v2.0.6.18 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030217.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом приложении мы собрали для вас самые замечательные книги писателей мировой литературы о любви, которые достойны прочтения абсолютно всеми, а не только дамам. Книги, собранные в эту коллекцию, являются абсолютно бесплатными для чтения, не имеют ознакомительных версий и прочих подвохов. Приложение не требует постоянного подключения к интернету, выбранная книга (   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 26.03.2020Разработчик: DuoSoftПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B741731FDB762F66F4D9C01E6A2EF559EEE14A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1079240   (289481) от 06.12.2016
+
+Отряд самоубийц / Suicide Squad (2016) BDRip [H.264/1080p] [hande made 60fps] [Расширенная версия]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство решает дать команде суперзлодеев шанс на искупление. Подвох в том, что их отправляют на миссию, где они, вероятнее всего, погибнут.Производство: США / Warner Bros. Pictures, Dune Entertainment, Atlas EntertainmentЖанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Дэвид ЭйрАктеры: Марго Робби, Уилл Смит, Джаред Лето, Джай Кортни, Кара Делевинь, Джей Эрнандес, Юэль Киннаман, Виола Дэвис и др.Перевод: Дублированный + Матвеев на расширенные эпизодыЯзык субтитров: Русский, АнглийскийПродолжительность: 02:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8F4E996F9BC43CEA6B11B01CEF22CECD230CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263285   (289406) от 18.11.2018
 
 Мег: Монстр глубины / The Meg (2018) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара] [hand made 16:9]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289406.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287817.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287810.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287413.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286883.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286819.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285438.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285081.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282495.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282457.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280441.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280323.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280306.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280299.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280190.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Ace of Base - Видеоколлекция от ALEXnROCK (2017) WEBRip [H.264/7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280130.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Sandra - Видеоколлекция от ALEXnROCK (2017) WEBRip [H.264/720p-L
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278215.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Modern Talking - Видеоколлекция от ALEXnROCK (2018) WEBRip [hand
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276284.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275651.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273374.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273252.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ Bon Jovi - Live in Japan (1985) от ALEXnROCK WEBRip [H.264/1080p-LQ][upscale]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271956.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271259.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268710.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266841.jpg" />
 </div>
 
 
@@ -667,32 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00B902BC0999119B324AFD266A86FAA73AFA490E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339217   (266787) от 18.11.2019
-
-Падение ангела / Angel Has Fallen (2019) BDRip [H.264/1080p-LQ] [hand made 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266787.jpg" />
-</div>
-
-
-###  Подробнее
-
-На президента США совершено покушение, главный обвиняемый — верный ангел-хранитель главы государства и агент секретной службы Майк Бэннинг. Скрываясь от ФБР, он должен найти тех, кто его подставил, и спасти страну и ее лидера от смертельной угрозы.Производство: США / Millennium Films, G-BASE, Campbell Grobman FilmsЖанр: Боевик, ТриллерРежиссер: Рик Роман ВоАктеры: Джерард Батлер, Фредерик Шмидт, Морган Фримен, Дэнни Хьюстон, Рокки Уильямс, Пайпер Перабо, Джада Пинкетт Смит, Гарри Дитсон, Ник Нолти, Лэнс Реддик, Тим Блэйк НельсонПеревод: Дублированный (iTunes)Субтитры: Английские (полные)Продолжительность: 02:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074F39964805F13C541909B1238DA8BCE1879B53
 ```
 
 https://mybot314.ru/tekegram_catalog/

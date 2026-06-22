@@ -1,3 +1,133 @@
+###  Публикация: 726795   (337858) от 25.11.2013
+
+Подшивка журналов | HolzWerken №14-19 (2009) [PDF] [De]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание адресовано тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом очередном или специальном выпуске. Периодичность выхода (с 2007 года) - 6 раз в год.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F49A310350DBDAAA0DFF2593770850237EC9A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180838   (337778) от 05.11.2017
+
+Журнал | Dekoratives Hakeln №137 (2008) [PDF] [De]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком ажурных салфеток. Вязание салфеток имеет одно огромное преимущество - результат виден практически сразу, на выполнение любой модели требуется всего несколько часов. В этом выпуске всех любительниц вязания крючком ждут великолепные идеи, как сделать свой интерьер еще более уютным и изысканным. Филигранные салфетки и разноцветные дорожки будут (   Читать дальше...   )Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941ABEC10AFD7A4849AC8E051AEFA36D39ED89BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180835   (337767) от 05.11.2017
+
+Журнал | Szydelkowanie №3 (2008) [PDF] [Pl]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Польский журнал по вязанию крючком салфеток, дорожек, занавесок, поделок. Более 20 моделей для уюта вашего дома. Это поистине клад для вязальщицы! Качественные схемы для вязания позволят связать любую понравившуюся вещь. Поверьте, связать захочется если не все, то многое!Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B11DAA2BCB75BF802C2580B9933F9AC6692948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180749   (337764) от 05.11.2017
+
+Журнал | Рыбачьте с нами №8 (август 2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Рыбачьте с нами» - это ежемесячное международное издание обо всех видах рыбной ловли, подводном плавании, туризме и активном отдыхе на воде. это журнал об увлечении. Он делается для людей с высокими требованиями к качеству жизни, для которых рыбалка стала синонимом высококлассного отдыха и приятного времяпрепровождения, то есть синонимом слова удовольствие.Жанр: РыболовствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911BAB0F43C7D735416A30AAAE110E072529C3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726847   (337722) от 25.11.2013
+
+Подшивка журналов | HolzWerken №26-31 (2011) [PDF] [De]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание адресовано тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом очередном или специальном выпуске. Периодичность выхода (с 2007 года) - 6 раз в год.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9A5EEC5CC16DCCFE266B93228745F2BA8BC097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 726757   (337595) от 25.11.2013
 
 Подшивка журналов | HolzWerken №1-7 (2006-2007) [PDF] [De]
@@ -6,7 +136,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337595.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337450.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_337311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_337311.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336135.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336111.jpg" />
 </div>
 
 
@@ -140,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336109.jpg" />
 </div>
 
 
@@ -166,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336034.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336008.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335926.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335901.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335475.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335473.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335400.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330808.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330806.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330800.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330797.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330729.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330727.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330716.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330493.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ Stereo & Video первым встречает и представляет са�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3457A1A1A1691582147E77DF482812389713D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956804   (329252) от 15.11.2015
-
-Журнал | М-Хобби №10 (172) (октябрь 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329252.jpg" />
-</div>
-
-
-###  Подробнее
-
-М-Хобби - один из лучших на сегодняшний день российский журнал для любителей масштабного моделизма и военной истории. Издание постоянно публикует материалы о моделях военной техники, авиации, автомобилях, обзоры новинок модельного рынка. Мастера моделизма делятся секретами своего мастерства.Жанр: Моделизм, военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E0585E14A1A23C3DEB5DD6D208CBC15D937B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841973   (329220) от 17.11.2014
-
-Журнал | Conde Nast Traveller [Россия] №12-1 (декабрь 2014 - январь 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329220.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Conde Nast Traveller" - журнал о путешествиях, своего рода практическое пособие для путешественников. Содержит массу полезной и актуальной информации для каждого, кто хочет отправиться в путешествие: материалы о ресторанах, отелях, авиакомпаниях, курортах. Главными героями и авторами журнала являются знаменитые путешественники, известные люди мирового (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ECD9DB5F62EF0AD2F14A4AA19514F5274F6864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842906   (326513) от 20.11.2014
-
-Подшивка журналов | Good Woodworking №1-5 [+схемы] (1992-1993) [PDF, JPEG] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал, посвященный столярному делу. Обзоры материалов, инструментов и технологий, а также идеи для творчества. Woodworker's Journal - предназначен для читателей-мастеровых любого уровня подготовки: от новичка до профессионального мебельщика, от дачника до мастера краснодеревщика.Формат: PDF, JPEG (схемы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5B65674B0DF1005E78F7F8FD8F56F88A7B16951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843072   (325518) от 21.11.2014
-
-Подшивка журналов | Woodsmith №214-216 (август 2014 - январь 2015) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал, посвященный столярному делу, технологии, приемам обработки дерева, деревообрабатывающему инструменту, содержит очень много подробных описаний изготовления изделий, различных конструкций из дерева - от мебели до кухонной утвари. Будет интересен всем, как начинающим и любителям, так и профессиональным столярам.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8425819784DEE473813598E21945C914A3E4879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843087   (325517) от 21.11.2014
-
-Подшивка журналов | The Woodworker & Woodturner №8, 10-12 (август, октябрь-декабрь 2014) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по столярному делу "The Woodworker & Woodturner" публикуется для всех работающих с деревом мастеров (от любителей до профессионалов), кто ищет свежие идеи для проекта, обзоры деревообрабатывающей техники и оснастки для мастерской.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82421AED1C5E6B57DC3A9B96088D5E2CFAFD9A5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

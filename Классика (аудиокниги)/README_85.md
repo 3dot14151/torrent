@@ -1,3 +1,56 @@
+###  Публикация: 1808711   (64873) от 26.07.2025
+
+Александр Куприн | Чудесный доктор (сборник) (2023) [MP3, Иван Букчин, Александр Аравушкин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Иванович Куприн (1870—1938) — знаменитый русский писатель, автор романов, повестей, очерков и рассказов. Самые известные произведения Куприна "Гранатовый браслет", "Олеся" и "Юнкера" сделали его классиком отечественной и мировой литературы. Его рассказы для детей учат с добротой относиться к людям и помогать им. Образцом милосердия (   Читать дальше...   )Жанр: детская классика, классическая проза, литература 19 века, русская классикаИздательство: АСТПродолжительность: 04:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671901D463F677AACA10038398B97E05B2FD5A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809635   (64693) от 31.07.2025
+
+Владимир Маяковский | Баня (Радиоспектакль) (2008) [MP3, Георгий Менглет, Ростислав Плятт и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Владимирович Маяковский (19 июля 1893, Багдади, Кутаисская губерния, Российская империя – 14 апреля 1930, Москва, СССР) – русский и советский поэт, драматург, киносценарист, кинорежиссёр, киноактёр, художник. Лауреат премии Ленинского комсомола (1968 – посмертно). Один из наиболее значимых русских поэтов XX века, классик советской литературы.
+Радиоспектакль (   Читать дальше...   )Жанр: кая литература, классика, комедия, фантастикаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 02:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337725C0C24C98E2E1A6B0E03B68F663FA7A5CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809638   (64680) от 31.07.2025
 
 Владимир Маяковский | Париж. Ездил я так… (2013) [MP3, Аркадий Бухмин]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64680.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64673.jpg" />
 </div>
 
 
@@ -64,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63902.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63878.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63836.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63763.jpg" />
 </div>
 
 
@@ -173,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63758.jpg" />
 </div>
 
 
@@ -202,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63747.jpg" />
 </div>
 
 
@@ -230,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63660.jpg" />
 </div>
 
 
@@ -258,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63641.jpg" />
 </div>
 
 
@@ -286,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63631.jpg" />
 </div>
 
 
@@ -313,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63630.jpg" />
 </div>
 
 
@@ -341,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63612.jpg" />
 </div>
 
 
@@ -369,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63607.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63586.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63549.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63548.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63532.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63461.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63447.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63444.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63395.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63348.jpg" />
 </div>
 
 
@@ -645,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63346.jpg" />
 </div>
 
 
@@ -658,62 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B551216A507979CA69B7936F6E8C4D26AFC3DF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291191   (63344) от 11.03.2024
-
-Михаил Волконский | Воля судьбы (2007) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Волконский Михаил Николаевич (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Роман «Воля судьбы» написан Михаилом Николаевичем Волконским в 1914 году. В романе на фоне событий, связанных с царствованием Петра III и воцарением на русский престол (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 13:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589DCA5D739545A25E90E2DA5131F4E015BA9C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291202   (63343) от 11.03.2024
-
-Михаил Волконский | Два мага (2005) [MP3, Галина Самойлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям.
-Роман «Два мага» написан Михаилом Николаевичем Волконским в 1902 году. Действие романа «Два мага» происходит во время русско–турецкой войны. События разворачиваются (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Вира-М, ЛаринПродолжительность: 05:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4029FCAEE51D01EE72F426672654A33A09A0F611
 ```
 
 https://mybot314.ru/tekegram_catalog/

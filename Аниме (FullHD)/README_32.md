@@ -6,7 +6,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514762.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Drifters (2017) | Скитальцы [2017, OVA, 3 из 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512353.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Higashi no Eden Gekijoban II: Paradise Lost / Eden of The East the Movie II: Par
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511856.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Madan no Ou to Vanadis | Повелитель волшебных стрел и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507827.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Yuukoku no Moriarty (2022) | Патриотизм Мориарти OVA [2022, OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506217.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Yuyushiki / Формула ЮЮ [2013, TV, 12 + 6 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503339.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Fantasy Bishoujo Juniku Ojisan to | Life with an Ordinary Guy who Reincarnated i
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499666.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499600.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Aka
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499586.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499582.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Ag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499581.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499530.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498523.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Gyokou no Nikuko-chan | Fortune Favors Lady Nikuko | Никуко из Рыба�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498514.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498233.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Vatican Kiseki Chousakan | Vatican Miracle Examiner | Инспекторы чу�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495176.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493817.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493539.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491342.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Hitsugi no Chaika: Avenging Battle Chaika: The Coffin Princess - Avenging Battle
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489730.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Wake Up, Girls! / Подъем, девчата! [2014, TV, 12] BDrip 1080p Hi10p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489398.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Dantalian no Shoka / The Mystic Archives of Dantalian / Таинственная
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488827.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nihon Animator Mihonichi | Japan Animator Expo | Японская выставк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487120.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Lucky ☆ Star / Счастливая звезда [2007, 24 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486738.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Wakaba Girl | Модница Вакаба [2015, TV, 13 + 1] BDrip 1080p Hi10p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485995.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | Отвер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483245.jpg" />
 </div>
 
 

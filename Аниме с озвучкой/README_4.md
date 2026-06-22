@@ -1,3 +1,83 @@
+###  Публикация: 1841017   (1047641) от 08.12.2025
+
+Жизнь сорокалетнего мужчины в другом мире | Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper in Another World [2025, TV, 13 из 13] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кенъичи, одинокий художник манги, которому уже почти стукнул сорокет, внезапно, даже без помощи всеми нами любимого грузовика, оказывается в фэнтезийном мире.
+Оглядевшись вокруг и полазив немного в выскочившем игровом меню, он узнает, что несмотря на это чудесное перемещение, ему всё ещё доступен популярный японский онлайн-магазин. Он может в любой момент туда что (   Читать дальше...   )Производство: Япония / Студия East Fish StudioЖанр: Комедия, фэнтези, эттиРежиссер: Юдзуми КэйэйЯзык озвучки: Русский (AniLibria, Dream Cast, КОМНАТА ДИДИ, JAM CLUB, VF-Studio); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188C799E2DED0459006D371D8974B6BE50E02AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840345   (1047280) от 04.12.2025
+
+Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел дизайна [2021, TV, 13 эп.] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047280.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отделе дизайна животных на Небесах дизайнеры ежедневно создают множество новых животных, борясь с необоснованными требованиями своего клиента - Бога. Наблюдая за работой отдела, можно найти ответы на такие вопросы, как: "Почему единороги не могут существовать?", "Что делает животное вкусным?", "Какое существо самое сильное в океане?" (   Читать дальше...   )Производство: Япония, Asahi ProductionЖанр: комедия, фэнтези, повседневность, сейненРежиссер: Масуй СойтиЯзык озвучки: Русский закадровый (AniDub - 9й Неизвестный, Dreamy Sleep), (animevost), (AniFame - Rabe Sachte)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2F559A9A93B97C2D6900A40154885B6FC504A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839648   (1046691) от 30.11.2025
+
+Могу попросить ещё кое-что? | Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshouka | May I Ask for One Final Thing? [2025, TV, 10 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046691.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самый разгар бала жених дочери герцога Скарлет, принц Кайл, внезапно отменяет их помолвку. Более того, он сообщает, что теперь у него новая невеста, а саму Скарлет обвиняет в ужасном поведении, хулиганстве и называет самой настоящей "злодейкой".
+Разумеется, собравшиеся аристократы верят принцу и тут же начинают её осуждать. Им-то невдомёк, что ради женитьбы (   Читать дальше...   )Производство: Япония / Студия Liden FilmsЖанр: Комедия, фэнтези, романтикаРежиссер: Сакамото КадзуяЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7042A761BDF19E99E97E62CD0E4141A8E89354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581946   (1046294) от 02.01.2023
 
 Do It Yourself!! | Сделай сама! [2022, TV, 12 из 12] WEBRip 1080p rus
@@ -6,7 +86,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 из 12] WEBRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046294.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Пётр Гриль и время �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046291.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046177.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045613.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045453.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 из 2] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044399.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044390.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044010.jpg" />
 </div>
 
 
@@ -223,7 +303,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2022
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043838.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043220.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042913.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042912.jpg" />
 </div>
 
 
@@ -329,7 +409,7 @@ Tenchi Muyou! Bangaihen: Galaxy Police Mihoshi Space Adventure | Тэнти - л
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042633.jpg" />
 </div>
 
 
@@ -357,7 +437,7 @@ Blade and Soul / Клинок и душа [2014, TV, 12 ep] BDRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042632.jpg" />
 </div>
 
 
@@ -383,7 +463,7 @@ Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042372.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042328.jpg" />
 </div>
 
 
@@ -440,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042125.jpg" />
 </div>
 
 
@@ -466,7 +546,7 @@ Tenchi Muyou! The Night Before The Carnival | Omatsuri Zenjitsu no Yoru! | Тэ�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041821.jpg" />
 </div>
 
 
@@ -493,7 +573,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041816.jpg" />
 </div>
 
 
@@ -520,7 +600,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041560.jpg" />
 </div>
 
 
@@ -546,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040686.jpg" />
 </div>
 
 
@@ -572,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036388.jpg" />
 </div>
 
 
@@ -600,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036093.jpg" />
 </div>
 
 
@@ -613,86 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4480A157605ACBF9C40E4E0E5268975B58238381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443314   (1035590) от 28.01.2021
-
-Vampire Hunter D: Bloodlust | D: Жажда крови | Ди - охотник на вампиров: Жажда крови [2001, Movie] BDRip 1036p raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцатое тысячелетие, несколько тысяч лет после ядерного холокоста. В ночи по прежнему властвуют вампиры, но дни их сочтены, а численность тает. Кровопийц истребляют бесстрашные охотники за головами. Один из таких смельчаков - полукровка-дампир по имени D. Он берётся разыскать дочь влиятельного богача, похищенную могущественным вампиром Майерлингом. Одновременно (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: приключения, фэнтезиРежиссер: Кавадзири ЁсиакиПеревод: MC EntertainmentЯзык озвучки: японский, английский, русскийСубтитры: русские, английскиеПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F87B99B6DCE7E8BD8C477597C24BB034AA3C259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443639   (1035298) от 29.01.2021
-
-Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор СПТ Лейзнер [1986, OVA, 3 из 3] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альтернативная реальность повествует о том, что мировые гиганты вышли в космос задолго до окончания холодной войны. А последняя как шла, так и продолжает идти. Причем Советский Союз и Америка создали свои колонии на Марсе. На чужой планете разворачиваются полномасштабные военные действия. Со стороны Союза готовятся отряды продвинутых детей, однако на одну из академий (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэЯзык озвучки: японский, русскийСубтитры: английскиеПродолжительность: 3 эп. по 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B7A837174023837B3A076A4A1969519885CDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428717   (1034751) от 31.01.2021
-
-Связь принцесс! Новое погружение | Princess Connect! Re:Dive [TV-1] [2020, TV, 13 из 13] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация мобильной игры: Princess Connect! Re:Dive, от режисёра KonoSuba!
-История рассказывает о мире, где создали VR-игру "Астрея". Главная цель игры — прохождение "Башни Сол", после которой всемогущий искуственный интеллект под названием "Минерва" исполнит любое желание игрока.
-Главный герой по имени Юки обладает силой "Princess (   Читать дальше...   )Производство: Япония, студия Cygames PicturesЖанр: приключения, фэнтези, комедияРежиссер: Канасаки ТакаомиЯзык озвучки: Русский закадровый, многоголосый (AniDub), (Amazing Dubbing)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 13 эпизодов по 15 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1CEB994D6B3DA2D0E0D2E733356FEFCB9A8B45
 ```
 
 https://mybot314.ru/tekegram_catalog/

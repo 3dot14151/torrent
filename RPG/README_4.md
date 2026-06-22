@@ -1,3 +1,107 @@
+###  Публикация: 1839716   (1046834) от 30.11.2025
+
+Shin Megami Tensei III Nocturne HD Remaster (2021) [Multi] (20657000/dlc) Repack Necros
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый обычный день в Токио обернулся апокалипсисом, инициированным внеземными силами. Остатки мира погрузились в хаос, а в разрушенном городе свирепствует демоническая революция. Вы оказываетесь в гуще битвы между богами и демонами и можете решать вопросы жизни, перерождения и смерти, а также влиять на исход развернувшейся борьбы.Тип издания: RepackРазработчик: ATLUSЖанр: Японская ролевая играЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский, Французский и другиеЯзык интерфейса: Английский, Японский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329852A6C1AE07A9182222FB6AA98E0787050DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839189   (1046817) от 30.11.2025
+
+Eschalon: Book (2007-2014) [Ru] (1.06/1.05/1.021/dlc) Repack Nelex [Трилогия]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eschalon: Book III - финальная часть трилогии, в которой игрок узнает конец истории. Сюжет классический - таинственные и недоброжелательные создания некой расы собирают Магические камни Кракс. Эти существа задумали неладное, поэтому герой просто обязан им помешать. Протагонист узнает свое прошлое, которое он забыл, и сможет раскрыть истинную личность Оракура. Как (   Читать дальше...   )Тип издания: RepackРазработчик: Basilisk GamesЖанр: Ролевые игрыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5A79C084DFA0CDA740C76571EF41A1FB8934FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839627   (1046705) от 02.12.2025
+
+Shana priestess of Tona (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay [Deluxe Edition] [18+]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shana - Priestess of Tona - это 18+ автобатлер-рогалик, где ты играешь за доминантную жрицу, которая побеждает врагов не только силой, но и своими сексуальными способностями. Сражайся с монстрами, соблазняй капитанов, провоцируй боссов и наслаждайся каждым сладким моментом победы. Таинственные чудовища из подземелий начали заполонять Линдерию.Тип издания: RepackРазработчик: Lustration TeamЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AD08556C3405D048106C123C18FEB4D213797B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839477   (1046674) от 29.11.2025
+
+Quartet (2025) [En] (1.2.20251019.1) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quartet погружает в мир, в котором вас ждут невероятные приключения и незабываемые битвы. Начните свой путь в мире полном загадок, скрытых правительственных интриг и мощной магии. В этой увлекательной и олдскульной RPG вы можете выбрать одну из четырех историй и пройти их в любом порядке, раскрывая тайны мира Quartet. Серия поездных ограблений, таинственная колода (   Читать дальше...   )Тип издания: LicenseРазработчик: Something Classic Games LLCЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EB41F83A1AFD2EF0F620338F8B1AF8095C5F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839361   (1046498) от 28.11.2025
 
 Shadows of Doubt (2024) [Ru/Multi] (41.04) Repack Necros
@@ -6,7 +110,7 @@ Shadows of Doubt (2024) [Ru/Multi] (41.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046498.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Two Worlds 2 (2010) [Ru/En] (2.0.6/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045698.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ One Piece Odyssey (2023) [Ru/Multi] (01.00/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045240.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Demons Roots (2023) [Multi] (1.01/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045131.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044356.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044179.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Hero Siege (2014) [Ru/Multi] (5.6.0.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044102.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Blue Reflection: Second Light (2021) [Multi] (1.02/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043979.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ ATONE: Heart of the Elder Tree (2023) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043112.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Risen (2009) [Ru/Multi] (1.0a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043100.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Star Ocean - The Last Hope (2017) [Ru] (1.1.12212) Repack xatab [4K & Full HD Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041251.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Exiled Kingdoms (2018) [Ru/Multi] (1.2.1124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041249.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Ringborn (2023) [En] (1.0) License Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041227.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Anima: Gate of Memories (2016) [Multi] (20171122) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041222.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Perseus: Titan Slayer (2023) [Ru/Multi] (1.0) License FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040666.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Guild of Dungeoneering (2015) [En] (1.2022.3.11/dlc) License GOG [Deluxe Ice Cre
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040665.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ SpellForce: Conquest of Eo (2023) [Multi] (01.00.26984) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039223.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Torchlight III (2020) [Ru/Multi] (6056074/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039188.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Perseus: Titan Slayer (2023) [Ru/Multi] (1.1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038708.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.20.0.57604/dlc) Repack xa
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038617.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.5d/dlc) Repack xatab [Definitive Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037869.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.0.2) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037694.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Redemption Reapers - приключенческое фэнтези, в кото�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B322FAA3A4F840BA6A38DD95CB2D06906C661E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615478   (1037430) от 26.02.2023
-
-Vampires Dawn 3 - The Crimson Realm (2021) [Multi] (1.11g) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vampires Dawn 3 - The Crimson Realm погружает пользователя в мрачную атмосферу, где придется столкнуться с вампирским сеттингом. Игра является классической ролевой адвенчурой, где предстоит передвигаться отрядом по изометрической карте с видом сверху. Проект выполнен в олдскульной ретро-стилистике с пиксельной графикой. Пользователи будут следовать по кровавому пути (   Читать дальше...   )Тип издания: LicenseРазработчик: Dawnatic Games, Alexander KochЖанр: Ролевая игра, Приключение, JRPGЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3F35C1C481A425581257F2664C1518E7501C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431550   (1036765) от 24.01.2021
-
-SpellForce 3: Fallen God (2020) [Ru/Multi] (1.4) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036765.jpg" />
-</div>
-
-
-###  Подробнее
-
-У маленького племени троллей - кочевников одна цель: выжить. Браконьеры истребляют их ради клыков, недуг уносит жизни сородичей - надежда почти потеряна. Но тут таинственный эльф предлагает юному вождю Акрогу шанс на спасение. Нужно лишь воскресить павшего бога...Тип издания: RepackРазработчик: Grimlore GamesЖанр: Стратегия, Ролевая игра, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756C94F22FE56957E2358B65037055CA5960906A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442148   (1036763) от 24.01.2021
-
-Rebel Galaxy Outlaw (2020) [Ru/Multi] (1.18d) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то в галактике, у чёрта на куличках, действует мятежница Юнона Маркева, вне закона, без денег и пока без особой удачи. Ей нужно выследить убийцу и вернуть должок, а новые неприятности уже прячутся за углом. Игра Rebel Galaxy Outlaw разворачивается в замусоленном космическом мире, населённом работягами вне закона, дальнобойщиками, полицейскими и ворами.Тип издания: LicenseРазработчик: Double Damage GamesЖанр: Экшн, Ролевая игра, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EB873A17E30BB239DCE3AAED7A4A9805BC9BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442284   (1036754) от 24.01.2021
-
-Minecraft Dungeons (2020) [Ru/Multi] (1.7.3.0.5135400/dlc) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пробивайтесь через врагов в совершенно новой динамичной игре во вселенной Minecraft по мотивам классических подземных приключений! Покоряйте подземелья в одиночку или объединяйтесь с друзьями! До четырех игроков могут вместе эпично сражаться на динамичных и разнообразных уровнях с сокровищами, чтобы спасти селян и победить Архизлодеянина!Тип издания: RepackРазработчик: Mojang Studios, Double ElevenЖанр: RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04E1BFBDEEB0AA030AFFBA4558EEF15818939F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

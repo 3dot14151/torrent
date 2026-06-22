@@ -1,3 +1,110 @@
+###  Публикация: 1871271   (1069607) от 16.05.2026
+
+USBDeview 3.10 + Portable [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069607.jpg" />
+</div>
+
+
+###  Подробнее
+
+USBDeview — это небольшая утилита, которая отображает список всех USB-устройств, подключенных к вашему компьютеру в данный момент, а также всех USB-устройств, которые вы использовали ранее. Для каждого USB-устройства отображается расширенная информация: имя/описание устройства, тип устройства, серийный номер (для устройств хранения данных), дата/время добавления (   Читать дальше...   )Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C6E2469F8147CD591F8750F0FBEB03D800E291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871290   (1069598) от 16.05.2026
+
+HWdetails 1.0 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069598.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWdetails — это бесплатная утилита для Windows, которая отображает подробную информацию об оборудовании вашего компьютера, операционной системе, устройствах, сети и конфигурации системы.
+
+Краткий обзор всего аппаратного обеспечения ПК.
+Подробная информация о Windows и операционной системе, включая обновления и версии .NET.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C78106F163B726B3B106F38DAA44747B0AAE526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871079   (1069422) от 15.05.2026
+
+SIV (System Information Viewer) 5.87 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069422.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D8455FB5D6F8D04FA7A8ECB9E263ADEE986B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871112   (1069316) от 15.05.2026
+
+OCCT 16.1.10 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4DC8EBE82F6374FF56EF58DA72D400FCBD9892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870619   (1069013) от 12.05.2026
 
 O&O Defrag Professional 31.2 Build 26042 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +113,7 @@ O&O Defrag Professional 31.2 Build 26042 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069013.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Geekbench 6.7.1 Pro RePack (& Portable) by elchupacabra [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068982.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Active@ Disk Editor 26.1.3 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068964.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ CPU-Z 2.20.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068827.jpg" />
 </div>
 
 
@@ -103,6 +210,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870092   (1068733) от 10.05.2026
+
+QuickMemoryTestOK 5.44 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068733.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickMemoryTestOK - небольшая, но эффективная утилита для быстрой проверки оперативной памяти на наличие ошибок.
+
+По словам разработчика, утилита также может быть использована для изучения поведения ПК при большом использовании памяти и определения того, является ли это причиной системных ошибок. Присутствует возможность выполнять индивидуальные тесты и отслеживать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41059E3775E72A277781BBCAE9CAD7C016BA2D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869410   (1068267) от 06.05.2026
 
 Auslogics SSD Optimizer 2.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -111,7 +246,7 @@ Auslogics SSD Optimizer 2.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068267.jpg" />
 </div>
 
 
@@ -137,7 +272,7 @@ Auslogics Disk Defrag Pro 12.2.0.6 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068266.jpg" />
 </div>
 
 
@@ -163,7 +298,7 @@ Core Temp 1.20.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067917.jpg" />
 </div>
 
 
@@ -189,7 +324,7 @@ IsMyHdOK 4.55 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067900.jpg" />
 </div>
 
 
@@ -217,7 +352,7 @@ Auslogics SSD Optimizer Pro 2.2.0.6 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067733.jpg" />
 </div>
 
 
@@ -243,7 +378,7 @@ Auslogics Disk Defrag Pro 12.2.0.6 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067730.jpg" />
 </div>
 
 
@@ -269,7 +404,7 @@ Auslogics Disk Defrag Pro 12.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067623.jpg" />
 </div>
 
 
@@ -295,7 +430,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.30.8300 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067457.jpg" />
 </div>
 
 
@@ -321,7 +456,7 @@ Auslogics SSD Optimizer 2.2.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067434.jpg" />
 </div>
 
 
@@ -347,7 +482,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.30.8300 + Portabl
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067404.jpg" />
 </div>
 
 
@@ -373,7 +508,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.30.8300 Final ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067332.jpg" />
 </div>
 
 
@@ -399,7 +534,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.30.8300 Final ReP
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067327.jpg" />
 </div>
 
 
@@ -425,7 +560,7 @@ OCCT 16.1.9 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066853.jpg" />
 </div>
 
 
@@ -451,7 +586,7 @@ AlbusBit NTFS Permissions Auditor Pro 26.4.17 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066242.jpg" />
 </div>
 
 
@@ -477,7 +612,7 @@ AppControl 1.2.0.282b [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065642.jpg" />
 </div>
 
 
@@ -505,7 +640,7 @@ Disk Pulse Pro / Server / Ultimate / Enterprise 18.0.16 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065395.jpg" />
 </div>
 
 
@@ -531,7 +666,7 @@ ChrisPC Win Experience Index 7.26.0412 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065372.jpg" />
 </div>
 
 
@@ -543,136 +678,6 @@ ChrisPC Win Experience Index - бесплатная утилита, с помо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D2299A9B0ADD4D97A45643B5D3137E6E1F53EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865251   (1065338) от 14.04.2026
-
-OCCT 17.0.0.b10 Beta Portable [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF70C116C01F1AA33808E1A8F89633B75C0CFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865302   (1065300) от 14.04.2026
-
-HWiNFO 8.46 Build 5960 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065300.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C112C6C6391C4DB4BC5A54F17599BA14F53EB2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865454   (1065185) от 15.04.2026
-
-Quick CPU 6.4.1.0 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quick CPU — это приложение, разработанное для точной настройки и мониторинга производительности процессора, параметров питания и напряжения, таких как: парковка ядер, масштабирование частоты, Turbo Boost, C-States, Speed ​​Shift и FIVR Контроль, а также некоторые другие возможности.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B770114C0BD4AE62A05F38D126D5F9E001B937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864862   (1065022) от 12.04.2026
-
-IObit Smart Defrag Pro 11.3.0.476 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D716EDB6BC1D4FDB0C3713CEAD90C34CFD463F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864897   (1064995) от 12.04.2026
-
-Geekbench 6.7.0 Pro RePack (& Portable) by elchupacabra [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench - кроссплатформенная программа для проведения тестов производительности процессора. Приложение может быть установлено без особых хлопот на вашем компьютере и вы можете начать тестирование возможностей вашего процессора и всех компонентов системы.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EC19B3A03E253317583FC75DFFCBA20E03FA57
 ```
 
 https://mybot314.ru/tekegram_catalog/

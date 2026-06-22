@@ -1,3 +1,55 @@
+###  Публикация: 1096295   (920753) от 23.01.2017
+
+Протоиерей Серафим Слободской | Закон Божий (2011) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни один из учебников по Закону Божию не имел и не имеет до сих пор такой популярности, как учебник протоиерея Серафима Слободского. Написанный еще в 1957 году для нашей эмиграции в Америке, он выдержал несколько переизданий на русском и английском языках и на протяжении уже многих лет был основным пособием по Закону Божию для воскресных и церковных общеобразовательных (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E28AC2966D5322642FB656DFF4C33307C0274F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620452   (920308) от 13.03.2020
+
+С. Милов (составитель)| Господь - наш Отец. По творениям преподобного Силуана Афонского [2012] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним из величайших христианских подвижников, стяжавших любовь к Богу и Божиему творению, был преподобный Силуан Афонский, по творениям которого составлена эта книга. Он на протяжении всей своей жизни говорил людям о необходимости стяжания любви, как основного дара человеку от Бога. Все его слова пронизаны чувством благодарения Творцу за Его любовь к людям и окружающему (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8192D2AA7309B893165477D9A609937C3BD44DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 620457   (920303) от 13.03.2020
 
 C. Милов (составитель)| Сила Любви. По творениям преподобного Ефрема Сирина [2012] [PDF]
@@ -6,7 +58,7 @@ C. Милов (составитель)| Сила Любви. По творени
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920303.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919295.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919279.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919245.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919040.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918595.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917777.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917753.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917749.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917720.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917710.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917657.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917651.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917482.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917161.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915876.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915861.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915803.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915694.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915655.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915221.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914391.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914298.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914150.jpg" />
 </div>
 
 
@@ -632,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6791F79E149739CE230B732684BEFDCC95662822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989973   (913600) от 24.02.2016
-
-Н. Мещеряков | Поповские обманы [Факты и документы] (1919) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913600.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приводятся материалы о вскрытии мощей православных святых в первые годы Советской власти.Жанр: История, религиоведение, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22F8FF910E71BC7327E47E9EBA5F0A86F86E308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989972   (913467) от 24.02.2016
-
-К. Ш. Шулембаев | Маги, боги и действительность [Общее и особенное в религиозных верованиях казахов] (1975) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ислам в Казахстане - явление синкретическое. Автор рассказывает о доклассовых религиозных верованиях, впоследствии ассимилированных исламом, o формах проявления пережитков фетишизма, тотемизма, анимизма, магии и шаманизма в наши дни. Второй раздел книги noсвящен рассмотрению идеологии ислама и проповеднической деятельности мусульманских служителей культа. Значительное (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71F642681E1F34E033AC5D82C688CF25A7C5EAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

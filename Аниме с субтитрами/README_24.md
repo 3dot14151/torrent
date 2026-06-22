@@ -1,3 +1,33 @@
+###  Публикация: 631621   (924440) от 17.03.2013
+
+Ergo Proxy / Эрго прокси [2006, TV, 23 серий] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924440.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пустынном обезлюдевшем мире выжить можно лишь в городе-куполе, и Ромдо – одно из немногих мест, где сохранилась цивилизация. Но для поддержания порядка нужна крепкая рука, поэтому властью в Ромдо распоряжается не дряхлый наместник Донов Мейер, а четыре Советника-робота. Однако даже роботам нельзя доверять – с тех пор, как загадочный вирус Когито начал превращать послушных механических слуг в бунтовщиков и даже убийц.
+
+Внучка наместника Рил берётся за расследование: необходимо выяснить, что стало причиной вируса, и кто его распространяет. Вскоре и сама Рил подвергается нападению, а в круг подозреваемых попадает скромный юноша, которого она почти не знает – Винсент Лоу, бывший иммигрант, а ныне кандидат на звание примерного граждана. Его причастность сомнительна, но одно бесспорно: именно за Винсентом охотится странное чудовище, устроившее резню посреди города.
+
+В поисках ответа Винсент покидает Ромдо и вместе с заражённым роботом-девочкой Пино отправляется к своему родному городу, когда-то разрушенному по неизвестной (   Читать дальше...   )Жанр: Киберпанк, детектив, фантастикаРежиссер: Мурасэ СюкоПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4E8272CC43859DE07AE1F849C173522CC67505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972500   (923981) от 21.01.2017
 
 Heavy Object | Тяжёлый объект [2015, TV, 24 эп.] BDrip 1080p raw
@@ -6,7 +36,7 @@ Heavy Object | Тяжёлый объект [2015, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923981.jpg" />
 </div>
 
 
@@ -32,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923928.jpg" />
 </div>
 
 
@@ -58,7 +88,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? | Danmachi | Может
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923804.jpg" />
 </div>
 
 
@@ -84,7 +114,7 @@ Mushishi Zoku Shou | Mushi-Shi: Next Passage | Мастер Муси: Следу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923247.jpg" />
 </div>
 
 
@@ -110,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922771.jpg" />
 </div>
 
 
@@ -136,7 +166,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922573.jpg" />
 </div>
 
 
@@ -162,7 +192,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922450.jpg" />
 </div>
 
 
@@ -190,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922443.jpg" />
 </div>
 
 
@@ -218,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922357.jpg" />
 </div>
 
 
@@ -244,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922324.jpg" />
 </div>
 
 
@@ -270,7 +300,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Как и 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921941.jpg" />
 </div>
 
 
@@ -296,7 +326,7 @@ Macross Plus | Макросс Плюс [1994, OVA, 4 из 4] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920638.jpg" />
 </div>
 
 
@@ -322,7 +352,7 @@ Arata Kangatari | Arata: The Legend | Легенда Араты [2013, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920578.jpg" />
 </div>
 
 
@@ -348,7 +378,7 @@ Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920570.jpg" />
 </div>
 
 
@@ -374,7 +404,7 @@ Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920525.jpg" />
 </div>
 
 
@@ -400,7 +430,7 @@ Macross Plus: Movie Edition | Macross Plus The Movie | Макросс Плюс: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920523.jpg" />
 </div>
 
 
@@ -426,7 +456,7 @@ Lodoss Tou Senki: Eiyuu Kishi Den / Record of Lodoss War: Legend of the Heroic K
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919951.jpg" />
 </div>
 
 
@@ -455,7 +485,7 @@ Urawa no Usagi-chan / Усаги-чан из Уравы [2015, TV, 13 из 13] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918773.jpg" />
 </div>
 
 
@@ -481,7 +511,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. | Science Fell in Love, So I Tr
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918226.jpg" />
 </div>
 
 
@@ -507,7 +537,7 @@ Yuu Yuu Hakusho / Yu Yu Hakusho: Ghost Files / Отчет о буйстве ду
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917855.jpg" />
 </div>
 
 
@@ -533,7 +563,7 @@ Paradise Kiss | Райский поцелуй [2005, TV, 12] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917307.jpg" />
 </div>
 
 
@@ -561,7 +591,7 @@ Natsume Yuujinchou Go / Тетрадь дружбы Нацумэ [ТВ-5] [2016,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916994.jpg" />
 </div>
 
 
@@ -590,7 +620,7 @@ Yakitate!! Japan / Baked Fresh!! Ja-Pan / Японская свежая выпе
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916666.jpg" />
 </div>
 
 
@@ -616,7 +646,7 @@ Robot Girls Z Plus / Девочки-роботы Зет [2015, ONA, 6] WEB-DLRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916618.jpg" />
 </div>
 
 
@@ -643,7 +673,7 @@ Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916614.jpg" />
 </div>
 
 
@@ -654,32 +684,6 @@ Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0C346ABFFB0D15BAC65A8461B6E3FCD675CBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633366   (916249) от 22.03.2013
-
-Nanako Kaitai Shinsho / Amazing Nurse Nanako / Нанако [1999, OVA, 6 ep.] DVDRip +eng
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медсестра Нанако - глупая большегрудая ассистентка известного ученого-генетика Огами, работающая в его несколько странном медицинском центре, расположенном на американской военной базе. Нанако, кроме роли медсестры, то и дело приходится исполнять роль подопытного кролика в экспериментах сумасшедшего ученого. Кроме того, исследованиями доктора Огами заинтересовались (   Читать дальше...   )Жанр: приключения, комедия, фантастика, эттиРежиссер: Нэгиси Хироси / Negishi HiroshiПеревод: Кампай-клубЯзык озвучки: ЯпонскийЯзык субтитров: Русский; АнглийскийПродолжительность: (6 эп.), 30 мин..
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

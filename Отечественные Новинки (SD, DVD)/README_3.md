@@ -1,3 +1,56 @@
+###  Публикация: 1823894   (126111) от 13.10.2025
+
+Про людей и про войну (2025) WEBRip
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая отечественная война. Миллионы советских солдат встали на защиту Родины. У молодых людей впереди были мечты, планы, любовь, счастье и созидание, но вмешалась война. Ушли на фронт парень Иван Вдовин и его отец Фёдор. В это суровое время отец с сыном и сослуживцами стояли насмерть с оружием в руках, и каждый был готов на всё ради победы.Производство: Россия / Киностудия "Артель", ИРИ, Фонд "Истоия Отечества"Жанр: военный, драма, историяРежиссер: Дмитрий Пасичнюк, Андрей Красавин, Александр Кананович,...Актеры: Егор Бероев, Антон Богданов, Фёдор Федотов, Тимофей Елецкий, Андрей Кислицин, Сергей Сафронов, Анна Попова, Евгения Глотова, Александр Бобровский, Андрей ПынзаруЯзык озвучки: РусскийСубтитры: Русские (отдельно)Продолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC65FEBCD64DB6C38434DB1863712D43D1DD11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821471   (64020) от 02.10.2025
+
+Дети-шпионы (2025) WEBRip
+
+>>Горячие новинки
+>>Отечественные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья спецагентов воспитывает сына и двух дочерей, каждый из них обладает уникальными способностями. Михаил — компьютерный гений, Вита владеет гипнозом, Дана — мастер спорта по единоборствам. Они открыли шпионское агентство «ДаМиНик». Их цель — стать суперагентами и найти свою маму, которую не смог отыскать суперагент Голос, их отец.
+В это время в соседнем королевстве (   Читать дальше...   )Производство: Россия / ПЦ Ивана Архипова «Инферно», Марс Медиа ЭнтертейнментЖанр: комедия, семейный, приключенияРежиссер: Иван АрхиповАктеры: Дмитрий Нагиев, Людмила Артемьева, София Каштанова, Игорь Жижикин, Кирилл Нагиев, Виталия Корниенко, Даяна Гудз, Михаил Архипов, Надежда Сысоева, Сергей АстаховЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A97D7AB7EE32CA073B7962577FE8C3AA2805CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821478   (64014) от 02.10.2025
 
 Семь дней Петра Семёныча (2025) WEBRip
@@ -6,7 +59,7 @@
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64014.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52077.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40941.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14183.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12725.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12696.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10531.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6730.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6389.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3262.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_392.jpg" />
 </div>
 
 

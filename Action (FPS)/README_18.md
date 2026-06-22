@@ -1,3 +1,30 @@
+###  Публикация: 1031330   (653048) от 03.07.2016
+
+AMOK (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой игры расследует пропажи людей. Расследование приводит его в старый особняк, после чего он становиться участником странных и опасных событий.
+Амок — внезапно возникающее буйное психическое расстройство.Тип издания: RepackРазработчик: Artem BondinЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C9B8F537926929EC66D8D432DE4B36DEAA3393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 345188   (648908) от 03.06.2011
 
 S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong Zone mod 0.2 [Ru] (RePack/Mod) 2009/2010
@@ -6,7 +33,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648908.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.1.0) Repack R.G.Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647172.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Killing Floor 2 (2016) [Ru/Multi] (1078/dlc) License CODEX [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646332.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Zeno Clash 2 (2013) [Ru/En] (1.04) SteamRip Let'sРlay [Special Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642949.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Dead Island. Game of the Year Edition [Ru/En] (Steam-Rip/1.3) 2011 | R.G. Игр
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640479.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.12.2/dlc) SteamRip Let'sPlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640381.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ Dishonored (2013) [Ru/En] (1.4/dlc) Repack R.G. Механики [Game of the Ye
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640379.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638817.jpg" />
 </div>
 
 
@@ -224,7 +251,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12022) Repack xatab [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638587.jpg" />
 </div>
 
 
@@ -250,7 +277,7 @@ Dead Effect - Дилогия (2014-2016) [Ru/En] (1.4/1.0.3) Repack Mizantrop133
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637549.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637235.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637089.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636812.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636780.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636585.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635084.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634952.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634945.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ Bunker 58 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632828.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ Agony (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631515.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ GAIN (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629814.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ Tales of Destruction (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629806.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ Dead Effect 2 (2016) [Ru/Multi] (190 401.1357/dlc) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627575.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ The Occupation (2019) [Ru/Multi] (1.02) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627557.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ Dead Effect 2 (2016) [Ru/Multi] (190 401.1357/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627312.jpg" />
 </div>
 
 
@@ -653,32 +680,6 @@ Dead Effect 2 – научно-фантастический шутер, прод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3F72DCE89E55550D3F3EC35AB42CA4E19F7BAF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144356   (626907) от 22.06.2017
-
-Get Even (2017) [Ru/En] (1.0) Repack =nemos=
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Get Even - это шутер от первого лица, от создателей Painkiller, действие игры разворачивается в воспоминаниях главного героя, пытающегося узнать больше о своем прошлом. Дыши... Вспоминай: девушка, стул, бомба. Не бойся… Иди на голос в глубины памяти. Расслабься… Ищи воспоминания в мрачных уголках своего разума. Ты найдешь ее? Времени мало… Это – часть твоего лечения.Тип издания: RepackРазработчик: The Farm 51Жанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6761080F4F30B8D86620FBF5479ECCF8F617528
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 655025   (821210) от 12.05.2013
+
+Rie Kugimiya - 3 альбома, 20 компиляций, 12 синглов (2004-2013) [MP3|128-320 кб/с]<J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821210.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-PopПродолжительность: 00:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F81B5F3896ABBBA2E70DCFD449692B6BFC501CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116862   (820545) от 21.03.2017
 
 Serenity in Murder - The Eclipse (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +32,7 @@ Serenity in Murder - The Eclipse (2017) [FLAC|Lossless|image + .cue] <Melodic De
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820545.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Gus Dharma - Bali Meets China (2016) [MP3|320 кб/с] <World Music, Relax, Ethn
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817307.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-ho
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_811999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_811999.jpg" />
 </div>
 
 
@@ -99,7 +125,7 @@ Buddhist Monks Of Maitri Vihar Monastery - Sartori: Tibetan Mantras & Chants (19
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_811384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_811384.jpg" />
 </div>
 
 
@@ -134,7 +160,7 @@ int.Records — Acid Travel (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807323.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Independent Works — THE THING! (2009) Touhou Instrumental /Doujin/ [FLAC|Lossl
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807317.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Babymetal - Metal Resistance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, J
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803217.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Yuki Murata - Piano Fantasia (2018) Ricco Label [FLAC|Lossless|tracks + .cue] <M
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798690.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Galneryus - Union Gives Strength (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796243.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Lovebites - Clockwork Immortality (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793014.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Junko Jagami - 2CD Best 1978-1983 (2005) Yamaha [FLAC|Lossless|image + .cue] <Po
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790269.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ Galneryus - Union Gives Strength (2021) Japanese Edition, EP [FLAC|Lossless|imag
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789299.jpg" />
 </div>
 
 
@@ -366,7 +392,7 @@ Yuki Murata - Home (2006) Ricco Label [FLAC|Lossless|tracks + .cue] <Modern Clas
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787581.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ Rie Takahashi & Inori Minase - Stay Alive (2016) [FLAC|Lossless|image+.cue] <J-P
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783892.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Crossfaith - Species (2020) EP [MP3|320 Kbps] <Metalcore, Electronic>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783330.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Akisai - Colors (2014) [FLAC|Lossless|tracks] <Electronic, Ambient, Instrumental
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775998.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Ai Aso - The Faintest Hint (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Fol
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763682.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ CrossGear - 10 альбомов (2008-2011) Touhou Instrumental /Doujin/ [FLAC|L
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756257.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ WILD CAT RECORD - 3 альбома (2009-2010) [FLAC|Lossless] <Touhou, Instrume
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756253.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ Arte Refact - 6 альбомов (2011-2013) Touhou Vocal /Doujin/ [FLAC|Lossles
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756166.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Re:Volte | Scinicade | SonicRevolution - 22 альбома (2005-2011) [FLAC|Los
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756150.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ XOTIC [FRONTIER CREATE] - 5 альбомов (2009-2010) [FLAC|Lossless] <Touhou
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756047.jpg" />
 </div>
 
 
@@ -674,7 +700,7 @@ Frontier Records [FRONTIER CREATE] - 13 альбомов (2009-2011) [FLAC|Lossl
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756036.jpg" />
 </div>
 
 
@@ -709,7 +735,7 @@ Alice Music [FRONTIER CREATE] - 7 альбомов (2009-2011) Touhou Vocal /Dou
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755955.jpg" />
 </div>
 
 
@@ -742,7 +768,7 @@ White Elephant [FRONTIER CREATE] - 8 альбомов (2010-2013) [FLAC|Lossless
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755944.jpg" />
 </div>
 
 
@@ -760,41 +786,6 @@ White Elephant [FRONTIER CREATE] - 8 альбомов (2010-2013) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4598FE21D4C9A4CB65C24E3680B4608655DE9039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781417   (755942) от 28.04.2014
-
-38BEETS [FRONTIER CREATE] - 16 альбомов (2009-2012) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-Pop, J-Rock, Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.10.11 (38CD-0001) POISONING (Kouroumu 5)
-2009.10.11 (38CD-0002) PIECES (Kouroumu 5)
-2009.12.30 (38CD-0003) PLEASANT (C77)
-2009.12.30 (38CD-0004) LABOR PAINS (C77)
-…
-2012.03.18 FOREVER
-2012.04.30 (38CD-0018) God knows (M3-29)
-2012.05.27 (38CD-0019) Edge of life (Reitaisai 9)
-2012.08.11 (38CD-0020) Cause and effect (C82)Тип издания: DoujinЖанр: J-Pop, J-Rock, ElectronicФормат: Touhou VocalПродолжительность: 00:13:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAD0F31EE9FB6B6C4BA67257F94456FBD7B7A07
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1233981   (574608) от 03.07.2018
+
+Футбол. Чемпионат Мира 2018. 1/8 финала. Бразилия - Мексика (02.07.2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574608.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 июля 2018 года, понедельник. 17:00 МСК
+Стадион: Самара Арена (Самара, Россия) , вместимость: 44918
+Главный судья: Джанлука Рокки (Флоренция, Италия). Ассистенты: Эленито Ди Либераторе (Италия), Мауро Тонолини (Италия).Телекомпания: Матч ТВ HDЖанр: Спорт. Футбол.Субтитры: отсутствуютПродолжительность: 01:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9436F5AC9CB80ED1CE75491410A33481F4DB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151262   (574505) от 18.07.2017
 
 Monster Energy Nascar Cup Series-2017, Этап 19 — New Hampshire Motor Speedway (2017) WEB-DL [H.264/720p-LQ] [VO]
@@ -6,7 +34,7 @@ Monster Energy Nascar Cup Series-2017, Этап 19 — New Hampshire Motor Speed
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574505.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574434.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574432.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574146.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574065.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ NG: Последние львы / The Last Lions (2011) Blu-ray [H.264/1080p] [C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573736.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573709.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573700.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573395.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ IMAX: Австралия: Земля вне времени / Australia: Land bey
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_573334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_573334.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573295.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573205.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573161.jpg" />
 </div>
 
 
@@ -356,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573160.jpg" />
 </div>
 
 
@@ -382,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573086.jpg" />
 </div>
 
 
@@ -411,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573077.jpg" />
 </div>
 
 
@@ -440,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573062.jpg" />
 </div>
 
 
@@ -469,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572993.jpg" />
 </div>
 
 
@@ -498,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572992.jpg" />
 </div>
 
 
@@ -527,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572980.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572978.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572786.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572749.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572656.jpg" />
 </div>
 
 
@@ -669,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572654.jpg" />
 </div>
 
 
@@ -683,35 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AB903820DC19D48B916C32724B408F0357F0573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234257   (572652) от 04.07.2018
-
-Волейбол. Лига наций 2018. Женщины. 4-й тур. Группа 14. Россия — США (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572652.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 июня 2018 года, вторник. 11:00 МСК
-1-й женский турнир Волейбольной Лиги наций 2018 года
-4-й тур. Группа 14.
-Россия — США(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C9749981788187AC0C9D48F20C776C651C7D2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

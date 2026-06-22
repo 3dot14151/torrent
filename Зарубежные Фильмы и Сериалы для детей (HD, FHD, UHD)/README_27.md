@@ -1,3 +1,83 @@
+###  Публикация: 1535302   (179100) от 29.11.2022
+
+Высший пилотаж / Sky high (2005) WEB-DL [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилл Стронгхолд — типичный подросток из довольно нетипичной семьи. Его родители, Командор Стронгхолд и Джетстрим, — супергерои, причем самые «успешные» и горячо любимые.
+
+А Уиллу, как продолжателю семейного дела, предстоит пойти не в обычный колледж, а в заведение, где из одаренных детей готовят будущих супергероев. Однако есть одна проблема — Уилл абсолютно обычный (   Читать дальше...   )Производство: США  / Gunn Films,  Max Stronghold Productions Inc, Walt Disney PicturesЖанр: фантастика, боевик, комедия, семейныйРежиссер: Майк МитчеллАктеры: Майкл Ангарано, Даниэль Панабэйкер, Мэри Элизабет Уинстед, Курт Расселл, Келли Престон, Стивен Стрэйт, Ди Джей Дэниэлс, Дэйв Фоули, Линда Картер, Кевин Хеффернан, Клорис Личман, Брюс КэмпбеллПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB138FC09264FB184504D8291079449EF12BF810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594247   (178651) от 30.11.2022
+
+Расмус-бродяга / Rasmus pa luffen (1981) BDRip [H.264/720p] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по книге Астрид Линдгрен "Расмус по Люффену". История о приключениях мальчика Расмуса, сбежавшего из приюта, и его друга, странствующего поэта Оскара. Действие происходит в Швеции в начале XX века. Не выдерживая тюремных порядков и придирок управляющей фрекен Хёк, Расмус убегает из приюта и присоединяется к бродяге Оскару-Перекати-поле. Они начинают (   Читать дальше...   )Производство: Швеция, Svensk Filmindustri (SF) ABЖанр: драма, приключения, семейныйРежиссер: Улле ХелльбумАктеры: Аллан Эдвалль, Эрик Линдгрен, Ярл Кулле, Хакан Сернер, Улоф Бергштрём, Рольф Ларссон, Лена Брогрен, Томми Джонсон, Ларс Амбле, Лена НюманПеревод: любительский одноголосый (Вячеслав Прошин)Субтитры: русские, английскиеПродолжительность: 01:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0047CCEBFDD48A4180B768106505DCBAE6099822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667395   (176799) от 08.10.2023
+
+Супербрат / Superbror / SuperBrother (2009) WEB-DL [H.264/1080p] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что Антону всего лишь десять лет, во многом он уже должен быть старшим. Ведь его старший брат Буллер страдает аутизмом и Антону приходится часто помогать ему. А Антону так бы хотелось иметь озорного и сильного брата, который поможет и ему в отношениях с постоянно задирающими его сверстниками. И однажды желание Антона сбылось. Благодаря вмешательству (   Читать дальше...   )Производство: Дания / Nordisk Film A/SЖанр: фэнтези, драма, приключенияРежиссер: Биргер ЛарсенАктеры: Лукас Один Клориус, Виктор Крузе Пальсхог, Андреа Реймер, Vibeke Ankjær, Janus Nabil Bakrawi, Ханс Хенрик Клеменсен, Тильде Майя Фредериксен, Томас Хван Х. Андерсен, Nicolai Borch Kelstrup, Лоне ЛиндорффПеревод: одноголосый любительский (Хуан Рохас)Язык озвучки: русский, датскийСубтитры: русские (Наталья Рудольф), русские (Nike),, английские, датские, чешские, немецкие, греческие, испанские, французские, хорватские, нидерландские, финские, венгерские, итальянские, норвежские, польские, португальские, румынские, шведскиеПродолжительность: 01:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AC540B0EB18B6B849B6A4E353DC76BDE4F668E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595028   (176708) от 03.12.2022
 
 Национальные сокровища / La Leyenda del Tesoro (2011) WEB-DL [H.264/1080p] [VO]
@@ -6,7 +86,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176708.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176201.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173870.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173358.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173208.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172950.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172740.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170799.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170757.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169540.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169230.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168778.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168703.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168453.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167969.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167455.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167194.jpg" />
 </div>
 
 
@@ -448,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166551.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165452.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165031.jpg" />
 </div>
 
 
@@ -527,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164356.jpg" />
 </div>
 
 
@@ -553,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164299.jpg" />
 </div>
 
 
@@ -579,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164294.jpg" />
 </div>
 
 
@@ -590,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34C65AFC6B8E0C29277D02504E560B20A585571E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673666   (164281) от 02.11.2023
-
-Том Сойер / Tom Sawyer (1973) BDRip [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обаятельный семейный мюзикл по популярной книге Марка Твена, в котором роль Бекки исполнила будущая звезда мирового экрана Джоди Фостер... Верным друзьям Тому Сойеру и Геку Финну всегда есть чем заняться, будь то рыбалка на Миссисипи, игры в пиратов или подшучивание над кем-то. Приезд в их город красавицы Бекки Тэтчер только добавляет масла в огонь. А когда Гек вдруг (   Читать дальше...   )Производство: США, Reader's Digest, Apjac InternationalЖанр: мюзикл, приключения, семейныйРежиссер: Дон Тейлор (I)Актеры: Джонни Уайтакер, Селеста Холм, Уоррен Оутс, Джефф Ист, Джоди Фостер, Люсиль Бенсон, Генри Джонс, Ной Кин, Даб Тейлор, Ричард ИстхэмПеревод: профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5056D8756515D57C88373A54CEC4EC1E747F7540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432509   (163685) от 17.12.2020
-
-Мистер Джангл и рождественское путешествие / Jingle Jangle A Christmas Journey (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163685.jpg" />
-</div>
-
-
-###  Подробнее
-
-История игрушечника, его внучки и одного необычного волшебного изобретения.Производство: США, 260 Degrees Entertainment, Brillstein Entertainment Partners, Get Lifted Film CompanyЖанр: мюзикл, фэнтези, семейныйРежиссер: Дэвид Е. ТалбертАктеры: Форест Уитакер, Кигэн-Майкл Ки, Хью Бонневилль, Аника Нони Роуз, Madalen Mills, Филисия Рашад, Рики Мартин, Джастин Корнвэлл, Sharon Rose, Лиза Давина ФиллипсПеревод: Дублированный (Пифагор по заказу Netflix)Субтитры: Русские (forced, full), украинские (forced, full), английские (SDH)Продолжительность: 01:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23C0F56D7872BA5B86FE1A2CE932ABFB74DF076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674100   (162306) от 04.11.2023
-
-Автомойка / Tirelire Combines & Cie / The Clean Machine (1992) WEB-DL [H.264/1080p] [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья Чарли, Бен и Мари решают открыть собственную автомойку, чтобы в каникулы заработать на карманные расходы. Их мелкий бизнес поначалу складывается вполне удачно. Но распределение обязанностей между собой оказывается большим испытанием для ребят. К тому же в их отношения вмешивается безответная любовь...Производство: Канада / Les Productions La Fête Inc.Жанр: приключения, комедия, драмаРежиссер: Жан БодриАктеры: Винсент Болдюк, Пьер-Люк Брийян, Delphine Piperni, Александра Лавердье, Мэтью Лашапель, Максим Коллен, Pierre-Paul Daunais, Марк-Андре Коалье, Дени Бушар, Доротея БерриманПеревод: многоголосый профессиональный (Селена Интернешнл)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EF7C26BA295BB34A045970EEB134F6187D3739
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134164.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134014.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132104.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131067.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128724.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128020.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126763.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Detailing Alarm | Профессия: Мастер Детейлер (2021) WEB-D
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124118.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kaminsky Driving Aсademy, Александр Каминский | Как пер
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123816.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123530.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123516.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122995.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ FITLAB (ФИТЛАБ) |  Курс для автомехаников. Школа 
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121061.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ FITLAB (ФИТЛАБ) | Интенсив по подбору запчастей 
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121040.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ FITLAB (ФИТЛАБ), Сергей Петров | Школа механика (
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121029.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ FITLAB (ФИТЛАБ) | Переговоры и точка. Курс для ав
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121014.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ FITLAB (ФИТЛАБ) | Звонки в автосервисе. Курс для 
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121012.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ FITLAB (ФИТЛАБ) | Психология управления персона
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121007.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ FITLAB (ФИТЛАБ) | Эффективный автосервис. Курс р
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121005.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ FITLAB (ФИТЛАБ) | Школа МП. Техминимум (2021) WEB-DL [RU]
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120866.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ FITLAB (ФИТЛАБ) | Школа МП. Как заработать больш�
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120858.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ FITLAB (ФИТЛАБ) | Школа МП. Рост среднего чека (202
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120856.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119825.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117957.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117668.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115237.jpg" />
 </div>
 
 

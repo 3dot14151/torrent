@@ -1,3 +1,125 @@
+###  Публикация: 1681237   (133099) от 02.12.2023
+
+VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Clarke - Stayin Forever (Original Mix) [02:45]
+02. Floating Brothers - I Remember (Original Mix) [02:38]
+03. David Thompson - Crash Dance (Original Mix) [03:20]
+04. Sean Newman - Emptiness (Original Mix) [03:05](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C567DB424ADF9FAE915B826095CEA1E5BB54D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681356   (133002) от 02.12.2023
+
+VA - Bass Boosted Car Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Her Name [07:36]
+02. FaraoN - With Her [03:55]
+03. Danil Dee - Easy (Radio Edit) [02:28]
+04. N.E.O.N - I See You [05:56](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E42F77D839F8583843A4D75F58035428091F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595637   (132837) от 28.12.2012
+
+VA - Housepital's Secret Club Weapons Vol.2 (2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baramuda - Fiesta en Paris - Carl Tricks Remix
+02. Adam Burn - Barracuda
+03. Martin Dhamen - TalkingTrash - Aemilius Remix
+04. Andy Leka - Eclipse
+05. Revero - Strossel
+06. Dean Anthony - Disco Lights
+07. Deeplife - The Green Zone - DJ Synchro Bigroom Mix
+08. 8 Bit Bandit - Red Candle - Deex Remix
+09. Al Jerry - Violence (Feat. Bibi Provence)
+10. Badisco - Sound of Happiness (Feat. Marcia Juell) - Extended Vocal Mix(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191B3D62355720F64EE417276CDB04CC73982F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682991   (129899) от 09.12.2023
+
+VA - Dance The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rank 1 - Awakening (MaRLo Remix) [03:13]
+02. Equinøx - From The Inside [03:45]
+03. Lulleaux - High On Love [02:09]
+04. Redondo - The Only One [02:22](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 07:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB25CE998002C7563EC118978DEB4AD5971ED5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682833   (129872) от 09.12.2023
 
 VA - 50 DJ Tracks 2024 Vol. 1 (2023) [MP3|320 Kbps] <House, Dance, Club, Electronic>
@@ -6,7 +128,7 @@ VA - 50 DJ Tracks 2024 Vol. 1 (2023) [MP3|320 Kbps] <House, Dance, Club, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129872.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128982.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ VA - Magic Deep-House, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128969.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ VA - Sirup Amsterdam 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128968.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127967.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ VA - Christmas Party 2023-2024 (Best of Dance, EDM, House & Electro) (2023) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127619.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Progressive House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127614.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127589.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ VA - Clubbing 2024 (2023) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127387.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ VA - Dance Mix 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126766.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ VA - Planeta Mix Hits 2024: Winter Edition (2023) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126468.jpg" />
 </div>
 
 
@@ -325,7 +447,7 @@ VA - Dance 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125055.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ VA - The Best Club Tracks 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124037.jpg" />
 </div>
 
 
@@ -383,7 +505,7 @@ VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123908.jpg" />
 </div>
 
 
@@ -412,7 +534,7 @@ VA - Winter Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123080.jpg" />
 </div>
 
 
@@ -441,7 +563,7 @@ VA - Best Vocal Songs of 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123079.jpg" />
 </div>
 
 
@@ -470,7 +592,7 @@ VA - Dance Vibes for Your Ears (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122940.jpg" />
 </div>
 
 
@@ -499,7 +621,7 @@ VA - Real Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122928.jpg" />
 </div>
 
 
@@ -528,7 +650,7 @@ VA - Chronicles, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122772.jpg" />
 </div>
 
 
@@ -557,7 +679,7 @@ VA - Pop Mania 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122741.jpg" />
 </div>
 
 
@@ -586,7 +708,7 @@ VA - Black Hole House Music 01-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121996.jpg" />
 </div>
 
 
@@ -615,7 +737,7 @@ VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121863.jpg" />
 </div>
 
 
@@ -629,122 +751,6 @@ VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C82916F963D0EF4127B55BB2A330457EBD88675D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693627   (121735) от 21.01.2024
-
-VA - Festival Sounds 2024 by Kontor (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121735.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bennett - Vois Sur Ton Chemin (Techno Mix) (02:58)
-002. Neptunica; Jasper Forks; Alex Christensen - River Flows In You (02:33)
-003. Kyanu; Keanu Silva; Ninkid - O Fortuna (02:36)
-004. Le Shuuk - Alegria (03:32)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 06:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3138BD5D140713C0AB9AC14E9D208C4813959DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693489   (121729) от 21.01.2024
-
-VA - Winter Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tury & Pawoh - Sunshine (02:01)
-02. Acnatro - Dear Brother (04:26)
-03. VOLB3X - Run Away (03:56)
-04. Ozan Ozalp - Deeper (02:58)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A987B9A026F34E14BFEEE2503FE5D7B8EB07BB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823199   (121563) от 10.10.2025
-
-VA - Black Hole House Music 10-25 (2025) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT & PARAFRAME - Flaming June (PARAFRAME Extended Remix) [5:42]
-02. Milkwish & Mike Konstanty - Carlita (Extended Mix) [6:50]
-03. Melih Aydogan feat. Ella - Walk The Line (Extended Mix) [4:09]
-04. Pavlo Vicci & Claudia Pavel - Win It All (Extended Mix) [4:28](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAE34293015ED2BA7BAFC0FDFF621E0DAE1A692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694865   (120652) от 27.01.2024
-
-VA - Electronic Music 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorbunoff - Take Me Home (02:04)
-02. Umut Torun - Into The Night (02:37)
-03. Deep Tone & Katya RED - Tenderness (05:00)
-04. Anka - Lonelyy (02:42)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8941034524DA0435317A165C4B11A95998518B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

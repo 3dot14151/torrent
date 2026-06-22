@@ -1,3 +1,154 @@
+###  Публикация: 465542   (96815) от 16.03.2012
+
+Soulfly - World Scum (2012) HDRip [720p]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulfly-группа,созданная Максом Кавалерой в 1997 году,после его ухода из группы Sepultura в 1996 году на пике её популярности.World Scum-клип бразильских металлистов на 1-й сингл с альбома Enslaved (2012).Песня посвящена различным жутким историческим событиям-войнам,тюрьмам,убийствам и прочему"мировому скаму".Жанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 00:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E0CBD3D2EF65AA1FD342289B1AED5BADB48219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464566   (96272) от 10.03.2012
+
+Музыка Первого (Январь 2012) DVD5 IPTV Rip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гости из будущего - Я не для тебя
+ 02. Би-2 - Дурочка
+ 03. А. Цой - Молитва
+ 04. Неангелы - Киев-Москва
+ 05. Ёлка - Прованс
+ 06. Т. Котова - Он
+ 07. Quest Pistols - Ты так красива
+ 08. Elvira T - Всё решено
+ 09. А. Хворостян - Падали, но поднимались
+ 10. Иракли - Капли абсента(   Читать дальше...   )Жанр: Russian Popular MusicПеревод: ОтсутствуетПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464949   (96089) от 09.03.2012
+
+Amaranthe - Amaranthine (2011) HDRip [720p]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amaranthe (ранее известный как Avalanche) - это шведско-датская пауэр/мелодик-дет-метал-группа, сформировавшаяся в Швеции и Дании. Amaranthe - новый проект, в котором приняли участие Джейк Е. Лундберг (ex-Dream evil, Dreamland) и Олоф Мерк (Nightrage, Dragonland).
+Amaranthine - видеоклип на песню  с дебютного альбома Amaranthe (2011). Наслаждайтесь приятным женским вокалом и красотой вокалистки группы.Жанр: Melodic Metal,Modern MetalАктеры: AmarantheПеревод: ОтсутствуетПродолжительность: 00:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40881F7E02A3C1F303822AEA077B2CD1F8F70E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456129   (94827) от 27.02.2012
+
+Dir en Grey - The Rose Trims Again (2008) DVD9
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт одной из самых популярных японских рок-групп
+без комментариев, это просто надо видеть и получать удовольствиеSA BIR
+OBSCURE
+GRIEF
+AGITATED SCREAMS OF MAGGOTS
+DISABLED COMPLEXES
+Merciless Cult
+蜷局
+艶かしき安息、躊躇いに微笑み
+AGITATED SCREAMS OF MAGGOTS -UNPLUGGED-
+CONCEIVED SORROWЖанр: JRockАктеры: Kyo · Kaoru · Die · Toshiya · Shinya
+http://ru.wikipedia.org/wiki/Dir_en_greyПеревод: ОтсутствуетПродолжительность: 01:48:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484345   (89172) от 18.04.2012
+
+Michael Jackson: Smooth Criminal (2010) DVDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6CDBF3BC59A043881254BF1C02A48D3791627D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482931   (88984) от 17.04.2012
 
 Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
@@ -6,7 +157,7 @@ Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88984.jpg" />
 </div>
 
 
@@ -33,7 +184,7 @@ Doppia B Hostility & Sofia Gucci - Un Binario Morto (Uncensored) (2012) [H.264/7
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88798.jpg" />
 </div>
 
 
@@ -59,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88591.jpg" />
 </div>
 
 
@@ -87,7 +238,7 @@ The National Fanfare of Kadebostany - Walking With A Ghost (2012) [H.264/720р] 
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87934.jpg" />
 </div>
 
 
@@ -113,7 +264,7 @@ Armin van Buuren / Live at Armada Night in Escape Amsterdam -21.10.2009 [1080i] 
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87544.jpg" />
 </div>
 
 
@@ -145,7 +296,7 @@ Halestorm - Live In Philly 2010 (2010) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86941.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86336.jpg" />
 </div>
 
 
@@ -206,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85301.jpg" />
 </div>
 
 
@@ -233,7 +384,7 @@ Il Volo -Takes Flight - Live From the Detroit Opera House (2012) Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84538.jpg" />
 </div>
 
 
@@ -261,7 +412,7 @@ Phil Collins: Live At Montreux (2004/2012) [1080i] Blu-ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83975.jpg" />
 </div>
 
 
@@ -296,7 +447,7 @@ Rammstein - Live in St. Petersburg 13.02.2012 [2012, Industrial, HDCamRip 720]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82293.jpg" />
 </div>
 
 
@@ -322,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80663.jpg" />
 </div>
 
 
@@ -348,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79798.jpg" />
 </div>
 
 
@@ -374,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79726.jpg" />
 </div>
 
 
@@ -400,7 +551,7 @@ A State Of Trance 550 Anthem Contest Podcast (2011) HDRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78937.jpg" />
 </div>
 
 
@@ -430,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78554.jpg" />
 </div>
 
 
@@ -465,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78308.jpg" />
 </div>
 
 
@@ -491,7 +642,7 @@ Korn, Ozzy Osbourne - Live at OZZFEST 2010 (2010) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78140.jpg" />
 </div>
 
 
@@ -521,7 +672,7 @@ Lee Ritenour&Chris Botti "Papa Was A Rolling Stone" (2005) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77508.jpg" />
 </div>
 
 
@@ -550,7 +701,7 @@ Glastonbury Festival 2011- Featuring Beyonce (Day 3) (2011) HDTV [H.264]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76286.jpg" />
 </div>
 
 
@@ -576,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75870.jpg" />
 </div>
 
 
@@ -596,111 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B934D6719C9424BE79047A98775CED91DC1D9E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451230   (75698) от 12.02.2012
-
-Billy Joel - Live At Shea Stadium (2011) BDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт певца , композитора и суперзвезды мирового масштаба, Billy Joel, содержит наиболее популярные песни Billy. В записи приняли участие Tony Bennett, John Mayer и Paul McCartney.Редко кто собирает на своих концертах такое количество людей-Billy Joel это удалось!!Жанр: RockФормат: MKVПродолжительность: 02:20:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443222   (72843) от 29.01.2012
-
-David Garrett: Legacy - Live in Baden Baden (2011) Blu-Ray
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72843.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дополнение к альбому Legacy вышел Blu-Ray Legacy: Live in Baden Baden. Он содержит фильм о Дэвиде "Play For My Life" и весь концерт в Баден-Бадене.
-Дэвид Гарретт выступает с Национальным Филармоническим оркестром России под управлением Lorenzo Coladonato. Этой записью Дэвеид открывает новую главу в своей истории успеха, сочетая в своей музыке два мира, Запад и Восток.Жанр: Instrumental, Classical, ViolinПеревод: ОтсутствуетПродолжительность: 01:24:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255625   (11633) от 13.07.2025
-
-Kylie Minogue, Jack Savoretti - Music's Too Sad Without You (2018) HDTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кайли Миноуг (Kylie Minogue) представила клип к композиции Music's Too Sad Without You. Композиция Music's Too Sad Without You является частью нового альбома Кайли Миноуг GoldenЖанр: PopПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FAA2FBC59BC30EDAF8C80B50845DE960C4F9880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691660   (11616) от 13.07.2025
-
-Легенды Ретро FM 2023 год (2023) DVB [AVC/H.264]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера телеверсии международного музыкального фестиваля Легенды Ретро FM-2023Производство: РоссияЖанр: музыка, popАктеры: Самоцветы, Joy, Дюна, Lian Ross, Александр Иванов и т.д.Перевод: не требуетсяСубтитры: отсутствуютПродолжительность: 02:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD2291ED87409A92711C877354336EB5648A8F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

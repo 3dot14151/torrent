@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072318.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071862.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071861.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070904.jpg" />
 </div>
 
 
@@ -103,6 +103,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865959   (1065974) от 
+
+Гарри Б. Джозеф | Книга мудрости | Путеводитель по здоровью и питанию [3 книги] (2024, 2025) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065974.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Книга мудрости» Гарри Б. Джозефа — это глубокое и всестороннее исследование знаний и философии, направленное на раскрытие истинной природы реальности. Издание представлено в двух томах —  это уникальное жизненное пособие для всех, кто ищет духовное пробуждение, стремится освободить разум от иллюзий и понять единство мира. Первый том раскрывает основы духовного пробуждения (   Читать дальше...   )Жанр: Нон-фикшн. Прикладная литература. Философия. Эзотерика. Популярная психология и здоровье.Перевод: АнтонИздательство: Самиздат, PublishDrive, Lulu.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B69BF66516B24C11A61C1BCDE2F41692B15230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865401   (1065753) от 
 
 Елена Блаватская | Тайная доктрина с комментариями (2017) [PDF, FB2, EPUB]
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065753.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059561.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059558.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059552.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056530.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056307.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054619.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054480.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054452.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051672.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050231.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050230.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049031.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042763.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042745.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042740.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042500.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042487.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042467.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042464.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042414.jpg" />
 </div>
 
 
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6B5E37B40E6060DC83D553A32940DE37BEBB80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437302   (1042266) от 04.01.2021
-
-Дебби Палмер, Валери Латона | Осознанная красота: привычка выглядеть и чувствовать себя на все сто (2020) [EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042266.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге вы найдете простые советы по сохранению красоты и молодости для повседневной жизни: как меньше нервничать и уставать, улучшить качество сна, правильно питаться, ухаживать за кожей и многое другое. Это проверенные способы от авторов, которые имеют опыт работы в медицине.
-Главная особенность книги в том, что она поможет восстановить баланс телесного и духовного. (   Читать дальше...   )Жанр: Психология и эзотерикаПеревод: М. МихалченковаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381D1341C632C0FF8DA378DC2EEF7C0B1EAD31E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

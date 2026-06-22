@@ -1,3 +1,55 @@
+###  Публикация: 187917   (873244) от 30.03.2010
+
+3D Ultra Pinball: The Lost Continent [En] (L) 1997
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предпосылка позади этого приключенческого пинбола - то, что когда-то после Второй мировой войны, Рекс Хантер, опытный летчик и частично занятый герой для найма, разбился при посадке в неизведанных джунглях. С ним Профессор Спектор, зоолог и известный изобретатель, и его помощница, Мэри. Они оказываются в месте защищенными временем, мир, где динозавры и пещерные люди все еще существуют. Кто-то украл части их самолета ночью. Чтобы решить тайны чужой страны и найти недостающие части самолета, таким образом чтобы они могли возвратиться домой. Чтобы сделать это, Рекс и его друзья должны выдержать нападения динозавров, пересечь предательский ландшафт, и обмануть хитрые ловушки. Самая большая опасность, однако, предлагается на Diabolical Doktor Hekla, у кого нет никакого намерения позволить Рексу и его друзьям спастись.Тип издания: ЛицензияЖанр: АркадаЯзык озвучки: n/aЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997874   (871107) от 18.03.2016
+
+Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (2016) [Ru/Multi] (1.0.10897.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы окажетесь в Амритсаре 1841 года, когда отношения между Сикхской империей и Ост-Индской компанией были накалены до предела. В город прибывает магистр тамплиеров, исполненный решимости завладеть легендарным алмазом ""Кохинур"", и романтические отношения между Арбаазом Миром и племянницей махараджи Пьярой Каур оказываются под угрозой. Арбаазу (   Читать дальше...   )Тип издания: RepackРазработчик: Climax Group, Ubisoft MontréalЖанр: Arcade (Platform), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF7FEA2D71450C951094585840C248F8937D7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997924   (871106) от 18.03.2016
 
 LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License RELOADED
@@ -6,7 +58,7 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871106.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Assassin's Creed Chronicles: Russia / Assassin's Creed Chronicles: Россия 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870983.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Crime Cities (2000) [En] (1.0) Licence
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867615.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Candlelight (2016) [En] (1.0) Rip R I T U E L
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865822.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Xeno Crisis (2019) [Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865147.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Shift Happens (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863668.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sky Cannoneer (2020) [En] (1.1.8.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863286.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dead or Alive 6 (2019) [Ru/Multi] (1.22/dlc) Repack xatab [Digital Deluxe Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863267.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Subterrain (2015) [Ru/Multi] (1183) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862496.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Orphan (2018) [Ru/Multi] (1.0.2.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860887.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ forma.8 (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860112.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859352.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Digger for Windows [En] (L) 1998
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857694.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Subterrain (2016) [Ru/Multi] (1.0.5.8) SteamRip Аnimanyak
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856823.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ WWE 2K16 (2016) [En/Multi] (1.0/dlc) Repack VickNet
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854984.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Ben and Ed: Bencalypse (2015) [En] (1.2.2) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853513.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.011.1/1.2.010.1/1.3.001.31/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851257.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Niffelheim (2018) [Ru/Multi] (1.3.001.31/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851122.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Blue Sheep (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846435.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ DX-Ball 2 [En] (L) 1998
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846126.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Blue Sheep (2016) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842501.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Pixel Privateers (2017) [En] (1.0.1) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842459.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Ultimate Marvel vs. Capcom 3 (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842439.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ The Treasures of Montezuma 4 / Сокровища Монтесумы 4 (2013) [R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842201.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ The Treasures of Montezuma 4 / Сокровища Монтесумы 4 (2013) [R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F88B598C517744B3379B38742A964BC4130885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057737   (840987) от 09.03.2017
-
-ClusterTruck (2016) [En] (1.1) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это безумный экшен-платформер заставит вас прыгать по крышам едущих фур, чтобы добраться живым до финиша. В игре присутствуют элементы паркура, но главная задумка все же в полном хаосе и безумии происходящего. Первые уровни будут весьма просты, вам всего-то нужно доехать на крыше фуры до финиша, но с каждым уровнем игра будет становиться все сложнее и сложнее. Очень (   Читать дальше...   )Тип издания: LicenseРазработчик: Landfall GamesЖанр: Экшены, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A6E422A9E57A16F08801A5098FAB6BC9ECA76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500359   (840943) от 06.10.2021
-
-Trine (2009) [Multi] (2.12(a)) License GOG [Enchanted Edition]
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trine – динамичная игра с реалистичной физической моделью, в которой три персонажа объединяют свои силы и навыки, решая хитроумные и опасные головоломки и побеждая грозных врагов. Игровой процесс основан на интерактивной физике, где каждый персонаж наделен своими навыками и тактикой, так что вы непременно придумаете, как преодолеть все препятствия и спасти королевство!Тип издания: LicenseРазработчик: FrozenbyteЖанр: Экшн, Приключение, ГоловоломкаЯзык озвучки: Английский, Немецкий, Французский, Испанский и другиеЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC18B8B15EFBB3F100AFF91B0AD77FC34C6C6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

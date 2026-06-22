@@ -1,3 +1,208 @@
+###  Публикация: 817803   (541333) от 03.09.2014
+
+The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Start a War
+02. Fight Back
+03. UK 82
+04. Chaos is My Life(   Читать дальше...   )Жанр: Street punk/Hardcore-punk/Crossover thrashПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28248BC873D9937C39B8A0C03D11225BA1193A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925359   (541118) от 06.08.2015
+
+U.D.O. - Navy Metal Night (2015) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541118.jpg" />
+</div>
+
+
+###  Подробнее
+
+В феврале 2014 года U.D.O. сыграли специальное шоу в сопровождении немецкого военно-морского оркестра Marinemusikkorps Nordsee. Симфоническое звучание оркестра и хора слились воедино с песнями U.D.O., сделав вечер незабываемым для собравшейся аудитории01. Das Boot
+02. Future Land
+03. Independence Day
+04. Animal Instinct(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6CF8DBA76A0A7FDC8947321B564F70C9447FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925183   (540818) от 06.08.2015
+
+Золотая коллекция Ретро 1-3 (2006) DVDRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный видео материал представляет собой уникальную подборку песен в исполнении замечательных артистов эстрады. Исполнителей, которые были известны всей стране, которые радовали своим творчеством миллионы советских слушателей. Исполнителей, чьи песни до сих пор пользуются огромной популярностью и любимы настоящими ценителями музыки.
+
+Черно-белые кадры телеконцертов (   Читать дальше...   )Производство: СССРЖанр: Советская эстрадаПродолжительность: 01:07:07 + 01:10:35 + 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B922300401D3D9C921633E27833E40A0A231908A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154369   (540446) от 30.07.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 4) (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Очередная - четвёртая часть серии видеомиксов популярных клипов легендарных 90-х. Продолжаем танцевать в стилях  Rock Ballads, Reggae, R&B и Eurodance! Вспоминаем и наслаждаемся приятной и танцевальной музыкой 90-х!
+- Разбивка по трекам отсутствует.N Sync – Tearin’ Up My Heart
+2Pac – Changes
+Puff Daddy - I'll Be Missing You
+House Of Pain – Jump Around(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED67907AC4752F652373699532F30CD06217C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365988   (540436) от 21.07.2011
+
+Фестиваль "Нашествие 2011 " ( Вася Обломов ) (2011) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540436.jpg" />
+</div>
+
+
+###  Подробнее
+
+8, 9, 10 июля в Тверской области состоялся десятый юбилейный крупнейший всероссийский фестиваль на открытом воздухе «НАШЕСТВИЕ». В этом году фестиваль собрал еще больше гостей, чем в прошлом. В общей сложности за 3 фестивальных дня «НАШЕСТВИЕ» посетили более 170 000 человек. Несколько сотен журналистов из всех регионов нашей необъятной страны, а также из стран ближнего (   Читать дальше...   )01. Еду в Магадан
+02. УГ
+03. Кто хочет стать милиционером
+04. НачальникЖанр: КонцертПродолжительность: 00:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A632FB02D44934A8986D802BF59D74F24B81A36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523055   (540359) от 04.08.2018
+
+Сурганова и оркестр – фестиваль Нашествие 2012 <Rock>   (2012.07.07) WebRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540359.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 6 по 8  июля 2012 года в Тверской области состоялся ежегодный музыкальный фестиваль «Нашествие».
+Светлана Сурганова и оркестр выступали на главной сцене в суботу.
+СиО начали своё выступление с инструментальной композиции «прилетит вдруг волшебник» И он прилетел – наш Арт-Позитив и ТАКИЕ подарки сделал СиО и всем зрителям, что просто нет слов! Это было сказочно прекрасно (   Читать дальше...   )01. Интро
+02. Увидимся скоро
+03. Хвала
+04. Sanctum Sanctorum(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A4BA2AFD83C2AA54ED08AA72AC1F7383C716FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696312   (540141) от 03.09.2013
+
+Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540141.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aura
+2. MANiCURE
+3. ARTPOP
+4. Jewels & Drugs (Ft. TI Ft. Too $hort Ft. Twista)(   Читать дальше...   )Жанр: Комедия, ток-шоу, музыкаПеревод: ОтсутствуетПродолжительность: 01:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32975DF2A9EE7463093430F2C6A8CBA8F065CA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050262   (540117) от 07.09.2016
 
 Я - 11-17 (1-3 серия из 3) (1970) TVRip
@@ -6,7 +211,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540117.jpg" />
 </div>
 
 
@@ -32,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539834.jpg" />
 </div>
 
 
@@ -58,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539833.jpg" />
 </div>
 
 
@@ -84,7 +289,7 @@ Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539476.jpg" />
 </div>
 
 
@@ -113,7 +318,7 @@ Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539475.jpg" />
 </div>
 
 
@@ -142,7 +347,7 @@ Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539467.jpg" />
 </div>
 
 
@@ -171,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538720.jpg" />
 </div>
 
 
@@ -198,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538103.jpg" />
 </div>
 
 
@@ -224,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537855.jpg" />
 </div>
 
 
@@ -250,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536924.jpg" />
 </div>
 
 
@@ -276,7 +481,7 @@ Lounа - Фестиваль "Нашествие 2011" (2011) WEB-DLRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536899.jpg" />
 </div>
 
 
@@ -305,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536634.jpg" />
 </div>
 
 
@@ -334,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536336.jpg" />
 </div>
 
 
@@ -360,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535896.jpg" />
 </div>
 
 
@@ -389,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535776.jpg" />
 </div>
 
 
@@ -415,7 +620,7 @@ Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535660.jpg" />
 </div>
 
 
@@ -445,7 +650,7 @@ The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535277.jpg" />
 </div>
 
 
@@ -474,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535269.jpg" />
 </div>
 
 
@@ -494,228 +699,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 801714   (534932) от 09.08.2015
+###  Публикация: 367044   (535178) от 24.07.2011
 
-ДДТ - Иначе (Live in Essen) (2013) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534932.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2013 году группа ДДТ завершила свой двухлетний тур с программой «Иначе». Отличительной чертой этой программы является концептуальный видеоряд, разработанными молодыми талантливыми художниками в области современного искусства. Весной 2013 года в Германии состоялись сразу два грандиозных концерта легендарной российской рок-группы ДДТ! 8 мая 2013 года на площадке (   Читать дальше...   )Live in Essen Часть 1:
-
-01. Noise №1
-02. Родившимся этой ночью(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBDBBF0C9B92D83D9E53F147F8A9C84F98590A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925981   (534931) от 09.08.2015
-
-Michael Jackson - Moonwalker (1988) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смесь видеозаписей живых концертов Майкла Джексона и ряда художественных сцен с ним, как главным героем. Сюда вошли некоторые из лучших видеоклипов Майкла, отснятых во время мирового турне с альбомом «Bad», а также видео «Smooth Criminal» с сюжетной линией в стиле «фэнтези».Жанр: Фантастика, фэнтези, семейный, мюзиклРежиссер: Джерри Крамер, Джим Блэшфилд, Колин ЧилверсСубтитры: Русские, АнглийскиеПродолжительность: 01:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD0C5B4AD54469BB9DE305F4F54BD6F6171DE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239711   (534892) от 07.08.2018
-
-Sting - Live At The Olympia Paris (2017) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления Стинга в легендарном зале Olympia Paris во французской столице, состоявшегося 12-13 апреля 2017г в рамках мирового тура "57th and 9th"01.Synchronicity II
-02.Spirits In The Material World
-03.Englishman in New York
-04.I Can't Stop Thinking About You(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Rock, PopРежиссер: Alexandre BuissonАктеры: Sting & BandПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8320EF7C4EC4EC0A33ADB7B4EA56B5844171A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430426   (534681) от 09.08.2015
-
-Дискотека 80-х - 10 лет вместе! / Авторадио (2012.01.01) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феерическое шоу для тех, кто хочет зажечь по-взрослому! Новогодняя «Дискотека 80-х» на Первом!
-
-«Дискотека 80-х» стала дискотекой в полном смысле этого слова, где в одном непрерывном музыкальном ряду встали кумиры 80-х: «итальянский соловей» Pupo и его соотечественники Аль Бано и группа Ricchi e Poveri, немецкий коллектив Alphaville, шведская группа Secret Service, (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 03:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100FB5DC6002D34FDB5A42A945916B1D97F98C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365183   (534476) от 24.07.2011
-
-Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Good Quality][Rock][LDRip][2xDVD9]
+The Eagles - Life In The Fast Lane (Live) (2005) HDTV
 
 >>Театр и Музыкальное видео
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_535178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта двухдисковая версия Greatest Flix I & II - является качественным аппаратным LDRip'ом, сделанным при помощиЖанр: МузыкаПеревод: Не требуетсяФормат: 2xDVD9Продолжительность: DVD1 - 1:13:24 + 0:17:34; DVD2 - 1:20:57
+Вырезка из автралийского концерта "The Farewell 1 Tour" на RodLaver Arena в Мельбурне в 2005г.Актеры: EaglesПеревод: ОтсутствуетПродолжительность: 5mn 50s
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8629057C37CD770ACD1AE1B46FDAEF05FC44F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479091   (534343) от 09.08.2012
-
-Без вины виноватые / Театр им. Вахтангова (1994) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль театра им. Вахтангова по одноименной пьесе А.Н.Островского.
-
-Знаменитая актриса Кручинина соглашается гастролировать в городе, с которым у нее связаны тяжелые воспоминания, и находит там сына, оставленного ею в силу обстоятельств много лет назад...
-
-Спектакль поставлен Петром Фоменко в Малом зале, бывшем некогда буфетом театра. Выбор площадки объясняется в самой пьесе. Комик Шмага произносит свою крылатую фразу — «истинное место актера в буфете». Мелодраму Островского об актерах провинциального театра позапрошлого века Фоменко решил как свое признание в любви к Театру, этому средоточию смеха и слез, закулисных интриг и благородных движений души, мелкой подлости и высокой нравственности. Театр здесь показывает то, что знает лучше всего — самое себя. Богатый барин и обожатель актрис дает в пьесе определение актерам — «птицы небесные». Эти самые птицы живут по законам драм, которые играют и зачастую не могут отличить жизнь на сцене от подлинной жизни.Жанр: мелодрама, спектакльРежиссер: Петр ФоменкоПродолжительность: 01:19:41 + 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B946C19B2BD65E368E59BD9147C25AE9F9CD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533082   (534223) от 09.08.2012
-
-The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534223.jpg" />
-</div>
-
-
-###  Подробнее
-
-• «Sex Pistols» — легендарная британская панк-рок группа. В основу этой программы легли 5 концертов, которые прошли с аншлагом в ноябре 2007 года в Лондонской Brixton Academy. Концерты были приурочены 30-летнему юбилею выхода дебютного альбома группы Sex Pistols «Never Mind the Bollocks».color]1. There'll Always Be An England (intro)
-2. Pretty Vacant
-3. Seventeen
-4. No Feelings
-5. New York
-6. Did You No Wrong
-7. Liar
-8. Beside the Seaside
-9. Holidays in the Sun
-10. Submission(   Читать дальше...   )Жанр: Rock, Рunk-rockРежиссер: Жюльен ТемплФормат: BDMVПродолжительность: 01:10:53 + 00:34:06 + 0:23:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227502   (534010) от 17.08.2010
-
-Chet Atkins - Certified Guitar Player'87 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чет Аткинс... Пожалуй композитор, гитарист и поэт №1 в стиле кантри. На данном диске представлен сейшн с музыкантами, которые пришли засвидетельствовать свое почтение и признание Маэстро! Среди пришедших : Mark Knopfler, the Everly Brothers, Emmylou Harris, Waylon Jennings, Willie Nelson, Michael McDonald and a band of Music City' s finest players!Жанр: Country / FolkПеревод: ОригинальныйПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:08930F5C91FF15BBE90C908D73CA6CC68BD300EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1471688   (127603) от 16.12.2023
+
+Народное творчество | Самым маленьким. Пестушки, Колыбельные, Потешки (2013) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пестушки, Колыбельные, Потешки. Для самых маленьких.Жанр: Детские стихиИздательство: Литрес ПаблишингПродолжительность: 04:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BEA55DC327D78C02DBA56923B2D613835D3D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684476   (127573) от 16.12.2023
+
+Зимовье зверей | Русская народная сказка (2021) [MP3, Надежда Шмидт]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка учит быть дружными, все дела делать сообща, учит быть предусмотрительными и осторожными. Учит прощать ошибки своим друзьям.Жанр: Детская литератураИздательство: Аудиокнига своими рукамиПродолжительность: 00:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A3E59338390D145CE27E59B66932F7CF83DC4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682822   (127547) от 16.12.2023
+
+Юрий Третьяков | Рачье место (2023) [MP3, Дмитрий Гугуев]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о том, как простая прогулка за раками превратилась в приключение с преодолением трудностей и неожиданными встречами.Жанр: Детская литератураИздательство: Аудиокнига своими рукамиПродолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0119D0B8D26523AE93B269859C12CB4271E0B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 341710   (127512) от 17.12.2023
 
 Путешествия Синдбада-морехода (Аудиоспектакль) (2007) [MP3, Олег Исаев]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127512.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127507.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127504.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127496.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127484.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127477.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127469.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127463.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127462.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127458.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127451.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127448.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127447.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127434.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127432.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127430.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127429.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127428.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127426.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127425.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127421.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127420.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127418.jpg" />
 </div>
 
 
@@ -601,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:175A104503FB82FE951903F4C57984DA80DB1E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544726   (127417) от 17.12.2023
-
-Ольга Громова | Сахарный ребёнок. История девочки из прошлого века, рассказанная Стеллой Нудольской (2017) [MP3, Татьяна Манетина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127417.jpg" />
-</div>
-
-
-###  Подробнее
-
-У девочки редкостное имя — Стелла. И нередкая для её времени судьба, ведь детство Стеллы пришлось на 30–40-е годы XX века. У неё чудесные родители: вместе с Элей — так ласкательно зовут их дочку — они увлечённо поют, читают, разыгрывают литературные спектакли на разных языках; их дом наполнен радостью и любовью. Но однажды приходит беда: хмурые люди забирают папу, (   Читать дальше...   )Жанр: Детская проза, Книги для детей, Книги для подростковИздательство: 1С-ПаблишингПродолжительность: 05:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18126232B07E1A89D9E7ACB3069B11070D3143DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523157   (127414) от 17.12.2023
-
-Тамара Михеева | Янка (2019) [MP3, Любовь Конева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая повесть — история девочки-подростка, столкнувшейся с трудностями, каких не ожидала: развод родителей, переезд, поиск новых друзей. Главной героине приходится отстраивать жизнь едва ли не с нуля, но, как бы тяжело это ни было, именно в таком отстраивании открывает Янка новые для себя возможности. И сколько она узнаёт о себе и окружающих!
-
-За какую бы (   Читать дальше...   )Жанр: Книги для подростковИздательство: 1С-ПаблишингПродолжительность: 05:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50B8CC454D94B7A45531C5F90B087D8606D2F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471821   (127412) от 17.12.2023
-
-Кэти Гласс | Ты меня полюбишь? История моей приёмной дочери Люси (2020) [MP3, Екатерина Еремкина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127412.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге Кэти Гласс, психолог и опекун, помогающая проблемным детям уже больше 25 лет, рассказывает о Люси — маленькой девочке, которая к 11 годам сменила несколько приёмных семей. Казалось, что ребёнок уже не сможет вернуться к нормальной жизни, разучился доверять и любить. Но благодаря заботе и чуткости Кэти Люси не только смогла освободиться от травм прошлого, (   Читать дальше...   )Жанр: Воспитание детей, Истории из жизниПеревод: Т. О. НовиковаИздательство: ЭксмоПродолжительность: 08:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24DA9A427F3B46BFF655A47B0F9F80FAEDDB5BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

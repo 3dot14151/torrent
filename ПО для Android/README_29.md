@@ -1,3 +1,29 @@
+###  Публикация: 1472764   (1014172) от 26.05.2021
+
+Amber Weather (Янтарная погода) 4.7.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amber Weather - специально разработана чтобы совместить прогноз погоды на неделю, актуальную температуру, часы, дату и другую полезную информацию в одном удобном, красивом, приложении с инстинктивно понятным интерфейсом. Настройки шкал измерения и необходимых показателей помогут оптимизировать прогнозы именно для Вас. Благодаря разнообразным виджетам вы сможете узнать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.03.2021Разработчик: Amber Mobile LimitedПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B0F61F268A72EA65B1855B64D6128C16D21065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366478   (1014074) от 26.05.2021
 
 Запись звонков - Cube ACR 2.3.202 Mod by LunaDev [Ru/Multi]
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014074.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013981.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013966.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013808.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013456.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012985.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012689.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ BirdNerd v1.0.9b [Ru/En] - Определение птицы по голосу (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012545.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012476.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Strelok / Стрелок v5.0.0 Plus и v6.0.4 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012304.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Launcher iOS 14 3.9.3 Mod by vovamen24 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012207.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012112.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Total Launcher 2.8.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012087.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ neXt Launcher 3D 3.7.3.2 Mod by Balatan, chathu_ac, Сіtrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012054.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Ratio - The Productivity Launcher 4.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011965.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Wide Launcher - 3X Wider Home Screen 1.6.41 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011951.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Leanback on Fire 1.48 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011934.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ My Android Tools 1.6.8 Free / 1.6.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011919.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Mi Видео - бесплатный просмотр и загрузка вид
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011652.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011478.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011461.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ SoloLearn: Учимся программировать 4.7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011450.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Parrot Voice Recorder v3.7.8  [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011055.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Total Recall - Call Recorder v2.0.86 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011050.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010911.jpg" />
 </div>
 
 
@@ -648,34 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51F5D9BFF6231704614DC16F3C05BCE74D6DD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416049   (1010867) от 15.06.2021
-
-Тактическая карта Х v6.6.4 [Ru/Multi]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение предназначено для GPS и систем координат, особенно для военнослужащих.
-Это также полный помощник для альпинизма, походов и походов, кросс-бега, разведки, охоты, рыбалки, геокэшинга, внедорожной навигации и других видов активного отдыха и спорта.
-С помощью спутниковых навигационных систем, таких как GPS, ГАЛИЛЕО и GLONASS (GNSS) , поддерживаемых вашим (   Читать дальше...   )Тип издания: Пиратка (Pro версия)Релиз состоялся: 27.05.2021Разработчик: DakikTechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC80A2FDA2294183898D92FEF9EDAA1BA7969C7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

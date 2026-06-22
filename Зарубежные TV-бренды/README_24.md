@@ -1,3 +1,107 @@
+###  Публикация: 1505784   (802492) от 28.10.2021
+
+BBC. Панорама. Нелегальная торговля органами / Exposing the Illegal Organ Trade (2020) WEBRip [H.264/1080p] (сезон 68, выпуск 35)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Би-би-си исследует одно из самых безобразных явлений современности – нелегальную торговлю человеческими органами. Этот прибыльный бизнес имеет инфраструктуру и хорошо налажен в Египте, где мигранты из стран Африки, стремящиеся в Европу, становятся легкой добычей преступных банд. У кого-то органы забирают силой, кого-то заманивают обещанием денег. Нередко вчерашние (   Читать дальше...   )Производство: Великобритания / BBC StudiosЖанр: ДокументальныйРежиссер: Лора БернсПеревод: Многоголосый профессиональный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F271049D5E820A2049687AE8412532802E74E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198801   (802476) от 14.01.2018
+
+BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] (Сезон 1, серии 1-7 из 7) [PR]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон "Blue Planet" продолжает рассказ об исследовании малоизученные глубины мирового океана. Новейшие технологии дают возможность, как никогда прежде, взглянуть на водный мир Земли и показать зрителю исследованный край подводного мира, который ранее был недоступен человеческому глазу. Современное оборудование и опытные разработчики представят красочную (   Читать дальше...   )Производство: Великобритания, BBC Natural History UnitЖанр: Документальный, природа, путешествие, флора, фаунаРежиссер: Сэр Дэвид АттенбороПеревод: Дублированный (Николай Дроздов - все серии), Профессиональный (многоголосый, закадровый) ("ColdFilm" - все серии), Авторский (одноголосый, закадровый) ("Jimmy J." - 1-2 серии), Украинский (Ю.Онищенко (ник - Logos71) - 1-4 серии)Субтитры: Английские, УкраинскиеПродолжительность: серии ~ 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D116691246F63189B9942EA56DF02E72EDD9C8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199019   (802468) от 14.01.2018
+
+BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-LQ] (Сезон 1, эпизод 1-7 из 7)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что вода занимает две трети нашей планеты, о глубинах океана мы знаем меньше, чем о поверхности Луны. От известного до непознанного - новый документальный сериал "Голубая планета" открывает нам всю красоту и очарование океана, поражая воображение многообразием его обитателей. Сериал "Голубая планета" - это всестороннее и наиболее (   Читать дальше...   )Телекомпания: Великобритания, BBC Natural History UnitЖанр: Документальный, природа, путешествие, флора, фаунаРежиссер: Сэр Дэвид АттенбороПеревод: Дублированный (Николай Дроздов)Субтитры: отсутствуютПродолжительность: серии x ~ 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A92C97410843B0AE4C409EC1D1487AEE411660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541468   (802450) от 20.04.2014
+
+BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск / The Hunt for the Higgs - A Horizon Special (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Передача Горизонты Науки проникает за кулисы ЦЕРНа отслеживая одно из самых эпических и дорогих научных исследований всех времен и народов: поиск частиц Хиггса, которые, как полагают, дают массу всем частицам в нашей Вселенной. Тем не менее, охота за бозоном Хиггса является частью гораздо более грандиозных поисков, проясняющих как работает вся Вселенная. Она обещает помочь ответить на такие вопросы как, сама возможность нашего существования, а так же это жизненно важный фрагмент единой теории поля. В основе погони за неуловимыми частицами лежит особенность, которая делает снежинки красивыми и человеческие лица привлекательными: простая и очаровательная идея симметрии всего сущего...Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3947533E0C60991E5ADD45C96440FF14A3C6F755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384538   (802410) от 20.05.2020
 
 BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) WEB-DL [H.264/1080p] (сезоны 1-2, серии 1-5 из 5)
@@ -6,7 +110,7 @@ BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802410.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802376.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801989.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801954.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801474.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801437.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801298.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800835.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800115.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800043.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ BBC. Панорама. Харви Вайнштейн: вся подноготн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799983.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799725.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_799432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799432.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Discovery. Техногеника. Стратегические Бомбарди
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799181.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ BBC. Самые милые животные / Super Cute Animals (2014) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799159.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799152.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC. Великий рифт: Дикое сердце Африки / Great Rift:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799119.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ BBC Horizon: Хаббл. Открытие тайн космоса / Hubble: The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798968.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798689.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798663.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798385.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NGW: Холодное королевство снежного барса / The F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798375.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ NGW: Холодное королевство снежного барса / The F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22294EE7E4FAA5AEEAFC7F8EAAB73B707023EF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460865   (798370) от 04.11.2021
-
-Реальность или фантастика? Чупакабра / Is it Real? Chupacabras (2005) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некое загадочное существо тайком от людей пьёт кровь домашнего скота. Эти странные события происходят в Южной и Центральной Америке. Такие вещи не могут не тревожить местных жителей, они называют это существо – «чупакабра», что в переводе означает «козий вампир». Всю Латинскую Америку охватил непреодолимый интерес к этим загадочным происшествием, что можно назвать (   Читать дальше...   )Производство: США, National Geographic TelevisionЖанр: Документальный цикл, познавательныйРежиссер: Полетт МурПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337ED09A64437743BFC98AE82E0B2CA532DD0763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656187   (798359) от 04.11.2021
-
-NG: Самый опасный наркотик / The World`s Most Dangerous Drug (2006) HDTVRip [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798359.jpg" />
-</div>
-
-
-###  Подробнее
-
-У него множество названий: кристалл, лед, тина, и заводка, большинство просто называют его MET – сокращенно от метамфетамин. Он сильнее и дешевле чем кокаин, действие стандартной дозы продолжается от 6 до 12 часов, кроме того его можно изготовить прямо на заднем дворе, если вы умеете готовить шоколадное печенье, то сможете изготовить и метамфетамин. Для изучения (   Читать дальше...   )Жанр: ДокументальныйРежиссер: David MurdockПеревод: Одноголосый профессиональныйПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9794E524ED30C159333E06503B3703A314D90699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385425   (797759) от 24.05.2020
-
-NG. Дикая природа Тайваня: остров джунглей / Wild Taiwan: Jungle Island (2018) WEBRip [H.264/1080p-LQ] [PR]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайвань - это остров, непохожий на другие острова. На этом расположенном непосредственно на тропике Рака небольшом кусочке Азии вы найдете тропические пляжи, сумрачные леса и покрытыми льдом и снегом горы. Жизнь здесь скрытна и скудна, она разделена между теплыми низменностями на западе и высокими горами на востоке. Но весной, когда снег на Нефритовой горе отступает, (   Читать дальше...   )Производство: США, Natural History New Zeland for National GeographicЖанр: Документальный, Флора, Фауна, ПриродаРежиссер: Лорн ТаунендПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B1247FC8D8C1D80925829FB9830906EA716416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008924   (797540) от 26.04.2016
-
-Нетронутые уголки дикой природы / Natures Microworlds (2012-2014) SATRip (сезон 1-3 из 3, серии 1-16 из 16)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша планета – величайшая загадка Вселенной. Миры внутри других миров, каждый из которых - это самостоятельная экосистема, наполненная жизнью. Для того чтобы понять, как эти миры устроены, мы попытаемся исследовать их по отдельности. Мы сможем разобрать эту необыкновенную мозаику по кусочкам и обнаружить главный элемент – ключ к самой жизни, спрятанный глубоко в (   Читать дальше...   )Телекомпания: Великобритания, British Broadcasting Corporation (BBC)Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~00:30:00 (одна серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61834014E25578D900E040F3CB8FF5CC37939024
 ```
 
 https://mybot314.ru/tekegram_catalog/

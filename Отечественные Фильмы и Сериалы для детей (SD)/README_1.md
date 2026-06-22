@@ -1,3 +1,82 @@
+###  Публикация: 1845422   (1050688) от 31.12.2025
+
+Королевство кривых зеркал (1963) BDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050688.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Королевство Кривых Зеркал" — фильм-сказка по одноимённой повести Виталия Губарева.
+ Однажды школьница Оля взглянула в самое обычное зеркало, которое висело дома в прихожей, и неожиданно отправилась путешествовать в волшебную зазеркальную страну вместе со своим отражением - озорной девочкой Яло. Вдвоем им удается вызволить из тюрьмы мальчика Гурда и разрушить (   Читать дальше...   )Производство: СССР / К.ст.М. ГорькогоЖанр: фэнтези, семейный, детский, экранизацияРежиссер: Александр РоуАктеры: Ольга Юкина, Татьяна Юкина, Татьяна Барышева, Анатолий Кубацкий, Андрей Файт, Лидия Вертинская, Аркадий Цинман, Андрей Стапран, Иван Кузнецов, Георгий МиллярСубтитры: ОтсутствуютПродолжительность: 01:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE9420CDEC833CDF6DD440A7E62FC52266787A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845035   (1050521) от 31.12.2025
+
+В поисках капитана Гранта (1985) HDTVRip [H.264] (сезон 1, серии 1-7 из 7)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050521.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Жюля Верна "Дети капитана Гранта". Капитан Грант пустился в опасное плавание, чтобы основать вольное шотландское поселение на островах Тихого океана. Его корабль терпит крушение и лишь полуразмытая записка в бутылке доносит обрывочные сведения о Гранте. Лорд Гленарван на свой страх и риск отправляется на поиски, взяв с собой детей капитана - Мэри (   Читать дальше...   )Производство: СССР | Болгария | Одесская киностудия | БоянаЖанр: экранизация, приключенияРежиссер: Станислав ГоворухинАктеры: Николай Еременко, Тамара Акулова, Лембит Ульфсак, Владимир Гостюхин, Олег Штефанко, Анатолий Рудаков, Руслан Курашов, Галина Струтинская, Александр Абдулов, Борис Хмельницкий и др.Продолжительность: ~01:04:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40154274A65178028B6C2670DF71F1C1FA3EC08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844363   (1049985) от 26.12.2025
+
+Письмо Деду Морозу (2025) WEBRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петр Безуглов — серьезный юрист, который забыл, что значит мечтать. Его жизнь — это бесконечные рабочие дни и правила. Но его сын Ванечка находит папины детские письма Деду Морозу и отправляет их через волшебный почтовый ящик. В одночасье мир Петра переворачивается с ног на голову: его настигают все его детские фантазии — от рек газировки и оживших игрушек до появления (   Читать дальше...   )Производство: Россия | «Киностудия им. М. Горького»Жанр: Комедия, фэнтези, семейныйРежиссер: Кирилл КузинАктеры: Антон Филипенко, Наталия Орейро, Иван Охлобыстин, Кристина Асмус, Екатерина Темнова, Константин Каримов, Эвелина Блёданс, Дима Билан, Анатолий Цой, Азамат НигмановСубтитры: Русские (forced hardsub)Продолжительность: 01:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458F87BFCFF3AEED1292BC510C8CF9C178A7A3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844264   (1049836) от 25.12.2025
 
 Про Красную Шапочку (1977) BDRip [H.264] (серии 1-2 из 2)
@@ -6,7 +85,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049836.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049823.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049744.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049432.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049404.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048668.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048528.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048323.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048319.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048289.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048205.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047904.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047374.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047354.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047114.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046658.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046647.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046505.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045640.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043978.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043335.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043308.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042989.jpg" />
 </div>
 
 
@@ -599,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B79F7B63C79FCE3AC0AC163A6084C17C984FE4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429749   (1042749) от 02.01.2021
-
-Финист - Ясный Сокол (1975) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил да был на земле храбрый и добрый богатырь, по прозванию Финист - Ясный Сокол. Славился он своей силой, отвагой и отзывчивым сердцем. Но напал на русскую землю злой враг Картаус. И превратил он богатыря в чудище лесное, заколдовал с условием, что вновь станет Финист человеком, если полюбит его в облике чудища прекрасная девушка Аленушка.Производство: СССР, Киностудия им. М. ГорькогоЖанр: Мюзикл, фэнтези, мелодрама, приключения, семейныйРежиссер: Геннадий ВасильевАктеры: Вячеслав Воскресенский, Михаил Пуговкин, Людмила Хитяева, Светлана Орлова, Георгий Милляр, Георгий Вицин, Михаил Кононов, Гликерия Богданова-Чеснокова, Мария Барабанова, Анна СтрогановаЯзык озвучки: Русский, НемецкийСубтитры: русские, французские, английскиеПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6640533B175E7E2EDF7BB20F40928379747930B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434318   (1041900) от 05.01.2021
-
-Москва-Кассиопея (1973) DVDRemux [немецкое издание от IceStorm]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Середа, школьный авторитет во всем, что касается точных наук, рассказывает о своем проекте полета к созвездию Кассиопеи на космическом корабле «Заря».
-Собственно, ничего бы не произошло, если бы вдруг не появилась некая загадочная личность, представившая себя как И. О. О., что означает исполняющий особые обязанности.
-Как выяснилось, из детей не старше 14 лет (   Читать дальше...   )Производство: СССР, Киностудия детских и юношеских фильмов имени ГорькогоЖанр: Фантастика, комедия, приключения, семейныйРежиссер: Ричард ВикторовАктеры: Иннокентий Смоктуновский, Василий Меркурьев, Лев Дуров, Юрий Медведев, Петр Меркурьев, Миша Ершов, Саша Григорьев, Владимир Савин, Владимир Басов, Ольга Битюкова, Надя Овчарова, Ира ПоповаЯзык озвучки: Русский, НемецкийСубтитры: ОтсутствуютПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D644E258CFF5579274CD2564C7D968804C40498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432569   (1038993) от 16.01.2021
-
-Иван да Марья (1974) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038993.jpg" />
-</div>
-
-
-###  Подробнее
-
-О необыкновенных приключениях в царстве вздорного царя-самодура Евстигнея XIII, в поединке с которым бравый солдат Иван - мастер на все руки - одерживает победу.Производство: СССР, Киностудия им. М.ГорькогоЖанр: Фэнтези, мелодрама, комедия, семейный, музыкаРежиссер: Борис РыцаревАктеры: Иван Бортник, Татьяна Пискунова, Иван Рыжов, Лия Ахеджакова, Елизавета Уварова, Николай Бурляев, Лев Круглый, Виктор Сергачев, Михаил Козаков, Валентин ГафтЯзык озвучки: Русский, НемецкийСубтитры: ОтсутствуютПродолжительность: 01:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F411AD3C76471AECF77A947F333E49D4882736D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

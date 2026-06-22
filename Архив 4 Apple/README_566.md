@@ -1,3 +1,57 @@
+###  Публикация: 1638407   (211992) от 08.06.2023
+
+DxO PureRAW 3.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_211992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте более качественные файлы RAW, прежде чем ретушировать их в Adobe Photoshop, Lightroom или других программах, благодаря эксклюзивным технологиям демозаики, шумоподавления и коррекции дефектов линз DxO.Тип издания: macOS SoftwareРелиз состоялся: 06.06.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BD00493E6EA242CE64306011C7B1FC84B3CBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638767   (211983) от 09.06.2023
+
+App Cleaner & Uninstaller Pro 8.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211983.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Cleaner - это приложение для просмотра установленных приложений и деинсталлирования пакета файлов для полного удаления.
+App Cleaner - лучшее приложение для удаления файлов приложения службы на macOS X и деинсталляции приложений.
+Удалить служебные файлы приложения. Убедитесь, что они не съедают драгоценное пространство на вашем Mac с этим полезным приложением, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DC2570437A761BF5C006A97B8505C7EA6CE9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638779   (211928) от 09.06.2023
 
 MacCleaner 3 PRO 3.1.2 [En]
@@ -6,7 +60,7 @@ MacCleaner 3 PRO 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211928.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Davinci Resolve Studio 18.0.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211910.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Nik Complete 5 Collection by DxO v5.1.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211863.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ ON1 Photo RAW 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211836.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ calibre 6.20.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211834.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ HitPaw Video Enhancer for Mac 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211582.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ Capture One 23 Pro 16.2.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211518.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ VideoProc Converter 4K 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211428.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ PDF Reader Pro Edition 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211339.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ Wondershare Filmora for Mac  12.4.0  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211227.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ RAR Extractor Max-Unzip Winrar 9.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211222.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Mac FoneLab iOS Unlocker 1.0.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211172.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ DRmare Music Converter for Spotify 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211148.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ macOS 14 Sonoma Beta 1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211042.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ Sketch 97.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211004.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ Aiseesoft Mac FoneTrans 9.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210962.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ Audio Hijack 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210909.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ iStat Menus 6 v.6.70 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210835.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ Duplicate Photos Fixer Pro 4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210829.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ Luminar Neo 1.11.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210778.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ Mimestream 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210751.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ Downie 4.6.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210744.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ Native Instruments Komplete Kontrol 2.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210743.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210728.jpg" />
 </div>
 
 
@@ -626,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DF16506F439A38D504FBEB8701803591E8601CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641591   (210722) от 23.06.2023
-
-Native Instruments Kontakt 7 v.7.4.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.06.2023Разработчик: © 2022 Native Instruments GmbHПоддерживаемая ОС: macOS 10.14.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A811369DECCC3D4568E9CDF0A93935B54CD9CC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641807   (210658) от 24.06.2023
-
-Slidepad 1.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210658.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2023Разработчик: © 2023 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACB8E41D7C0903E5D49D432F315106358D11C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

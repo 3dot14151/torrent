@@ -1,3 +1,111 @@
+###  Публикация: 1240074   (531205) от 09.08.2018
+
+Shining Song Starnova (2018) [En] (1.00) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выйдите на сцену в Shining Song Starnova! Девочки подписали контракт со STARNOVA, надеясь стать поп-идолами, как грезилось им в мечтах. Но вместо этого они оказались в ловушке бессердечного бизнеса, где выживает сильнейший. На пути к осуществлению своей мечты они сталкиваются с суровой реальностью: оказывается, быть звездой не так уж и здорово, как это показывали (   Читать дальше...   )Тип издания: LicenseРазработчик: Love in SpaceЖанр: Симулятор, Визуальные новеллы, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8951A4CB0476E78976CE95280D97BD20136E232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155779   (530974) от 04.08.2017
+
+Tacoma (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tacoma — приключенческая игра с увлекательным сюжетом, действия которой разворачиваются в 2088 году на высокотехнологичной космической станции. Вам предстоит исследовать лунную базу, выяснить, как на ней жили и работали члены экипажа и что именно там произошло. Вам откроется удивительная история о вере, страхе и непоколебимости перед лицом опасности.Тип издания: RepackРазработчик: FullbrightЖанр: Adventure (Space), 1st Person, 3D, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0D31F499728C11D4832E8B8D33894FE201A612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 698134   (529910) от 08.09.2013
+
+Memoria (2013) [Ru/Multi] (1.1.4.0336) SteamRip R.G. Игроманы
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529910.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Memoria переплетены истории двух персонажей, вместе с которыми игрок пройдет сквозь разные эпохи. Саджа, принцесса с Юга, мечтает совершить военный подвиг, а ловец птиц из другого времени Джерон пытается снять проклятие с любимой. Геймплей сочетает стиль point & click и магические умения героев.
+
+  Саджа, принцесса с Юга, обладает неутолимым желанием стать величайшим героем военной истории. Поэтому она становится участником самой масштабной войны, когда-либо происходившей в Авентурии — войны магов, которая разворачивается посреди бесплодной пустыни.
+  Ловец птиц Джерон живет почти 450 лет спустя после окончания Великой войны. На Нури, любовь всей жизни Джерона, было наложено проклятие, из-за которого она превратилась в ворону. Чтобы вернуть ей человеческий облик, Джерону нужно найти таинственного купца Фахи, который обладает магической силой. Однако Фахи поможет Джерону только после того, как тот отгадает загадку, которую купец увидел во сне. Поиски ответа на загадку вскоре приводят к череде событий, которые переплетают судьбы Саджи и Джерона, угрожая превратить настоящее во всего лишь тусклое отражение давно забытого прошлого.
+(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862AEA80AD998B13FD295A39CE304E96D81B41D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312803   (528954) от 06.07.2019
+
+I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние люди, уцелевшие на Земле, сидят глубоко в недрах планеты. На протяжении 109 лет они были пленниками безумного суперкомпьютера. Горристер – одиночка, думающий о самоубийстве. Бенни – мутировавший громила. Эллен – боязливая истеричка. Нимдок – замкнутый садист. Тед – циничный параноик. И теперь они сыграют в одну игру... Have No Mouth and I Must Scream отправляет (   Читать дальше...   )Тип издания: LicenseРазработчик: CyberdreamsЖанр: Приключение, Квест, ХоррорЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580C3C7C2C369AAD222C3C23937CE4887A7C274C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240350   (528464) от 11.08.2018
 
 Repentant (2018) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +114,7 @@ Repentant (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528464.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Distorted Reality (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528365.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ STASIS (2015) [Ru/Multi] (1.09.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527885.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Pathologic 2 (2019) [Ru/En] (1.4.25127) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527877.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ The Vanishing of Ethan Carter Redux (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527515.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526296.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ Forgotten Faces (2017) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525809.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0.0.1/upd13) Repack =nemos= [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525075.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ Irony Curtain: From Matryoshka with Love (2019) [Multi] (1.0.5) License GOG [Rev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523434.jpg" />
 </div>
 
 
@@ -240,7 +348,7 @@ Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522713.jpg" />
 </div>
 
 
@@ -266,7 +374,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522706.jpg" />
 </div>
 
 
@@ -292,7 +400,7 @@ Lucius II The Prophecy (2015) [Ru/Multi] (1.0.20150813.b) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522226.jpg" />
 </div>
 
 
@@ -318,7 +426,7 @@ EBOLA (2019) [Ru/Multi] (1.3) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521952.jpg" />
 </div>
 
 
@@ -344,7 +452,7 @@ Dream (2013) [Ru/Multi] (1.12/upd2) Repack R.G. Freedom
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521263.jpg" />
 </div>
 
 
@@ -370,7 +478,7 @@ Dream (2013) [Ru/Multi] (1.12) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519251.jpg" />
 </div>
 
 
@@ -396,7 +504,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.6.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516754.jpg" />
 </div>
 
 
@@ -422,7 +530,7 @@ Mechanism (2018) [Ru/Multi] (1.0.6) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515938.jpg" />
 </div>
 
 
@@ -448,7 +556,7 @@ The Long Dark (2017) [Ru/Multi] (1.56.49966/dlc) License PLAZA [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515700.jpg" />
 </div>
 
 
@@ -474,7 +582,7 @@ Experience 112 [Ru/En] (RePack/1.0) 2008 | Sash HD
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515356.jpg" />
 </div>
 
 
@@ -504,7 +612,7 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514801.jpg" />
 </div>
 
 
@@ -530,7 +638,7 @@ Journey (2019) [Ru/Multi] (1.47) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513543.jpg" />
 </div>
 
 
@@ -556,7 +664,7 @@ Planet of the Apes: Last Frontier (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512627.jpg" />
 </div>
 
 
@@ -567,112 +675,6 @@ Planet of the Apes: Last Frontier (2018) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770A49FAA1DB375FC61032AFB45F885CD5CB6A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931216   (512493) от 25.08.2015
-
-ENKI (2015) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enki – это мистический квест, где игроку предстоит выбраться из плена и разгадать страшные тайны своего похитителя… С первого взгляда Enki можно определить, как некий «сурвайвл-хоррор», что, по сути, абсолютно неверно. Да, нашего героя похитили нехорошие люди… очень нехорошие люди, судя по давно засохшему мертвому соседу по камере.Тип издания: ЛицензияРазработчик: Storm in a TeacupЖанр: Action, Survival horror, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17081288076D89D25C11006D1E8968CD16F96664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536919   (512117) от 20.08.2012
-
-Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игровой процесс представляет собой мультфильм: в роли Питера Паркера вы общаетесь с женой, коллегами жены, другими появляющимися в игре персонажами; в роли Человека Паука общаетесь с суперзлодеями, полицией, а также деретесь с первыми. Эта драка - нехитрое действо: нужно либо уворачиваться от бомб, щупалец и т.п, либо стрелять паутиной по несущимся в вашу сторону неприятностям. Помимо этого, иногда приходится решать несложные головоломки. Все управление - одной только мышкой.Тип издания: RePackЖанр: Приключение, аркада, интерактивный мультфильмЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931561   (511544) от 26.08.2015
-
-Corpse of Discovery (2015) [En] (1.0) License RELOADED
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corpse of Discovery - это приключенческий проект, рассказывающий историю астронавта, очнувшегося на некой космической станции, и который не помнит совершенно ничего ни об этой базе, ни о своей миссии.Тип издания: ЛицензияРазработчик: Phosphor GamesЖанр: Adventure / IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCAB5909B5D6315616091B40BE9AB9CC830B0D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376688   (509926) от 17.08.2011
-
-Runaway Антология [Ru] (RePack) 2002-2009 | R.G. Catalyst
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать непутевому красавчику и бывшей стриптизерше в большом городе? Правильно – искать новых приключений на свои головы и другие части тела. Герои любимых квестов возвращаются – в новой, заключительной части культовой трилогии Runaway!
-
-  Со времени предыдущей игры в жизни Брайана и Джины многое изменилось. Но главное осталось прежним – присущее персонажам искрометное чувство юмора. Вас ожидает совершенно новая история с невероятными поворотами сюжета. Во время похождений вам доведется общаться с уже знакомыми и совершенно новыми персонажами, испытать флешбэки и как следует все вокруг встряхнуть! Игра изобилует отсылками к предыдущим частям Runaway и полностью сохранила все то, что так полюбилось миллионам поклонников по всему миру.Тип издания: RePackЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F3C1F9BE03957C1E08861B7A3FC874FA308D34
 ```
 
 https://mybot314.ru/tekegram_catalog/

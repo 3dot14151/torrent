@@ -1,3 +1,143 @@
+###  Публикация: 1775035   (29957) от 24.01.2025
+
+Журнал | BOUDOIR Inspiration (ARTISTIC NUDE) (январь 2025) [PDF][EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29957.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: ARTISTIC NUDE IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89B4D4645039F27C11EFF605922B1616453CD2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775042   (29954) от 24.01.2025
+
+Журнал | BOUDOIR Inspiration (BLACK & WHITE) (январь 2025) [PDF][EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29954.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: BLACK & WHITE  IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD28C6F4BAD2B0C0051A592835063E77B97E7697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775051   (29948) от 24.01.2025
+
+Журнал | BOUDOIR Inspiration (BOUDOIR) (январь 2025) [PDF][EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29948.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A54F6CE5C9AEB038BC3A1E96EE588CF159F69A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777907   (28416) от 07.02.2025
+
+Журнал | BOUDOIR Inspiration (BEST OF BLACK & WHITE) (2024) [PDF][EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28416.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: BEST OF BLACK & WHITEЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD6C700540BBB5A725EFF5CBB4D97B00A7D07CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777903   (28415) от 07.02.2025
+
+Журнал | BOUDOIR Inspiration (BEST OF NUDE) (2024) [PDF][EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28415.jpg" />
+</div>
+
+
+###  Подробнее
+
+BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
+
+Номер: BEST OF NUDEЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCF9C8CDD2B10F4884108EB4B336C0639EEEAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779403   (27775) от 13.02.2025
 
 Журнал | BOUDOIR Inspiration (BEST OF BOUDOIR) (2024) [PDF][EN]
@@ -6,7 +146,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27775.jpg" />
 </div>
 
 
@@ -34,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27388.jpg" />
 </div>
 
 
@@ -62,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27386.jpg" />
 </div>
 
 
@@ -90,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27254.jpg" />
 </div>
 
 
@@ -118,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24657.jpg" />
 </div>
 
 
@@ -145,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24637.jpg" />
 </div>
 
 
@@ -173,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23765.jpg" />
 </div>
 
 
@@ -201,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23681.jpg" />
 </div>
 
 
@@ -229,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21486.jpg" />
 </div>
 
 
@@ -257,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21404.jpg" />
 </div>
 
 
@@ -285,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21167.jpg" />
 </div>
 
 
@@ -313,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18157.jpg" />
 </div>
 
 
@@ -341,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18149.jpg" />
 </div>
 
 
@@ -369,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18143.jpg" />
 </div>
 
 
@@ -397,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18051.jpg" />
 </div>
 
 
@@ -425,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18049.jpg" />
 </div>
 
 
@@ -453,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18013.jpg" />
 </div>
 
 
@@ -481,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17926.jpg" />
 </div>
 
 
@@ -509,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17925.jpg" />
 </div>
 
 
@@ -537,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17919.jpg" />
 </div>
 
 
@@ -565,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17918.jpg" />
 </div>
 
 
@@ -578,146 +718,6 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAA0977A4B751A0837B1114DE2C239CFAF80B735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797734   (17892) от 18.05.2025
-
-Журнал | BOUDOIR Inspiration (BOUDOIR) (июнь 2018) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17892.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25D1CB1B1182B4D0CA9DE440FD4C02EE7E76311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797791   (17890) от 18.05.2025
-
-Журнал | BOUDOIR Inspiration (BOUDOIR) (сентябрь 2018) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17890.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A627EDA615F87833139BF0DE31079B1C1690066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797911   (17840) от 19.05.2025
-
-Журнал | BOUDOIR Inspiration (BLACK & WHITE) (март 2020) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17840.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BLACK & WHITE IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD6DCB41D73B7FCCD09371278BBBF018CB28CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797964   (17839) от 19.05.2025
-
-Журнал | BOUDOIR Inspiration (BEST OF BOUDOIR) (2023) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17839.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BEST OF BOUDOIR 2023Жанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48556B824F4396CC05EA6CBC414B828C5051BED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797842   (17835) от 19.05.2025
-
-Журнал | BOUDOIR Inspiration (BOUDOIR) (ноябрь 2018) [PDF] [EN]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17835.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOUDOIR Inspiration — это платформа и журнал, посвященные тщательно подобранному вдохновению для будуарной фотографии. Откройте для себя самый красивый Будуар...
-
-Номер: BOUDOIR IssueЖанр: Мужской журналЯзык: АнглийскийИздательство: BOUDOIR InspirationФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFB531FBD686DAB9E832C659AA17B6331B20AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

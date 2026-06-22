@@ -6,7 +6,7 @@ Doris Day - Sentimental Journey (1950-e) 4CD, 2006, Proper Records[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962517.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Duke Ellington & Count Basie - First Time! Count Meets Duke (2001) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962440.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Konstantin Klashtorni - Love Suggestions/Guitar Night (2014) [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962418.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Konstantin Klashtorni - Kool & Klean (Volume V) (2014) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962413.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Konstantin Klashtorni - Love Suggestions: Piano Night (2013) [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962411.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Alfa Mist - Nocturne (2015) [FLAC|Lossless|WEB-DL|tracks] <Indie, Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962155.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Thelonious Monk - The Complete Albums Collection 1954-57 (2015) 5CD, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961927.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ One For All - What's Going On? (2007) Venus Records[FLAC|image+.cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961242.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Earl Bostic - The Earl Bostic Story (1950-e) 4CD, 2006, Proper Records[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960951.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Peggy Lee - Miss Wonderful (1930-1940-e) 4CD, 2006, Proper Records[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959870.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ted Curson - Pop Wine 1971 (2013) Futura Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959480.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Paul Hardcastle - Hardcastle VII (2013) [FLAC|Lossless]<Nu Jazz, Lounge, Chillou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959014.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Richard Elliot - Lip Service (2014) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958981.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Joe Henderson And Kikuchi, Hino - In Concert (1971) Remaster, 2015, Unversal[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958587.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dave McKenna - A Handful Of Stars (1993) Concord[FLAC|tracks+.cue] <Mainstream J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958584.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ John Coltrane - Out Of This World (1956-1963) 3CD, 2014, Le Chant Du Monde[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958575.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Marilyn Scott - Every Time We Say Goodbye (2008) Venus Records[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958514.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Teddy Charles And His Sextet - Salute To Hamp (1958) Remaster, 2014, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957471.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Clark Terry - Clark Terry 1955 (1997) [FLAC|tracks+.cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957469.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dave McKenna - My Friend The Piano (1986) 1990, Concord[FLAC|tracks+.cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957465.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Giovanni Guidi Trio - 2 Albums - City Of Broken Dreams / This Is The Day (2013 /
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957439.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Northern Lite vs. The White Noize - Wooden Playground (2014) [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957355.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Matt Bianco - Hideaway (2012) [FLAC|Lossless]<Smooth Jazz, Bossanova>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956739.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Kenny G - The Very Best Of (1994) limited Edition [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956052.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Thelonious Monk - The Complete Albums Collection 1957-61 (2015) 5CD, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955725.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Barney Kessel - Contemporary Latin Rhythms! (1961) Remaster, 2013, Warner[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955173.jpg" />
 </div>
 
 

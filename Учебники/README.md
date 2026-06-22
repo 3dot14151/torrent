@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072507.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072393.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072390.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072389.jpg" />
 </div>
 
 
@@ -105,6 +105,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874360   (1071909) от 02.06.2026
+
+Василиос Котрониас | Как играть равные позиции (2026) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1071909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга гроссмейстера и опытного тренера Василиоса Котрониаса посвящена важнейшей теме современных шахмат – умению разыгрывать «скучные», почти равные позиции.
+На примере тщательно отобранных 26-ти партий топовых шахматистов автор предлагает ясный и стройный метод мышления в казалось бы бесплодных равных позициях, в которых нет долговременных планов. Метод основан (   Читать дальше...   )Жанр: Научно-популярная литература, учебное пособиеИздательство: Издатель Андрей ЕльковФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9B0DF682B94118271217951A55FF82CCA870D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874117   (1071605) от 31.05.2026
 
 А.Н. Тимашев | Аналитические функции комплексного переменного (2020) [PDF]
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071605.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071596.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071595.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071570.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071558.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070586.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070565.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070564.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070562.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070561.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070560.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070556.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069156.jpg" />
 </div>
 
 
@@ -447,6 +474,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870565   (1069043) от 12.05.2026
+
+В.В. Костров | 1250 комбинаций в дебюте. Открытые дебюты (2026) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1069043.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном учебнике собраны яркие комбинации из основных открытых начал: от Итальянской партии до Королевского гамбита. Книга содержит множество задач, ориентированных на открытые дебюты. Каждая глава содержит подборку поучительных примеров из классических и современных партий, обрывающихся в момент, когда читателю нужно найти победное продолжение. Такой подход помогает (   Читать дальше...   )Жанр: Спортивная литература. Учебное пособиеИздательство: КалиниченкоФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAF53D1FF6CE84F7774B440F31D8BD6F24CD8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1870709   (1068835) от 14.05.2026
 
 Ян В. Уайт | Редактируем дизайном (2009) [PDF]
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068835.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067530.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067481.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066151.jpg" />
 </div>
 
 
@@ -552,6 +605,61 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865472   (1065749) от 
+
+В.Е. Ториков, О.В. Мельникова, М.В. Резунова | Растительная лекарственная продукция (2026) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065749.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособие дано краткое описание основных видов продукции культивируемых лекарственных растений, приведены их целебные свойства, изложены наиболее распространенные рецепты приготовления фиточаёв, суспензий, эмульсий, настоев, отваров, экстрактов, сиропов, а также отдельные рецепты приготовления овощных блюд, соки и морсы из плодово-ягодных культур.
+Материалы (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Брянский ГАУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8082B8C2A7209D2F6A2F0C08ACD84CDBE22A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865775   (1065553) от 17.04.2026
+
+Чжан Мин | Сервисные антропоморфные роботы (2026) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1065553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена теоретическим основам и практическим подходам, применяемым при разработке человекоподобных сервисных роботов, предназначенных для помощи человеку в различных бытовых ситуациях, от уборки дома и консультаций в супермаркете, до ухода за лежачими больными в госпиталях.
+Основные темы книги:
+- обзор исследований и положения дел в области сервисных роботов; (   Читать дальше...   )Жанр: Научно-популярная литература. РобототехникаПеревод: Е.В.ШарковаИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6B4273844A0B4F19F22B5CC1135972F0EE87A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865173   (1065320) от 14.04.2026
 
 Н.А. Фролов | Теория функций действительного переменного (1961) [DJVU]
@@ -560,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065320.jpg" />
 </div>
 
 
@@ -571,113 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA919907AA61A1B172D28BA6211713F52053C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865327   (1065279) от 15.04.2026
-
-Ю.С. Очан, В.Е. Шнейдер | Математический анализ (1961) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее пособие может служить основным руководством при изучении математического анализа студентами физико-математических факультетов педагогических институтов. Этот курс может также использоваться студентами тех технических вузов, программа которых по математическому анализу близка к программе физических отделений пединститутов.Жанр: МатематикаИздательство: УчпедгизФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CACE4D914E2B2375563B4865AD3306BB770BE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865325   (1065278) от 15.04.2026
-
-Ю.С. Очан | Сборник задач и теорем по теории функций действительного переменного (1963) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоит из двух частей.Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3254992FFD2994BB6E2B082C1D70EADA7B626C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862325   (1064209) от 29.03.2026
-
-Владимир Рюмин | Занимательная электротехника. Опыты и простые устройства своими руками. Лучшие советские учебники (2025) [FB2, RTF, EPUB, MOBI]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Рюмин — известный популяризатор науки — объясняет электричество просто и увлекательно. В книге — десятки демонстраций и сборок: от электрофора до простейшего электромотора, телеграфа и домашних сигнализаций — вы увидите электротехнику в действии.
-
-- Как обнаружить электрический заряд и собрать простой электроскоп?
-(   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭксмоФормат: FB2, RTF, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5CF65284131396CED5AF14D7F2999D35AF7C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862649   (1064012) от 31.03.2026
-
-М.Г. Привес, Н.К. Лысенков, В.И. Бушкович | Анатомия человека (2006) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами фундаментальный учебник для студентов медицинских вузов, выдержавший множество переизданий. В нем представлены всеобъемлющие сведения по функциональной анатомии человека. Приведены общие данные о строении тела человека, детально рассмотрены опорно-двигательный аппарат, внутренние органы, нервная система и органы чувств. Книга содержит иллюстрации, которые (   Читать дальше...   )Жанр: Научная, учебная литератураИздательство: СПбМАПОФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D0E4856ABAA122DCDE1CB4915D8E31969DB67C
 ```
 
 https://mybot314.ru/tekegram_catalog/

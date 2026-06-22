@@ -1,3 +1,81 @@
+###  Публикация: 1873412   (1070979) от 28.05.2026
+
+Дарья Донцова | Евлампия Романова. Следствие ведёт дилетант [62 книги] (2001-2025) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героиня серии - Евлампия Романова, в прошлом Ефросинья Романова, поздний ребёнок и долгожданная дочь советского генерала-учёного и оперной певицы, окончила консерваторию по классу арфы, один раз была замужем, после развода сменила имя и научилась вкусно готовить. Лампа открыла своё детективное агентство, где работает частным детективом, дружит с майором милиции Владимиром (   Читать дальше...   )Жанр: Иронический детективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE86B3C61AD9B4BF0249D60C88120C7533FE5610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873402   (1070978) от 28.05.2026
+
+Книжная серия | Документальный фикшн [15 книг] (2023-2026) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная проза, документальная литература — особый литературный жанр прозаической литературы, для которого характерно построение сюжетной линии исключительно на реальных событиях, с редкими вкраплениями художественного вымысла. Примерами могут служить биографии чем-либо выдающихся людей, истории каких-либо событий, страноведческие описания, расследования громких (   Читать дальше...   )Жанр: Проза, беллетристикаИздательство: Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02431278134EF30DFC78EA67489012918938242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873398   (1070977) от 28.05.2026
+
+Книжная серия | История без купюр [14 книг] (2022-2026) [FB2]
+
+>>Художественная литература
+>>Историческая проза, Мифы и Легенды, Фольклор
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070977.jpg" />
+</div>
+
+
+###  Подробнее
+
+«История без купюр» - новая серия издательства АСТ, в которой выходят книги, где авторы рассматривают историю с необычного ракурса и завоевывают любовь и внимание читателей необычной формой подачи материала.Жанр: ИсторияИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02986FBC01FB22B4DA1CE0C89AA76E86AB3D9F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873390   (1070976) от 28.05.2026
 
 Альберт Санчес Пиньоль | Сборник произведений [7 книг] (2006-2026) [FB2]
@@ -6,7 +84,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070976.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070689.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070582.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070313.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070263.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070250.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070208.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070151.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070053.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069977.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069976.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069974.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069972.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069968.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069966.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069963.jpg" />
 </div>
 
 
@@ -434,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069914.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069905.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069902.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069765.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069764.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069760.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069759.jpg" />
 </div>
 
 
@@ -603,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2392EF19B19BB8872CBFE3E0DCFD102FCB3696A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871426   (1069758) от 17.05.2026
-
-Книжная серия | The Big Book. Исторический роман [66 книг] (2016-2026) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия исторических романов охватывает историю с древних времен до средних веков, на ее страницах вас ждут Древние Греция и Рим, викинги и крестоносцы, Спартак и Чингисхан и многое другое от лучших авторов жанра, что гарантирует отлично проведенное время и море положительных эмоций.Жанр: Исторический романИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DC7A233C35B087592C507AAF129ED2E4C22B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871424   (1069757) от 17.05.2026
-
-Книжная серия | Военно-фантастический боевик [38 книг] (2011-2019) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги данной серии объединяют в себе истории о пападанцах а также альтернативную историю. Частично пересекается с другими сериями (Враг у ворот, АнтиМиры)...Жанр: Боевая фантастика, попаданцы, постапокалипсисИздательство: Эксмо, ЯузаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F99316599D3C93DC72AC06198DB92A392E2753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871420   (1069755) от 17.05.2026
-
-Книжная серия | Руны любви [55 книг] (2015-2019) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия женского романтического фэнтези от издательства «АСТ»Жанр: ФэнтезиИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9EA43CE046851093F112D92F8753695E178E19
 ```
 
 https://mybot314.ru/tekegram_catalog/

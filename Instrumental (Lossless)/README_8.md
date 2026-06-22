@@ -6,7 +6,7 @@ Paul Filipowicz - Pier 43 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045671.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jon Wan - The Bluebird (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045666.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andabluses - Andabluses 25º Bluespowwer (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045665.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jerry Whittom - Blue Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045663.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Downtown Livewires - I'll Do It Today, but Not Right Now! (2023) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045661.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Marco J and the Jaywalkers - Roll Roll Roll (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045660.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Pontus J Back - God Gave Me The Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045657.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Johnny Coldweather - Blues  (2023) Remastered 2023 [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045656.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Mojoes - Can You Hear the Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045655.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Real American Country Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045641.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Eric Clapton - Nothing But The Blues (2022) Live at the Fillmore, San Francisco,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045633.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eamonn McCormack - Eamonn McCormack (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045202.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Anthony St. Peter - A Familiar War (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045199.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Seth Rosenbloom - As The Crow Flies (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045198.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Adjournments - Allegedly (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045197.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jon Peach - Give Me Candy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045194.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tokyo Tramps - Fearless Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045193.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mike Franano - On the Brink (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Cl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045189.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ernie Vincent - Original Dap King (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045187.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ JD Simo - Songs from the House of Grease (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045174.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Wolf Moon - How Do You See Yourself (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045164.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Paul Carrack & Tne SWR Big Band - Don’t Wait Too Long (2023) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044596.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mr. Keith Little - Lip Service (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044516.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mikey Junior - Blues in the Barn, Vol. 1 (2023) Live [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044512.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Jake Weckwerth - Where'd Ya Get That Glow (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044508.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ River Munoz (Muñoz) - River, Volume I (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044295.jpg" />
 </div>
 
 

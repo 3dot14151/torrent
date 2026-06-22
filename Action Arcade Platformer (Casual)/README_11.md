@@ -1,3 +1,29 @@
+###  Публикация: 934124   (503090) от 04.09.2015
+
+Valdis Story: Abyssal City (2013) [Ru/En] (1.0.0.25) Repack R.G. Механики
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра представляет из себя очень стильную, прекрасно нарисованную экшен-РПГ игру с отличной боевой системой и кастомизацией скиллов. Мы играем за героя, который возвращается, в некогда покинутый людьми город и вычищает его от всякой нечести. При этом в мире идет война между богинями-близнецами Myrgato (богиня Тьмы) и Alagath (богиня Света)Тип издания: RepackРазработчик: Endless FluffЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BD666938974200D12E8CCC1AB1D88C818D4AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540700   (502984) от 29.08.2012
 
 BGE Mario 2011 [En] (P) 2011
@@ -6,7 +32,7 @@ BGE Mario 2011 [En] (P) 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502984.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Awesomenauts [En/Multi6) (L/Steam-Rip/1.3) 2012 | R.G. Игроманы
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501955.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Giana Sisters: Dream Runners (2015) [Ru/En] (1.0) Repack R.G. Freedom
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500196.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Red Goddess Inner World (2015) [En/Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499013.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Daydreamer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499010.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Exile's End (2015) [En] (1.0) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498962.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498961.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498124.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Platypus Adventures (2022) [En] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491820.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485592.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Starbound (2016) [Ru/En] (1.4.4) Repack R.G. Alkad
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484446.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Blade Kitten (2010) [En/Multi] (1.0/dlc) RePack Let'sPlay [Re-Release Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483193.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ The Messenger (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481514.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Dark Matter (2013) [Ru/En/Ge] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471270.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Selma and the Wisp (2016) [Ru/Multi] (1.0/u2/dlc) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461460.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) License GOG [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454301.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Tiny Echo (2017) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454237.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Gateways (2012) [En] (1.15) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450216.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Teslagrad (2015) [Ru/Multi] (1.4.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448822.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Small Tanks [En] (RePack) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445431.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Deadlings: Rotten Edition (2014) [Ru/Multi] (0.0.51) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439558.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Monkey King: Master of the Clouds (2018) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435130.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) Repack R.G. Catalyst [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434626.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432476.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Lost in Play (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431261.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Lost in Play (2022) [Ru/Multi] (1.0) License DARKSiDERS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:718B7A85EFAC4755E1D0E7A478375E939EA323B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555520   (430427) от 03.10.2012
-
-Cut the Rope [Ru/Multi4] (L) 2012
-
->>След.
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша задача помочь маленькому зелёному существу неизвестного происхождения АмНяму добраться до желанного леденца. При этом АмНям всегда находится в определённом месте на экране и не может самостоятельно передвигаться, а вы, не должны закинуть сладость прямо ему в рот. На самых простых уровнях достаточно только правильно перерезать верёвки, на которых леденец висит, но по мере прохождения появляются дополнительные верёвки, мыльные пузыри, в которых леденец может подниматься вверх, воздушные подушки и препятствия в виде шипов. Нужно на каждом уровне собрать три звезды, нужная сумма которых открывает доступ к новым «коробкам» приключений АмНяма. Игра чрезвычайно увлекательна: вы насладитесь её красочной реализацией и убедитесь, что Cut The Rope является заслуженно одной из самых оригинальных и веселых.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Logic (Puzzle) / ArcadeЯзык озвучки: -/-Язык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6F8D7036C78DFF689A33C8E801EC3EDD9A3B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1417687   (355735) от 21.10.2020
+
+4K Video Downloader 4.13.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего!
+Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть Интернет, а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.10.2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96507E483A524565AA34870E4A225EAD67D5390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178495   (355382) от 28.10.2017
+
+Adobe Illustrator CC2018 v22 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Illustrator CC – это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях – цифровой графики, иллюстраций и печати – при разработке любых видов мультимедийных ресурсов: печатных материалов, интернет-содержимого, интерактивных средств, видеороликов и мобильных приложений.
+
+Представляем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 октября 2017Разработчик: AdobeПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39497F6E22D538B20631D14BE3FB9F0EA205BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178503   (355379) от 28.10.2017
 
 Alien Skin Exposure X3 Bundle 3.0.4.56 [En]
@@ -6,7 +61,7 @@ Alien Skin Exposure X3 Bundle 3.0.4.56 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355379.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Total Video Converter Pro 3.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355336.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ Adobe Photoshop Lightroom Classic CC v7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355137.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ Scrutiny 12 v.12.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354827.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ EdgeView 3 v.3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354824.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ BusyCal 2022.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354823.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Cardhop 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354821.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ BookMacster 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354820.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ File Juicer 4.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354790.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ Art Text 4 v.4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354754.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ djay - DJ App & AI Mixer 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354746.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ BusyContacts 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354572.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ iCollections 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354569.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ Amadeus Pro 2.5.0 (2051) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354564.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ BusyCal 3 v3.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354558.jpg" />
 </div>
 
 
@@ -406,7 +461,7 @@ GraphicConverter 10 v10.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354554.jpg" />
 </div>
 
 
@@ -432,7 +487,7 @@ BetterTouchTool 2.646 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354423.jpg" />
 </div>
 
 
@@ -458,7 +513,7 @@ xScope 4 v4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354412.jpg" />
 </div>
 
 
@@ -484,7 +539,7 @@ Elmedia Player Pro 8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354301.jpg" />
 </div>
 
 
@@ -511,7 +566,7 @@ Audio Hijack 3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354267.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ Movavi Video Editor 15 Business v15.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354139.jpg" />
 </div>
 
 
@@ -564,7 +619,7 @@ Movavi Video Editor 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354021.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ Microsoft Office 2021 for Mac LTSC v16.65 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353906.jpg" />
 </div>
 
 
@@ -618,7 +673,7 @@ Elmedia Video Player Pro 6.8 (1105) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353822.jpg" />
 </div>
 
 
@@ -631,63 +686,6 @@ Elmedia Video Player - медиаплеер для macOS, который мож�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E5F8DE2268229C9D868332B7FF796EE7F90A607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417991   (353688) от 22.10.2020
-
-Swinsian 2.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swinsian — простой аудио плеер с функцией управлениями файлами вашей музыкальной коллекции. К основным возможностям следует отнести:
-● Поддержку форматов FLAC/Ogg Vorbis, а так же MP3, AAC, WAV, APE, AC3, WavPack, WMA и CUE файлов
-● Быстрое и эффективное управление
-● Импорт билиотеки iTunes(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2020Разработчик: SwinsianПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2F9397FD4D1D1E99A0E9E43CBD3D55309748A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417856   (353687) от 22.10.2020
-
-Cardhop 1.3.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353687.jpg" />
-</div>
-
-
-###  Подробнее
-
-До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
-
-Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2020Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DCC7920B2763D83D3CA61D91D3B9A9ABA76C49
 ```
 
 https://mybot314.ru/tekegram_catalog/

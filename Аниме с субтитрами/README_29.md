@@ -1,3 +1,30 @@
+###  Публикация: 1103147   (885367) от 12.02.2017
+
+Code Geass Hangyaku no Lelouch R2 / Код Гиас: Восставший Лелуш R2 [TV-2] [2008, TV, 25 эп.] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошел год со дня разгрома «Черного восстания». Остатки «Ордена Черных Рыцарей» скрываются от Империи, рассеявшись по стране, их лидер Зеро казнен Британией, а жители сектора 11 угнетены еще сильнее. Основные силы Империи теперь сконцентрированы на Европейском фронте.
+Впрочем, для самих Британцев в 11 секторе жизнь наладилась. В один прекрасный день британский студент, (   Читать дальше...   )Производство: Япония, студия Sunrise, студия CLAMPЖанр: приключения, фантастика, меха, драмаРежиссер: Танигути ГороЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA60ECF2471D65FF1B03CF1969C5EBCA27201E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103110   (885349) от 12.02.2017
 
 Bungou Stray Dogs / Великий из бродячих псов [TV-1] [2016, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +33,7 @@ Bungou Stray Dogs / Великий из бродячих псов [TV-1] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885349.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Black Magic M-66 | Черная магия М-66 [1987, OVA] DVDRip 576p 10bit r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884991.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Oda Cinnamon Nobunaga | Ода Корица Нобунага [2020, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884826.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Re: Zero - Director`s Cut | Re: Zero kara Hajimeru Isekai Seikatsu - Shin Henshu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884664.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Ashita Sekai ga Owaru to Shite mo | The Relative Worlds | Связанные м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883613.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Chihayafuru 3 | Игра Тихайи 3 | Яркая Тихайя [ТВ-3] [2019
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883612.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Ashita Sekai ga Owaru to Shite mo | The Relative Worlds | Связанные м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883611.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883333.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь с нуля �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883024.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ Gakkou Gurashi! | School-Live! | Школьная жизнь! [2015, TV, 12 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882329.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ Haha o Tazunete Sanzenri | 3000 Leagues In Search of Mother | 3000 лиг в п�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882293.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ Zombie Land Saga Revenge | Зомбиленд. Сага: Месть [2021, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_880615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880615.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880336.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, мон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880335.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ Koukaku Kidoutai: Shin Gekijouban | Ghost in the Shell New Movie  | Призра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880272.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ Chihayafuru 3 | Игра Тихайи (ТВ-3) [2019, TV, 24 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879769.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ Haikyuu!! To the Top | Волейбол [ТВ-4, часть I ] [2020, TV, 13 и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879749.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и гроб [2014, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879004.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ Kaze o Mita Shonen / The Boy Who Saw the Wind / Парящий на ветру [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878750.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ Mizuiro / The Color of Water / Цвет воды [2003, OVA, 2 из 2] DVDRip 48
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878027.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ Shadow Skill - Movie / Искусство тени OVA-2 [1996, OVA, 3 ep.] DVDR
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877738.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ Shadow Skill - Epilogue / Искусство тени OVA-1 [1995, OVA, 1 ep.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877502.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ Shadow Skill - Eigi / Искусство тени [1998, TV, 26 ep.] DVDRip raw 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877138.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 эп. + 13 SP] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876972.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876778.jpg" />
 </div>
 
 
@@ -648,34 +675,6 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997182   (875239) от 16.03.2016
-
-Future War 198X Nen | Future War Year 198X | Будущая война 198x-го года [1982, МV] LDrip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для предотвращения ядерной войны, американские учёные создали спутник, оснащённый лазерным оружием. Однако из-за фатальной ошибки со стороны советского и американского правительств разразилась война, и человечество оказалось на грани исчезновения.
-
-©  ANNЖанр: драмаРежиссер: Масуда ТосиоПеревод: тюленьЯзык субтитров: русскийПродолжительность: 124 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8318BA2B7E6BA29F390CD660A8F946C8C83FC190
 ```
 
 https://mybot314.ru/tekegram_catalog/

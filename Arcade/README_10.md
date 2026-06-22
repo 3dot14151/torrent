@@ -1,3 +1,55 @@
+###  Публикация: 1310407   (812811) от 14.05.2020
+
+My Friend Pedro (2019) [Ru/Multi] (1.03) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812811.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Friend Pedro - это жестокая смесь дружбы, фантазии и стремления уничтожить всех на своем пути по приказу разумного банана. Стратегическое использование раздельного прицеливания, замедленного движения и старого доброго вышибания окон позволяет выстраивать одну сногсшибательную боевую сцену за другой. Устройте себе взрывную проходку по беспощадному преступному миру.Тип издания: LicenseРазработчик: DeadToast EntertainmentЖанр: Экшн, Сражения, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B79B6819D7DD34B1386A016C0106436D83E548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009113   (811333) от 20.04.2016
+
+Steel Rain (2015) [En/De] (1.4.1) Repack ARMENIAC
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steel Rain - уникальная инди-игра, которая в равной степени совмещает в себе три жанра - горизонтальный шутер, стратегию и RPG. В промежутках между сражениями, Вы сможете строить и развивать свою собственную колонию, изучая новые технологии. Добавьте к этому десяток разноплановых уровней, эпичные сражения с боссами и множество технологий и улучшений, которые предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: PolarityFlow, Adrian ZinggЖанр: Аrcade, ScrollerЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C013661EF9B2A70C9577F9F02C152A8031F02D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009173   (811318) от 20.04.2016
 
 STEEL STRIDER (2015) [En] (1.0) Repack ARMENIAC
@@ -6,7 +58,7 @@ STEEL STRIDER (2015) [En] (1.0) Repack ARMENIAC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811318.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ SpeedRunners (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811057.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Melty Blood Actress Again Current Code (2016) [En/Multi] (1.0) License POSTMORTE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809358.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Pang Adventures (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809357.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Rogue Stormers (2016) [Ru/Multi] (b3100) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808977.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Frederic: Resurrection of Music Director's Cut (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807298.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Dead or Alive 5: Last Round (2015) [Multi] (1.10c/dlc) License SKIDROW [Core Fig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805773.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ The Howler (2016) [En] (1.0) Repack ALiAS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805238.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Enter The Gungeon (2016) [Ru/Multi] (1.1.3h2) SteamRip Let'sPlay [Collector's Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804913.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Sumoman (2017) [Ru/Multi] (1.0.2.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804721.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ The Smurfs - Mission Vileaf (2021) [Ru/Multi] (0.17.8) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803989.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ R-Type Final 2 (2021) [Multi] (1.07/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803854.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Skullgirls 2nd Encore (2016) [En/Multi] (1.0) License PROPER - PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803302.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Not A Hero (2015) [En/Multi] (1.0) License GOG [GLOBAL MEGALORD EDITION]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802030.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Death's Gambit (2018) [Ru/En] (1.2/dlc) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800739.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Fury Unleashed (2020) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800698.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Super Lucky's Tale (2018) [Ru/En] (5.6.2.35228/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800560.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Snake Pass (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799964.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Plants vs. Zombies (2009) [En] (1.2.0.1095) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799422.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Happy Game (2021) [Ru/Multi] (1.0rls) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799310.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Danger Scavenger (2020) [Ru/Multi] (2.0.8) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798495.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Too Many Humans (2021) [Multi] (2020.1.17.10049454) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798206.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Injustice 2 (2017) [Ru/Multi] (1.1.21.0/dlc) License FAIRLIGHT [Legendary Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798187.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Demon Turf (2021) [En] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798072.jpg" />
 </div>
 
 
@@ -616,59 +668,6 @@ Demon Turf (2021) [En] (1.0) License DOGE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12C0AEBEBCEA89AB0E6C271563A4B0D224ABAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508352   (797387) от 08.11.2021
-
-Garden Paws (2018) [En] (1.5.2e/dlc) License PLAZA [Human Characters]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garden Paws - красивая приключенческая RPG-песочница с видом от третьего лица, где вам предстоит играть за милых, на первый взгляд, зверюшек! Ваши дедушка и бабушка отправились путешествовать по миру и оставили вам в наследство свою ферму, и теперь вам предстоит ухаживать за ней, выращивать фрукты и овощи, а также исследовать темные подземелья в поисках сокровищ!Тип издания: LicenseРазработчик: Bitten Toast Games Inc.Жанр: Песочница, Ролевая, Приключения, Аркада, СимуляторЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E37E9B6DDD5B814433C38EF69434B02816FDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011010   (797351) от 26.04.2016
-
-My Night Job (2016) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не просто работа, это MY NIGHT JOB!
-Глубокая ночь, заброшенное здание и куча монстров. Звучит недурно. Игрокам придется освоить множество разных видов оружия, чтобы спасти свою шкуру и вывести выживших в безопасное место, попутно обороняя здание от захватчиков. В твоем арсенале более 60 видов оружия – от простой вазы и торшера до цепной пилы, дробовика и громадного (   Читать дальше...   )Тип издания: RepackРазработчик: Webcore GamesЖанр: Arcade, Action, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3442E77FF89854AF7E8073E24B70D614402F6AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

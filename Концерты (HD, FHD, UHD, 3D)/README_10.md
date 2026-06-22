@@ -1,32 +1,3 @@
-###  Публикация: 1006313   (823394) от 14.04.2016
-
-Концерт симфонической музыки и поэзии "Музыка поэзии, природы и любви" из ежегодного цикла концертов "Летние Вечера". 27 июня (2015) HDCam [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823394.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Зинаида Гиппиус - стихотворение «Долго в полдень вчера я сидел у пруда…»
-2. Зденек Фибих - симфоническая поэма, Op. 41, "Поэма"
-3. Николай Гумилёв - стихотворение "Шестое чувство"
-4. Иоганн Штраус - вальс "Вино, женщины и песни"(   Читать дальше...   )Жанр: Вечер симфонической музыки и поэзииПродолжительность: 1:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C30D92D7F3DD81E4AC0289E2380277B4E6FCB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006317   (823382) от 14.04.2016
 
 Симфонический концерт "Сказки Венского леса" из ежегодного цикла концертов "Летние Вечера". Самарская Филармония 29 августа (2015) HDCam [H.264/1080i]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823382.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822920.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ Blue Man Group - How to Be a Megastar 2.0! (2008) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821492.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818820.jpg" />
 </div>
 
 
@@ -147,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817256.jpg" />
 </div>
 
 
@@ -173,7 +144,7 @@ Kylie Minogue - Kiss Me Once (Live at the Sse Hydro) (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816775.jpg" />
 </div>
 
 
@@ -205,7 +176,7 @@ Shania Twain - Still The One: Live From Vegas (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816624.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816596.jpg" />
 </div>
 
 
@@ -261,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_815392.jpg" />
 </div>
 
 
@@ -290,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815132.jpg" />
 </div>
 
 
@@ -317,7 +288,7 @@ Jean-Michel Jarre - Welcome to the Other Side (Live In Notre Dame VR) (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813680.jpg" />
 </div>
 
 
@@ -346,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812882.jpg" />
 </div>
 
 
@@ -373,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812728.jpg" />
 </div>
 
 
@@ -402,7 +373,7 @@ Nightwish - Vehicle of Spirits (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812626.jpg" />
 </div>
 
 
@@ -431,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811076.jpg" />
 </div>
 
 
@@ -457,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810746.jpg" />
 </div>
 
 
@@ -483,7 +454,7 @@ ZZ Top - Live From Texas (2008) [1080p] BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810616.jpg" />
 </div>
 
 
@@ -509,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810206.jpg" />
 </div>
 
 
@@ -535,7 +506,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809964.jpg" />
 </div>
 
 
@@ -565,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809827.jpg" />
 </div>
 
 
@@ -591,7 +562,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809694.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808017.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807863.jpg" />
 </div>
 
 
@@ -681,7 +652,7 @@ Evanescence Live at The Tonight Show With Jay Leno & Evanescence Live at Conan  
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807559.jpg" />
 </div>
 
 
@@ -707,7 +678,7 @@ Metallica: Francais pour une nuit (2009) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806869.jpg" />
 </div>
 
 
@@ -718,6 +689,35 @@ Metallica: Francais pour une nuit (2009) [720p] BDRip
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884862   (802780) от 05.04.2015
+
+Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/720p]
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802780.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Queen Rock In Montreal», легендарный фильм-концерт великих музыкантов, часто называют лучшим живым выступлением группы. Запись шоу с арены «Монреаль Форум» в 1981-м году стала первым концертом группы, целиком снятым на плёнку 35-мм. Чтобы поклонники коллектива в полной мере ощутили грандиозность этого события, оригинальные материалы были оцифрованы в формате Ultra (   Читать дальше...   )01. Intro
+02. We Will Rock You (fast)
+03. Let Me Entertain You
+04. Play The Game(   Читать дальше...   )Производство: США | Mobilevision, YellowbillЖанр: RockРежиссер: Сауль СвиммерПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB02A2E03DB86925442CE0ABCCA4798BCF6509BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

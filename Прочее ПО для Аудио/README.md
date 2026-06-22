@@ -7,7 +7,7 @@ RadioLogger 4.1.5 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072021.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ X Radio Stream Finder 2.3 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071176.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MuseScore 4.7.2 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071084.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Music Collection 3.9.8.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071073.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ TagScanner 6.1.21 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070235.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MuseScore 4.7.1 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070188.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Abelssoft Tagman 2025.11.02 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069952.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Simple Audio Sweeper 2.0078.341 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069249.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Guitar Pro 5.2 + RSE
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068501.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ X Radio Stream Finder 2.1 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067710.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ RarmaRadio Pro 2.77.9 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067410.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ MuseScore 4.6.5 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067304.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ SpotiFLAC 7.1.6 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067231.jpg" />
 </div>
 
 
@@ -343,6 +343,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867836   (1067064) от 27.04.2026
+
+Nucleer Coffee - My Music Collection 3.4.16.175 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1067064.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Music Collection - это самый полный музыкальный каталог, предназначенный для организации и управления музыкальными коллекциями любого типа, включая CD-диски, MP3-файлы или виниловые пластинки. Этот музыкальный органайзер позволяет создать упорядоченную базу данных компакт-дисков и просматривать ее содержимое, даже если диск лежит на полке или одолжен у вашего (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B8E5869F9A2C90FD1C492B1966976B9BA00FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867843   (1067063) от 27.04.2026
 
 X Radio Stream Finder 1.9 Portable [En]
@@ -351,7 +377,7 @@ X Radio Stream Finder 1.9 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067063.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ X Radio Stream Finder 1.8 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066915.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ X Radio Stream Finder 1.7 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066738.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ X Radio Stream Finder 1.5 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066426.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ SpotiFLAC 7.1.5 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066162.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ X Radio Stream Finder 1.3 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065863.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ X Radio Stream Finder 1.1 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065529.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ SpotiFLAC 7.1.4 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065366.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ SpotiFLAC 7.1.3 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063217.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ ZP UI 2.0.0 [Ru] (авторский релиз)
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051794.jpg" />
 </div>
 
 
@@ -610,6 +636,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845200   (1050590) от 31.12.2025
+
+ZP UI 1.0.7 [Ru] (авторский релиз)
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1050590.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZP UI — офлайн-программа для расшифровки аудио/видео в текст на базе Whisper (модель large-v3).
+Работает полностью локально на компьютере: без передачи файлов в интернет.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F668B7D37299E8DAC7DBA7E931F170A1B9E1666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841400   (1048040) от 11.12.2025
 
 RHVoice - синтезаторы речи SAPI 5  v4.0 - 4.8 для Balabolka [Multi/Ru]
@@ -618,7 +671,7 @@ RHVoice - синтезаторы речи SAPI 5  v4.0 - 4.8 для Balabolka [M
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048040.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ RHVoice - это свободно распространяемый многоя�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D54501B350B429AFEB8AFF1C63507ADCB846F07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441024   (1037909) от 20.01.2021
-
-Music Collector 21.01 [Multi]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Collector позволяет автоматически каталогизировать ваши компакт-диски в базе данных. Просто вставьте компакт-диск в привод CD-ROM, отсканируйте его штрих-код или введите исполнителя и название, чтобы загрузить все данные из различных источников в Интернете. Используйте встроенную поддержку TWAIN для сканирования изображений обложек непосредственно в приложение. (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A345B61C3B619CD8F27927D3E6C30C0171213C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617043   (1035529) от 05.03.2023
-
-Denemo 2.6 Portable [En]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Denemo — ещё один бесплатный инструмент, призванный облегчить рабочую жизнь музыкантов, это приложение не нужно воспринимать как нотный редактор, это просто визуальный интерфейс, позволяющий быстро вводить ноты. Программа идеально подходит для нотного редактора LilyPond, позволит быстро  подготавливать нотные партитуры для редактирования и публикации в вышеуказанном (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8478F8E22BB73F9BBB7269349F1AB96791236DED
 ```
 
 https://mybot314.ru/tekegram_catalog/

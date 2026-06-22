@@ -1,3 +1,248 @@
+###  Публикация: 554353   (436815) от 01.10.2012
+
+Basshunter - Dream on the Dancefloor (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3307DB74A4897F70746932E2498F26FF01C000F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554357   (436672) от 01.10.2012
+
+Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21EFCA15708E77E023D8AB66CB9019F0D1C2D759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554359   (436437) от 01.10.2012
+
+David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, HouseПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8805E4EA77CB21E4F7A9721FE7EBC5AA1385B219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554288   (436371) от 01.10.2012
+
+Status Quo -The Greatest Hits (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для всех почитателей творчества легендарной группы01. Caroline
+02. Down Down
+03. Paper Plane
+04. Big Fat Mama
+05. Roll Over Lay Down
+06. Don't Waste My Time
+07. Little Lady
+08. Mystery Song
+09. Rain
+10. Break The Rules(   Читать дальше...   )Жанр: Музыка Rock, Rock n RollПродолжительность: 02:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB4F181421773BF3A88D0E6615711BE8D8F151A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554388   (436234) от 01.10.2012
+
+Сборник клипов - VA - Various Music part. 34 (2012) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9BBA44F6335D5AB86A5B7EEDE5A427073CAEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554261   (435838) от 01.10.2012
+
+Smokie  Greatest Hits 1975-1979 (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие клипы группы01. Living Next Door To Alice
+02. Needlies And Pins
+03. Don't Play Your Rock'n'Roll To Me
+04. If You Think You Know How To Love Me
+05. Do To Me
+06. Mexican Girl
+07. Run To Me
+08. Oh Carol
+09. I'll Meet You at Midnight
+10. Living Next Door to Alice (from "Musikladen")(   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E0EF2A2700E3BB7ABC7AACEF992BBFCDDD6209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554702   (435702) от 01.10.2012
+
+Nazareth - Video Collection(1972-2007) (2012) DVDRip.TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nazareth — шотландская рок-группа, созданная в 1968 году музыкантами группы The Shadettes в городе Данфермлин. В оригинальный состав вошли: вокалист Дэн Маккаферти, гитарист Мэнни Чарлтон, басист Пит Эгнью и барабанщик Дэррил Свит.
+Собраны лучшие клипы группы.01. Morning Dew. (72).
+02. Love Hurts. (1974).
+03. This Flight Tonight.(74).
+04. Jetlag (75).
+05. Bad Bad Boy (75).
+06. Kentucky Freid Blues.(77) .
+07. Place In Your Heart. (1977).
+08. Born To Love.(77).
+09. Night Woman.(77).
+10. Shot Me Down (1977).(   Читать дальше...   )Продолжительность: 02:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA7EDEFBA231076D96E4DC00E7E7AACA590E10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554887   (433672) от 02.10.2012
+
+W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипы группы01. Animal F*** Like A Beast
+02. L.O.V.E. Machine
+03. I Wanna Be Somebody
+04. On Your Knees
+05. Blind In Texas
+06. Wild Child
+07. I Don't Need No Doctor
+08. The Real Me
+09. Forever Free
+10. The Idol(   Читать дальше...   )Жанр: Музыка, Metal, Hard rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE98089D64E9166137944DBBFA2C34CCDA5F91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 555652   (431781) от 03.10.2012
 
 Cinnamon Chasers (2012) [1080p] HDTVRip
@@ -6,7 +251,7 @@ Cinnamon Chasers (2012) [1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431781.jpg" />
 </div>
 
 
@@ -32,7 +277,7 @@ Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429167.jpg" />
 </div>
 
 
@@ -58,7 +303,7 @@ VA - Осенний марафон № 197 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427054.jpg" />
 </div>
 
 
@@ -87,7 +332,7 @@ Bad Wolves - Zombie (Official Video) (2018) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425381.jpg" />
 </div>
 
 
@@ -114,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425095.jpg" />
 </div>
 
 
@@ -140,7 +385,7 @@ VA - Осенний марафон № 196 / Видеоклипы (Коктей�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424800.jpg" />
 </div>
 
 
@@ -169,7 +414,7 @@ Zaira - Mi vida (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424788.jpg" />
 </div>
 
 
@@ -195,7 +440,7 @@ Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418823.jpg" />
 </div>
 
 
@@ -226,7 +471,7 @@ The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418459.jpg" />
 </div>
 
 
@@ -253,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416154.jpg" />
 </div>
 
 
@@ -279,7 +524,7 @@ Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <In
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413464.jpg" />
 </div>
 
 
@@ -306,7 +551,7 @@ VA - Осенний марафон № 198 / Видеоклипы (Лучшая 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411098.jpg" />
 </div>
 
 
@@ -335,7 +580,7 @@ Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409693.jpg" />
 </div>
 
 
@@ -361,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409588.jpg" />
 </div>
 
 
@@ -388,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408562.jpg" />
 </div>
 
 
@@ -414,7 +659,7 @@ Masami Okui - V-mode ~10th Anniversary~ Disc 2 (2003) DVDRip [H.264] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407220.jpg" />
 </div>
 
 
@@ -443,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406584.jpg" />
 </div>
 
 
@@ -480,7 +725,7 @@ Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406556.jpg" />
 </div>
 
 
@@ -491,214 +736,6 @@ Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F31400391482C4868CA7EBB47A6F4CDD2D9525BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561417   (406178) от 17.10.2012
-
-Dreamshow - Animals (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, IndieПродолжительность: 00:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F524958FF1A2AC087130BEC52EE66F7403EF1308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561416   (406071) от 17.10.2012
-
-Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ELECTRO-HOPПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9999D1B26954D2829CF75B5C29BB2A3F9A4323A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561894   (405774) от 18.10.2012
-
-Сборник клипов - VA - Various Music part. 35 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C925B1FF727A9A0A5BC91BDE09BE20A873647511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562332   (405647) от 19.10.2012
-
-DJMask - Hymn Of Angel (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Relax, Chill OutПродолжительность: 00:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D1D2E33E51A1D4C8014208F11CEF2F86D598B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562343   (405610) от 19.10.2012
-
-Poshout feat Ange - Beside (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DCAA1A3FF393549BF120CD5A1B87FF069E7EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562346   (405601) от 19.10.2012
-
-Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Relax, Chill OutПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CE15F4935AB2E80CED8750DDB771DC54FBD958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562328   (405599) от 19.10.2012
-
-Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22DB0A0F1FA02858E14D351973102C2AD13E466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562322   (405472) от 19.10.2012
-
-Dancer Tryout - Mz Berry (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&BПродолжительность: 00:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12A07484DE18832D1CD609430F8FA42F2F2C23D
 ```
 
 https://mybot314.ru/tekegram_catalog/

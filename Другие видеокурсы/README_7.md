@@ -1,3 +1,29 @@
+###  Публикация: 909746   (625192) от 18.06.2015
+
+Максим Шаинский | Руководство самостоятельного путешественника. Видеогид I - II (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из видеокурса вы узнаете, как организовать своё путешествие от А до Я, узнаете все алгоритмы и методы, которые помогут сделать ваше путешествие комфортным и безопасным, а также он поможет вам максимально сэкономить деньги, не экономя на качестве отдыха. Путешествуйте оригинально, не как все. В видеокурсе есть всё необходимое для этого.Жанр: ПутешествиеПродолжительность: 23:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1206227A75EEC193C738092B8BCEDEC6586476EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143610   (623508) от 24.06.2017
 
 Олег Матвеев | Ясные роли, цели и игры (2010) CamRip
@@ -6,7 +32,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623508.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623506.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623166.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619675.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619605.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618523.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615991.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614316.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613840.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_609757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609757.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609255.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598974.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594670.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ MrChipTricks и др.| Трюки с фишками / Chip Tricks (2017) CamRip 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585113.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583890.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566240.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550732.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544719.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544710.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542394.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531231.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529118.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524163.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522995.jpg" />
 </div>
 
 
@@ -666,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518293.jpg" />
 </div>
 
 
@@ -678,35 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EDBAE3D9F82C95E5D48CE94AD774537AAB32F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536248   (514258) от 18.08.2012
-
-Games Workshop | Как красить миниатюры Citadel [2012] DVDRip [En]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео руководство от Games Workshop по покраске миниатюр. Показаны основные моменты и техники покраски — сборка, грунтовка, базовые цвета, смывки (washes/shades), фильтры (glazes), сухая кисть (драйбраш), оформление баз, нанесение деколей.
-Ничего сверхъестественного, но хватит для того, чтобы покрасить армию, которая будет прилично смотреться на столе.
-
-Хотя видео на английском языке, все понятно и по видео.Жанр: Обучающее видеоПродолжительность: 01:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75FBCB6C23516FDAF07D4D2A3406601753D3BAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

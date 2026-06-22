@@ -1,74 +1,22 @@
-###  Публикация: 1474817   (1010425) от 18.06.2021
+###  Публикация: 1477205   (1011171) от 14.06.2021
 
-Экшены - GraphicRiver - Modern Art Photoshop Action - 30602233 [ATN, ABR, PAT,PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Art - действие фотошоп превратит ваши изображения в художественное полотно в стиле современного искусства с элементами типографики, акварели и карандашных линий. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT,PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FAFB3BF514439AFEFABF28A11B65F74C681ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478575   (1010087) от 20.06.2021
-
-Экшены - Creative Market - B & W Portrait Photoshop Action - 5800288 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010087.jpg" />
-</div>
-
-
-###  Подробнее
-
-B & W Portrait - это действие предназначено для того, чтобы превратить вашу фотографию в настоящий черно-белый портрет. Простота настройки. В этом действии вы получите 10 различных вариантов цвета.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13BEF0207200D055F876ED326BB5A57E5922370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479277   (1009673) от 23.06.2021
-
-Растровый клипарт - PixelSquid - Tick Tock Collection [PSD]
+Растровый клипарт - Elements Collage 159 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Tick Tock для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 140x548-1800x863
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46A7AC0AAB20C34E116071A21B450A29E1A40AB3
+magnet:?xt=urn:btih:7402392F10FED19A80165FDE1EA9760310D211B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479279   (1009672) от 23.06.2021
+###  Публикация: 1477209   (1011169) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Winter Wonderland Collection [PSD]
+Растровый клипарт - Elements Collage 162 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Winter Wonderland для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 200x658-1800x851
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A20D4057FD20B84A994CBE7A7FB2372812AD5030
+magnet:?xt=urn:btih:4022DCA3C20470FA67326ADCAC5A27F9137497D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479278   (1009670) от 23.06.2021
+###  Публикация: 1477204   (1011168) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Trade Show Collection [PSD]
+Растровый клипарт - Elements Collage 158 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Trade Show для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 163x125-2701x3051
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79380B3EB655F6BFEA0823DB15DBD958A775175C
+magnet:?xt=urn:btih:BF6EA766A0A56EA52BAD5FBB9E736A7EA2686EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479276   (1009669) от 23.06.2021
+###  Публикация: 1477220   (1011163) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Summer Travel Collection [PSD]
+Растровый клипарт - Elements Collage 169 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Summer Travel для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 209x400-3000x2804
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85E08CC4DAA42AB58B6E5E078448858F217E9D17
+magnet:?xt=urn:btih:DB80ECCBA1CD71BAD515096B336BC0149BDC2FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480134   (1009152) от 27.06.2021
+###  Публикация: 1477231   (1011162) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Farm Collection [PSD]
+Растровый клипарт - Elements Collage 172 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011162.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Farm для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 276x800-1500x1000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C10476F4101D461EFA2351619B282DC6659C4330
+magnet:?xt=urn:btih:2101124C9F1218E153C9FE886A52EB3B69EA3E37
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480140   (1009150) от 27.06.2021
+###  Публикация: 1477202   (1011161) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Healthy Eating Collection [PSD]
+Растровый клипарт - Elements Collage 157 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Healthy Eating для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 128x530-2190x2603
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0744FB34C1FAC89257C0633777E14146E4CC3E2
+magnet:?xt=urn:btih:2F281EB5608364CAFA8E40A16F6FF73FE579FC02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480152   (1009147) от 27.06.2021
+###  Публикация: 1477217   (1011158) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Law Enforcement Collection [PSD]
+Растровый клипарт - Elements Collage 167 [PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Law Enforcement для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 138x497-2315x988
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:276D0FD05B0D40CE0C40D6D0FF66102BBCE601DA
+magnet:?xt=urn:btih:04BD55DA2CFF610FA71A595425D7AB70DB3BC43B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,25 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480141   (1009142) от 27.06.2021
+###  Публикация: 1477207   (1011156) от 14.06.2021
 
-Растровый клипарт - PixelSquid - I Love NY Collection [PSD]
+Растровый клипарт - Elements Collage 161 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт I Love NY для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 123x550-1898x1789
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB73DAA7FC0E957A07BE07F06B990A7E818A53D1
+magnet:?xt=urn:btih:8C9CE4E2E24BA5BCA4C836748C46C605CC4A42EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480145   (1009141) от 27.06.2021
+###  Публикация: 1477234   (1011155) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Knobs, Buttons, and Switches Collection [PSD]
+Растровый клипарт - Elements Collage 174 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Knobs, Buttons, and Switches для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 171x416-2223x2327
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FD571C35E06C68E85E684F1F7D118B1B565B00F
+magnet:?xt=urn:btih:1A8414E8862B9130C18488297306AEC4C1543BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480160   (1009138) от 27.06.2021
+###  Публикация: 1477216   (1011153) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Low Poly Desert Collection [PSD]
+Растровый клипарт - Elements Collage 166 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Low Poly Desert для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 137x850-1833x1321
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80682EB166A72FEA1FF1D895EC8797236C10B3C1
+magnet:?xt=urn:btih:6010AFE6A9814B066DD0B559888F9ABA17BCDE50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480142   (1009136) от 27.06.2021
+###  Публикация: 1477213   (1011151) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Junk Food Collection [PSD]
+Растровый клипарт - Elements Collage 165 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Junk Food для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 188x624-2869x2609
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3C5488674CF71040D7548D53F7BFFB93D1B25EA
+magnet:?xt=urn:btih:CF04343092D89DE864D3852AAD51C6AA03ACADA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,25 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480168   (1009130) от 27.06.2021
+###  Публикация: 1477210   (1011149) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Medical Collection [PSD]
+Растровый клипарт - Elements Collage 163 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Medical для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 205x760-1500x1000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17ED3F67C2F5B50EBF1AF4D1C0FB205AF3A0B7F0
+magnet:?xt=urn:btih:9BF2AD6FE33BF6CE9AEA204111FDDAE0FA017B56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,25 +310,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480158   (1009124) от 27.06.2021
+###  Публикация: 1477224   (1011148) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Low Poly Animals Collection [PSD]
+Растровый клипарт - Elements Collage 171 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Low Poly Animals для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 210x262-1862x1588
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCD0CF18552B975299A8CE0F432C57371D79A040
+magnet:?xt=urn:btih:9DF5D90B95F0364BC6DD439FB9D5F6095606DD67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,25 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480135   (1009119) от 27.06.2021
+###  Публикация: 1477219   (1011147) от 14.06.2021
 
-Растровый клипарт - PixelSquid - Film & Photo Collection [PSD]
+Растровый клипарт - Elements Collage 168 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт Film & Photo для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 136x531-1789x2255
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B564E7C1CB48EF4CD77B7FAE4EA0D8093C6BD02
+magnet:?xt=urn:btih:45C27463A3404473F61090A174C7335005874919
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -414,25 +362,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481724   (1008103) от 04.07.2021
+###  Публикация: 1477222   (1011146) от 14.06.2021
 
-Звуковые библиотеки - Triune Digital - Cinematic Scores [WAV]
+Растровый клипарт - Elements Collage 170 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 148x234-6000x4773
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACCAC3A747B09DDE7EA03E5AB8B154116E6CEA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477235   (1011145) от 14.06.2021
+
+Растровый клипарт - Elements Collage 175 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 195x570-2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C73B1F22B9ADE6DC2C4E648EEC092CF40CF38F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477233   (1011144) от 14.06.2021
+
+Растровый клипарт - Elements Collage 173 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 220x760-2762x2253
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1233455211560234A498DABB6BAA98446D23C916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477236   (1011128) от 14.06.2021
+
+Растровый клипарт - Elements Collage 176 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 205x500-2243x830
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217A4EF897A5A765EF406E4BA20891CB8AED5A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477509   (1010924) от 15.06.2021
+
+Звуковые библиотеки - Loot Audio - Ben Osterhouse - Sospiro Strings 1.2 RePack Андрей650071 [Kontakt]
 
 >>Материалы для мультимедиа и дизайна
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cinematic Scores включает 30 треков, написанных Кайлом МакКуистоном в стиле 10-ти голливудских фильмов. Материал предоставлен в мультитрековом формате для более гибкого редактированияФормат: WAV
+Sospiro Strings - это библиотека Kontakt для создания неспешных эмоциональных струнных исполнений. Он состоит из 4 свэллов различной длины и 3 сустейн-артикуляций, записанных на басу, виолончели, альте и скрипке.Формат: Kontakt: NICNT, NKI, NKC, NKR, NCW
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC384C0E05EEC91359DBF4E58F7D92BCC6852343
+magnet:?xt=urn:btih:A5343967086A5A1C89A4D6F3BE374BB50F3248F7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,103 +492,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481600   (1008101) от 04.07.2021
+###  Публикация: 1477760   (1010839) от 16.06.2021
 
-Звуковые библиотеки - Triune Digital - Cyberpunk Scores [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk Scores включает 20 треков, написанных Кайлом МакКуистоном в стиле киберпанка. Материал предоставлен в мультитрековом формате для более гибкого редактированияФормат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D956DABC5C823F7204289FE1C0C3A86F081E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481604   (1008097) от 04.07.2021
-
-Экшены - GraphicRiver - Soft Glow - Photoshop Action - 31672932 [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soft Glow - простое в использовании действие фотошоп придаст Вашим изображениям мягкое свечение. Рекомендуемый размер фотографии составляет от 2000 до 4000 пикселей.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CFAC2CA36848A60978606C548DA543CCD37E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481611   (1008092) от 04.07.2021
-
-Экшены - GraphicRiver - Geometric Decomposition Photoshop Action - 20615244 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geometric Decomposition - очень мощный инструмент для придания вашим работам трендового стиля в виде геометрической декомпозиции. Достойная добавка чуточку креатива придаст отличительные черты вашему творчеству.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEC6A0E6DEC3918629C08970E57047D7901A2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481923   (1008019) от 05.07.2021
-
-Растровый клипарт - Сборник клипарта #2 [PNG, TIF]
+Растровый клипарт - Elements Collage 181 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 216x512-6000x4500
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 170x600-2200x1467
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3533F47C0C790787DAC4BF1E1E6C0724FCFB8869
+magnet:?xt=urn:btih:3E9ACBA0D6BA56A5C52E9FB0E2959E2750A19BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,103 +518,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481914   (1007965) от 05.07.2021
+###  Публикация: 1477755   (1010835) от 16.06.2021
 
-Оверлеи - 700 Massive Photo Overlays Bundle [PNG, JPG, ATN, FLAME]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ускорьте свой рабочий процесс с помощью целой вселенной кинематографических наложений для фотографий!.Формат: PNG, JPG, ATN, FLAME
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2192E695E6381608E97C454DAA71DD64962F8AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481906   (1007941) от 05.07.2021
-
-3D модели - KitBash3D - Props: Machinery [Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заполните свои фабрики и промышленные помещения тяжелым оборудованием из этого набора для производства сборочных линий, фасадов складов, кирпичных стен, резервуаров, сосудов высокого давления, химических реакторов, нефтепродуктов, насосов, трубопроводов, подиумов, металлических лестниц, полок и многого другого! Независимо от того, создаете ли вы нефтеперерабатывающие (   Читать дальше...   )Формат: Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4661DC4BC5ABA6ED99B06343C1003CFE574B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482201   (1007668) от 07.07.2021
-
-3D модели - KitBash3D - Savage [Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стройте варварские миры с примитивными лагерями, грубыми крепостями и бесчеловечными сооружениями этого набора дикарей. Стройте дикие земли в волшебных мирах или альтернативных историях на нашей собственной планете, используя эти жилища с соломенными крышами, глиняные фундаменты, каменные столбы, закопанные в пики крепости и многое другое!.Формат: Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634FF944442B9C0CB8D881E182C5FB2BBCCBB886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482448   (1007609) от 08.07.2021
-
-Растровый клипарт - Сборник клипарта #6 [PNG, TIF]
+Растровый клипарт - Elements Collage 178 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010835.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 210x183-5280x2829
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 338x750-2270x3280
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E57CE793F639BD92AB48F3D2B75F38A4CFD2CC8F
+magnet:?xt=urn:btih:93D903D0F9A728E6D618873428C2568C591140CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +544,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482450   (1007606) от 08.07.2021
+###  Публикация: 1477769   (1010833) от 16.06.2021
 
-Растровый клипарт - Сборник клипарта #7 [PNG, TIF]
+Растровый клипарт - Elements Collage 186 [PNG, PSD, JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010833.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 238x512-6895x3000
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 147x527-3600x2400
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:676D7FF1C5B0E1F25F643050229989CE2145902A
+magnet:?xt=urn:btih:322C5420D66017E7E1B5552633205AAAD7ED5432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477754   (1010830) от 16.06.2021
+
+Растровый клипарт - Elements Collage 177 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 189x750-2243x1447
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E67726EAD917EDB6701966201FC77B54858CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477766   (1010829) от 16.06.2021
+
+Растровый клипарт - Elements Collage 184 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 213x600-3000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879179F7CFEE0B25A6C5FFB9A49005BDEFBA63D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477768   (1010827) от 16.06.2021
+
+Растровый клипарт - Elements Collage 185 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 250x233-1889x2572
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D2A59E9A081FFD459C1CDDE056F7C7AE8A7126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477762   (1010824) от 16.06.2021
+
+Растровый клипарт - Elements Collage 182 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 98x602-2983x2389
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317413C5EAEB1E7A7984E511FA8B0553971A5725
 ```
 
 https://mybot314.ru/tekegram_catalog/

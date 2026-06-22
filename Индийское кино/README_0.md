@@ -1,3 +1,29 @@
+###  Публикация: 1476610   (1011429) от 12.06.2021
+
+Скейтбордистка / Skater Girl (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда подросток из сельской местности Индии обнаруживает страсть к скейтбордингу, которая изменила жизнь, ей предстоит столкнуться с трудностями, поскольку она следует своей мечте - соревноваться.Производство: США, Индия / Mac Productions, Skatepark FilmsЖанр: Драма, спортРежиссер: Манжари МакиджаниАктеры: Анураг Арора, Камлеш Гилл, Амрит Магхера, Вахида Рехман, Джонатан Ридвин, Swati Das, Sahidur Rahaman, Janthavy Norton, Rachel Saanchita Gupta, Vinayak GuptaПеревод: Дублированный (Пифагор) по заказу NetflixЯзык озвучки: РусскийСубтитры: Русские (forced, full) - отдельно, Украинские (full) - отдельноПродолжительность: 01:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425A76FBAEEAF9C736D0BA56F82C69D2C3CDB7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485857   (1005060) от 28.07.2021
 
 Корабль Тесея / Ship of Theseus (2012) BDRip [H.264/720p] [MVO]
@@ -6,7 +32,7 @@
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005060.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002146.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998764.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998751.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997967.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997759.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993403.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993304.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989287.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985534.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985484.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984458.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983303.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977820.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976118.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975144.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974922.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971681.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969590.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968595.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968476.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968021.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966571.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966558.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962818.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:847EDD6EA4BECFFF3BD911333E339610AC3888C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359636   (962812) от 13.02.2020
-
-Отважная 2 / Mardaani 2 (2019) WEB-DLRip [H.264/720p-LQ] [DVO]
-
->>След.
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962812.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Мумбаи завёлся серийный убийца, который похищает девушек, издевается над ними и в конце концов жестоко убивает. Для честной и неподкупной сотрудницы полиции поимка маньяка становится делом чести.Производство: Индия / Yash Raj FilmsЖанр: триллер, криминал, детективРежиссер: Гопи ПутранАктеры: Рани Мукхерджи, Джишу Сенгупта, Шрути Бапна, Раджеш Шарма, Vishal Jethwa, Викрам Сингх Чаухан, Санни Хиндуджа, Kirti Choudhary, Гарима Джайн, Комал ЧабрияПеревод: Двухголосый профессиональный (Honey&Haseena (присутствует ненормативная лексика))Субтитры: ОтсутствуютПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53D74C3A7C3258B1FFF4515426FE78F29E14B2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

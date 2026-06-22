@@ -1,3 +1,111 @@
+###  Публикация: 1196048   (138147) от 31.12.2017
+
+Марина Суржевская | Зачем цветет лори (2014) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Зачем цветёт лори».
+
+Таких, как я, называют раянами. Когда-то нас было много, нам поклонялись, словно богиням, нас почитали и нам приносили дары. «Раяна» означало «желание». Тогда мы сами решали, для кого расцветет лори. Но мужчины жестоки… И теперь «раяна» значит «яд». И когда мой цветок расцветет, меня найдут. Сумеречные псы, слуги Темного владыки, (   Читать дальше...   )Жанр: Любовное фэнтези, Эротическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8E9BADF5D0C15DE028F1746031CF7439C0C523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349304   (138080) от 31.12.2019
+
+Таша Танари | Цикл «Пой для меня, моя сирена» [3 книги] (2019) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138080.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Никогда не заговаривай с незнакомцами! Заговорила? Беги как можно дальше, если незнакомец сообщает, что он высший демон. Осталась? Ну уж сделку-то ему не предлагай! Что, все-таки заключила? Поздравляю, теперь у тебя впереди жизнь, полная «веселья» и балансирования на грани. Вот только всесильному демону уже хочется посочувствовать. Его жизнь тоже больше никогда (   Читать дальше...   )Жанр: ФэнтезиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B603C2F71913812C785CD6CDBF0BFDB2D8EFB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196050   (138001) от 31.12.2017
+
+Марина Суржевская | Для кого цветет лори (2016) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Зачем цветёт лори».
+
+Таких, как я, называют раянами. И много лет нас уничтожали по приказу Темнейшего Владыки. Однажды все изменилось. Проклятие разрушено, а мне суждено стать не изгнанницей, а правительницей. Но и сейчас я лишь пешка на доске сильнейших магов Сумеречной Империи, что решили получить власть цветущего лори. Правда, я устала играть (   Читать дальше...   )Жанр: Любовное фэнтези, Эротическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27398FEAE4E2953077E8CE1900FF96A6A73918D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349309   (137975) от 31.12.2019
+
+Таша Танари | Цикл «Танцующая среди ветров» [3 книги] (2019) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Как приручить дракона? Возможно ли это вообще и тем более простой смертной? А если она будет не так уж проста? И зачем ей нужен вредный, самодовольный и крайне неудобный в эксплуатации этот самый дракон? Жизнь штука интересная, и никогда не знаешь, куда приведет тебя очередной поворот судьбы. Отправляясь искать ответы на вопросы о своем предназначении, можно невзначай (   Читать дальше...   )Жанр: ФэнтезиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A791035F1777D902C5CA9603DCB98E1B7591E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349185   (137897) от 31.12.2019
 
 Игорь Осипов | Охотники на попаданцев (2019) [EPUB]
@@ -6,7 +114,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137897.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137665.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137507.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137466.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136826.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136825.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136824.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135210.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131081.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129945.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129603.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129384.jpg" />
 </div>
 
 
@@ -333,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129371.jpg" />
 </div>
 
 
@@ -362,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129224.jpg" />
 </div>
 
 
@@ -388,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128174.jpg" />
 </div>
 
 
@@ -417,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127291.jpg" />
 </div>
 
 
@@ -445,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126305.jpg" />
 </div>
 
 
@@ -471,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125869.jpg" />
 </div>
 
 
@@ -497,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125864.jpg" />
 </div>
 
 
@@ -526,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125827.jpg" />
 </div>
 
 
@@ -552,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125687.jpg" />
 </div>
 
 
@@ -578,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125650.jpg" />
 </div>
 
 
@@ -592,112 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11060E38CBFF462BDD1D30580C4153091A488D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688461   (125119) от 30.12.2023
-
-Серж Винтеркей, Артем Шумилин | Цикл "Ревизор: возвращение в СССР" [11 книг] (2023) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не думал, не гадал матерый московский аудитор, что на шестом десятке лет помрет и угодит в СССР, аж в 1971 год. Прощай, раскрученный бизнес и уютная Мазда СХ-5 с трехмесячным пробегом. Зато… здравствуй, молодость! Вот за молодость-то все это не жалко и отдать!Жанр: Попаданцы, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FA73FDEB4CE78A1987CB91A2CAFA641F755657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690405   (123998) от 07.01.2024
-
-Жорж Бор | Цикл «Легенда» [7 книг] (2023) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее... Виртуальный мир уже не совсем виртуальный. В нём зарабатываются огромные деньги. А там, где деньги - там борьба за власть, жестокость и насилие. Отнюдь не виртуальное.
-Я был лучшим игроком Прайма. Но недостаточно гибким для окружающих. Я любил и умел играть. Они хотели денег и власти. Одиночка всегда проигрывает...
-Но, я не сдался. Я покажу этим (   Читать дальше...   )Жанр: litRpg,фэнтези,фантастикаИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FD549A3065FB5CD025C4AFC2FBD9B03BE6DCC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693167   (122070) от 19.01.2024
-
-Уилл Уайт | Капитан (2023) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122070.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Чтобы выжить в этой галактике, тебе нужна волшебная палочка в одной руке и пистолет в другой". На малоизвестной планете архимаг Варик Валленар произносит великое заклинание, чтобы наделить себя магическими способностями своих альтернативных "я". Ритуал работает слишком хорошо, даруя Варику не только магию, но и воспоминания о шести жизнях. Включая (   Читать дальше...   )Жанр: Космическая фантастикаПеревод: Алекс ФроловЯзык: РусскийИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D5FDBE05C34C7B5BE53C397D9C6436B4C7EB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695532   (120380) от 29.01.2024
-
-Серж Винтеркей | Цикл "Эгида" [17 книг] (2019-2022) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженер едет домой к семье, но внезапно погибает в автомобильной аварии. Жизнь после смерти приобретает форму участия в виртуальной игре, в ней ему поставлены строгие ограничения, невыполнение которых приведет к окончательной гибели. Но если герой справится с испытаниями, то получит шанс вернуться к семье. Первичная локация нубятник. Так ли он безопасен, как наивно (   Читать дальше...   )Жанр: ЛитРПГ, Юмористическое фэнтези, Боевая фантастикаИздательство: Самиздат, litresФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E47251B61E3C841E71588C0E5E402442680B92
 ```
 
 https://mybot314.ru/tekegram_catalog/

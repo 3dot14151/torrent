@@ -1,3 +1,110 @@
+###  Публикация: 1680121   (134621) от 28.11.2023
+
+Convusic for Mac 1.17 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Convusic позволяет автоматически открывать ссылки с Apple Music, Amazon Music, Deezer, Pandora, Spotify, Tidal и YouTube Music в любом другом музыкальном приложении, не пошевелив и пальцем.
+После загрузки Convusic и настройки его на предпочитаемый музыкальный сервис ссылки с любого другого музыкального сервиса будут автоматически открываться в выбранном вами приложении. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2022Разработчик: © 2021-2022 Varun SanthanamПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C640491BDE1DA5D5D4DD95765AA12311FFF430F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680133   (134617) от 28.11.2023
+
+Yate 6.17.2.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2023Разработчик: © 2023 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E8C46FA660454665D2222B1A8DA8FA4F3B9561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680152   (134615) от 28.11.2023
+
+Cisdem OCRWizard 5.1.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem OCRWizard с улучшенным механизмом оптического распознавания символов (OCR) может легко конвертировать любые PDF-файлы, отсканированные документы или файлы изображений (включая изображение визитной карточки) на 49 языках в доступные для поиска и редактирования PDF, Word, Pages, HTML, Excel, Keynote, и ePub и т. д. на Mac.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A58F32C2B550966BB8AA3D5EEEA7902302853B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680141   (134607) от 28.11.2023
+
+Unite 5.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unite позволяет быстро и легко превратить веб-сайты в полнофункциональные нативные приложения для MacOS. Используя революционный браузер Unite в качестве бэкэнда, каждое приложение Unite имеет собственный браузер, оставаясь при этом невероятно маленьким и полнофункциональным. И поскольку приложения Unite являются уникальным браузером, они имеют отдельные файлы cookie (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2023Разработчик: © 2023 BZG Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0254E12E53A90E3E4C502A6B3294C0BBB1D56ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680095   (134605) от 28.11.2023
 
 Word Count Popup 2.56 [En]
@@ -6,7 +113,7 @@ Word Count Popup 2.56 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134605.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ Magic Cutter - MP3 Editor for Mac 1.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134602.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Goldie for Mac 2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134587.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ iMap Builder: Organisation 11.1.14 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134579.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ MacCleaner 3 PRO 3.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134406.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ batchCONVERTER for Mac 2.00 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134375.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ AbleFTP13 for Mac 13.07 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134373.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ Nifty File Lists 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134360.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ WonderPen 2.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134358.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ FontXChange 6.0 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134347.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ Librarian Pro 7 v.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134309.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ TechSmith Camtasia 2022 Studio 2022.6.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134285.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ Baking Soda for Mac 1.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134279.jpg" />
 </div>
 
 
@@ -351,7 +458,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134261.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ A Better Finder Rename 12.04 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134257.jpg" />
 </div>
 
 
@@ -405,7 +512,7 @@ Garden Planner 3.8.53 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134219.jpg" />
 </div>
 
 
@@ -431,7 +538,7 @@ Hazel 3.0.16 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133969.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ iCompta 6 v.6.1.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133955.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ SILKYPIX Developer Studio Pro 11 for FUJIFILM 11.4.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133949.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ CryptoEdit 2 v.2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133919.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ PhotoFoundry for Mac 1.2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133911.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ Input Recorder for Mac 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133902.jpg" />
 </div>
 
 
@@ -572,118 +679,6 @@ Input Recorder for Mac 1.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8782F0723B288671B25115833D8F3DF7A978AC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680660   (133901) от 30.11.2023
-
-Recompress 22.12 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Re/compress - это мощная утилита сжатия PDF, которая позволяет изменять размеры существующих PDF-файлов для архивирования или распространения в Интернете или по электронной почте.
-Многие производители PDF, например. Например, многофункциональные принтеры или другие простые приложения используют самые современные формы сжатия при создании ваших PDF-документов (или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2023Разработчик: © 2023 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49112A8EC437CB47D8EDD4C00336DCD91BC139CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680711   (133892) от 30.11.2023
-
-SILKYPIX Developer Studio Pro 11 for Panasonic 11.3.13.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133892.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro11 для Panasonic предназначен для камеры Panasonic, выпущенной ограниченным тиражом. Это программное обеспечение для обработки формата RAW, которое оказывает мощную поддержку при создании собственных фоторабот с помощью различных функций настройки, таких как «Режимы композитинга», «Инструмент частичной коррекции» и «Dehaze» включены в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC65CB11C59FE3F562F05F19DC69E8B9FB8AD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594069   (133880) от 25.12.2012
-
-Aperture Update 3.4.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональная программа обработки цифровых фотографий. Предоставляет в распоряжение фотографа все необходимые инструменты - начиная с импорта и каталогизации снимков, и заканчивая ретушью, цветокоррекцией и печатью.
-Вот лишь некоторые особенности программы: профессиональный интерфейс, полноценная поддержка RAW-формата на всех этапах рабочего процесса, отличная поддержка метаданных, работа с одним или с несколькими мониторами в полноэкранном режиме.
-
-Компания Apple выпустила исправление 3.4.3 к программе по управлению фотографиями Aperture.
-
-Обновление по большей части связано с проблемами управления контентом в потоках общественно доступных альбомов и реализацией новых элементов управления элементами.
-В дополнение к вопросам работы с потоком, в приложении также устранен ряд проблем с управлением метаданными, расширением и использованием дополнительных дисплеев.Тип издания: Mac OS X softwareЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680600   (133879) от 30.11.2023
-
-Dropzone 4 Pro v.4.80.0 fix [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2023Разработчик: © 2023 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16182FD25A958D781DD4E7A0E096370044272F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

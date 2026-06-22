@@ -1,3 +1,113 @@
+###  Публикация: 1802122   (14573) от 15.06.2025
+
+КВН-2025. Высшая лига. Третья 1/4 финала (2025) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья 1/4 финала, сезона 2025 года Высшей лиги КВН.
+Играют команды: «Оборович» (Москва), «Негоден», СПбГЭТУ «ЛЭТИ» (Санкт-Петербург), «Не Кипишуй область Абай» (Семей, Казахстан), «Атомная сборная» (Сосновый бор)
+Конкурсы:  «Приветствие», «Разминка», «СТЭМ», «Музыкальный номер».Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1CA0D1A84540C1EE65088DB6BAB8BAB9E86717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802043   (14544) от 15.06.2025
+
+КВН-2025. Высшая лига. 1/4 финала, игра 3 (2025.06.14) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EE333B16AA49ED28BF40ECC97D7FE3D83B0FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804421   (13077) от 29.06.2025
+
+КВН-2025. Высшая лига. Четвертая 1/4 финала (2025) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая 1/4 финала, сезона 2025 года Высшей лиги КВН.
+Играют команды: «Близкие» (Сборная Белгородской области), «Мастер Муси РЭУ им. Г.В. Плеханова» (Москва), «Донецкий Кряж» (Донецк, ДНР), Сборная РУДН (Москва)
+Конкурсы: «Приветствие», «Разминка», «СТЭМ», «Музыкальный номер».Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD75E36008551698FC825A22BF7BFF50D44AF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804355   (13044) от 29.06.2025
+
+КВН-2025. Высшая лига. Четвертая 1/4 финала (2025) WEBRip [H.264/720p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая 1/4 финала, сезона 2025 года Высшей лиги КВН.
+Играют команды: «Близкие» (Сборная Белгородской области), «Мастер Муси РЭУ им. Г.В. Плеханова» (Москва), «Донецкий Кряж» (Донецк, ДНР), Сборная РУДН (Москва)
+Конкурсы: «Приветствие», «Разминка», «СТЭМ», «Музыкальный номер».Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84261CDB94E5214795E6A16F1129483EA30DA229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816758   (4219) от 06.09.2025
 
 КВН-2025. Высшая лига. Летний Кубок (2025.09.06) SATRip
@@ -6,7 +116,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4219.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3953.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3864.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3063.jpg" />
 </div>
 
 
@@ -110,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2805.jpg" />
 </div>
 
 
@@ -137,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2764.jpg" />
 </div>
 
 
@@ -164,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_656.jpg" />
 </div>
 
 
@@ -190,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_303.jpg" />
 </div>
 
 
@@ -217,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_263.jpg" />
 </div>
 
 

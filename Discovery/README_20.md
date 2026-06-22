@@ -1,3 +1,81 @@
+###  Публикация: 1252772   (279030) от 24.11.2018
+
+Discovery: Аляска: Семья из леса / Alaskan Bush People (2018) HDTVRip [H.264/720p-LQ] [50fps] (Сезон 6, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279030.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глуши Аляски живет семья, все члены которой родились и выросли среди дикой природы. Билли Браун, его жена Эми и их семеро детей – пятеро сыновей и две дочери – удалились от цивилизации и почти не контактируют с другими людьми. Они даже говорят на особом диалекте и называют себя «волчьей стаей».Производство: США, Park Slope Productions, Discovery ChannelЖанр: Документальный, выживание, историяРежиссер: Т.Дж. Шанкс, Джейсон Берман, Эзра ЭпвеллПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09110E3650ABAA6F7A02AF55474B5FD5E1B43094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243196   (278906) от 24.11.2018
+
+Discovery: Забытая инженерия / Abandoned Engineering (2018) HDTVRip [H.264/720p-LQ] [50 fps] (Сезон 2, серии 1-14 из 14)
+
+>>След.
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одни из самых выдающихся сооружений и конструкций, которые ещё недавно считались воплощением смелой мечты, теперь лежат в руинах. Как и почему это произошло? Возможно ли возродить их? Разработчики и конструкторы расскажут об их прошлом, а новаторы и предприниматели постараются подарить этим проектам будущее. Вы увидите самые знаменитые заброшенные объекты, расположенные (   Читать дальше...   )Производство: Великобритания, Like a Shot Entertainment, Discovery ChannelЖанр: Документальный, научно-познавательный, исследования, историяПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D974287811BF78188E1106B9D7167F01A345B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243195   (278800) от 24.11.2018
+
+Discovery: Забытая инженерия / Abandoned Engineering (2018) HDTVRip (Сезон 2, серии 1-14 из 14)
+
+>>След.
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одни из самых выдающихся сооружений и конструкций, которые ещё недавно считались воплощением смелой мечты, теперь лежат в руинах. Как и почему это произошло? Возможно ли возродить их? Разработчики и конструкторы расскажут об их прошлом, а новаторы и предприниматели постараются подарить этим проектам будущее. Вы увидите самые знаменитые заброшенные объекты, расположенные (   Читать дальше...   )Производство: Великобритания, Like a Shot Entertainment, Discovery ChannelЖанр: Документальный, научно-познавательный, исследования, историяПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE992C2C0EE64D95885321AE7D83E7740063DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 305382   (278768) от 12.12.2016
 
 Лицом к лицу со смертью (серия 1-8) / I escaped death (ep. 1-8) (2010) SATRip
@@ -6,7 +84,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278768.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Discovery. Эффект Карбонаро / The Carbonaro effect (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278753.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Discovery. Танк на Луне / Tank on the Moon (2008) PDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_278293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_278293.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Discovery. Стальные парни / Steel Buddies (2014) HDTV [H.264/720p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278274.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276933.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ Discovery: Опасная миссия: Хаббл / Mission Critical: Hubble (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276929.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Discovery: Эд Стаффорд: Выживший / Ed Stafford: Left for Dead 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273149.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271425.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ Discovery: Битва за Чернобыль / Battle of Chernobyl (2006) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269847.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ Discovery: Столпы Америки / American Titans (2015) DVB (сезон 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269250.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Discovery. Миллионы Пабло Эскобара / Finding Escobar’s Mi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267891.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ Discovery. Планета мутантов / Mutant Planet (2010) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265568.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ Discovery: Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265450.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Discovery. Хранители болот Эверглейдс / Guardians of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263505.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Discovery: Знакомство с Лох-Несским чудовищем / Th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257132.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Discovery: Апокалипсис 2012-Откровения / Maya 2012 Prophecy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253706.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Discovery: Путешествие в Долину Царей / Journey Through t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252393.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Discovery. Экспедиция: Назад в будущее / Expedition: Back
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249466.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246960.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ Discovery: Разрушители автолегенд / Motor MythBusters (2021
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240464.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239345.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238994.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230525.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FE54388AD3BB01B8F468B8F185983A252BFEFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946044   (227160) от 13.12.2015
-
-Discovery. Смертельный улов / Deadliest Catch (2015) HDTVRip (Сезон 11, Серии 1-18 из 18, + спецвыпуск)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал, который рассказывает о соревновании рыболовецких судов в Беринговом море во время сезонов ловли королевского краба и краба-опилио (стригуна). База действий - Датч-Харбор, порт на небольшом острове Амакнак в бухте Уналашка, близ острова Уналашка из группы Алеутских островов. Команды судов подвергаются огромному риску. В любой момент можно получить травму или (   Читать дальше...   )Производство: США, Discovery NetworkЖанр: Документальный, приключения, реалити-ТВПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3DCB80A667FB778208C8A79795E0B3AEDCAFAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083005   (217775) от 19.12.2016
-
-Discovery. Османы и христиане: Битва за Европу / Ottomans Versus Christians: Battle for Europe (2016) HDTVRip [H.264/720p-LQ] (1-3 серии из 3)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершите путешествие вглубь истории, во времена, когда Восточная Европа была ареной противоборства между христианами и османами.Телекомпания: Pilot Production, Discovery ChannelЖанр: Документальный,история, исследованиеПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:44:00 (серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F035D600809C04681596221C11CA7F109EA08B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303499   (217276) от 06.12.2019
-
-Discovery: Я не должен был выжить / I Shouldn't Be Alive (2005-2010) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал, повествующий о людях, оказавшихся в шаге от верной гибели, для которых встреча со смертью стала переломным эпизодом в биографии, тяжелым испытанием и – началом новой жизни. Подобное может произойти с каждым!Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 45-50 мин. серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3850B9870F694FB52C1EAF4C12D429EA9F4FE3FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

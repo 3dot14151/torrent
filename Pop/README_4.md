@@ -1,3 +1,293 @@
+###  Публикация: 1855746   (1058484) от 24.02.2026
+
+VA - Top 10's 100 Greatest (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You - (03:54)
+ 002. David Guetta feat. Sia - Titanium (feat. Sia) - (04:05)
+ 003. Eliza Doolittle - Pack Up - (03:11)
+ 004. Disturbed - The Sound of Silence - (04:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A500DF37F2652B1B394EAC1C252F88B4F8B7086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855623   (1058218) от 24.02.2026
+
+VA - Retro Gold (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster) - (04:18)
+ 02. The Monkees - I'm a Believer - (02:50)
+ 03. Chicago - If You Leave Me Now - (03:54)
+ 04. Roberta Flack - Killing Me Softly with His Song - (04:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CAE660D4249FCA05737CA9BA734F55DCE10AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855390   (1058149) от 22.02.2026
+
+VA - 70's Styles (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bread - Baby I'm-A Want You - (02:23)
+ 02. Seals and Crofts - Summer Breeze - (03:22)
+ 03. Donny Hathaway - Jealous Guy - (03:08)
+ 04. Rod Stewart - Da Ya Think I'm Sexy - - (05:29)(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 04:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0546583D34E7E58A03E77AFD6C7E85A7D38B3D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855329   (1057913) от 23.02.2026
+
+Вячеслав Мясников - Как хорошо быть мужиком (2026) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Как хорошо быть мужиком [00:03:28]
+02 - Подштанники [00:03:00]
+03 - Бабайка [00:04:21]
+04 - Как же приятно женщиной быть [00:03:13](   Читать дальше...   )Жанр: PopПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9149A6761730A23E6EF910538669D3025256AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855336   (1057912) от 22.02.2026
+
+Игорь Истуканов - То, что вы искали. Песни на стихи Сергея Миронова (2026) AI-generated content [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Блюз цвета глаз [00:02:58]
+02 - Остров [00:04:33]
+03 - Держись, брат [00:05:17]
+04 - Летняя ночь [00:07:01](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91CEF8AB42BB736540D6E63BD6B311F72F75980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854812   (1057721) от 19.02.2026
+
+VA - Low Light, Warm Feelings (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Warren - Ordinary (Wedding) (3:06)
+02. Fleetwood Mac - Dreams (4:17)
+03. Teddy Swims - Lose Control (3:30)
+04. Bruno Mars - Love’s Train (5:07)(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED490A4011DBDD5D0E554826F59AA6AD74EBFFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854805   (1057654) от 20.02.2026
+
+VA - High Impact Hits (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa feat. DaBaby - Levitating 03:23
+02. Bruno Mars - Locked Out of Heaven 03:53
+03. Clean Bandit feat. Demi Lovato - Solo 03:42
+04. Lil Wayne, Wiz Khalifa & Imagine Dragons feat. Logic, Ty Dolla $ign & X Ambassadors - Sucker for Pain 04:03(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031433AB3FCF7BBCF65F1557BABA5D4236A8CBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853822   (1057436) от 17.02.2026
+
+Elvira T - Ядовитая. Неразбитая (2026) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокая пантера [00:02:13]
+02. Захочешь [00:03:23]
+03. че за су**? [00:02:28]
+04. Один на один [00:02:24](   Читать дальше...   )Жанр: PopПродолжительность: 00:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E96E70B523FD951BB7589EEB8F2E531278A68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854422   (1057290) от 18.02.2026
+
+Backstreet Boys - Backstreet Boys (1997) [FLAC|Lossless|tracks + .cue] <Pop, Europop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Got It Goin' On [0:03:40.40]
+02. Quit Playing Games (With My Heart) [0:03:54.27]
+03. As Long as You Love Me [0:03:33.38]
+04. Everybody (Backstreet's Back) (extended version) [0:04:47.62](   Читать дальше...   )Жанр: Pop, Europop, BalladПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546475E79719DD4A48B9735270EEE3335855C130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854074   (1057111) от 16.02.2026
+
+Ольга Восконьян - Ритм атомного сердца (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атомное сердце [00:03:29]
+02. Прицесса Амидала [00:04:57]
+03. Атомное солнце [00:03:40]
+04. Ты волна [00:06:48](   Читать дальше...   )Жанр: synthpop, PopПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A390E473C3A8DFFD836808C3B9C74DAFB718A6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853782   (1057055) от 14.02.2026
 
 King Sis - Late to the Party (Lover’s Deluxe) (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative R&B, Soul>
@@ -6,7 +296,7 @@ King Sis - Late to the Party (Lover’s Deluxe) (2026) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057055.jpg" />
 </div>
 
 
@@ -35,7 +325,7 @@ VA - Pure Pop Peak (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057047.jpg" />
 </div>
 
 
@@ -64,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056968.jpg" />
 </div>
 
 
@@ -93,7 +383,7 @@ Sotomayor - Wabi Sabi (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance, Pop, El
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056915.jpg" />
 </div>
 
 
@@ -122,7 +412,7 @@ VA - Pure... 80s Soul Grooves (2013) 4 x CD [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056911.jpg" />
 </div>
 
 
@@ -151,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056906.jpg" />
 </div>
 
 
@@ -180,7 +470,7 @@ VA - NRJ Hits 2026 (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056229.jpg" />
 </div>
 
 
@@ -209,7 +499,7 @@ Michael Bolton - This Is the Time: The Christmas Album (1996) [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056221.jpg" />
 </div>
 
 
@@ -238,7 +528,7 @@ Martina McBride - Emotion (1999) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056220.jpg" />
 </div>
 
 
@@ -267,7 +557,7 @@ Paul Parker - Strong - The Album (2025) Deluxe Edition [FLAC 24/44,1|Lossless|WE
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056207.jpg" />
 </div>
 
 
@@ -296,7 +586,7 @@ VA - New Hits 98 (1998) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055855.jpg" />
 </div>
 
 
@@ -325,7 +615,7 @@ BeBe Winans - BeBe Winans (1997) [FLAC|Lossless|tracks + .cue] <Pop, Funk / Soul
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055676.jpg" />
 </div>
 
 
@@ -354,7 +644,7 @@ Carly Simon - The Best of Carly Simon (2008) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055675.jpg" />
 </div>
 
 
@@ -383,7 +673,7 @@ Dido - Life For Rent (2003) [FLAC|Lossless|tracks + .cue] <Pop, Downtempo>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055674.jpg" />
 </div>
 
 
@@ -412,7 +702,7 @@ Madonna - Like A Prayer  1989 (2005) Reissue [FLAC|Lossless|image + .cue] <Pop R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055607.jpg" />
 </div>
 
 
@@ -439,7 +729,7 @@ One Direction - Up All Night (2012) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055604.jpg" />
 </div>
 
 
@@ -453,292 +743,6 @@ One Direction - Up All Night (2012) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B268081388719C74CA7BD92F45F684AAF5D2B638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852239   (1055588) от 06.02.2026
-
-VA - 70s Acoustic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joni Mitchell - A Case of You - (04:23)
- 02. JAMES TAYLOR - Fire and Rain - (03:21)
- 03. Carly Simon - You're So Vain (2023 Remaster) - (04:18)
- 04. ROD STEWART - I Don't Want to Talk About It - (04:52)(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 03:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0C65125863C08DA52E58DC50797E06B02630EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851760   (1055570) от 04.02.2026
-
-VA - 70's Vibe (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doors - Riders On the Storm - (07:15)
- 02. Talking Heads - Take Me to the River (Edit) - (03:37)
- 03. Chic - Le Freak - (03:30)
- 04. Alice Cooper - School's Out - (03:30)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 02:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2D91B75C142060B678BB19794C6BE89FCF4C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851758   (1055569) от 04.02.2026
-
-VA - 1976 - Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ABBA - Dancing Queen
-02. Queen - Good Old-Fashioned Lover Boy (Remastered 2011)
-03. Stevie Wonder - Isn't She Lovely
-04. Bee Gees - You Should Be Dancing(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 04:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CD5B8FE44F1AFE70BF8202F766D344B822ED25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851956   (1055537) от 04.02.2026
-
-VA - The 100 Greatest Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055537.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bruno Mars - Just the Way You Are - (03:41)
- 002. Rod Stewart - Have I Told You Lately - (03:58)
- 003. Roberta Flack - Killing Me Softly with His Song - (04:47)
- 004. Fleetwood Mac - Landslide (2018 Remaster) - (03:20)(   Читать дальше...   )Жанр: Pop, Rock, SoulПродолжительность: 06:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95116DE2D5403868D88C105ED28C199CF7A655C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851471   (1055332) от 02.02.2026
-
-VA - Undercover Angel: 70's Nostalgia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Soul, R&B, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055332.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Undercover Angel - Alan O'Day - (03:31)
-002. What a Fool Believes - The Doobie Brothers - (03:40)
-003. Right down the Line - Gerry Rafferty - (04:28)
-004. Da Ya Think I’m Sexy - ROD STEWART - (05:31)(   Читать дальше...   )Жанр: Pop, Rock, Soul, R&B, Funk, DiscoПродолжительность: 6:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766898C3509B9965280081BA3A53E636690AAA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851565   (1055307) от 02.02.2026
-
-Paul Parker - Strong - The Album (2025) Deluxe Edition [MP3|320 Kbps] <Pop, Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strong (Fantasia Mix) (6:18)
-02. So Dangerous (6:20)
-03. You Cast A Spell (Mondomix) (5:59)
-04. More Than Just A Feeling (6:14)(   Читать дальше...   )Жанр: Pop, Disco, Hi-NRGПродолжительность: 01:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965A509A70729CBFD981EE6229FFBD6F9AE9AFDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851211   (1054988) от 01.02.2026
-
-Savage - Eternity (2026) 2CD [FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Italo Disco, Synthpop>
-
->>Pop
->>Eurodance, Disco (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Savage - Eternity (2026) FLAC (24-Bit, 48 kHz)
-Savage - Eternity (Remixes) (2026) FLAC (24-Bit, 44.1 kHz)Жанр: Italo Disco, SynthpopПродолжительность: 2 CD, 01:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59B87788E1C8E90CDA93693E058BFE03312F57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849411   (1054878) от 31.01.2026
-
-VA - The Biggest Songs of 2000s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Viva La Vida - (04:02)
- 02. David Guetta - Sexy Bitch (feat. Akon) - (03:16)
- 03. B.O.B - Nothin’ on You (feat. Bruno Mars) - (04:28)
- 04. Roxette - Milk and Toast and Honey - (04:05)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 04:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFF68E93208A9939F6223D53CF4CC2BC35FE3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850967   (1054777) от 31.01.2026
-
-Polnalyubvi - Коллекция (2018-2024) [FLAC|Lossless|tracks] <Pop, Indie>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, IndieПродолжительность: 02:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40F992B514B330DA048701962438BEF2427E1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850243   (1054253) от 26.01.2026
-
-Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll with the Wind [00:03:34]
-02. Fairytale [00:03:03]
-03. Dolphin [00:04:15]
-04. Kiss and Tell [00:03:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

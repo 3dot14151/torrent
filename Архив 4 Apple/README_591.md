@@ -1,3 +1,56 @@
+###  Публикация: 1668230   (174814) от 11.10.2023
+
+Fork 2.34 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и удобный клиент git. Fork с каждым днем ​​становится все лучше и лучше, и мы рады поделиться с вами нашими результатами. Список коммитов - Изменения рабочего каталога - Бок о бок Diff - Сводка и статистика менеджера репозиторияТип издания: macOS SoftwareРелиз состоялся: 22.09.2023Разработчик: © 2023 Danil PristupovПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83961DC28750F20EF649450B787C2F1ED4BC9DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668211   (174806) от 11.10.2023
+
+Mimestream 1.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mimestream сочетает в себе мощь macOS с расширенными функциями Gmail для нового типа почтового клиента, который позволяет вам легко перемещаться по электронной почте.
+Как собственное приложение, написанное на Swift, Mimestream использует всю силу macOS, чтобы обеспечить быстрый и мгновенно знакомый опыт. Вместо использования протокола IMAP Mimestream использует API (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2023 Mimestream, LLC.Поддерживаемая ОС: macOS 12.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA73C109E9ADA523FB4A494AAAA10F8CDA9C866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430121   (174793) от 08.12.2020
 
 Adobe InDesign 2021 v16.0.1 [Multi/Ru]
@@ -6,7 +59,7 @@ Adobe InDesign 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174793.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174786.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ RightFont 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174784.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Scrivener 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174780.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Dynamic Wallpaper Engine 16.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174752.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Adobe Illustrator 2021 v25.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174731.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ ForkLift 4 v.4.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174685.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Live Home 3D Pro Edition 4.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174653.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Hazel 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174641.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ MarsEdit 4 v4.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174599.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Xliff Editor 2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174596.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Smultron 12.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174594.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ AYBO 1.17.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174590.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Receipts 1.9.11b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174587.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Path Finder 10.0b12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174584.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Permute 3 v3.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174580.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ Texpad 1.8.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174577.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174573.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ PDF Squeezer 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174568.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ AYVY 1.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174564.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ EverWeb (Standalone) 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174556.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ Linguist 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174552.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.1.1893 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174550.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ DxO PhotoLab 4 ELITE Edition 4.1.0.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174523.jpg" />
 </div>
 
 
@@ -634,63 +687,6 @@ DxO PhotoLab 4 ELITE Edition 4.1.0.46 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA785DF270F02130E23DC185A21F83DBFD2FD8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430246   (174518) от 09.12.2020
-
-Downie 4 v4.1.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CF4BA05A2563E0FB89C5EB7971F81EEC9F092D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430346   (174480) от 09.12.2020
-
-MediaHuman Youtube Downloader 3.9.9.50 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174480.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-• Закачка нескольких файлов одновременно
-• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0B7BB411B3B1B7A4A1A75636EC590BD7C10CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1681248   (133169) от 02.12.2023
+
+Благовест | Главное – быть с Богом. По трудам архимандрита Иоанна (Крестьянкина) (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архимандрит Иоанн (Крестьянкин; 1910–2006) – священнослужитель Русской Православной Церкви, архимандрит. Около сорока лет был насельником Псково-Печерского монастыря. Один из наиболее почитаемых старцев Русской Православной Церкви. Труды архимандрита Иоанна, из которых взяты высказывания для данной книги, содействуют духовному возрождению общества и рассматриваются (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E064F156C72EB8916C57D85A24F2BFE10B2A5288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681254   (133144) от 02.12.2023
+
+Святой праведный Иоанн Кронштадтский | Беседы о Блаженствах Евангельских (2022) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все мы хотим быть счастливыми. Но как этого достичь? Мир, лежащий во зле, готов дать нам тысячи рекомендаций и советов. А между тем христиане имеют истинный ответ на этот вопрос и пошаговую инструкцию, данную нам Самим Господом нашим Иисусом Христом. Это заповеди блаженств, которые записаны в Евангелии. Представляем вашему вниманию толкование на эти заповеди известного (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88525BAF224559ACFF818FEE98EEBDD383916BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681238   (133135) от 02.12.2023
+
+Сибирская Благозвонница | Гордость. Избранные места из творений святых отцов (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек, страдающий гордостью, постепенно приобретает характер и нрав сатаны. В некоторых гордость проявляется в грубой, вызывающей форме и может быть легко обнаружена, а в ком-то она спрятана так глубоко, что увидеть ее очень трудно. Часть грехов, рождающихся от этой страсти, вообще не считаются грехами, а кое-какие из них признаются полезными и люди специально (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820528B5C6F1D16F3F7A4944CE351CCD72B67ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681642   (132744) от 03.12.2023
+
+Сибирская Благозвонница | Избранные поучения святых отцов о вере (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа нравственной жизни христианина есть вера во Христа как Богочеловека, Искупителя и Спасителя. Верующий в Сына имеет жизнь вечную, а не верующий в Сына не увидит жизни, но гнев Божий пребывает на нем (Ин. 3, 36). О том, как должно возгревать в себе веру, мы можем поучиться у святых отцов. Как говорил преподобный Максим Исповедник, «поревнуем святым подвижникам (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EFDABEA6D0448C601509BA72A95BED5516A3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681720   (132425) от 04.12.2023
 
 Сибирская Благозвонница | Маргарит, или Избранные душеспасительные изречения, руководящие к вечному блаженству, с присовокуплением некоторых бесед, относящихся исключительно к женским обителям (201 ...
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132425.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132424.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132422.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132419.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132418.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132129.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132123.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132121.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132101.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132097.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131539.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131521.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131513.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131497.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131483.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130051.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129844.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129782.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129771.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129769.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129724.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129526.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336C793A7FFC80C192578D7012E109B75FB5F2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683386   (128555) от 10.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет» (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B7DB2D2A3530B34A539054BB6997A603ACEF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683387   (128551) от 10.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Иверская» (2022) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Пресвятой Богородице в честь иконы Ее «Иверская».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA2CBF48AFA9C9B7EF31AD32DD023145BE6DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683379   (128534) от 10.12.2023
-
-Благовест | Акафист святителю Митрофану, епископу Воронежскому (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Митрофан, епископ Воронежский родился в 1623 году в пределах Владимирских от родителей духовного звания и в миру звался Михаилом. Родители дали ему воспитание в духе веры православной. Овдовев на 40 году своей жизни, он принял постриг в 1663 году в Успенской Злотниковской пустыни. С 1665 года – игумен Яхромского Космина монастыря, с 1675 года – игумен Троицкого (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658B458F8B18EFA645DA8F0E4C1BFAA4C2081136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683389   (128533) от 10.12.2023
-
-Благовест | Акафист святой преподобномученице великой княгине Елисавете (2022) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист святой преподобномученице великой княгине Елисавете.Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B53F00FDB8D3A7AEA1A831B4485642D7E52D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

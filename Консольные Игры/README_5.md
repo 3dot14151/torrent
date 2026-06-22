@@ -6,7 +6,7 @@ Cart Kings [Eng] (2013) [PSP]
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965880.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Twisted Metal [PS3] [Ru/En] [Repack] 2012 | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965874.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mary Shelley's Frankenstein (1994) [SEGA CD] [NTSC] [Unofficial] [Ru]
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965313.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Call of Duty: Black Ops (2010) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965249.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FAR CRY 4 (2014) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965246.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Michael Jackson: The Experience (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964882.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Crysis 3: Hunter Edition [PS3] [RUSSOUND] [4.21/4.30] (2013)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963676.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Darksiders Genesis (2020) [Switch] [USA] 9.1.0 [NSP] [License / 1.0.1] [Ru/Multi
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962873.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Call of Duty Modern Warfare 2 [PS3] [EUR] [RUSSOUND] [3.55] [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961976.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961917.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ N3: Ninety-Nine Nights: Dilogy (2006 / 2010) [Xbox360] [RegionFree] 2255 / 8955 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961916.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Xbox360] [RegionFree] 8955 [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961902.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Command & Conquer 3: Tiberium Wars (2007) [Xbox360] [RegionFree] 4552 [FreeBoot]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961869.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kameo: Elements of Power (2005) [Xbox360] [RegionFree] 2255 [FreeBoot] [Unoffici
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960802.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Perfect Dark Zero (2005) [Xbox360] [PAL] 1861 [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960752.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Valkyria Chronicles [PS3] [EUR] [Ru] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960712.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Onechanbara Z: Kagura (2012) [Xbox360] [RegionFree] 13599 [FreeBoot] [License] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960690.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Rolling Stone: Drum King [Wii] [English] [NTSC-U] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_959622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_959622.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Resident Evil 1.5 (WIP Fan Fix Patch) [PS1] [Eng] (1997)
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958441.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Hitman: Absolution [PS3] [Ru/En] [Repack] 2012 | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958427.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Lost Odyssey (2007) [Xbox360] [RegionFree] 6683 [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958137.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ F1 2010 (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Multi
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957845.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Infinite Undiscovery (2008) [Xbox360] [PAL] 6690 [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957094.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kingdom Under Fire: Circle of Doom (2007) [Xbox360] [RegionFree] 5766 [FreeBoot]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957093.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ LEGO Marvel's Avengers / LEGO Marvel's Мстители (2016) [PS3] [EUR] 4.75 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955586.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Lost in Shadow [Wii] [NTSC] [ENG] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954913.jpg" />
 </div>
 
 

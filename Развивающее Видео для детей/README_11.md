@@ -1,3 +1,111 @@
+###  Публикация: 727532   (322623) от 27.11.2013
+
+АБВГДейка. Ноль (2005) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322623.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… Под таким девизом эта развлекательно-обучающая программа для дошкольников с небольшими перерывами выходит в эфир вот уже тридцать лет.
+Все уроки в "АБВГДейке" проходят в форме веселого игрового спектакля. Постоянные персонажи передачи клоуны Клепа, Саня, Макаронка (   Читать дальше...   )Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, К.Кузнецова, А. Вдовин, А.Коврижных, В.МакароваПродолжительность: 00:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A661D56A8ACC8C16DAA9F8D01D4EB43CCD36651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727545   (322518) от 27.11.2013
+
+АБВГДейка. Рождество (2006) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322518.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… Под таким девизом эта развлекательно-обучающая программа для дошкольников с небольшими перерывами выходит в эфир вот уже тридцать лет.
+Все уроки в "АБВГДейке" проходят в форме веселого игрового спектакля. Постоянные персонажи передачи клоуны Клепа, Саня, Макаронка (   Читать дальше...   )Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, К.Кузнецова, А. Вдовин, А.Коврижных, В.МакароваПродолжительность: 00:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057BB81266F01FC03B29730D590B1B32AA84C13E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727476   (322514) от 27.11.2013
+
+АБВГДейка. Городской быт (2005) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322514.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… Под таким девизом эта развлекательно-обучающая программа для дошкольников с небольшими перерывами выходит в эфир вот уже тридцать лет.
+Все уроки в "АБВГДейке" проходят в форме веселого игрового спектакля. Постоянные персонажи передачи клоуны Клепа, Саня, Макаронка (   Читать дальше...   )Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, К.Кузнецова, А. Вдовин, А.Коврижных, В.МакароваПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F60D8EBDC8E666EFDCD2645EB30CC9787DE5DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727472   (322505) от 27.11.2013
+
+АБВГДейка. Имена (2005) DVDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322505.jpg" />
+</div>
+
+
+###  Подробнее
+
+"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… Под таким девизом эта развлекательно-обучающая программа для дошкольников с небольшими перерывами выходит в эфир вот уже тридцать лет.
+Все уроки в "АБВГДейке" проходят в форме веселого игрового спектакля. Постоянные персонажи передачи клоуны Клепа, Саня, Макаронка (   Читать дальше...   )Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, К.Кузнецова, А. Вдовин, А.Коврижных, В.МакароваПродолжительность: 00:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F044C8A04B6C1E7E08E8FBE8C0E06F1CFB9195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 727517   (322492) от 27.11.2013
 
 АБВГДейка. Урок геометрии (2006) DVDRip [H.264]
@@ -6,7 +114,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322492.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322480.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322461.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322452.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322394.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322391.jpg" />
 </div>
 
 
@@ -169,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322384.jpg" />
 </div>
 
 
@@ -196,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322378.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322376.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322372.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322369.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322365.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322244.jpg" />
 </div>
 
 
@@ -358,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322235.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322229.jpg" />
 </div>
 
 
@@ -412,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320131.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319975.jpg" />
 </div>
 
 
@@ -467,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_319888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_319888.jpg" />
 </div>
 
 
@@ -493,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319883.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319882.jpg" />
 </div>
 
 
@@ -545,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319880.jpg" />
 </div>
 
 
@@ -573,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319876.jpg" />
 </div>
 
 
@@ -584,114 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F91F1D98A675A46B69C081F1C0C862DE9E52C8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728104   (319770) от 28.11.2013
-
-Учебная фильмотека. Начальные классы. Флора и фауна Земли. Подводное царство (1990) VHSRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319770.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью аквалангистов фильм помогает заглянуть в удивительный подводный мир, знакомит с его обитателями (медузы, акулы, тюлени и настоящее чудо подводного царства - дельфины)Производство: ШколфильмЖанр: Обучающий, КороткометражныйПродолжительность: 00:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C317F7882C02CEF8030565E7D90B1E0F8F16837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727782   (319766) от 28.11.2013
-
-АБВГДейка. Пословицы и поговорки (2013) TVRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319766.jpg" />
-</div>
-
-
-###  Подробнее
-
-"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… «АБВГДейка» - советская и российская детская образовательная телевизионная программа для дошкольников и младших школьников. Формат передачи - уроки в форме игрового спектакля, в качестве учеников выступают клоуны.
-
-Занятие посвящено пословицам и поговоркам.Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, C.Малюкова, А. Вдовин, К.Асмаловская, Д.ТихоновПродолжительность: 00:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204BD50C0A0747AF7F579A820B2F2DACA104646B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727770   (319756) от 28.11.2013
-
-АБВГДейка. Можно ли брать чужое (2013) TVRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319756.jpg" />
-</div>
-
-
-###  Подробнее
-
-"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… «АБВГДейка» - советская и российская детская образовательная телевизионная программа для дошкольников и младших школьников. Формат передачи - уроки в форме игрового спектакля, в качестве учеников выступают клоуны.
-
-Занятие посвящено отношению к чужим вещам.Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, C.Малюкова, А. Вдовин, К.Асмаловская, Д.ТихоновПродолжительность: 00:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E59E9969B63318CF35CBD680B866F287B75245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727780   (319664) от 28.11.2013
-
-АБВГДейка. Чистота залог здоровья (2013) TVRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319664.jpg" />
-</div>
-
-
-###  Подробнее
-
-"АБВГДейка, АБВГДейка - это учеба и игра, АБВГДейка, АБВГДейка азбуку детям знать пора"… «АБВГДейка» - советская и российская детская образовательная телевизионная программа для дошкольников и младших школьников. Формат передачи - уроки в форме игрового спектакля, в качестве учеников выступают клоуны.Жанр: Детская обучающая передачаРежиссер: В.Д. БелобородовАктеры: Т.К. Черняева, С.Балобанов, C.Малюкова, А. Вдовин, К.Асмаловская, Д.ТихоновПродолжительность: 00:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD21835C6D8A21F443D70D93F2A945D1B0BAEC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

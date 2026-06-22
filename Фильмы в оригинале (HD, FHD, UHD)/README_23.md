@@ -1,3 +1,133 @@
+###  Публикация: 1022864   (726952) от 03.06.2016
+
+Андрон – Чёрный лабиринт / Andron - The Black Labyrinth / Andron (2015) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько молодых людей приходят в себя в странном техногенном лабиринте, который контролируется из внешнего мира. Перед ними задание – преодолеть все препятствия, разгадать все секреты. Награда – жизнь. Эта смертельная игра явно служит развлечением для тех, кто за ними наблюдает, но вопросов по-прежнему много. Главный из них – насколько честны устроители «шоу»? (   Читать дальше...   )Производство: Италия, Ambi PicturesЖанр: Фантастика, БоевикРежиссер: Франческо СинкуеманиАктеры: Алек Болдуин, Гейл Гарольд, Мишель Райан, Дэнни Гловер, Лео Говард, Антония Кэмпбелл-Хьюз, Джон Кортахарена, Мауро Конте, Алекс Мартин, Гая Скоделларо...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC1337A270A213E521A13D9B5A399C270692292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022869   (726939) от 03.06.2016
+
+Познать неизведанное / Approaching the Unknown (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726939.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Познать неизведанное» - это история американского космонавта Уильяма Стэнфорса, который готовится к тому, чтобы стать первым человеком, который высадится на Марсе. Эта научно-фантастическая драма не оставит равнодушными всех, кому близка идея освоения космического пространства.Производство: США, 3311 Productions, Loveless, Rooftop Films, TideRock MediaЖанр: Фантастика, Триллер, ДрамаРежиссер: Марк Элайджа РозенбергАктеры: Андерс Даниелсен Лье, Марк Стронг, Луиза Янофски, Лоренцо Беронилла, Чарльз Бэйкер, Томас Ухлиарик, Лорен Рейто, Лора Ли Экобелли, Санаа Лэтэн, Гарри Л. Седдон...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F42C38C163BBF5D666B59014127C1C50452707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022224   (726500) от 04.06.2016
+
+Молодой Мессия / The Young Messiah  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю Иисуса Христа в возрасте семи лет, как он и его семья отправляются в Египет, чтобы вернуться домой в Назарет.Производство: США, 1492 Pictures, CJ Entertainment, Hyde Park International, Ocean Blue EntertainmentЖанр: драмаРежиссер: Сайрус НаурастеАктеры: Шон Бин, Дэвид Брэдли, Ли Бордман, Джонатан Бэйли, Дэвид Бурк, Винсент Уолш, Кристиан МакКэй, Адам Гривз-Нил, Изабель Адриани, Рори Кинэн, Сара Лаззаро, Пол АйрлэндПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33ECA8F8B078E95B60E808642BC3DD08C536D5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023091   (725728) от 04.06.2016
+
+Кловерфилд, 10 / 10 Cloverfield Lane  (2016) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проснувшись после автомобильной аварии, девушка оказывается в подвале человека, утверждающего, что он спас ей жизнь от химической атаки, которая сделала мир за пределами бункера непригодным для жизни.Производство: США, Paramount Pictures, Bad Robot, Spectrum EffectsЖанр: ужасы, фантастика, триллер, драма, детективРежиссер: Дэн ТрактенбергАктеры: Джон Гудман, Мэри Элизабет Уинстэд, Джон Галлахер мл., Дуглас М. Гриффин, Сюзанн Крайер, Брэдли Купер, Сумали Монтано, Фрэнк Моттек, Синди Хоган, Мат ВаироПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855DD561AD839DFC978098FFF418ED5E2D96A106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217787   (724888) от 08.04.2018
+
+Кавалерия / 12 Strong (2018) WEBRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правдивая драма об отряде американских солдат специального назначения, которых после трагедии 11 сентября 2001 года перебрасывают на антитеррористическую миссию в Афганистан. Элитные бойцы, вынужденные наступать верхом на лошадях, сталкиваются с целой армией талибов.Производство: США / Alcon Entertainment, LionsgateЖанр: Боевик, Драма, ВоенныйРежиссер: Николай ФьюлсиАктеры: Крис Хемсворт, Майкл Шеннон, Уильям Фихтнер, Эльза Патаки, Тейлор Шеридан, Джофф Стульц, Майкл Пенья, Роб Риггл, Треванте Роудс, Джек КесиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, вшитые (форсированные) в некоторых епизодах фильма на не английскую речь.Продолжительность: 02:09:50Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063BE8956D1759D6184320482F4438CC086EF115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218193   (724761) от 08.04.2018
 
 На грани безумия / Spinning Man (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724761.jpg" />
 </div>
 
 
@@ -34,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723933.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723119.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722311.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721830.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721165.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721159.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720918.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720913.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719110.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718433.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718423.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718336.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718042.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717629.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717297.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717033.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716046.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715940.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715059.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713272.jpg" />
 </div>
 
 
@@ -542,137 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8FC9688C7E7B133E285AE63DAF8454678D49ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219498   (712925) от 14.04.2018
-
-Пассажир / The Commuter  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще вчера его день начинался с поездки на работу в одном и том же поезде, в компании уже давно знакомых лиц, но сегодня таинственная незнакомка предлагает ему поучаствовать в эксперименте. Одна остановка, чтобы принять решение, и единственный шанс из тысячи победить. Осторожно, игра начинается...Производство: Великобритания, Франция, США / Ombra Films, The Picture Company, StudioCanalЖанр: боевик, триллер, драма, криминал, детективРежиссер: Жаума Кольет-СерраАктеры: Лиам Нисон, Вера Фармига, Патрик Уилсон, Джонатан Бэнкс, Сэм Нил, Элизабет МакГоверн, Киллиан Скотт, Шазад Латиф, Энди Найман, Клара Лаго, Роланд Мюллер, Флоренс ПьюПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B722C37FEA43957410B2CE24ACDD3BF09029F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286324   (712495) от 02.03.2019
-
-Аннигиляция / Annihilation (2018) BDRip [H.265/1080p-LQ] [EN / RU, EN and other Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712495.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Землю прилетает маленький метеорит и становится причиной больших перемен. Он врезается в одиноко стоящий маяк, что загадочным образом меняет территорию вокруг.
-Профессор биологии Лина уже год страдает от потери мужа-военного. Кейн отправился на очередное секретное задание, но так и не вернулся — жив ли, погиб — женщина не знает, пока однажды дезориентированный (   Читать дальше...   )Производство: Великобритания, США / DNA Films, Paramount Pictures, Scott RudinЖанр: Ужасы, Фантастика, ДрамаРежиссер: Алекс ГарлендАктеры: Натали Портман, Бенедикт Вонг, Соноя Мидзуно, Дэвид Гяси, Оскар Айзек, Джон Шваб, Дженнифер Джейсон Ли, Джина Родригез, Тува Новотны, Тесса ТомпсонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские, немецкие, французские, испанские, итальянские, португальские, бразильские, шведские, финские, датские, норвежские, голландские, румынские, польские, греческие, турецкие, арабские, ивритПродолжительность: 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B91F82BF6F1B8075E9D5645239A8951590B8EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130870   (712185) от 03.05.2017
-
-Их звёздные полтора часа / Their Finest (2016) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в Лондоне 1940 года, когда город бомбардировали немецкие войска. Зрителям обещают показать «эксцентричную битву полов», историю «остроумную, душевную и трогательную, которая расскажет о молодой женщине-сценаристке, ищущей свой путь в вопросах жизни, смерти и любви».Производство: Великобритания, BBC Films, Welsh Government, Pinewood PicturesЖанр: Комедия, Драма, МелодрамаРежиссер: Лоне ШерфигАктеры: Джемма Артертон, Сэм Клафлин, Билл Найи, Джек Хьюстон, Пол Риттер, Рэйчел Стирлинг, Ричард Э. Грант, Генри Гудман, Джейк Лэси, Джереми Айронс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6844832E6203BB6EBF0FD2129BC4722D3296DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130875   (712098) от 03.05.2017
-
-Одаренная / Gifted (2017) WEBRip [H.264/1080p-LQ] [EN / EN, CH Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Адлер живет в прибрежном городке во Флориде и воспитывает в одиночку свою необычайно одаренную племянницу Мэри. Но планы парня о спокойной школьной жизни для девочки рушатся, когда о математических способностях ребенка узнает грозная мать Фрэнка Эвелин. У бабушки свои представления о будущем внучки, и ради этого она готова даже разлучить Мэри с Фрэнком.Производство: США, Dayday Films, FilmNation Entertainment, Fox Searchlight PicturesЖанр: ДрамаРежиссер: Марк УэббАктеры: Крис Эванс, МакКенна Грейс, Линдси Дункан, Дженни Слейт, Октавия Спенсер, Майкл Кендалл Каплан, Джон М. Джексон, Гленн Пламмер, Джон Финн, Элизабет Марвел ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, китайские (неотключаемые)Продолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BD430A480A35D08266E9FD3521FD2CC941BC32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130890   (712014) от 03.05.2017
-
-Призрак в доспехах / Ghost in the Shell (2017) WEBRip [H.264/1080p-LQ] [EN / EN, KOR Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кибер-технологии подчинили себе все сферы жизни, а самые опасные преступники переместились в виртуальное пространство. Киборг-гибрид, стоящий во главе элитного подразделения полиции, идет по следу могущественного хакера.Производство: США, Arad Productions, DreamWorks, Grosvenor Park Productions, Paramount Pictures, Reliance Entertainment, Seaside Entertainment, Steven Paul ProductionЖанр: Боевик, Криминал, Драма, ФантастикаРежиссер: Руперт СандерсАктеры: Скарлетт Йоханссон, Йохан Филип Асбек, Такеши Китано, Жюльет Бинош, Майкл Питт, Чин Хань, Дануся Самал, Ласарус Ратуэре, Ютака Идзумихара, Таванда Маниймо ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые), корейские (неотключаемые)Продолжительность: 01:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD97D8B016AFCAD5DE5C3BAE6772B5EFD2653CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

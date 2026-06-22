@@ -1,3 +1,29 @@
+###  Публикация: 120644   (461624) от 09.09.2020
+
+Aa! Megami-sama! OVA / Ah! My Goddess! OVA / Моя богиня! OVA [1993, 5 эп.] DVDRip 10bit 576p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студент первого курса Кеити Морисато всего лишь набрал телефонный номер, собираясь заказать себе обед на дом, но не успел он повесить трубку, как из зеркала на стене появилась девушка, назвавшаяся богиней Верданди. Оказалось, что Кеити дозвонился в службу "Божественной Помощи", сотрудники которой - богини - предлагают нуждающимся в помощи людям исполнить (   Читать дальше...   )Производство: AICЖанр: комедия, романтика, фэнтези, драмаРежиссер: Года ХироакиЯзык озвучки: ЯпонскийСубтитры: RU SRTФормат: MKV DVDRipПродолжительность: 5 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDC850A6B83D5A5D895C0973511C800FB5839D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 125509   (461622) от 09.09.2020
 
 Mai-HiME / My-Hime / Май-Химэ TV [2004, TV, 26  эп. + 26 сп.] DVDRip 480p raw
@@ -6,7 +32,7 @@ Mai-HiME / My-Hime / Май-Химэ TV [2004, TV, 26  эп. + 26 сп.] DVDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461622.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Garou Densetsu / Fatal Fury / Фатальная ярость [1992/1993/1994, M
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460532.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Princess Tutu | Принцесса Тютю [2002, TV, 38 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459963.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Monster Musume no Iru Nichijou / Everyday Life with Monster Girls / Повсед
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459354.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Prison School / Школа-тюрьма [2015, TV, 12 из 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459351.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Watashi ga Motenai no wa Dou Kangaete mo Omaera ga Warui! / WataMote / Не мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457574.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Non Non Biyori Repeat / Прекрасные деньки [2015, TV, 12] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457280.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Neppu Kairiku Bushi Road | Neppuu Kairiku Bushi Road | Burning Wind Ocean Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455446.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Plunderer | Грабитель [2020, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455421.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Log Horizon | Лог Горизонтa [TV-1][2013, TV, 25 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455214.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Seisenshi Dunbine: New Story of Aura Battler Dunbine | Aura Battle Dunbine: The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453602.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Kami nomi zo Shiru Sekai: Megami Hen / The World God Only Knows: Goddesses Arc /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453213.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Okusama ga Seito Kaichou! / My Wife Is the Student Council President! / Моя �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453099.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Ore Monogatari!! / My Love Story!! / Моя история! [2015, TV, 24] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452993.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Harlock Saga: The Ring of the Nibelung - The Rhein Gold / Сага о Харло
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452852.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Isekai Quartet 2 | Четвёрка попаданцев 2 [2020, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451465.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Kin`iro Mosaic / Golden Mosaic / Золотая Мозаика [2013, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450545.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449561.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Завет Дь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448627.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Fate/Stay Night Unlimited Blade Works / Судьба: Ночь Схватки (�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447430.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Toaru Hikuushi e no Koiuta | The Pilot's Love Song | Песня любви од�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447106.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Shashinkan | Фотоателье [2013, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447025.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Dantalian no Shoka: Ibarahime / Библиотека Данталиан OVA [201
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445977.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Robot Girls Z | Девочки-роботы Зет [2014, TV, 3 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444750.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Maoyuu Maou Yuusha / Archenemy and Hero / Герой при заклятом в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_444414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444414.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Maoyuu Maou Yuusha / Archenemy and Hero / Герой при заклятом в�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915032   (444226) от 05.10.2015
-
-Gangsta. | Гангстеры [2015, TV, 12] HDTV 720p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в городе под названием Эргастулум, в котором заправляют четыре ОПГ: Полкли, Корсика, Монро и Кристиано. Местное население по большей части состоит из мафиози, проституток, продажных копов и прочих симпатичных персонажей, среди которых особо выделяются Сумерки – люди, наделённые скоростью и силой, превосходящими человеческие возможности. И (   Читать дальше...   )Жанр: приключенияРежиссер: Мурасэ Сюко / Murase Shuukou / 村瀬修功Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACC4C0341EB4DC362525EC07DDF3C4E619A5A68
 ```
 
 https://mybot314.ru/tekegram_catalog/

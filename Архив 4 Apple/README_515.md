@@ -1,3 +1,57 @@
+###  Публикация: 1628244   (239048) от 22.04.2023
+
+DaisyDisk 4.25 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239048.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaisyDisk - утилита которая весьма необычным образом подскажет какие громоздкие файлы и папки присутствуют на вашем Mac, если сказать точнее, то это визуализатор дискового пространства, какой помогает быстро выявить проблемные зоны на накопителе и в два щелчка мыши, удалить все лишнее.
+Нерегулярно, но иногда бывает так, что вчера у вас на диске свободно было еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.04.2023Разработчик: © 2008-2022 Software Ambience Corp.Поддерживаемая ОС: macOS X 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14BCCE5345023C76FB1B78E57E6ABEE7D5A6273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638774   (239045) от 09.06.2023
+
+Duplicate File Finder Pro 7.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_239045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
+Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E79BDC4E2C1196DBA11502FFDAD8196BC8C275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628569   (239004) от 23.04.2023
 
 Things 3.17.7 [Multi/Ru]
@@ -6,7 +60,7 @@ Things 3.17.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239004.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ xStand 6.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238981.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ BusyContacts 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238974.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ App Cleaner & Uninstaller Pro 7.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238961.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ BusyCal 3 v3.12.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238960.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ AnyGo 6.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238955.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ AirFoil+Airfoil Satellite 5.10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238945.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ ExpanDrive 7 v7.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238929.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ Cascadea 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238921.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ Myary 2.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238912.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Amadine 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238900.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ Crescendo Masters 6.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238898.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ QuickLens 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238891.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ DJ Mix Pads 2 - Remix Version 5.5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238868.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ Logic Pro X 10.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238852.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ Squeezer 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238849.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ djay - DJ App & AI Mixer 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238841.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ Aiseesoft Mac FoneLab for Android 5.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238825.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ Desktop Stickers 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238818.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ CloudMounter 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238814.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ Millumin 4.16.e [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238812.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ TinkerTool System 6 v6.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238810.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ Live Wallpaper & Themes 4K Pro 16.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238809.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ FSNotes 4 v4.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238808.jpg" />
 </div>
 
 
@@ -625,59 +679,6 @@ FSNotes - это менеджер текстовых заметок для macOS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D04C19D85D408A37F4C2C328BE2E7E8B2AAA9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480394   (238798) от 28.06.2021
-
-A Better Finder Attributes 7 v7.13 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238798.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла. С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его вовсе. Помимо этого A Better Finder Attributes может синхронизировать дату модификации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.06.2021Разработчик: PublicspaceПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E28959458E611C433B6E632E2BAE1054AED60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638800   (238797) от 10.06.2023
-
-Nova 11.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
-Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2023Разработчик: © 2020–2021 Panic, IncПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7BA19D47C623A348B369EE2969838C027B7C30
 ```
 
 https://mybot314.ru/tekegram_catalog/

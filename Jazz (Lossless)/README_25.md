@@ -6,7 +6,7 @@ Spyro Gyra - Fast Forward (1993) GRP Records [FLAC|image+.cue]<Smooth, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978897.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Billy Taylor - Cross-Section (1953-1954) Remaster, 2014, Universal[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978220.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lionel Hampton & His Giants of Jazz - Hamp in Haarlem (1979) 2000, Timeless Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978219.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Peggy Lee - Let's Love (1974) 2003, Warner Strategic[FLAC|tracks+.cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978212.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Terence Blanchard - Romantic Defiance (1995) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978007.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Stan Getz - The Essential Recordings 1950 - 1954 (2017) 2CD, Primo [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978005.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bill Evans - Smile With Your Heart 1950-e - 1960-e (2019) Resonance Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977852.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - The Golden Age Of Swing "Big Band Legends" (1995-1997) 3CD[FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977598.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ The Art Van Damme Quintet - The Van Damme Sound & Martini Time (1953) 1998, Coll
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976973.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Gary Burton, Jan Garbarek, Pat Metheny - Hommage A Eberhard Weber (2015) ECM[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976933.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ The Stan Getz Quartet - Getz At The Gate: Live at The Village Gate, Nov. 26, 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976870.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Enrico Rava & Joe Lovano - Roma (2019) ECM Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976869.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Capitol's Great Ladies Of Song (1992) 2CD [FLAC|Lossless]<Jazz Vocal, Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976403.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Natalie Cole - Ask A Woman Who Knows (2002) SACD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975735.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Maya - Jazz a GoGo (2015) [FLAC|Lossless|WEB-DL] <Jazz, Vocal Jazz, Covers>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975730.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Akira Miyazawa, Masahiko Sato (Satoh), Masahiko Togashi, Yasuo Arakawa - Four Un
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975619.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Hank Crawford - Memphis, Ray And A Touch of Moody 1960 - 1965 (1997) 2CD, 32 Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975618.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Gregory Fine (Григорий Файн) Trio - The Road To Mississauga (1997) �
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975546.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Jazz Ballads With A Blue Feeling (2003) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975148.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ The J.J. Johnson Sextet - J.J. Inc. (1960) Remaster, 2014, Sony Music[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974597.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Jimmy McGriff & Richard "Groove" Holmes - Giants of the Organ Come Together (197
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974590.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Al Di Meola - Consequence Of Chaos (2006) SACD [FLAC|Lossless|tracks + .cue] <Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974521.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Hiromi - Spiral (2005) SACD, 2006 Telarc [FLAC|Lossless|tracks + .cue] <Post Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974464.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Johnny Griffin & Dexter Gordon - Jazz Undulation (1968) Remaster, 2014,Studio So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974403.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Manny Albam - Four Classic Albums 1955 - 1957 (2015) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974392.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Roscoe Mitchell and the Sound Ensemble - Snurdy McGurdy and her Dancin' Shoes (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973436.jpg" />
 </div>
 
 

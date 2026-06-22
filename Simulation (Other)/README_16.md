@@ -1,55 +1,3 @@
-###  Публикация: 1568059   (205516) от 06.08.2022
-
-Last Call BBS (2022) [En] (1.0) License GOG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Last Call BBS переносит геймеров во времена эпохи веб 1.0, когда владельцы ПК пользовались электронными досками объявлений и телефонными сетями для обмена информацией. Инди-проект имитирует работу за ретро-компьютером. По сюжету один бармен запустил свой компьютер Z5 Powerlance, подключился к борде под названием "Последний звонок" и начал оттуда качать (   Читать дальше...   )Тип издания: LicenseРазработчик: ZachtronicsЖанр: Симулятор, Аркада, ГоловоломкаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA3B2D16FEB569A3747538EF1FEFF80A4543936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585620   (204771) от 26.10.2022
-
-Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.0.0) License FairLight
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autobahn Police Simulator 3 позволяет вам играть за офицера-новичка, который только что вернулся на свою должность после того, как серьезная автомобильная авария оставила его на некоторое время недееспособным. Усердно работайте и выполняйте миссии, чтобы стать способным полицейским и обеспечить безопасность автобана. Вы новичок в полиции, и это ваш первый день в (   Читать дальше...   )Тип издания: LicenseРазработчик: Z-SoftwareЖанр: Экшены, Казуальные игры, СимуляторыЯзык озвучки: Английский, немецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E549EDBA1D12CD84A5876B9C6B24F9611649F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608615   (203305) от 31.01.2023
 
 Bus Simulator 21 (2021) [Ru/Multi] (1.0) License CODEX
@@ -58,7 +6,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203305.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Niche - a genetics survival game (2016) [Ru/Multi] (1.2.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202455.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Animal Shelter (2022) [Ru/Multi] (1.2.11-33.192/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202059.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ My Dream Setup (2023) [Multi] (20230224) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201294.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Not For Broadcast (2022) [Ru/Multi] (2023.03.24a/dlc) Repack Chovka [Deluxe Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200781.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Pets Hotel (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199449.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Panzer War: Definitive Edition (Cry of War) (2018) [Ru/Multi] (1.0) Scene TiNYiS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198854.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Bum Simulator (2023) [Ru/Multi] (3.5.09.a) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197830.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ We. The Refugees: Ticket to Europe (2023) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197792.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Summer Trip Cruise (2023) [Ru/Multi] (05.29.23.1/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197401.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197289.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Park Beyond (2023) [Ru/Multi] (1.0) Scene Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196784.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Spellcaster University (2021) [Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196381.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Sky Haven Tycoon - Airport Simulator (2022) [Ru/Multi] (1.0.0.289) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195829.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (7.61/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195804.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195737.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195156.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ MAD WAY (2023) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194468.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Do Not Feed the Monkeys 2099 (2023) [Ru/Multi] (1.0.19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194321.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Ultimate Epic Battle Simulator 2 (2023) [En] (1.0fixed) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194260.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Neon Noodles - Cyberpunk Kitchen Automation (2023) [Ru/Multi] (0.9.71) License G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194234.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.2.274/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194207.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.13418/dlc) Scene Rune [Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193871.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.3.23.08:181/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193803.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.3.23.08:181/dlc) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F523100F048766B580E634C57CE405722B06D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827999   (193266) от 23.10.2025
+
+Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разжигайте кузницу и создавайте своё лучшее оружие в Jacksmith: Weapons and Warriors, приключении с перекованным оружием! В роли целеустремлённого кузнеца-ослика вы путешествуете по стране, но путь преграждают коварные монстры. Объедините местные воинские кланы и вооружите их изготовленными на заказ мечами, луками, щитами и другим оружием в полностью интерактивной (   Читать дальше...   )Тип издания: RepackРазработчик: Flipline StudiosЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58AA201D14E71618993E4E6E7AF518EC141F051D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657993   (191683) от 06.09.2023
+
+Parasocial (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parasocial - это не просто хоррор-игра, а симулятор жизни витуберши. Игрокам предстоит не только выживать в ужасающих условиях, но и заботиться о своем благополучии и популярности. Проводить трансляции, на которых они будут играть в разные игры, общаться с фанатами, отвечать на их вопросы и просьбы, а также получать донаты и подписки. Но среди зрителей могут быть (   Читать дальше...   )Тип издания: SceneРазработчик: Chilla's ArtЖанр: ИндиЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский, Вьетнамский и другиеЯзык интерфейса: Английский, Японский, Китайский, Вьетнамский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76EE0813BD3BA95D7C086606CB841834D588F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

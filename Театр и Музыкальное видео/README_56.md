@@ -1,3 +1,139 @@
+###  Публикация: 331402   (701063) от 03.05.2011
+
+A-HA прощальный концерт / A-Ha - Ending on a High Note - The Final Concert (2011) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПеревод: ОтсутствуетПродолжительность: 01:49:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894452   (700702) от 05.05.2015
+
+Григорий Лепс и его друзья (2015) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телеверсию Рождественскго концерта,
+который прошел на олимпийском горнолыжном курорте Роза Хутор
+в начале этого года. Концертную программу, основу которой составили
+признанные шлягеры любимого миллионами Григория Лепса,(   Читать дальше...   )Производство: Первый каналЖанр: КонцертПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31213A11FF63E3CF81A64FB1CC63368942698226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 426285   (700610) от 05.05.2015
+
+Nightwish - End Of An Era (2005) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_700610.jpg" />
+</div>
+
+
+###  Подробнее
+
+End of an Era — последний концертный альбом финской симфо-метал группы Nightwish, записанный с вокалисткой Тарьей Турунен. Запись концерта для выпуска на двойном CD и DVD производилась на финальном концерте мирового тура Once в Хартвалл Арена (Хельсинки) 21 октября 2005 года. После концерта Тарья Турунен получила открытое письмо от других участников коллектива, в (   Читать дальше...   )Жанр: Видео\Symphonic Power MetalРежиссер: Antti JokinenАктеры: Туомас Холопайнен (фин. Tuomas Holopainen) — композитор, автор текстов, клавишные, вокал (в первые годы группы)
+Тарья Турунен (Tarja Turunen) — вокал
+Юкка Невалайнен (Jukka «Julius» Nevalainen) — ударные
+Эрно «Эмппу» Вуоринен (Emppu Vuorinen) — гитара(   Читать дальше...   )Субтитры: Вшитые отключаемыеПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401275   (699693) от 15.08.2020
+
+Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: MyGoodEyeЖанр: Black Metal, GrindcoreРежиссер: David BrodskyАктеры: Anaal NathrakhПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1141B903DA7A6AD07330B137CCE10293C73F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 331787   (699526) от 04.05.2011
+
+Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADD91DFA5D21456D273FD65BC6390C32065FEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534010   (699419) от 27.02.2022
 
 Квартирник у Маргулиса. Татьяна Зыкина (26.02.2022) WEBRip [VP9/2160p]
@@ -6,7 +142,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699419.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699290.jpg" />
 </div>
 
 
@@ -62,7 +198,7 @@ ZZ Top - Stagecoach - California's Country Music Festival (2015) HDTV [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698849.jpg" />
 </div>
 
 
@@ -91,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697615.jpg" />
 </div>
 
 
@@ -120,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697160.jpg" />
 </div>
 
 
@@ -147,7 +283,7 @@ Beth Hart - Live From New York (Front And Center) (2018) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696631.jpg" />
 </div>
 
 
@@ -176,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696365.jpg" />
 </div>
 
 
@@ -205,7 +341,7 @@ Lemonade / Beyonce: Lemonade (2016) HDTV [H.264/1080i] [EN/RU Sub]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696093.jpg" />
 </div>
 
 
@@ -234,7 +370,7 @@ Lady Gaga - Judas (2011) HDTVRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695625.jpg" />
 </div>
 
 
@@ -260,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695520.jpg" />
 </div>
 
 
@@ -286,7 +422,7 @@ Axel Rudi Pell - Magic Moments/25th Anniversary Special Show (2014) BDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695444.jpg" />
 </div>
 
 
@@ -316,7 +452,7 @@ Uriah Heep - Easy Livin' (A History Of)'1986 DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695008.jpg" />
 </div>
 
 
@@ -345,7 +481,7 @@ Brian Setzer - Brian Setzer's Rockabilly Riot! Osaka Rocka! Live In Japan (2016)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694950.jpg" />
 </div>
 
 
@@ -374,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693780.jpg" />
 </div>
 
 
@@ -402,7 +538,7 @@ Status Quo - Aquostic! Live At The Roundhouse (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691750.jpg" />
 </div>
 
 
@@ -431,7 +567,7 @@ Dio - Holy Diver Live (2006) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691679.jpg" />
 </div>
 
 
@@ -460,7 +596,7 @@ David Garrett - Rock Symphonies (Open Air Live) (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690546.jpg" />
 </div>
 
 
@@ -489,7 +625,7 @@ Quiet Riot - One Night in Milan (2019) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690047.jpg" />
 </div>
 
 
@@ -518,7 +654,7 @@ AC/DC - Stiff Upper Lip Live (2001) DVDRip [H.264] [PR]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689932.jpg" />
 </div>
 
 
@@ -544,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689640.jpg" />
 </div>
 
 
@@ -573,7 +709,7 @@ Uriah Heep - Live At Koko (2014)  Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689485.jpg" />
 </div>
 
 
@@ -587,149 +723,6 @@ Uriah Heep выпускают концертный альбом Live At Koko, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C7DE59A7FDC1E78F98B39610D8759414D49ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506023   (689392) от 05.06.2012
-
-Ария - Классическая Ария (2002) TVRip [Версия 2012 года]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись знаменитого концерта группы Ария, который прошел в Зеленом театре 1 июня 2002 года. Данная версия концерта отличается от предыдущей версии большей продолжительностью (01:57:18, против 01:24:02). Концерт прошел в сопровождении международного симфонического оркестра "Глобалис", дирижер Константин Кримец. В некоторых песнях присутствуют в начале и конце (   Читать дальше...   )01. Увертюра
-02. Здесь куют металл
-03. Волонтёр
-04. Тореро(   Читать дальше...   )Жанр: Концерт, Heavy MetalПродолжительность: 01:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF3D5971EFE50C1439EB94D18AF05C566528A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506234   (689389) от 05.06.2012
-
-Вудсток, 3 дня мира и музыки / Woodstock, 3 Days of Piece & Music (1970) [1080p] Blu-ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о музыкальном фестивале в Вудстоке. Режиссер фильма Майкл Уэдли, в этой работе, не просто запечатлел ряд выступлений популярных исполнителей своего времени, но и создал уникальный портрет поколения шестидесятых годов в Америке. Организаторы фестиваля в Вудстоке анонсировали его как "Три Дня Мира и Музыки" и изначально надеялись собрать аудиторию в 150,000 человек. Фестиваль начался в пятницу, 15 августа 1969 года, но количество его участников быстро перевалило за 450,000, тем самым вызвав огромные пробки на порогах, нехватку пищи и медикаментов, а также вскрыло организационные проблемы. В субботу стали пускать всех, чтобы было где разместить людей, которые всё прибывали просто так, без билетов.
-Одни исполнители сменяли других, музыка играла практически без остановок, даже несмотря на дожди которые периодически принимались поливать гостей и участников фестиваля. Среди зрителей использование психореактивов было самым обычным делом, а санитарные условия были примитивны, да и качество (   Читать дальше...   )Жанр: Рок, документальныйРежиссер: Майкл УодлиАктеры: Richie Havens, Joan Baez, The Who, Sha Na Na, Joe Cocker, Country Joe and The Fish, Arlo Guthrie, Crosby, Stills and Nash, Ten Years After, Santana, Sly and the Family Stone, Jimi Hendrix, Canned Heat, John Sebastian, Jefferson Airplane, Janis JoplinПеревод: нетПродолжительность: 03:44:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028026   (688575) от 23.06.2016
-
-VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступления звезд Rock and Metal музыки на ежегодном рок фестивале Hellfest проходящем в этом уикенд june 17-19, 2016 в французском городе Клисон01. Twisted Sister - Destroyer
-02. Twisted Sister - You Can't Stop Rock 'n' Roll
-03. Rammstein - Ramm 4
-04. Rammstein - Reise, Reise(   Читать дальше...   )Производство: ARTEЖанр: Rock, MetalПродолжительность: 01:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9627B31D1B45A709CB7709DC86BCB9FBFF5307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334514   (687640) от 10.05.2011
-
-Песни Весны и Победы (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная видеозапись – компиляция двух концертов, посвященных Дню Победы, проходивших в Государственном Кремлевском дворце в 2008 и 2009 годах.  Часть песен, представленных здесь, имеется в этой раздаче.  Однако, есть песни, которые не вошли в соответствующие телеверсии. В любом случае, это еще один подарок всем ко Дню Победы. Эфир программы: 8 мая 2011 года (Первый (   Читать дальше...   )01.	Иосиф Кобзон - Поклонимся великим тем годам
-02.	Александр Маршал - На безымянной высоте
-03.	Татьяна Буланова - Синий платочек
-04.	Дмитрий Билан - Тёмная ночь(   Читать дальше...   )Производство: Первый каналЖанр: КонцертПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B89461F1990A8469C75C47BE507E0F8272C668F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897268   (687415) от 12.05.2015
-
-Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uriah Heep выпускают концертный альбом Live At Koko, London 2014. Диск поступил в продажу 20 февраля в Европе и 24 февраля в Северной Америке, причем в разных форматах, как на обычном CD, так и на DVD/Blu-ray.01. Against The Odds
-02. Overload
-03. Traveller In Time
-04. Sunrise(   Читать дальше...   )Жанр: Rock, Prog Rock, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7172A9357F3EED5726FB1554E741A510BFFF71FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

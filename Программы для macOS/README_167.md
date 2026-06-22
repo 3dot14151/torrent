@@ -1,3 +1,109 @@
+###  Публикация: 1520647   (140819) от 29.12.2021
+
+Audio Editor - Merge Split And Edit 1.5.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Editor - Merge, Split And Edit - программа для редактирования аудио на macOS. Этот софт позволит вам редактировать любой файл в формате WAV на вашем компьютере. Вы сможете с легкостью обрабатывать, обрезать, копировать и вставлять выбранные вами части дорожки. Простое в использование приложение позволяет без лишних усилий создавать и сохранять ваши проекты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © Music Paradise, LLCПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A51619A8C3E1F68203659D76366A943C59516C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520688   (140670) от 29.12.2021
+
+Benchmark AI - System Monitor for Mac 1.1.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенью 2020 года компания Apple совершила очередной технологический прорыв, выпустив свой первый чип, разработанный специально для Mac. Невероятно мощный чип M1 с рекордной производительностью стал поистине настоящим прорывом не только для Apple, но и для всей компьютерной индустрии.
+Мы разработали приложение Test the Future, чтобы Вы могли сравнить Ваш Mac с новейшими (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2021Разработчик: © 2021 EcoComputers, JSCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3808FE4A92AD336C6A5E1943EA0F864D3181BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088139   (140619) от 30.12.2016
+
+Tuner - experience YouTube music 3.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите неограниченную музыкальную библиотеку? Именно поэтому мы разработали Tuner, музыкальный плеер YouTube для вашего Mac.
+Tuner позволяет передавать музыку из YouTube, с дружественным пользовательским интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 08 декабря 2016Разработчик: Muhammad Al BassiounyПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B1BBEC9D719A3630CB31C54DDB2B0E3CC4493E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520716   (140572) от 29.12.2021
+
+Cisdem Video Player 5.6.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem Video Player - это видео и аудиоплеер, который поддерживает практически любые мультимедийные файлы (включая видео 5K и Full HD 1080P) без дополнительных кодеков или плагинов. Он обеспечивает лучшее воспроизведение видео в формате HD без буферизации или сбоев. Вы можете загружать файлы субтитров автоматически и легко добавлять файлы субтитров. Поддерживая более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2021Разработчик: © 2021 Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF24FBB9A2D8D0645FCEE2BC7254714BF485CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679123   (140547) от 24.11.2023
 
 Timemator 3.0.4 [En]
@@ -6,7 +112,7 @@ Timemator 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140547.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ SQLiteFlow 6.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140533.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140492.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Contacts Sync for Google Gmail on Mac 8.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140488.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ JixiPix Pastello Pro 6.0.98 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140391.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Picview - Image Photo Browser for Mac 1.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140234.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ VideoSolo BD-DVD Ripper 2.0.12 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140202.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Sparkle 5 Pro for Mac 5.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140044.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ FoneLab Data Retriever 1.5.16 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140024.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ Sensei 1.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139625.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ RAW Converter 2 v2.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139555.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ Find Any File (FAF) 2.3.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139474.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ Outside 3.1.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139430.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ Sublime Text 4.0 Build 4169 Stable Build for Mac [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139264.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ MacDroid Pro 1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139244.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ Lungo 2.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138458.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ Tempomate 4.7 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138440.jpg" />
 </div>
 
 
@@ -450,7 +556,7 @@ MenubarX for Mac 1.6.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138345.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ SILKYPIX Developer Studio Pro 11 for Mac v.11.1.12.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138233.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ DearMob iPhone Manager 6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138228.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ Music Paradise Player 1.3.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138036.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ Reeder 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136425.jpg" />
 </div>
 
 
@@ -570,111 +676,6 @@ Reeder — отличная RSS-читалка для Mac! Reeder — одна �
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679792   (135373) от 26.11.2023
-
-PrintLab Studio 3.0.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135373.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrintLab Studio - это легкое и простое в использовании приложение для создания векторных иллюстраций для Mac OS X. PrintLab Studio содержит инструменты, необходимые для создания базовых фигур. Быстро создавайте рисунки и легко меняйте стили.Тип издания: macOS SoftwareРелиз состоялся: 08.05.2018Разработчик: © 2021 Bluetail TeamПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B03E3DFE8545F74AFAF8607801CA5200FDFA8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679803   (135344) от 26.11.2023
-
-JixiPix Chromatic Edges 1.0.31 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135344.jpg" />
-</div>
-
-
-###  Подробнее
-
-JixiPix переносит винтаж в совершенно новый экстрим. Прошли те времена, когда у вас было несколько крошечных вариантов добавления бликов к вашим изображениям. Chromatic Edges возвращает тонкую магию обработки фотографий с помощью стеклянных, серебряных и бумажных гравюр - всего несколько нажатий и у вас уникальная фотография.
-Особое внимание тут уделено краям ваших (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2023 JixiPix Software, LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB309D6502AC825320F694F3A374D0D57E0E3F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679647   (135343) от 26.11.2023
-
-Aspect Ratio X 2.1.8 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aspect Ratio X - калькулятор для расчёта соотношения сторон, разрешения экрана, прост в использовании с дружественным интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C78E058DF91C3AB9162193928B62D667B57B112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679828   (135325) от 26.11.2023
-
-Resize Sense - Flexible batch image processing 2.3.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resize Sense приложение, которое поможет вам изменить размер, обрезать, выпрямить, повернуть, зеркально отобразить и переименовать много изображений. Редактирование IPTC и EXIF метаданных даже в нескольких изображений одновременно. Есть ли у вас строгие требования к размеру для веб-дизайна проекта / графики, или просто хотите,  сделать много фотографий меньшего размера (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2023 VeprITПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBCBD283DC070992A15BF0E934D9AB546B8BFB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

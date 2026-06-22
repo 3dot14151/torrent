@@ -1,3 +1,32 @@
+###  Публикация: 936068   (497552) от 10.09.2015
+
+Janice Hagan - Let's Misbehave! (2004) [MP3|320 кб/с]<Jazz, Cabaret>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All that Jazz (04:06)
+02. Whatever Lola Wants (03:37)
+03. Too Darn Hot (03:59)
+04. Let's Fall in Love (03:49)(   Читать дальше...   )Жанр: Jazz, CabaretПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A55A7AD876D43F89857983417C032F7C7F11ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936025   (497276) от 10.09.2015
 
 Scott Bradlee’s Postmodern Jukebox - Emoji Antique (2015) [MP3|320 кб/с]<Jazz, Swing, Vintage>
@@ -6,7 +35,7 @@ Scott Bradlee’s Postmodern Jukebox - Emoji Antique (2015) [MP3|320 кб/с]<Ja
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497276.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Scott Bradlee’s Postmodern Jukebox - Selfies on Kodachrome (2015) [MP3|320 к�
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497273.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Stefano Cocco Cantini - Niccolina Al Mare (2001) Materiali Sonori [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496757.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Oliver Jones - A Class Act (1991) Justin Time [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496676.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Hampton Hawes Quartet - All Night Session!, Vols. 1-3 (1956) 2CD, 2001, Victor [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496675.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Coleman Hawkins - Bean And The Boys (1950-e) HighNote [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496672.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Matt Mauser And The Pete Jacobs Big Band - Perfectly Frank (2013) Whitestone Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496671.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Charles Lloyd - Discovery! (1964) /2014, Sony Music/[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496497.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Art Tatum & Buddy DeFranco - The Art Tatum-Buddy DeFranco Quartet (1953-1954) /2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496496.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Art Blakey & The Jazz Messengers - Live In Zurich 1958 (2010) /Solar Records/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496492.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Luxuriant Sedans - Born Certified (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496488.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Otis Waygood Blues Band - Otis Waygood Blues Band (1970) /2000, Fresh Music/ [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496394.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ John Mayall - Find A Way To Care (2015) [MP3|320 кб/с]<Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496381.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ D.D.Lowka & Band - Mini Jazz (2013) GLM GMBH [FLAC|Lossless|image + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496207.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Zoot Sims - Quartets (1950 - 1951) 2008, Prestige [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496201.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Kings Of The Blues (1993) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496200.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ David Gogo - Vicksburg Call (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496157.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ VA - Vocal Refrain (1993)  BoxSet 5CD[FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496083.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ VA - Gold - Jazz Divas (2007) 2CD [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495961.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ Chris Bell & 100% Blues - The Best (2006) [APE|image+.cue]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495939.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Duke Pearson - Sweet Honey Bee (1966) 1993, Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495864.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ Kenny G & Rahul Sharma - Namaste (2012)[FLAC (tracks+cue)|Lossless]<Smooth Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495737.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Blues Saraceno & Nineoneone - Wicked Gonna Come (2018) EP [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495579.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Blues Pills - Holy Moly! (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495182.jpg" />
 </div>
 
 
@@ -726,7 +755,7 @@ NEONNOONE - Noir & Jazz & Dark & Slow... (2022) [FLAC|Lossless|Web-DL|tracks] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494905.jpg" />
 </div>
 
 
@@ -740,35 +769,6 @@ NEONNOONE - Noir & Jazz & Dark & Slow... (2022) [FLAC|Lossless|Web-DL|tracks] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:350F320C9D18335DA9B5384866B88AF6C0197B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318419   (494834) от 06.08.2019
-
-Don Byas - Midnight at Minton's (1941) 1999, HighNote [FLAC|Lossless|tracks + .cue] <Swing, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust [9:09]
-02. Exactly Like You [9:06]
-03. Uptown [2:48]
-04. Body and Soul [7:34](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EA01116273C2A8B893317FBF47988165FFCE3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

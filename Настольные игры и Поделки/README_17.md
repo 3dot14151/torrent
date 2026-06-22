@@ -1,3 +1,29 @@
+###  Публикация: 77000   (54510) от 03.06.2024
+
+Дошкольный клуб | Книга развивающих игр для детей (2005) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга развивающих игр - это увлекательное занятие в игровой форме. Ваш малыш с удовольствием будет выполнять задания, одновременно развивая познавательные способности. Он приобретет первые навыки рисования по клеточкам и по контуру, научится логически и творчески мыслить, разовьет воображение и фантазию. Для дошкольного возраста.Жанр: Настольные игрыИздательство: РОСМЭНФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878776   (51453) от 01.07.2024
 
 В. Запаренко | Большая книга-игра (2001) [DJVU]
@@ -6,7 +32,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51453.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51341.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50810.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ C. Куно | Большая книга поделок (2001) [PDF]
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50320.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50282.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49348.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40951.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39545.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29075.jpg" />
 </div>
 
 

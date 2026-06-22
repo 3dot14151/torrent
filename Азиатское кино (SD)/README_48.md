@@ -1,3 +1,81 @@
+###  Публикация: 1628484   (254872) от 23.04.2023
+
+Кодрат / Qodrat (2022) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254872.jpg" />
+</div>
+
+
+###  Подробнее
+
+В деревне, расположенной рядом с исламской школой-интернатом, начинают происходить страшные вещи: от внезапного неурожая до случаев одержимости.Производство: Индонезия, Малайзия / Astro Shaw, Caravan Studio, Dunia Mencekam Productions, Ideosource EntertainmentЖанр: ужасыРежиссер: Charles Gozali, Imron AyikayuАктеры: Vino G. Bastian, Марша Тимоти, Maudy Effrosina, Ранди Паналила, Чечеп Ариф Рахман, Keanu Azka, Jason Doulez Beunaya Bangun, Притт Тимоти, Whani Darmawan, Агла АрталидиаПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F74825354A74DCF93467655125FCC0A91FCF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628830   (254848) от 24.04.2023
+
+Двухкомнатная квартира / 2LDK (2003) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нозоми и Рана снимают в Токио квартиру на двоих. Они обе начинающие актрисы и прослушиваются на одну и ту же роль и выберут только одну из них. И существующая и до этого неприязнь перерастает в кровавую вражду...Производство: Япония, DUEL Film Partners, Micott Inc., Times InЖанр: драма, триллерРежиссер: Юкихико ЦуцумиАктеры: Эико Коикэ, Махо Нонами, Даисукэ КидзакиПеревод: любительский многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16113C4C9476127C0A6F9932982E5B33461FE68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632879   (254421) от 12.05.2023
+
+Блуждающая Земля 2 / Liu lang di qiu 2 / The Wandering Earth 2 (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнце угасает. Последний шанс человечества на спасение — поиск нового дома. Объединившись, люди находят возможность изменить орбиту Земли, отправившись в неизвестность. Но это путешествие на много сотен световых лет во тьму несет разрушение и хаос. Планета растерзана катаклизмами, в которых выживут далеко не все. И все же только в бесконечной пустоте можно обрести (   Читать дальше...   )Производство: Китай / Beijing Dengfeng International Culture Communications Company, CFC Pictures, China Film Co., Ltd., G!Film Studio, Rollin StudiosЖанр: фантастика, боевикРежиссер: Франт ГвоАктеры: Джеки У, Энди Лау, Ли Сюэцзянь, Ша И, Нин Ли, Ван Чжи, Чжу Яньманьцзы, Энди Френд, Тун Лия, Зина БлахусоваПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 02:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15A31ADD627AD774D49628015E8CE0C358DBAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495827   (252730) от 13.05.2012
 
 Линия фронта / Gojijeon / The Front Line (2011) HDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252730.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252323.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252020.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250757.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250360.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250083.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249403.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249352.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249051.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247647.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247471.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_246976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_246976.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245961.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245397.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244968.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244657.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243285.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242990.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242719.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242189.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241866.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241802.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241752.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70F03197D9771D03C9A45E9CCDDA1E98A03CCE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376553   (241747) от 18.04.2020
-
-Повелитель Восточно-китайского моря 2 / Shang Hai huang di zhi: Xiong ba tian xia / Lord of East China Sea II (1993) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241747.jpg" />
-</div>
-
-
-###  Подробнее
-
-События второй части происходят во времена японской оккупации. Дабы не быть схваченным, Лук Юй Сань (Рэй Луй) уезжает в Гонконг и оттуда руководит партизанской войной, Вон (Кент Чэн), которому японцы предложили должность губернатора Шанхая, изображает из себя слабоумного, а Юэнь Сю Квань (Цуй Кам-Кон) переходит на сторону японцев.Производство: Гонконг / Golden Harvest Company Ltd., Johnny Mak ProductionsЖанр: Драма, криминал, детективРежиссер: Мэн Кит ПунАктеры: Рэй Лю, Кент Чэн, Карина Лау, Сесилия Ип, Элвис Цуй, Чан Гин-Чун, Сю-Люн Чинг, Изабелла Чоу, Майкл Мю, Кен ТонПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Английские - отдельным файломПродолжительность: 01:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDC9A87E6BA227443906BAD3F8004C481991D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545318   (240702) от 19.04.2022
-
-Битва на озере / Битва при Чосинском водохранилище / Zhang jin hu / Chang jin hu / The Battle at Lake Changjin (2021) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет основан на реальных событиях — одноимённой битве, произошедшей в 1950 году в ходе Корейской войны между силами ООН и китайскими добровольцами. Ноябрь - декабрь 1950 года. На восточном побережье Корейского полуострова в районе водохранилища Чосин 9-й корпус китайских народных добровольцев вступает в жестокое противостояние с корпусом ООН (в составе 1-й дивизии (   Читать дальше...   )Производство: Китай, Гонконг / Alibaba Pictures, August 1st Film Studio, Beijing Dengfeng International Culture Communications Company,...Жанр: драма, боевик, военный, историческийРежиссер: Кайгэ Чэнь, Данте Лам, Харк ЦуйАктеры: Джеки У, Джексон И, Ихун Дуань, Явэнь Чжу, Ли Чэнь, Элвис Хань, Цзюнь Ху, Ханьюй Чжан, Сюань Хуан, Охо ОуПеревод: любительский двухголосый (Колобок)Субтитры: английскиеПродолжительность: 02:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABEFB39F2931E2D2466F12A913CCD03C2282681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627069   (240164) от 17.04.2023
-
-Злой гений / Chalard games goeng (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличница и медалистка Линн переводится в дорогую престижную школу, где учится золотая молодежь, и сразу заводит дружбу с Грейс, которая не сильна в математике. Однажды Линн помогает лучшей подруге на экзамене, и вот уже выстраивается очередь из богатеньких старшеклассников, желающих платить за экзаменационные ответы. Поскольку отец Линн — обычный школьный учитель, (   Читать дальше...   )Производство: Таиланд, GDH 559, Jorkwang FilmsЖанр: драма, комедия, триллерРежиссер: Наттавут ПунпирияАктеры: Чутимон Чынгчаренсукйинг, Ейсая Хосуван, Тирадон Супапунпинйо, Чанон Сантинаторнкул, Тханет Варакулнукрох, Саринрат Томас, Иго Микитас, Пасин Куансатапорн, Сахаяк Бунтханакит, Канджана ВинаипанидПеревод: профессиональный многоголосыйЯзык озвучки: русский, тайскийСубтитры: русские, английскиеПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F7AA319998FE81848AC85890A569C348C528A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

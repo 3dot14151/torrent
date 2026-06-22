@@ -6,7 +6,7 @@
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336490.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fantastic Cat - The Very Best of Fantastic Cat (2022) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336419.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fabulous Kings - It's Closing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336416.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Clint Pigg - Dead Man Walking (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336415.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Bob Lanza Blues Band - Time to Let Go (2016) [FLAC|Lossless|image + .cue] <M
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336223.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Smokin' Joe Kubek & Bnois King - 16 Albums (1991 - 2015) [FLAC|Lossless|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335349.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Steve Guyger - Radio Blues (2008) [APE|Lossless]<Blues , Harmonica>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334612.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BluesMotel - Built for Comfort (2010) [FLAC|Lossless]<Chicago Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334610.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ B.B. King (Би Би Кинг) - Anthology (5CD) (2007) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_334365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334365.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Ingrid Savbrant - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333503.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Mayra Aveliz - Get In (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333502.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ The Jujubes - Raging Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333500.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Jesse J-Dog Boartfield - Jri Revisited (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333499.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Mad Dog Blues - Gratitude (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333496.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Paul Oscher - Bet On The Blues (Limited Edition) (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_333426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333426.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ The Charlie Daniels Band - Land That I Love (2010) [APE|Lossless]<Blues, Country
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_333418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333418.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Blue Deal - Holy Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332975.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Sexy R&B (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332261.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Paul Jones: The Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330813.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Troy Turner - Whole Lotta Blues (2010) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_330779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330779.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Buddy Guy - The Blues Don't Lie (2022) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329821.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Thorbjorn Risager & The Black Tornado - Navigation Blues (2022) [FLAC|Lossless|i
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327226.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Walter Trout - Ride (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327222.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Akella Presents vol.41-45 (2014) 10CD [FLAC|Lossless]<Blues, Modern Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327158.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Snowy White - Driving On The 44 (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326359.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ John Campbell - 5 альбомов (1988 - 1999) [APE|FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325825.jpg" />
 </div>
 
 

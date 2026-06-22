@@ -6,7 +6,7 @@ Mirror for Samsung TV 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889325.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Icon Slate 4.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889229.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Mirror for LG TV 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889227.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ NCH WavePad Masters Edition 13.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889208.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Graphic Inspector 2 v2.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889182.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ PatterNodes 2 v2.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889040.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ FilePane 1.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888086.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ FireStream 1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888029.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ File List Export 2.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887885.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Project Office Pro 8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887875.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ A Better Finder Attributes 7 v7.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887872.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ FigrCollage 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887866.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ SpamSieve 2.9.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887865.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887862.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lifespan 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887861.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ MWeb Pro 4.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887858.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ TurboMosaic Pro 3.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887856.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Things 3 v3.14.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887854.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ TG Pro (Temperature Gauge Pro) 2.59 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887847.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ iNet Network Scanner 2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887843.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Live Home 3D Pro Edition 4.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887837.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Expressions 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887823.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ TechSmith Snagit 3.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887802.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Principle 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887795.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ DaisyDisk 4.21.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887740.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ LuLu 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887720.jpg" />
 </div>
 
 

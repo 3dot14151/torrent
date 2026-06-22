@@ -1,3 +1,109 @@
+###  Публикация: 1265862   (273038) от 29.11.2018
+
+SILKYPIX Developer Studio 8E v8.1.27.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273038.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio 8 имеет тот же механизм обработки изображений, что и более высокая версия Pro 8. Этот движок обработки изображений обеспечивает высокое разрешение с помощью «Natural sharp» и улучшает градацию при подсветке. Поэтому этот продукт достиг высокого качества изображения, такого как высокая цветоделение и превосходное шумоподавление. Кроме того, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2018Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52739422587942876916D8A85D32B057605F126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265729   (272973) от 29.11.2018
+
+AMS Ringtone Maker 2.0.0 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272973.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMS Ringtone Maker - самая быстрая, простая и мощная утилита для Mac для создания мелодий. Наслаждайтесь ими на устройствах iPhone, iPad, Apple TV и Android. Создайте свой собственный рингтон своей любимой музыки, не покупая.Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2018Разработчик: AMSПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD6B7C9E2E7560C8AB600CBCF10EAF83303A872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083807   (272486) от 17.12.2016
+
+Boardfish 1.0.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boardfish представляет собой приложение для раскадровки. Профессиональное решение для создания покадровой истории в производстве фильмов и не только.Тип издания: macOS SoftwareРелиз состоялся: 10 декабря 2016Разработчик: Mekajiki inc.Поддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A6670134DDAE5105E07237FBFA23B82A628A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189059   (272224) от 04.12.2017
+
+NightTone (Night light filter) 2.3.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272224.jpg" />
+</div>
+
+
+###  Подробнее
+
+NightTone делает ваш экран более удобным, приятным и здоровым, переключая цвета вашего дисплея на более теплую, приятную для глаз палитру. Это заставляет вас спать и чувствовать себя лучше. Он идеально подходит для здоровья каждого человека, особенно для людей с проблемами визуального восприятия, легкой чувствительности или дискомфорта.
+
+Синий свет монитора обманывает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2017Разработчик: Denk AlexandruПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B422CE3515194BF585FC76F360469788FA53F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189113   (272217) от 04.12.2017
 
 Weather Guru 2.1 [En]
@@ -6,7 +112,7 @@ Weather Guru 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272217.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Dropzone 3 v3.6.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272213.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Vectoraster 7 v7.4.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271648.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ SketchUp Pro 2019 v19.3.252 [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271178.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271024.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Tower 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271022.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_270118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_270118.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ DriveDx 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269184.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ AnyTrans for iOS 7.0.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269152.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ HD Video Converter Movavi 6.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269096.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ Mirror for Samsung TV 2.1.7 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268645.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ Principle 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268256.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ SoftRAID 5.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268135.jpg" />
 </div>
 
 
@@ -357,7 +463,7 @@ PhotoStyler 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267835.jpg" />
 </div>
 
 
@@ -383,7 +489,7 @@ Micro Snitch 1.3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267276.jpg" />
 </div>
 
 
@@ -411,7 +517,7 @@ Antivirus Cyber Byte Pro 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267127.jpg" />
 </div>
 
 
@@ -438,7 +544,7 @@ TunesKit Audio Converter 3.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267054.jpg" />
 </div>
 
 
@@ -464,7 +570,7 @@ Liquid | Flow Pro 15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266920.jpg" />
 </div>
 
 
@@ -492,7 +598,7 @@ TunesKit Apple Music Converter 2.0.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265687.jpg" />
 </div>
 
 
@@ -520,7 +626,7 @@ Cookie 6.0.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265369.jpg" />
 </div>
 
 
@@ -548,7 +654,7 @@ Declutter 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265367.jpg" />
 </div>
 
 
@@ -574,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265341.jpg" />
 </div>
 
 
@@ -587,113 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E07F41967C836E20A676E18F27C0379F961D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339720   (265311) от 20.11.2019
-
-Capo 3.8.1 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capo – это музыкальный плейер, но предназначенный не столько для прослушивания композиций, сколько для их анализа!
-С его помощью возможно замедлить композицию, чтобы различить отдельные ноты, так-же Capo может автоматически сгенерировать гитарные табуляторы, что сделает процесс максимально комфортным, ибо все, что вам остается – это взять табы и разучить любимую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2019Разработчик: SuperMegaUltraGroovy, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555AEEB01993ED369D2651377B8E5C6DBF977FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267691   (265072) от 08.12.2018
-
-LRTimelapse Pro 5.0.9 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265072.jpg" />
-</div>
-
-
-###  Подробнее
-
-LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
-
-Интервальная съемка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2018Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699CFC93264FF5EA9EA785EBF5FFFBBAA0677F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339745   (264702) от 21.11.2019
-
-MonthlyCal 1.5.5 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264702.jpg" />
-</div>
-
-
-###  Подробнее
-
-MonthlyCal очень современный и классный календарь. Он имеет гибкие настройки, такие как цвет, dark или light mode. Так же этот календарь имеет Виджет!Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Fausto RistagnoПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3844328CBBE7234BD525D475E7406B635523F00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340116   (264237) от 22.11.2019
-
-Movavi Photo Manager 2.0.0 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264237.jpg" />
-</div>
-
-
-###  Подробнее
-
-С годами на компьютере накопилось множество изображений, но у вас нет времени их разобрать? Загружайте в программу снимки в форматах RAW, JPEG, PNG и др. Органайзер фото от Movavi поможет мгновенно навести порядок в вашем фотоархиве. Каталогизатор фотографий от Movavi поможет быстро распределить все изображения по категориям. Скачайте на ПК нашу программу для сортировки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2019Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: maсOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD264DDFD5B3A942C5AA3C274A57313C805B997
 ```
 
 https://mybot314.ru/tekegram_catalog/

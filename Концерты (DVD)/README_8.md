@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501967.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pet Shop Boys - Pandemonium (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500890.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500874.jpg" />
 </div>
 
 
@@ -90,13 +90,47 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499180.jpg" />
 </div>
 
 
 ###  Подробнее
 
 На лейбле «Геометрия» был издан последний альбом группы «Полковник и однополчане» «Два солнца» + бонусный DVD. Музыкальный продюсер альбома Андрей «Худой» Васильев привлек к записи известных музыкантов: Сергея «Чижа» Чигракова, Вадима Курылёва, бэк-вокалисток ДДТ и многих других. Бонусный DVD «Два Солнца» включает более 5 часов видео — в основном, концертных съемок времен записи пластинки. Кроме того, туда входит записанное Полковником акустическое демо всех песен альбома, видеоряд к которому составляет фотосессия для «Двух Солнц» и её видеосъемка. Авторингом диска занимался Александр Чернецкий («Разные люди»).Жанр: RockПеревод: Оригинальный (Русский)Формат: DVD VideoПродолжительность: 05:34:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381683   (497223) от 30.08.2011
+
+Charlie Hunter-Solos-the Jazz Sessions (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_497223.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 1990-х, Чарли Хантер взашёл на джазовую сцену. Используя свою собственную разработку: восемь-струнную гитару, которой овладел в совершенстве. Он играл со многими известными группами. Но сегодня, как видно из названия, он на сцене один на один со своей гитарой. Его выступление является тщательно приятным, как он исследует новые способы выражения соло с гитарой. Он предлагает несколько собственных композиций, а также его исполнение классических хитов.1. Play Program [2:02]
+2. 11 Bars for Ghandi [5:41]
+3. 8 String Guitar Jam [2:16]
+4. My Heart Belongs to Daddy [6:17]
+5. Stars Fell on Alabama [7:39]
+6. Oakland [7:40]
+7. Untitled Ballad [7:30]
+8. Quality of Life Jam [2:54]
+9. Lulu's Crawl [8:28]Жанр: Jazz, Soul, Funk, 8-string GuitarФормат: DVD5Продолжительность: 0:50:23
 
 ## Скачать торент
 ```bash
@@ -116,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496942.jpg" />
 </div>
 
 
@@ -145,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_493683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_493683.jpg" />
 </div>
 
 
@@ -172,7 +206,7 @@ Tarja Turunen - Act 1 (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492997.jpg" />
 </div>
 
 
@@ -198,7 +232,7 @@ John Mayall & The Bluesbreakers And Friends - 70th Birthday Concert (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491984.jpg" />
 </div>
 
 
@@ -219,6 +253,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381703   (486631) от 04.09.2011
+
+Ronnie James Dio - Live in Concert Holland (1983) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_486631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная версия концерта в Голланди
+
+01) Intro
+02) Stand Up & Shout
+03) Straight Through The Heart
+04) Shame On The Night
+05) Children Of The Sea
+06) Holy Diver
+07) Drum Solo
+08) Heaven & Hell(   Читать дальше...   )Жанр: Hard-RockПеревод: ОтсутствуетПродолжительность: 1:01:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384409   (485105) от 05.09.2011
 
 Legends of Jazz with Ramsey Lewis, Vol. 2, 3 (2006) 2хDVD5
@@ -227,7 +296,7 @@ Legends of Jazz with Ramsey Lewis, Vol. 2, 3 (2006) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485105.jpg" />
 </div>
 
 
@@ -253,7 +322,7 @@ Rolling Stones - Let's Spend the Night Together (1983) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482911.jpg" />
 </div>
 
 
@@ -279,7 +348,7 @@ Frank Sinatra – A Man and His Music Part II (1966) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476138.jpg" />
 </div>
 
 
@@ -308,7 +377,7 @@ Dio - Singles Box Set (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473970.jpg" />
 </div>
 
 
@@ -337,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_472053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_472053.jpg" />
 </div>
 
 
@@ -363,7 +432,7 @@ Deadmau5 - Live @ Earl's Court (2011) [Progressive House / Minimal Trance / Tech
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471949.jpg" />
 </div>
 
 
@@ -392,7 +461,7 @@ Diana Krall in Jazzfestival Montreux 2010 (2010) HDTV   H.264
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464816.jpg" />
 </div>
 
 
@@ -418,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_459531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_459531.jpg" />
 </div>
 
 
@@ -447,7 +516,7 @@ Emerson Lake & Palmer - 40TH Anniversary Reunion Concert (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_459468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_459468.jpg" />
 </div>
 
 
@@ -476,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455669.jpg" />
 </div>
 
 
@@ -511,7 +580,7 @@ The Bacon Brothers - No Food Jokes Tour (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454126.jpg" />
 </div>
 
 
@@ -540,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449051.jpg" />
 </div>
 
 
@@ -569,7 +638,7 @@ Eric Clapton - Crossroads Guitar Festival (2004) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436911.jpg" />
 </div>
 
 
@@ -598,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_434545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434545.jpg" />
 </div>
 
 
@@ -625,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_427866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_427866.jpg" />
 </div>
 
 
@@ -653,7 +722,7 @@ The Strat Pack - Celebrating 50 Years Of The Fender Stratocaster Live In Concert
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421430.jpg" />
 </div>
 
 
@@ -667,66 +736,6 @@ The Strat Pack - Celebrating 50 Years Of The Fender Stratocaster Live In Concert
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78B57C55C728034258825DE21D81892BF6442C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556976   (409681) от 12.10.2012
-
-Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409681.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
-
-Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
-2. Barcelona - La Nit performance
-3. How Can I Go On - La Nit performance
-4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD86860149166F6F5DC748E8BFF8D39C2676780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169170   (403935) от 26.09.2017
-
-Legends of Rock 'N' Roll - Live '89 (2000) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_403935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный концерт, записанный в Риме в 1989 году, известный также под названием "The Giants of Rock", в котором одновременно участвуют настоящие легенды и "крёстные отцы" рок-н-ролла: Джеймс Браун, Рэй Чарльз, Литтл Ричард, Бо Дидли, Джерри Ли Льюис, Фэтс Домино и Би Би Кинг.01. James Brown - Papa`s Got a Brand New Bag
-02. James Brown - I feel Good (I Got You)
-03. Bo Diddley - Bo Diddley
-04. Bo Diddley - I’m a Man(   Читать дальше...   )Производство: США, Eagle VisionЖанр: Концерт, рок-н-ролл, рокПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C0129528269D94E282F1874E1E9E74974EA40E
 ```
 
 https://mybot314.ru/tekegram_catalog/

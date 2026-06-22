@@ -1,3 +1,29 @@
+###  Публикация: 1387709   (790662) от 03.06.2020
+
+AndFTP Pro 4.0.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790662.jpg" />
+</div>
+
+
+###  Подробнее
+
+AndFTP — полноценный FTP/SFTP/FTPS клиент для Android с богатыми функциональными возможностями, позволяющий управлять несколькими серверами. Создание папок, возможность выбора папки, переименовывание и удаление файлов, загрузка/выгрузка с поддержкой возобновления, настройка полномочий на FTP сервере, а так же поддержка нескольких FTP серверов и это лишь малая часть (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.10.2018Разработчик: LYSESOFTПоддерживаемая ОС: Android 1.5+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B838C18D4667BC166171CD2D0F99849FB45D197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387775   (790629) от 03.06.2020
 
 Математика - Math Wiki v3.2.3 [Ru] (обновляемая)
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790629.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Mazetools Soniface 2.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790078.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Flyme OS Update Checker (FUC) v0.4.2 Portable [En]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789759.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789562.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789403.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789272.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789262.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Garmin: City Navigator North America NT 2022.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789201.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Muscle & Motion - Strength Training 2.2.14 premium [Ru]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789174.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Garmin: TOPO Germany v9 PRO [De]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788784.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788556.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Garmin: Topo France v6 Pro [Fr]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788342.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прошивки для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787982.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787806.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Shadowsocks 5.2.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787793.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прошивки для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786949.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Home Design 3D v4.0.8 Pro [Ru/Multi] - Создание и персонализ�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785857.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784296.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ App Backup & Share Pro 10.3.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784196.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Volume Slider Like Android P Volume Control 3.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783886.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783156.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781832.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781637.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781586.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780485.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A624B553D6AFFAECEAA523C0F876A933073CD0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932934   (780476) от 18.02.2018
-
-Худеем вместе. Дневник калорий v3.9.4 AD-Free [Ru] - многофункциональный дневник калорий
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое популярное приложение для похудения и поддержания здорового образа жизни! Проблемы с лишним весом? Не знаете как похудеть и какую диету выбрать? А может вы ее уже выбрали, но вам нужно поддерживать ее и вести дневник калорий? Или же просто хотите подсчитать и увидеть свои нормы потребления калорий, белков, жиров, углеводов и воды?  С помощью разнообразных диет (   Читать дальше...   )Тип издания: Пиратка (AD-Free - удалена реклама)Релиз состоялся: 14.01.2018Разработчик: Rasul IsmailovПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A6D85CE4F934CFE23357F6DEDFF1E5698AAF2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

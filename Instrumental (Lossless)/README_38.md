@@ -6,7 +6,7 @@ Jennifer Holliday - The Song Is You (2013) [FLAC|Lossless|tracks + .cue] <Soul, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822996.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sean Chambers - Trouble & Whiskey (2017) [FLAC|Lossless|tracks] <Electric Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822907.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Spirit Level - Kolossi Blues (2014) [FLAC|Lossless|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821619.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Shane Dwight Blues Band - Boogie King (2001) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821173.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rockocola - Rockocola (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821168.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Willie Phoenix & The Soul Underground - Blues My Soul (2016) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819745.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Carolyn Wonderland - Tempting Fate (2021) [FLAC|Lossless|image + .cue] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817640.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Frank Magnolia - Night Rider (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817638.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Black Cherry Perry's Mississippi Medicine Show - Where There's Smoke (2021) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817634.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chris Duarte Group - Lucky 13 (2014) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817185.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Blue Plate Special featuring Marty MacMillan - Glass of Teardrops (2011) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817182.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Los Lonely Boys - Forgiven (2008) [FLAC|Lossless|tracks + .cue] <Chicago Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817051.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Livin' Blues Xperience - This Is The Time (2008) [FLAC|Lossless|image + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817038.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Green - Waltz-N-All (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock, Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815493.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Julian Sas - Feelin' Alive (2016) Live, 2017, Cavalier Recordings [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815492.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Quinn Sullivan - Midnight Highway (2017) [FLAC|Lossless|tracks + .cue] <Blues-Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815484.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Grandpa Elliott - Sugar Sweet (2009) [FLAC|Lossless|tracks + .cue] <Blues, Gospe
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815346.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Roomful of Blues - 45 Live (2013) Recorded Live At The Ocean Mist [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813499.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Coco Montoya - Hard Truth (2017) [FLAC|Lossless|image + .cue] <Modern Electric B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813314.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Joe Louis Walker - Hornet's Nest (2014) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813187.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Climax Blues - Broke Heart Blues (2015) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812988.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Charlie Patton's War - Charlie Patton's War (2013) [FLAC|Lossless|WEB-DL|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811808.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Chris Duarte Group - Vantage Point (2008) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811807.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ The Snake Charmers - Been Gone Too Long (2008) [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811806.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Bill Wyman's Rhythm Kings - Groovin' (2000) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810249.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Lonnie Johnson - Stompin' At The Penny (1994) [FLAC|Lossless|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810164.jpg" />
 </div>
 
 

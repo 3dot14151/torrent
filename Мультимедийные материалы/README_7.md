@@ -6,7 +6,7 @@ WebForMySelf | Фреймворк NuxtJS. Руководство по Full-Stack
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546651.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535212.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533864.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530040.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530029.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525814.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ SoftBeep | Современные пистолеты. Познавательна
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516158.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513685.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511917.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ WebforMyself | CodeIgniter4. Теория и практика создания �
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511390.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511259.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №9 (сентяб
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509839.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509392.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509192.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ DVD Приложение к журналу Хакер № 9 (164) Сентябр
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506280.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ ComputerBild | DVD приложение к журналу ComputerBild № 13 и
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505868.jpg" />
 </div>
 
 
@@ -437,6 +437,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233361   (504533) от 05.09.2010
+
+Одиссей | Практическая энциклопедия садовода [2006] [ISO]
+
+>>Мультимедийные материалы
+>>Другие мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_504533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта энциклопедия ознакомит с основными приемами и секретами практического садоводства - от планирования приусадебного участка и его благоустройства до посадки деревьев, кустарников, цветов, овощных и плодово-ягодных культур, а также всевозможных экзотических растений и ухода за ними.
+ Садоводство - одно из самых популярных увлечений, которому посвящают свободное время люди во всем мире. Ни с чем не сравнить удовольствие от создания ярких цветочных клумб или от выращенных своими руками овощей и фруктов.
+ Энциклопедия предназначена не только для новичков садоводства в качестве идеального практического путеводителя, но и для опытных садоводов как компетентный и обширный справочник, в котором можно найти ответы на многие вопросы.Жанр: СадоводствоФормат: ISO
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 235752   (496695) от 13.09.2010
 
 ООО "Хорошая погода" | Руководство холостяка [2007] [ISO]
@@ -445,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496695.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495221.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494310.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492696.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ TeachVideo | Google Picasa 3. Обучающий видеокурс [2010] [EXE]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489102.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №9 (сентяб
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485365.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ Javabegin | Адресная книга на JavaFX + БД SQLite (2019) [unpack
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484901.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP № 10 (октяб
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479261.jpg" />
 </div>
 
 
@@ -666,7 +694,7 @@ ARCHON | 444 проекта котеджей (2011) [ISO]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478795.jpg" />
 </div>
 
 
@@ -677,32 +705,6 @@ ARCHON | 444 проекта котеджей (2011) [ISO]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C70E60391BC1A34A33F68B456FF6BC5F1FC6F52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238869   (473530) от 05.09.2018
-
-CHIP | DVD приложение к журналу CHIP №8 август (2018) [unpacked]
-
->>Мультимедийные материалы
->>Приложения к журналам
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip (Чип) — первый компьютерный журнал в Европе. Издается в 16 странах Европы и Азии тиражом более 1 миллиона экземпляров, с общим охватом более 3,5 миллионов читателей. Уже 8 лет каждый месяц журнал Chip в России — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, коммуникации. Актуальные (   Читать дальше...   )Жанр: Журнал информационных технологийФормат: unpacked
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5295B93AA9A7FCF0D932E7A3B35222F6FD69EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

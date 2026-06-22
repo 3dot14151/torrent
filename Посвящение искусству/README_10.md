@@ -1,3 +1,83 @@
+###  Публикация: 821725   (924097) от 21.01.2017
+
+Владимир Высоцкий. Уйду я в это лето... (2010) DVDRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внезапная смерть Владимира Высоцкого, потрясшая всю страну и в одночасье обернувшаяся личным горем для сотен тысяч людей, нарушила размеренный ход событий в Олимпийской Москве. Фильм повествует о несколько днях прощания с Владимиром Высоцким 25-28 июля 1980 года...
+
+В фильм вошли эксклюзивные, обнаруженные в последнее время материалы, снятые операторами телевидения (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3B0D80AA949225E35858B6F0E81FA2E5EE7DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095847   (922747) от 22.01.2017
+
+Людмила Савельева. После бала (2010) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба актрисы Людмилы Савельевой уникальна. Закончив хореографическое училище им. Вагановой, она оказалась на вершине кинематографического олимпа. Звездой мирового масштаба ее сделала первая роль в кино - роль Наташи Ростовой в фильме режиссера Сергея Бондарчука "Война и мир", созданном по мотивам романа Льва Толстого. После фильма Людмиле Савельевой предлагали (   Читать дальше...   )Телекомпания: ВГТРК, эфир телеканал "История"Жанр: Документальный, биографияРежиссер: Татьяна АрхипцоваПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075CDF6AFE32EABDB1FEED71892656B0A011FA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067812   (922725) от 22.01.2017
+
+Пласидо Доминго. Мои лучшие роли / Placido Domingo: My Greatest Roles (2009)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пласидо Доминго рассказывает о своей жизни: детстве, первой встрече с музыкой, семье, любимых ролях, разнообразной деятельности – артиста, дирижера, покровителя и воспитателя молодых оперных артистов. В фильме также есть интервью ближайших друзей и коллег (Кири Теканава и других), рассказывающих о Пласидо Доминго – артисте и человеке. Звучат лучшие партии когда либо (   Читать дальше...   )Телекомпания: Великобритания / BBC Motion Gallery, C Major Entertaiment,Жанр: Документальный, История, Искусство, БиографияПеревод: Двуголосый закадровый, профессиональный | Акцент-ПроПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97E932C58DB45A5AA84A41FEF8A773F254AB105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288928   (919871) от 30.01.2011
 
 Александр Розенбаум. Мужчины не плачут (2010) SATRip
@@ -6,7 +86,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919871.jpg" />
 </div>
 
 
@@ -36,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919184.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919101.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918839.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916806.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916493.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912485.jpg" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912158.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911874.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909968.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908827.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906210.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905420.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904906.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904217.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903579.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902321.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902042.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899757.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898741.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898340.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896760.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896532.jpg" />
 </div>
 
 
@@ -598,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E78DD13F654FE960716B299D42792F801302BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994405   (891611) от 07.03.2016
-
-Арт новости (07.03.2016) HDTVRip  [720p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новости искусства, репортажи со всех международных выставок, которые нельзя пропуститьТелекомпания: Museum HDЖанр: ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A9802E865C5658881929B86C7619204FFBEAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994259   (891564) от 07.03.2016
-
-Я блесну непрошеной слезой (07.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрея Миронова большинство зрителей воспринимали стереотипно – баловень судьбы, любимец женщин, веселый парень – все у него, мол, получалось, легко и просто… Но какой ценой давалась ему эта легкость – никто даже не задумывался! Складывалось впечатление, что все, что делал Миронов - он делал ради кого-то. Ради мамы, ради семьи, ради зрителей! Он не жалел ни сил, (   Читать дальше...   )Телекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F442CC605D29BF944CD09FEF66720B585EFDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994352   (891476) от 07.03.2016
-
-Андрей Миронов. Держась за облака (07.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голубоглазый блондин с голливудской улыбкой, фееричный, успешный актер – Андрей Миронов. Он запомнился как мастер комедий, а мечтал о драматических ролях. Его называли героем-любовником, а он всю жизнь искал свою единственную. Боготворил и обожал мать, а она никогда его не хвалила и даже ради любимого праздника – 8 марта – изменила дату рождения сына. Ему завидовали, (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйРежиссер: Всеволод ТарасовПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A905672354A2EB83EA6E55D5520CAD33BB1C5278
 ```
 
 https://mybot314.ru/tekegram_catalog/

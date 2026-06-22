@@ -1,3 +1,358 @@
+###  Публикация: 709908   (420423) от 12.10.2013
+
+Microsoft Windows Server 2012 R2 RTM by W.Z.T [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2012 R2 - это проверенная масштабируемая платформа корпоративного класса для облачных сред и центров обработки данных, на которой можно разместить самые ресурсоемкие рабочие нагрузки и использовать широкие возможности восстановления для защиты от перебоев в обслуживании. Это позволяет ускорить процесс получения прибыли за счет упрощения основной инфраструктуры, (   Читать дальше...   )Язык интерфейса: Eng
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350FD967DFD26BEC5849B53919EB8D9B73A69CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251959   (412823) от 03.10.2018
+
+Microsoft Windows 10 10.0.17763.1 Version 1809 (Updated September 2018) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 (версия 1809) - крупное обновление функций, которое стало официально доступно 2 октября 2018 года под названием Windows 10 October 2018 Update.
+Основными нововведениями обновления стали облачный буфер обмена, который будет синхронизировать историю копирования контента между устройствами, и долгожданная темная тема для Проводника Windows.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68B535D0A163A52B9F131450F965768325EB050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251887   (410580) от 04.10.2018
+
+Microsoft Windows 10 10.0.17763.1 Version 1809 (Updated September 2018) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
+
+Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71296812961C38BC11BC6793BF9CF4BD1C865521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252211   (410578) от 04.10.2018
+
+Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2019 - это операционная система, которая объединяет локальные среды с услугами Azure, позволяя гибридные сценарии и максимизируя существующие инвестиции. Windows Server 2019 был разработан, чтобы позволить Разработчикам и ИТ-профессионалам создавать облачные среды и модернизировать свои традиционные приложения, используя контейнеры и микросервисы. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188D441BCF6FAC56F9FDC5BD53330E6BA38FF399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252170   (410574) от 04.10.2018
+
+Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2019 - это операционная система, которая объединяет локальные среды с услугами Azure, позволяя гибридные сценарии и максимизируя существующие инвестиции. Windows Server 2019 был разработан, чтобы позволить Разработчикам и ИТ-профессионалам создавать облачные среды и модернизировать свои традиционные приложения, используя контейнеры и микросервисы. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423EA2650899BB730D065E8431529CEFC26BD3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251952   (410573) от 04.10.2018
+
+Microsoft Windows 10.0.17763.1 Enterprise LTSC Version 1809 - Оригинальные образы от Microsoft MSDN [En/Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
+
+Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369E0306EF42BA0A1463E914C8819C3E575EBE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563137   (403320) от 22.10.2012
+
+Recovery Partition for Samsung RC720 / Windows 7 Home Premium (х64)
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_403320.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ разделов Recovery жесткого диска ноутбука Samsung RC720-S01
+Образ Recovery_Partition_Samsung_RC720.tib содержит в себе оригинальный MBR и скрытые разделы "SYSTEM" и "SAMSUNG_REC"
+Образ создан программой Acronis True Image Home 2013.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566053   (398658) от 27.10.2012
+
+Recovery DVD for Toshiba Satellite L730 / Windows 7 Home Premium (х64) SP1
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398658.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится 3 образа дисков восстановления и образ скрытого раздела "SYSTEM"
+
+Диски записаны на Toshiba Satellite L730-10M после первого включения ноута.
+Производят восстановление ноутбука до заводских настроек.
+3 образа дисков записанные программой Toshiba Recovery Media Creator (v.1.0.0.10)
+(TOSHIBA_Recover1, 2, 3)
+В 4 содержится образ скрытого раздела "SYSTEM" созданный программой Acronis True Image Home 2012
+(SYSTEM.tib)Язык интерфейса: руский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568034   (394373) от 31.10.2012
+
+Microsoft Windows Server 2012 Storage Server and Foundation (x64) [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2012 (кодовое имя «Windows Server 8») - версия серверной операционной системы от Microsoft, разработка которой в настоящее время завершена. Она принадлежит семейству ОС Microsoft Windows. Эта серверная операционная система должна заменить выпускаемую в настоящее время Windows Server 2008 R2. Windows Server 2012 будет первой версией Windows Server начиная (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414040   (386693) от 07.10.2020
+
+Windows 10, Version 2004 with Update [19041.546] AIO (x86-x64) by adguard (v20.09.30) [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов MSDN. Были интегрированы обновления по 30 сентября 2020 года, а также интегрирован SmartFix 2.3.5 и Microsoft DaRT. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011A799EF3A900AFCAF328153422B6FBCF2AB22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569676   (386642) от 07.11.2012
+
+Обновления Windows Embedded Standard 7 SP1 6.1.7601 [Multi]
+
+>>ОС Windows
+>>Разное (RC, Beta и Service Packs)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Embedded позволяет собирать из отдельных компонентов различные варианты ОС для банкоматов, медиаплееров, Thin PC и компьютеров, выполняющих определенный круг задач.
+В данной раздаче - все актуальные на сегодняшний день обновления,
+Internet Explorer 9, языковые пакеты русский и украинский,
+EWF и FBWF компонентыНазвание программы: Обновления Windows Embedded Standard 7 SP1Язык интерфейса: Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570651   (386637) от 07.11.2012
+
+Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [RUSSIAN]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows Server 2008 — это операционная система Windows Server нового поколения, которая помогает ИТ-специалистам полностью контролировать инфраструктуру, обеспечивая беспрецедентную доступность и управляемость, что позволяет достичь более высокого, чем когда-либо, уровня безопасности, надежности и устойчивости серверной среды. ОС Windows Server 2008 открывает перед организациями новые возможности, предоставляя всем пользователям, независимо от их местонахождения, доступ к полному набору сетевых услуг. Кроме того, в Windows Server 2008 имеются средства для анализа состояния и диагностики операционной системы, помогающие администраторам уделять больше времени развитию бизнеса.Название программы: Microsoft Windows Server 2008 with Service Pack 2Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253244   (385105) от 08.10.2018
+
+Языковые пакеты (Language packs) для Windows 10 10.0.17763.1 Version 1809 x86-x64 [Multi/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор языковых пакетов для Windows 10 10.0.17763.1 Version 1809 для интеграции с помощью утилиты DISM (ADK).Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73F07219F4FFE0DF1CBC9DE0FC5104E18F6BCD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067317   (384163) от 30.10.2016
 
 Recovery USB-Flash for Lenovo IdeaPad 300-15IBR / Windows 10 Home (х64) [Ru]
@@ -6,7 +361,7 @@ Recovery USB-Flash for Lenovo IdeaPad 300-15IBR / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384163.jpg" />
 </div>
 
 
@@ -35,7 +390,7 @@ Recovery Partition for Samsung 300E5A / Windows 7 Home Basic (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377303.jpg" />
 </div>
 
 
@@ -63,7 +418,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375697.jpg" />
 </div>
 
 
@@ -89,7 +444,7 @@ Windows 7 Ultimate SP1 x86x64 By Vladios13 v.09.10 [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374485.jpg" />
 </div>
 
 
@@ -115,7 +470,7 @@ Asus Transformer book trio (Asus TX201LA) usb recovery [Multi/Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372198.jpg" />
 </div>
 
 
@@ -141,7 +496,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371224.jpg" />
 </div>
 
 
@@ -167,7 +522,7 @@ Windows x64 Plus Office Release by StartSoft 03-2020 [Ru]
 >>Сборки Windows - всё в одном
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371174.jpg" />
 </div>
 
 
@@ -193,7 +548,7 @@ Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367391.jpg" />
 </div>
 
 
@@ -220,7 +575,7 @@ Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365078.jpg" />
 </div>
 
 
@@ -247,7 +602,7 @@ Windows 10 Домашняя 1709 x64 NVDA для незрячих. 2017.10.3 [Ru
 >>Сборки Windows для незрячих
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364791.jpg" />
 </div>
 
 
@@ -276,7 +631,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364686.jpg" />
 </div>
 
 
@@ -304,7 +659,7 @@ Windows 10 1803 Pro x86x64 By Vladios13 v.09.10 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362893.jpg" />
 </div>
 
 
@@ -330,7 +685,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362289.jpg" />
 </div>
 
 
@@ -343,358 +698,6 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D68F87BB366C34D942BC490BEFD83720256B4D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417032   (362084) от 18.10.2020
-
-Windows 10 Pro x64 2004.19041.572 2in1 Ост 2020 by Generation2 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основа сборки - оригинальный образ Microsoft Windows 10 2004 x64. В одном образе две редакции: с автоактивацией и без. Интегрированы обновления по октябрь 2020 года, билд повышен до 19041.572. Системы абсолютно чистые. На начальном этапе есть возможность выбора редакции устанавливаемой системы. Подробности ниже.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04AD41F01A9B861837EBAFF9AFB4EFD7AA749C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951603   (357407) от 31.10.2015
-
-Набор обновлений для Microsoft Windows Server 2003 (All Languages) 15.07.15 [Multi/Ru]
-
->>ОС Windows
->>Разное (RC, Beta и Service Packs)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все обновления, для всех языков 2003 Server (x86 и x64), Windows XP x64 на момент окончания поддержки (18 x86 ,8 x64)
-Программа сама определяет каких обновлений не хватает в ОС и устанавливает их автоматически. По желанию можно также создать откат системных файлов.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BAA02F4CA00052A5E85737D35DE6C9202AF7BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575793   (356835) от 19.11.2012
-
-Windows 8 х64 для одного языка (OEM) [Русский]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_356835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 8 - Это операционная система Windows, переосмысленная и построенная на базе быстрой и надежной Windows 7. С совершенно новым интерфейсом для сенсорных устройств. Новая Windows для новых устройств. Можно попробовать прямо сейчас — независимо от того, устанавливаете ли вы ее впервые или переходите от Windows 8 Release PreviewЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417555   (355212) от 21.10.2020
-
-Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.508.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542D1BA74DACA698CB9FFCD0194B33E832EB03AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417554   (355205) от 21.10.2020
-
-Windows Server, Version 20H2 (10.0.19042.508) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EDF7AB62068E21CD96CCBD8A34D65CAC10C3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417564   (355021) от 21.10.2020
-
-Windows 10 IoT Enterprise, Version 20H2 (10.0.19042.508) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 IoT Корпоративная — это полная версия Windows 10 с функциями управления и защиты для решений Интернета вещей, а также всеми преимуществами глобальной экосистемы Windows. Эта ОС представляет собой двоичный эквивалент Windows 10 Корпоративная, позволяя использовать такие привычные средства разработки и администрирования, как клиентские компьютеры и ноутбуки. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726E9E93E2D03D2E6B5CB4D305CFF1EAB02B38BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417556   (352658) от 22.10.2020
-
-Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.508.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A38E182827702EFC04D65F1D0A3A9239F45DCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577971   (352057) от 20.09.2022
-
-Microsoft Windows 11 [10.0.22000.978], Version 21H2 (Updated September 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF277B556EBDEB60A44EFE3BAAD59B6C84C23A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577967   (352054) от 20.09.2022
-
-Microsoft Windows 10.0.19043.2006, Version 21H1 (Updated September 2022) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 May 2021 Update (под кодовым названием "21H1") является одиннадцатым крупным обновлением Windows 10 в качестве накопительного обновления для обновления за октябрь 2020 года и имеет номер сборки 10.0.19043.
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.2006.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFFCFB1297654CB5DC194F60575C691C7BF4FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577813   (351760) от 20.09.2022
-
-Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.4 (esd) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.
-Применен загрузчик от Windows 10 (v21h2) x64(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8FFF8F478E65A148950A1C55527A489DCFDDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578968   (349674) от 22.11.2012
-
-Recovery DVD for Acer Aspire One 522 / Windows 7 Starter (х86) SP1 [русский]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_349674.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится 3 образа дисков восстановления.
-
-Диски записаны на Acer Aspire One AO522-C58gr программой Acer eRecovery Manegment.
-Производят восстановление ноутбука до заводских настроек.
-(Recovery1,2,3)Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255734   (349631) от 24.10.2018
-
-Образ восстановления и дополнительное ПО для интерактивного стола ActivTable 1.4.1.1 [Multi/Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивный стол ActivTable представляет собой компьютерное устройство с большим сенсорным экраном, операционной системой на базе Windows 7 с сопутствующим аппаратно-программным обеспечением. Многопользовательский интерактивный стол ActivTable позволяет шести ученикам одновременно использовать индивидуальные инструменты, веб-обозреватели и ресурсы, причем действия (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A26D9F65A345DA0AD07AC727DC7B7A68B3922FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418297   (348949) от 24.10.2020
-
-Microsoft Windows 10.0.18362.1139 Version 1903 (Updated Oct 2020) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.1139.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4703A0348D5D5714B4ACC2DDDC86A77C07B2A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

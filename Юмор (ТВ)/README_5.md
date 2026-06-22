@@ -1,3 +1,107 @@
+###  Публикация: 1453795   (1026498) от 13.03.2021
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2021.03.12) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026498.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136346F6FB40618B2A0C9D070A01CC40D37C4228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454058   (1026460) от 13.03.2021
+
+Азбука Уральских пельменей. Ц (12.03.2021) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026460.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что осталось за кадром! Цикл выпусков с невошедшими миниатюрами и скетчами. А также самые смешные ляпы и оговорки!Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C841CA5FC10EE8A7E7A51202E6B637651E79DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454271   (1026354) от 14.03.2021
+
+Женский Stand Up (13.03.2021) WEB-DL [H.264/1080p-LQ] (сезон 3, выпуск 2)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DE9E6F9B89E201803D1233BE27CAFB4B5FAAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454535   (1026235) от 15.03.2021
+
+Stand Up (14.03.2021) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 18)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров и др.Субтитры: ОтсутствуютПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C60B57F89D2F55ECFF70B115F2DE31D496ABBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454534   (1026233) от 15.03.2021
 
 Однажды в России (14.03.2021) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026233.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026036.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025403.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025362.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025330.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025240.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Stand Up (21.03.2021) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 19)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025073.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025032.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024173.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024139.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024096.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024010.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Stand Up (28.03.2021) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 20)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023793.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023772.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023108.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023084.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023066.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022880.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022846.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022761.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Stand Up (04.04.2021) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 21)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022574.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022559.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF11F28E1D2B79A2E6E93813F44CDA095C5B8D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460427   (1022547) от 05.04.2021
-
-Весь Жванецкий (1998) DVDRip
-
->>Юмор (ТВ)
->>Сатирики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022547.jpg" />
-</div>
-
-
-###  Подробнее
-
-В юмористическою программу "Весь Жванецкий" вошли избранные миниатюры Михаила Жванецкого от начала творческой деятельности до середины 90-х годов.
-Жванецкий - это не человек, не писатель, не судьба и даже не диагноз. Жванецкий - это не литература, не стихи, не эстрада и не керамика. Жванецкий - это среда обитания. Вы думаете, что здесь должна быть биография (   Читать дальше...   )Производство: РоссияЖанр: Юмор, СатираРежиссер: А. Файфман, Л. ПарфеновАктеры: М. Жванецкий, Л. ПарфеновПродолжительность: ~00:56:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E604634E4E6BAB530C2D43E25BC232EF3784D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460326   (1022521) от 05.04.2021
-
-Однажды в России (04.04.2021) WEB-DL [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D53BD3FCE57C3C64B352FB17D8C4EA2D7B113C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461425   (1021903) от 09.04.2021
-
-Уральские пельмени - Мех продлевает жизнь (09.04.2021) SATRip [AD]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они считают, что лучше синица в руке, а журавль в другой руке. Они щебечут шутки и чирикают веселые песни. Они запасают на зиму юмор и потом кормят им зрителей. Они собрались в веселую стаю, чтобы показать очередную новую программу «Мех продлевает жизнь».Телекомпания: СТСЖанр: ЮморПродолжительность: 01:07:02Реклама: Присутствует текстовая реклама
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B897752E1B38C254FF8BE2AE731B7B5A28680726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461405   (1021856) от 09.04.2021
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2021.04.09) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021856.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2899B5BF34AA865AECC29694F2DE0F8D18738BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

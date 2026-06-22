@@ -6,7 +6,7 @@ Babbba - Smooth jazz club (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103763.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ London Grammar - The Greatest Love (2024) Deluxe, 2024, Ministry of Sound Record
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103761.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Hu - The Trooper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103751.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Antonio Dayyani - Trop op (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103746.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Bobbie Dazzle - Fandabidozi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103745.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Agnes Darelid - RISE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103744.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Chris Killz and The Family - Mister Move On (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103743.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103742.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Krzysiek Ponieważ - The Devil, the Past and the Countryside: The Blues Collecte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103741.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Abraham - Swing Low, Rock Hard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103740.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ten eleven XII bluesband - Something Different (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103739.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Andrew Moore and Hooch - Artists of the Moon (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103738.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Wind Rose - Trollslayer (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103737.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Oceanator - Everything is Love and Death (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103736.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Marc Broussard - Time Is A Thief (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103734.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ April Art - Rodeo (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103732.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Little Steve and The Big Beat - Circles (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103731.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The New Roses - Attracted To Danger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103730.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Rehab Black - I'm Fighting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103729.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Our Graves - System Overload (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103727.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Roberto Sass - Transit (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103724.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Radioactive - Reset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103721.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ House Of Lords - Full Tilt Overdrive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103719.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Johan Steensland - Crossfade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103716.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Ad Infinitum - Abyss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103715.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Chicago - John F. Kennedy Center For The Performing Arts, Washington D.C. (9/16/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103714.jpg" />
 </div>
 
 

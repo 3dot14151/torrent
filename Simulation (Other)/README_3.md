@@ -1,3 +1,81 @@
+###  Публикация: 1456093   (1025166) от 21.03.2021
+
+Police Simulator: Patrol Duty (2019) [Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повседневная работа полицейских с арестами и погонями за преступниками воплощена в Police Simulator: Patrol Duty. Симулятор полицейского патруля позволяет примерить роль офицера американской полиции, который выполняет свою работу. Город, где разворачивается действие, реализован с помощью мощного движка UnrealEngine 4. Юзер может свободно перемещаться в открытом мире, (   Читать дальше...   )Тип издания: RepackРазработчик: Bigmoon EntertainmentЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA83CF3FC236C7DE07D21A8208B211FE8132DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413544   (1025148) от 21.03.2021
+
+Train Station Renovation (2020) [Ru/Multi] (2.2.0.1) Repack Other s
+
+>>След.
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Train Station Renovation – это игра, действие которой происходит на заброшенных и разрушенных железнодорожных станциях. Нашу работу начнем с маленьких сельских станций, а закончим огромными железнодорожными станциями в больших городах. Игра разделена на 10 карт (станций), на которых Вы будете изучать новые игровые механики, благодаря которым познакомитесь с новыми (   Читать дальше...   )Тип издания: RepackРазработчик: Live Motion GamesЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB992A1762816ADB542B3F3FEA11290428B52BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456858   (1024692) от 24.03.2021
+
+Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack SpaceX [Deluxe Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постройте карьеру амбициозного руководителя железнодорожной компании XIX-го века, выполняйте поручения инвесторов. Прокладывайте железные дороги в старые и новые города. Решайте, как использовать проложенные пути, чтобы получить максимальную выгоду для компании. Наслаждайтесь красотой природы - вскоре она будет пронизана извилистыми линиями железных дорог, тоннелями (   Читать дальше...   )Тип издания: RepackРазработчик: Corbie GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41402BF0E988DDECE8CAB406E73F6EA67B1E2FA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456899   (1024668) от 24.03.2021
 
 Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack Other s [Deluxe Edition]
@@ -6,7 +84,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.12894/dlc) Repack Other s [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024668.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024296.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack SpaceX [Bear 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023963.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023920.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Mech Mechanic Simulator (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022676.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Crisis in the Kremlin / Кризис в Кремле (2017) [Ru/En] (1.0/dlc) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021679.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Secret Government (2021) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020532.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019192.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.11/dlc) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018484.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Hobo: Tough Life (2021) [Ru/Multi] (1.00.023) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016476.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.00) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016185.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013648.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Lumberhill (2021) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010727.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (7142717) License Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001672.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001612.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Cooking Simulator (2019) [Ru/Multi] (2.5.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989644.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Flower (2019) [Ru/Multi] (1.45) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971524.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.7.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963885.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Train Sim World 2020 (2018) [Ru/Multi] (1.0/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961709.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Train Sim World: 2020 Edition (2018) [Ru/Multi] (1.0.0.550/dlc) Repack xatab [Di
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956598.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Timber! The Logging Experts (2016) [En/De] (1.0) License PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954945.jpg" />
 </div>
 
 
@@ -544,32 +622,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 174208   (945960) от 10.02.2010
-
-World of Subways Vol. 1: New York Underground "The Path" / Метро Нью-Йорка (L) [Русский, английский] (2008)
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Метро в таком огромном мегаполисе как Нью-Йорк – это транспорт №1. Огромные потоки пассажиров, каждый день пользующихся подземкой из года в год становятся все больше и больше. Данный симулятор, позволяет ощутить все тонкости функционирования такого сложного и огромного по масштабам транспортного средства.Жанр: Simulator (Train) / 3D
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 282140   (944458) от 14.01.2011
 
 Складская работа / Forklift Truck Simulator 2009 (L) [Ru] 2010 | R.G. Origins
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944458.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944454.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:887D0BC750699C43014B14546EAA87C965CC67E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093838   (931883) от 16.01.2017
-
-Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждет собственная ферма! Ее увлекательные задачи и трудности! Водите спец.машины, возделывайте поля, ухаживайте за животными и торгуйте на рынке! Нет ничего лучше, чем греться у камина после тяжелого трудового дня на ферме.Тип издания: LicenseРазработчик: VIS - Visual Imagination SoftwareЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A92C784A00C28817FBB701716E7AE91A70B16E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093833   (931791) от 16.01.2017
-
-Legend of Merchant (2016) [Multi] (1.83) Unofficial SiMPLEX
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legend of Merchant – симулятор торговца небольшой лавки, в котором игроку нужно закупать товары и заниматься их дальнейшей перепродажей. От принимаемых игроком решений напрямую зависит, окажется ли виртуальный бизнес прибыльным или обернется убытками и будет вынужден закрыться.Тип издания: UnofficialРазработчик: 疯王子Жанр: Casual, Indie, SimulationЯзык субтитров: Английский, Китайский и другиеЯзык интерфейса: Английский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F0227B418C0C161023A587636ABFF35E31FB95
 ```
 
 https://mybot314.ru/tekegram_catalog/

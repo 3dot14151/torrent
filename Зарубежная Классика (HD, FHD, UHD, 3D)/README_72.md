@@ -1,3 +1,55 @@
+###  Публикация: 1622769   (242251) от 22.04.2023
+
+До конца этой ночи / Kym sa skonci tato noc / Before Tonight Is Over (1966) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242251.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роскошном баре в Высоких Татрах, как обычно, пересекаются друг с другом случайные гости. В месте, где они должны были бы раскрепощаться и развлекаться, через отрывистые фразы и намеки, всплывают наружу их травмы, неудачи, самообманы, нереализованные мечты и наивные иллюзии.Производство: Чехословакия / Studio Hraných Filmov BratislavaЖанр: драмаРежиссер: Петер СоланАктеры: Михал Белак, Стано Данчак, Владимир Дурдик, Арнольд Якуб Франо, Яна Гирова, Эрнест Костельник, Иван Кривосудски, Юрай Крал, Мариан Лабуда, Марцела ЛайфероваПеревод: Одноголосый любительский (sephiroth)Язык озвучки: русский, словацкийСубтитры: английскиеПродолжительность: 01:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BFC1BE3A73EB864E717DD2AFEC619786A22DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541556   (240662) от 19.04.2022
+
+Крестоносцы / Krzyzacy (1960) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240662.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме рассказывается о борьбе поляков против рыцарей Тевтонского ордена в конце XIV - начале XV века. После нападения на одно из селений была убита жена князя Юранда. Он поклялся мстить тевтонцам до последней капли крови...Производство: Польша / Zespol Filmowy "Studio"Жанр: драма, мелодрама, приключения, военный, историяРежиссер: Александр ФордАктеры: Уршуля Моджиньска, , Гражина Станишевска, Анджей Шалявский, Хенрик Боровский, Александр Фогель, Мечислав Каленик, Эмиль Каревич, Тадеуш Косударский, Люцина Винницка, Тадеуш БялощиньскийПеревод: Дублированный, Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA4C0C5C5B70FDFC2834ABA2F107BC816B03E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967716   (240589) от 18.08.2022
 
 Виннету и полукровка Апаначи / Winnetou und das Halbblut Apanatschi (1966) BDRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240589.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240502.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239979.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239822.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239754.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239653.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239652.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239141.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237834.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237780.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237168.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237022.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236847.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236801.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236702.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236459.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236327.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235448.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234294.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233776.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233694.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233634.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233570.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233549.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F8F8EB5925D9776A18B1A8B4D2115C8E51F68D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635177   (232817) от 24.05.2023
-
-Бунтарь без причины / Rebel Without a Cause (1955) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джим Старк живёт, словно в западне: он не понимает, что его гложет, но в душе нет спокойствия. Он не находит общего языка с родителями, хотя и пытается вписаться в образ тихого юноши из приличной семьи. Бунтарская натура заставляет героя принять участие в опасном состязании, цель которого — доказать крутому Баззу и его банде, что он не трус. Приняв вызов Базза, Джим (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: драма, мелодрамаРежиссер: Николас РэйАктеры: Джеймс Дин, Натали Вуд, Сэл Минео, Джим Бакус, Энн Доран, Кори Аллен, Уильям Хоппер, Рошелль Хадсон, Деннис Хоппер, Эдвард ПлаттПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCBAB18A142DB098301A69BAD427826238C44F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551494   (232801) от 27.05.2022
-
-Перевал Брейкхарт / Breakheart Pass (1975) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноимённом романе 1974 года шотландского писателя Алистера Маклина. В 1876 году на поезде с лекарствами для военного гарнизона последовательно погибают пассажиры. Разобраться, кто убивает попутчиков, вызывается Джон Дикин - находящийся под арестом преступник. А на перевале Брейкхарт этот поезд очень ждут индейцы...Производство: США, Gershwin-Kastner ProductionsЖанр: детектив, вестернРежиссер: Том ГризАктеры: Чарльз Бронсон, Бен Джонсон, Ричард Кренна, Джилл Айрленд, Чарльз Дёрнинг, Эд Лотер, Билл МакКинни, Дэвид Хаддлстон, Рой Дженсон, Рэйфорд БарнсПеревод: профессиональный многоголосый (5 канал), профессиональный двухголосый (НТВ+), авторский (Антон Алексеев)Субтитры: английские SDHПродолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104A717FA1709B4356992D6E8A03364AE19B83E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

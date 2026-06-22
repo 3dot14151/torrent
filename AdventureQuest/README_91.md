@@ -1,3 +1,133 @@
+###  Публикация: 1758110   (38748) от 31.10.2024
+
+Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38748.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире Subnautica ваше судно потерпело крушение в океанической местности, и в ней есть всего одна прямая линия - вниз, ко дну. Пейзажи вокруг вас озаряются солнцем, коралловые рифы красиво переливаются под солнцем, пока вы медленно тонете в сторону бесконечной темноты пространства. Исследование огромного открытого мира позволяет не только окунуться под толщу воды (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758007   (38725) от 31.10.2024
+
+Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Don't Be Afraid 2 - хоррор с видом от первого лица и продолжение одноименной игры 2020 года. Возьмите на себя роль Дэвида, молодого человека, который пытается справиться с жуткой травмой детства, и исследуйте глубины его кошмаров. Переживите самые мрачные моменты жизни Дэвида, исследуя леденящие душу места, собирая улики о его прошлом и решая головоломки, оставленные (   Читать дальше...   )Тип издания: RepackРазработчик: Eneida Games, Cat-astrophe GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C770446D6B8AFE53365B5C94CC39B48D50E9F76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675658   (38660) от 01.11.2024
+
+Tintin Reporter Cigars of the Pharaoh / Репортер Тинтин: Сигары фараона (2023) [Ru/Multi] (2024100901) License GOG
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тинтина и его верного спутника Снежка ждет невероятное путешествие… Познакомившись с профессором Циклоном на борту круизного лайнера в Средиземном море, знаменитый репортер отправляется на поиски гробницы фараона Ки-Оскха. Какие темные секреты скрывает гробница? Совершив путешествие из Египта в Индию через Аравийский полуостров, Тинтин и Снежок раскроют сеть наркоторговцев, (   Читать дальше...   )Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4279196E0F19C499B617ED1E5676043A57742369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487991   (38654) от 01.11.2024
+
+Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Органон замышляет разрушить Депонию, милая Гоул (снова) исчезла, а антигерой Руфус всё время путается у себя под ногами. Всё, о чём мечтал изобретательный и свободолюбивый Руфус, было оставить планету Депония, превратившуюся в гигантскую свалку, и отправиться в Элизиум - орбитальную станцию и настоящий рай для высших слоёв общества. Гоул, девушка из Элизиума, от (   Читать дальше...   )Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, Point & Click, QuestЯзык озвучки: Английский, Немецкий, ИтальянскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC0E7ABCCFEE9F7E1AF79FA6285742C2476804F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487984   (38652) от 01.11.2024
+
+Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38652.jpg" />
+</div>
+
+
+###  Подробнее
+
+В долгожданном продолжении приключенческой игры "Депония", которая получила массу положительных отзывов, сумасшедшая сага переходит на новый уровень. При этом "Депония 2: Взрывное приключение" оказывается ещё более безумной, чем первая часть и захватывает игрока с первой секунды. Руфус мог бы образумиться, стать дружелюбным и внимательным, и ему (   Читать дальше...   )Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Adventure, Point & Click, QuestЯзык озвучки: Английский, Немецкий, Итальянский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16CAD74230189BB66038DCA77DEA304C8D43FA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749418   (38650) от 01.11.2024
 
 DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
@@ -6,7 +136,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38650.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38642.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38600.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38537.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38417.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ The Night is Grey (2024) [En] (1.4) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38397.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38379.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38340.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ CRUELTY (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38305.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38164.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38116.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38057.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38006.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37825.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37806.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37783.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Chicken Police - Paint it RED! (2020) [Ru/Multi] (438) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37735.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37729.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37726.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37714.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Demonologist (2023) [Ru/Multi] (1.5.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37625.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Demonologist - это кооперативная игра ужасов, в ко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A60C956175F87C6FCB464913518371F0F7734AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760077   (37542) от 12.11.2024
-
-Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в межпространственное путешествие со старыми знакомыми Рэтчетом и Кланком – теперь на ПК! Помогите им одолеть злого императора из параллельной реальности, перемещаясь по удивительным мирам и даже за их пределами на бешеной скорости! На очереди измерение Рэтчета и Кланка, поэтому стряхните пыль со старого верного оружия и остановите мультивселенскую (   Читать дальше...   )Тип издания: RepackРазработчик: Insomniac Games, Nixxes SoftwareЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0624C62873D10A7565E13FA43DD3E9932B2BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760079   (37511) от 12.11.2024
-
-Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hello Neighbor 2 создана в мультяшном стиле, а вы исследуете открытый мир в поисках пропавшего Мистера Питерсона, являющегося соседом главного героя. Во время путешествия, персонаж замечает, что его самого проследует странное существо, желающее что-то плохое протагонисту. Антагонист, идущий по стопам все прохождение, постоянно улучшает свои способности в слежке и (   Читать дальше...   )Тип издания: LicenseРазработчик: Eerie Guest, tinyBuildЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9652C0B124A59ABCCD1826D85E3F18A997CC8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760148   (37488) от 12.11.2024
-
-Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lunacy: Saint Rhodes - хоррор на выживание от первого лица, в котором вам предстоит выяснить правду о чудовищном убийстве вашей семьи. Исследуйте историю своего родового поместья и деревни Сент-Родс и попытайтесь противостоять грозящей ему опасности. Раскройте мрачные тайны своей семьи, пока вас не поглотило безумие. В Lunacy: Saint Rhodes вам предстоит отправиться (   Читать дальше...   )Тип издания: LicenseРазработчик: Stormling StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C871C243F5B9908D03497257C8A0190F609BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760348   (37416) от 13.11.2024
-
-Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэйдзи снова «связан судьбой», на этот раз с волшебной девушкой на год старше его! Во второй части этой шумной романтической комедии VN-сериала странное столкновение приводит к тому, что Сэйдзи становится фамильяром Майи - и связан зачарованной связью, чтобы выжить. Приведет ли близость к любви, или он обречен служить до конца (своих) дней?Тип издания: LicenseРазработчик: miraiЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEC986FCD4B13DE5EFA7F0AD34D06B6F2CC8416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760345   (37390) от 13.11.2024
-
-Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неожиданная суматоха с обезумевшими космическими демонами приводит к тому, что никто из кампуса Сейджи «связывается судьбой» с Юри, тайной девочкой-волшебницей, которая также является его тайной школьной любовью! Раскрыв оба секрета, сможет ли Сейджи все еще выстрелить? Или же приспешники злого Маджина первыми вторгнутся на Землю?Тип издания: LicenseРазработчик: miraiЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAD6106D2180D2B2835BC76299297EF0A7B9049
 ```
 
 https://mybot314.ru/tekegram_catalog/

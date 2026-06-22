@@ -1,3 +1,110 @@
+###  Публикация: 1348757   (140537) от 29.12.2019
+
+Артём Каменистый | Великое перерождение (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Экс».
+
+Дарк на что угодно готов пойти, только бы снова не оказаться в башне у Паука. За любую возможность готов руками и ногами хвататься, лишь бы держаться оттуда подальше.
+Потому и взялся за необычное задание с очень интересным дополнительным условием. Если выполнит, в награду получит именно то, в чем нуждается больше всего.(   Читать дальше...   )Жанр: ЛитРПГ, Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999AFAD6724824029261CFC1755D803E0A488DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088424   (140301) от 30.12.2016
+
+Андрей Астахов | Цикл «Крестоносец» [2 книги] (2012-2016) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет и не предвидится мира во вселенной Пакс. Эльфы, лишенные родины, вынуждены платить страшную дань чернокнижникам Земли Суль. Империя из последних сил борется с чудовищной нежитью, терзающей ее земли. На юге под оранжевым знаменем новой веры собираются войска могущественного Терванийского алифата. Сможет ли наш современник, удивительным образом оказавшийся в этом (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A327FC890AF15578E82B8E0F2EA38F357B80CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195677   (140256) от 30.12.2017
+
+Константин Читатель | Примат (2016) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наше время и множество миров во вселенной. История о молодом человеке и поиски своего места в этом мире.Жанр: Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A2395CE686E2F4451B25100E44AD244D7E9D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435704   (140161) от 29.12.2020
+
+Сергей Лукьяненко | Ловец Видений (2020) [FB2]
+
+>>След.
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой книги по имени Григ путешествует по Стране Снов. В эту страну отправляется каждый из нас, когда засыпает и видит сны, но лишь некоторые могут путешествовать по ней осознанно. Что уж говорить о том, чтобы влиять на мир сновидений! Совсем немногие обладают подобной способностью. Таких людей называют Снотворцами. Главный город Страны Снов разделен на кварталы, (   Читать дальше...   )Жанр: Попаданцы в магические миры, Героическая фантастика, Эпическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B49CB3FDC563C6F825A5380A860A4899A79033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372170   (140034) от 29.12.2020
 
 Алексей Андриенко (Лаэндэл) | «Анархия упадка» [13 книг] (2018-2020) [FB2]
@@ -6,7 +113,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140034.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140007.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139884.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139879.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139854.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139806.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139760.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139587.jpg" />
 </div>
 
 
@@ -220,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139586.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139399.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139375.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139265.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139237.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139215.jpg" />
 </div>
 
 
@@ -377,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139175.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139133.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139021.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ Angel Delacruz | Эпидемия. All Inclusive (2018) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138814.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138653.jpg" />
 </div>
 
 
@@ -511,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138387.jpg" />
 </div>
 
 
@@ -539,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138385.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138355.jpg" />
 </div>
 
 
@@ -577,114 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71CB909D6FF1BE2C10BECF6EB6821928B2C4EFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196048   (138147) от 31.12.2017
-
-Марина Суржевская | Зачем цветет лори (2014) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Зачем цветёт лори».
-
-Таких, как я, называют раянами. Когда-то нас было много, нам поклонялись, словно богиням, нас почитали и нам приносили дары. «Раяна» означало «желание». Тогда мы сами решали, для кого расцветет лори. Но мужчины жестоки… И теперь «раяна» значит «яд». И когда мой цветок расцветет, меня найдут. Сумеречные псы, слуги Темного владыки, (   Читать дальше...   )Жанр: Любовное фэнтези, Эротическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8E9BADF5D0C15DE028F1746031CF7439C0C523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349304   (138080) от 31.12.2019
-
-Таша Танари | Цикл «Пой для меня, моя сирена» [3 книги] (2019) [EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138080.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Никогда не заговаривай с незнакомцами! Заговорила? Беги как можно дальше, если незнакомец сообщает, что он высший демон. Осталась? Ну уж сделку-то ему не предлагай! Что, все-таки заключила? Поздравляю, теперь у тебя впереди жизнь, полная «веселья» и балансирования на грани. Вот только всесильному демону уже хочется посочувствовать. Его жизнь тоже больше никогда (   Читать дальше...   )Жанр: ФэнтезиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B603C2F71913812C785CD6CDBF0BFDB2D8EFB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196050   (138001) от 31.12.2017
-
-Марина Суржевская | Для кого цветет лори (2016) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Зачем цветёт лори».
-
-Таких, как я, называют раянами. И много лет нас уничтожали по приказу Темнейшего Владыки. Однажды все изменилось. Проклятие разрушено, а мне суждено стать не изгнанницей, а правительницей. Но и сейчас я лишь пешка на доске сильнейших магов Сумеречной Империи, что решили получить власть цветущего лори. Правда, я устала играть (   Читать дальше...   )Жанр: Любовное фэнтези, Эротическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27398FEAE4E2953077E8CE1900FF96A6A73918D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349309   (137975) от 31.12.2019
-
-Таша Танари | Цикл «Танцующая среди ветров» [3 книги] (2019) [EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как приручить дракона? Возможно ли это вообще и тем более простой смертной? А если она будет не так уж проста? И зачем ей нужен вредный, самодовольный и крайне неудобный в эксплуатации этот самый дракон? Жизнь штука интересная, и никогда не знаешь, куда приведет тебя очередной поворот судьбы. Отправляясь искать ответы на вопросы о своем предназначении, можно невзначай (   Читать дальше...   )Жанр: ФэнтезиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A791035F1777D902C5CA9603DCB98E1B7591E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

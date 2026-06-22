@@ -1,3 +1,109 @@
+###  Публикация: 533901   (521514) от 12.08.2012
+
+Лес / The Forest (1982) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521514.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глухих лесах Калифорнии две подружки и их приятели натыкаются на негостеприимного хозяина этих мест — отшельника-каннибала.Жанр: УжасыРежиссер: Дональд М. ДжонсАктеры: Дин Расселл, Гари Кент, Томи Баррет, Джон Бэтис, Энн Уилкинсон, Жанетт Келли, Корки Пиджеон, Беки Бурк, Тони Ги, Стэффорд МорганПеревод: Любительский одноголосыйПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BDDA6167016348B3E23A8C218B2D925E77EAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 228512   (520519) от 20.08.2010
+
+Дуэлянты / The Duellists (1977) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ссора, вспыхнувшая между двумя гусарскими офицерами наполеоновской армии, - вспыльчивым Ферро и спокойным и рассудительным д'Юбером, - приводит к дуэли. Но дуэлью не исчерпывается и перерастает в многолетнюю вражду, не угасающую за все годы Наполеоновских войн и время от времени находящую выход в очередных поединках.
+
+Они начали эту вражду еще лейтенантами, уцелели в войнах и дуэлях, дослужились до генералов. Уже свергнут Наполеон, но сердце Ферро не может найти спокойствия, пока его извечный враг и соперник д'Юбер не будет убит.Жанр: ДрамаРежиссер: Ридли СкоттАктеры: Кейт Кэррадайн, Харви Кейтель, Альберт Финни, Эдвард Фокс, Кристина Рейнес, Роберт Стефенс, Том Конти, Джон МакИнери, Диана Куик, Алан АрмстронгПеревод: Многоголосый закадровыйПродолжительность: 01:36:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534265   (518966) от 14.08.2012
+
+Охотник (2011) WEB-DLRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Дунаев — человек созидающий, он механизм, который запускает вокруг себя все жизненные процессы. Его можно назвать героем, но его героизм — не в совершении подвига, и не в принесении себя в жертву, а в его ежедневной, монотонной деятельности в течение всей жизни. В то же время — это фильм о мужской любви — к земле, к сыну, к дочери, к женщине. Он о трудном выборе своего пути и понимании долга — перед землей, страной, перед всеми предшествующими поколениями.Жанр: Драма,артхаусРежиссер: Бакур БакурадзеАктеры: Михаил Барскович, Оксана Семенова, Сергей Долгошейн, Татьяна Шаповалова, Гера Авдочёнок, Владимир ДегилеПродолжительность: 01:59:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 373133   (518819) от 09.08.2011
+
+Михай Храбрый / Mihai Viteazul (1971) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_518819.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1970 году режиссер вновь обратился к исторической тематике, сняв картину «Михай Храбрый» - лучший проданный за границей Румынский кинофильм. Фильм рассказывает о великом сыне румынского народа Михае Храбром, который впервые объединил румынские земли (Валахию, Трансильванию и Молдову) под одним флагом. В 1595 разгромил турецкие войска, опустошавшие Валахию. Объединил с Валахией под своей властью Трансильванию (1599) и Молдову (1600). Поддерживал дружественные отношения с Русским государством. Созданное Михаем Храбрым обширное государство оказалось непрочным. Михай Храбрый не смог преодолеть противодействия боярства своей централизаторской политике. В результате поднятых боярами мятежей Михай Храбрый был свергнут и убит.Жанр: Военный, ДрамаРежиссер: Серджиу Николаеску/Румыния-ФранцияАктеры: Пьер Брайс /Pierre Brice/, Йорги Ковач /Gyorgy Kovacs/, Мари-Хосе Нэт /Marie-Jose Nat/, Амза Пелля /Amza Pellea, Жорж Маршал /Georges MarchalПеревод: ДублированныйПродолжительность: 03:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5A707A05311C14612C86822F70AC512D7DDF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 330960   (517813) от 19.08.2018
 
 В бой идут одни «старики» (1973/2009) BDRip [H.264/1080p] [Цветной]
@@ -6,7 +112,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517813.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_516677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_516677.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516628.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515693.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_515538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_515538.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515497.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515281.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514959.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514412.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_514325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_514325.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_514137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_514137.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513788.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513432.jpg" />
 </div>
 
 
@@ -359,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513151.jpg" />
 </div>
 
 
@@ -385,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512320.jpg" />
 </div>
 
 
@@ -411,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511923.jpg" />
 </div>
 
 
@@ -437,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510420.jpg" />
 </div>
 
 
@@ -465,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507918.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507569.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507452.jpg" />
 </div>
 
 
@@ -543,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506648.jpg" />
 </div>
 
 
@@ -569,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_506495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_506495.jpg" />
 </div>
 
 
@@ -584,110 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1226BD99708E5ED76DCC1FEBF0884378648B38E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377930   (506421) от 21.08.2011
-
-Первый правитель / Gniazdo (1974) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_506421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классик польского кино Ян Рыбковский создал захватывающий эпос об основателе польского государства Мешко Первом, вплетя в захватывающую канву событий богатый летописный материал. Зрелищные сцены сражений и поединков, масштабные декорации и массовки делают эту картину отличным подарком для поклонников исторического кино.Жанр: драма, историяРежиссер: Ян РыбковскийАктеры: Войцех Пшоняк, Марек Баргеловски, Ванда Ньюманн, Франчишек Печка, Болеслав Плотницкий, Хенрик Бак, Тадеуш Бялощиньский, Чеслав ВоллейкоПеревод: двуголосый закадровый (русский)Продолжительность: 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3BE28418AC2E2633047941BC6448C5EFE12ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378662   (505645) от 22.08.2011
-
-[EN/RU sub] Слоновья тропа / Elephant Walk (1954) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_505645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатый чайный плантатор Джон Вайли приезжает в Англию в конце Второй мировой и женится на английской красавице Рут. Он привозит её в свое бунгало на Цейлоне, на которое имеет зуб местное стадо слонов. Восторг Рут богатством ранчо и экзотикой Цейлона сменяется разочарованием, что она единственная белая женщина в округе. Вскоре она находит понимание и любовь в лице управляющего плантацией Дика Карви............Жанр: драма, мелодрама, приключенияРежиссер: Уильям ДитерлеПеревод: ОтсутствуетФормат: AVIПродолжительность: 01:38:14.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022C0F6ACEED97D5AE84645A29F011DAA66328E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933683   (505206) от 02.09.2015
-
-Наму, кит-убийца / Namu, the Killer Whale (1966) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спасаясь от рыбаков, косатка («кит-убийца») заплывает в бухту, в которой расположена научно-исследовательская станция. Работающий на ней морской биолог д-р Доннер не хочет упустить шанс впервые в мире изучить жизнь этих загадочных морских животных и ограждает выход из бухты сетью. Кит-убийца, получивший имя «Наму», остаётся на станции. Но местные рыбаки не прекращают (   Читать дальше...   )Производство: США, Ivan Tors ProductionsЖанр: Драма, Приключения, СемейныйРежиссер: Ласло БенедекАктеры: Роберт Лэнсинг, Джон Андерсон, Робин Маттсон, Ричард Эрдман, Ли Меривезер, Джо Хиггинс, Майкл Ши, Clara Tarte, Эдвин РошелльПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A612F4486F4CEBBCA16B3E94EE8DA1EE9F5BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540583   (503804) от 29.08.2012
-
-Глубокие воды / Eaux profondes (1981) DVDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вик Аллен, владелец небольшой парфюмерной компании, женат на молодой женщине Мелани и имеет от нее десятилетнюю дочь Марион. Мелани, почти не прилагая усилий для утаивания от мужа своих любовных романов, играет в своеобразную провокационную игру. А Вик искусно делает вид, что ничего не замечает, хотя уже строит планы — как изощренно отомстить.Производство: Франция/ Eléfilm, France 3 (FR 3), Gaumont, Hamster ProductionsЖанр: Драма, КриминалРежиссер: Мишель ДевильАктеры: Изабель Юппер, Жан-Луи Трентиньян, Сандрин Кляич, Эрик Фрей, Кристиан Бенедетти, Брюс Майерс, Бертран Бонвуазен, Жан-Люк Моро, Робен Ренуччи, Филипп КлевеноПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD9622EE340272A3A53FC1636127E74151A618B
 ```
 
 https://mybot314.ru/tekegram_catalog/

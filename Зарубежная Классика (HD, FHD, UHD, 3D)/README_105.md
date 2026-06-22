@@ -1,3 +1,55 @@
+###  Публикация: 1631570   (11336) от 16.07.2025
+
+Психо / Psycho (1960) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit] [Uncut Edition]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэрион Крэйн недовольна романом с разведенным мужчиной, который уделяет ей внимание только наездами. Поэтому девушка крадет на работе крупную сумму и в спешке бежит из города. Мэрион останавливается на ночь в мотеле, которым управляет Норман Бейтс — юноша, страдающий от гнёта своей горячо любимой, но деспотичной матери.Производство: США / Shamley ProductionsЖанр: триллер, детектив, ужасыРежиссер: Альфред ХичкокАктеры: Энтони Перкинс, Вера Майлз, Джон Гэвин, Джанет Ли, Мартин Болсам, Джон МакИнтайр, Саймон Оукленд, Фрэнк Альбертсон, Патриша Хичкок, Вон ТейлорПеревод: Многоголосый профессиональный (Лицензия)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские - PGSПродолжительность: 01:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63E909C3AED6EDAFD84CE1E49BD5ADFE71A609B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806838   (11229) от 17.07.2025
+
+Вождь краснокожих / Le Grand chef / The Big Chief (1959) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антуан и Паоло мойщики машин, решают разбогатеть и купить собственную бензоколонку. Друзья похищают сынишку миллиардера, который в результате устраивает им «веселую» жизнь. При этом папаша-богатей отнюдь не спешит забрать у них свое чадо.Производство: Франция, Италия / Franco London Films, Les Films Gibé, Tempo Film, Zebra FilmsЖанр: комедияРежиссер: Анри ВернейАктеры: Фернандель, Джино Черви, Папуф, Флоранс Бло, Жорж Шамара, Ивонн Клеш, Доминик Даврэ, Жан-Жак Делбо, Элена Мансон, Альбер МишельПеревод: Многоголосый профессиональный (СВ-Дубль, СПб 5 канал)Язык озвучки: русский, французскийСубтитры: русские (full - AI), английские, французские (SDH)Продолжительность: 01:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A40E4B93DD519D54BDD9E133C2752F9612E6A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807179   (10805) от 21.07.2025
 
 Вечерние посетители / Les Visiteurs du soir (1942) BDRip [H.264/720p]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10805.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10666.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10454.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10397.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9683.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8754.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8583.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7787.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7596.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7169.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7013.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6995.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6575.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6549.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6530.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6387.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6034.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5926.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4859.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4567.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4489.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4097.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3831.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3822.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22D32848A9D2DA9A7417151B437C4DEAD9005EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817288   (2526) от 16.09.2025
-
-Молчание ягнят / The Silence Of The Lambs (1991) UHD BDRip [H.265/1440p] [4K, HDR10, Dolby Vision 8.1, 10-bit] [GBR Transfer, Arrow Films]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психопат похищает и убивает молодых женщин по всему Среднему Западу. ФБР, уверенное, что все преступления совершены одним и тем же человеком, поручает агенту Клариссе Старлинг встретиться с заключенным-маньяком Ганнибалом Лектером, который мог бы помочь составить психологический портрет убийцы. Сам Лектер отбывает наказание за убийства и каннибализм. Он согласен (   Читать дальше...   )Производство: США / Orion Pictures Corporation, Strong Heart/Demme Production, Arrow FilmsЖанр: триллер, детектив, криминал, драма, ужасыРежиссер: Джонатан ДеммеАктеры: Джоди Фостер, Энтони Хопкинс, Брук Смит, Скотт Гленн, Тед Левайн, Энтони Хилд, Кейси Леммонс, Дайан Бэйкер, Чарльз Нэпьер, Роджер КорманПеревод: Дублированный, профессиональный (многоголосый, двухголосый закадровый), авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (full x3, forced), английские (full, SDH)Продолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EB4FAF6026E7AABFBF1A73AED6B0D9D667ED62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817758   (2395) от 17.09.2025
-
-Побег из Шоушенка / The Shawshank Redemption (1994) UHD BDRip [H.265/1440p] [4K, HDR10, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бухгалтер Энди Дюфрейн обвинён в убийстве собственной жены и её любовника. Оказавшись в тюрьме под названием Шоушенк, он сталкивается с жестокостью и беззаконием, царящими по обе стороны решётки. Каждый, кто попадает в эти стены, становится их рабом до конца жизни. Но Энди, обладающий живым умом и доброй душой, находит подход как к заключённым, так и к охранникам, (   Читать дальше...   )Производство: США / Castle Rock EntertainmentЖанр: ДрамаРежиссер: Фрэнк ДарабонтАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Гил Беллоуз, Марк Ролстон, Джеймс Уитмор, Джеффри ДеМанн, Ларри БранденбургПеревод: Дублированный, профессиональный (многоголосый, двухголосый закадровый), авторский (одноголосый)Язык озвучки: Русский, украинский, белорусский, английскийСубтитры: Русские (full, forced, SDH), украинские, английские (full, SDH)Продолжительность: 02:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2342B9F680FB438FA23FD88CCB6D12B71C48030D
 ```
 
 https://mybot314.ru/tekegram_catalog/

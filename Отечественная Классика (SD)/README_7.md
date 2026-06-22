@@ -1,3 +1,55 @@
+###  Публикация: 976374   (965256) от 21.01.2016
+
+Бриллиантовая рука (1968) BDRip [H.264]
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинороман из жизни контрабандистов с прологом и эпилогом. В южном городке орудует шайка «валютчиков», возглавляемая Шефом и его помощником Графом. Скромный советский служащий и примерный семьянин Семен Семеныч Горбунков отправляется в зарубежный круиз на теплоходе, на котором также плывет Граф, который должен забрать бриллианты в одном из восточных городов и провезти (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Комедия, Криминал, Приключения, СемейныйРежиссер: Леонид ГайдайАктеры: Юрий Никулин, Андрей Миронов, Анатолий Папанов, Нина Гребешкова, Станислав Чекан, Владимир Гуляев, Нонна Мордюкова, Светлана Светличная, Роман Филиппов, Григорий Шпигель, Леонид Каневский, Игорь Ясулович, Максим Никулин, Александра Лисютина, Александр Хвыля, Андрей Файт, Евгения МельниковаЯзык субтитров: РусскийПродолжительность: 01:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B288BCB29E525C249E7177585FEAE5EF262D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745754   (963831) от 18.01.2014
+
+Танкисты (1939) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963831.jpg" />
+</div>
+
+
+###  Подробнее
+
+О действиях советских танкистов в возможной боевой обстановке. Старый вояка — генерал фон Бюллер — весьма умело командует вражескими войсками, сосредоточившимися у города Энсбурга и уже успешно атаковавшими с неба советский город Красноармейск. Танковая группа во главе с комиссаром Ткаченко получает задание перейти на территорию агрессора, разгромить его главные (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Военный, ДрамаРежиссер: Роберт Майман, Зиновий ДрапкинАктеры: Григорий Горбунов, Михаил Вольский, Александр Кулаков, Владимир Чобур, Иван Кузнецов, И. Орлов, Василий Меркурьев, Дмитрий ДудниковПродолжительность: 01:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4399DBCA445730FE0DE2B96EA1EEED1F505E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 746592   (963731) от 18.01.2014
 
 Смеханические приключения Тарапуньки и Штепселя (2 серии) (1970) DVBRip
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_963731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_963731.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962743.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962741.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962727.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962425.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961633.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961105.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960195.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960044.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959906.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958858.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958366.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957858.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957854.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957645.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_957603.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957599.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957540.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957216.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956269.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954543.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953386.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953275.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952957.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4392455EE055AD18786BD27E99131404A139B9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223067   (952343) от 26.01.2014
-
-Спортлото-82 (1982) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952343.jpg" />
-</div>
-
-
-###  Подробнее
-
-На один из билетов «Спортлото» выпадает крупный выигрыш. Однако билет потерялся. В поисках его герои попадают во множество занятных переделок, над которыми зритель веселится от души.
-В жаркое лето 1982-го года все охвачены отпускной горячкой и едут в отпуск на юг. В одном купе собрались разные люди. Сан Саныч (Михаил Пуговкин) — спекулянт, в данном случае собирающийся (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Леонид ГайдайАктеры: Михаил Кокшенов, Михаил Пуговкин,   Светлана Аманова, Альгирис Арлаускас, Денис Кмит,   Нина Гребешкова, Андрей Толшин, Борислав Брондуков,  Луиза Мосендз, Сергей Филиппов, Виктор Уральский, Вера Ивлева и др.Перевод: ОригинальныйПродолжительность: 01:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF682E206C672431AB2D7E98659D2F7D503C3126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856200   (951798) от 09.01.2015
-
-Близнецы (1945) DVBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951798.jpg" />
-</div>
-
-
-###  Подробнее
-
-На вокзале потерялись очаровательные близнецы, грудные младенцы. В устройстве их судьбы принимают участие и молодая девушка-электромонтер, и военные моряки, и садовод, и старый профессор психологии. В заботах о малышах каждый находит и свое счастье.Жанр: Комедия, МелодрамаРежиссер: Константин ЮдинАктеры: Михаил Жаров, Людмила Целиковская, Вера Орлова, Павел Шпрингфельд, Андрей Тутышкин, Ирина Мурзаева, Дмитрий Павлов, Константин Сорокин, Владимир Грибков, Инна ФёдороваПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6142466BEC069462FBBC3EA10C47D9D883E7C3DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

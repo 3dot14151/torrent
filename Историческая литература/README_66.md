@@ -1,3 +1,107 @@
+###  Публикация: 944429   (440676) от 07.10.2015
+
+В. Н. Кузнецов | Дени Дидро [К 250-летию со дня рождения великого французского философа-материалиста и просветителя] (1963) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440676.jpg" />
+</div>
+
+
+###  Подробнее
+
+В творчестве Дидро и других французских просветителей с особой четкостью обнаружилось, что материализм по самой сущности своей является мировоззрением передовых общественных сил. В. И. Ленин писал: «В течение всей новейшей истории Европы ... материализм оказался единственной последовательной философией, верной всем учениям естественных наук, враждебной суевериям, (   Читать дальше...   )Жанр: История, философия, политология, биографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B6C4DCB9E55399CDBC18B7E2F79CAB6E703980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944306   (440673) от 07.10.2015
+
+В. Ф. Асмус | Жан-Жак Руссо [К 250-летию со дня рождения] (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440673.jpg" />
+</div>
+
+
+###  Подробнее
+
+В короткое время Руссо стал прославленным писателем, могучим пробудителем мысли в Германии и в других странах Европы. Его влияние объяснялось не только действием его философских идей, но и его искусством писателя. Что же представляло собой это учение, завоевавшее такой быстрый и блистательный, победоносный успех? Кто был его автор, какую жизнь вел он в своем обществе?Жанр: История, философия, биографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8E9B1204EDB2D91CA935CA3EEC9A5F5E2A82D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944313   (440667) от 07.10.2015
+
+В. Ф. Асмус | Философия Иммануила Канта (1957) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440667.jpg" />
+</div>
+
+
+###  Подробнее
+
+О естественнонаучных, философских и общественно-политических взглядах Иммануила Канта — родоначальника немецкой классической философии.Жанр: История, философия, биография, эстетика, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513469393BC4E0ED7AAD3B4C55418A9809E21C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944584   (440364) от 07.10.2015
+
+Дмитрий Москаленко | История деградации азбуки (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440364.jpg" />
+</div>
+
+
+###  Подробнее
+
+В как таковой «письменности на бумаге» в древности не было острой необходимости, т. к. хранение и передача информации осуществлялась на энергоинформационном плане. Это как сейчас, например, мы используем компьютеры, телевизоры, интернет и сотовые телефоны для записи, хранения и передачи информации, и по сути сама письменность на бумаге уже становится менее актуальна. (   Читать дальше...   )Жанр: История, культурология, языкознаниеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F021652A871536755D2B4F73E3F34E015F0F5EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164474   (440050) от 10.09.2017
 
 С.Ю. Витте и падение русского государственного кредита (1907) [DJVU]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440050.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439946.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439937.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439900.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439898.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439892.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439880.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439878.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439872.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439867.jpg" />
 </div>
 
 
@@ -276,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439791.jpg" />
 </div>
 
 
@@ -304,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439694.jpg" />
 </div>
 
 
@@ -330,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439691.jpg" />
 </div>
 
 
@@ -357,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439689.jpg" />
 </div>
 
 
@@ -383,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439684.jpg" />
 </div>
 
 
@@ -409,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439612.jpg" />
 </div>
 
 
@@ -437,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439497.jpg" />
 </div>
 
 
@@ -463,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439356.jpg" />
 </div>
 
 
@@ -489,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439340.jpg" />
 </div>
 
 
@@ -517,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439337.jpg" />
 </div>
 
 
@@ -545,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439235.jpg" />
 </div>
 
 
@@ -571,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439200.jpg" />
 </div>
 
 
@@ -582,113 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E550E92E07F8AB37560C243BF49D882358C42E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164577   (439196) от 10.09.2017
-
-Л.И. Арефьева, А.И. Мусатов (отв. за вып.) | Иллюстрированная хронология истории Российского государства в портретах [Репр. с изд. 1909 г.] (1990) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Репринтное воспроизведение издания 1909 года.
-Более 60 портретов русских князей и царей с краткой информацией к каждому об истории жизни и правления. Для князей информации поменьше, для царей, соответственно, побольше. Но в среднем - на один разворот. Начинается от Рюрика и заканчивается Николаем II.Жанр: историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F70634B7CBAF5788D530E41AE704627737F1ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062639   (438872) от 14.10.2016
-
-Лев Гумилев | От Руси до России. Иллюстрированная история (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438872.jpg" />
-</div>
-
-
-###  Подробнее
-
-«От Руси до России» – оригинальное и по-настоящему глубокое исследование выдающегося русского историка и географа Л.Н. Гумилева. Оно обращает взгляд читателя на исторический период нашей страны, ограниченный становлением Киевского княжества и эпохой петровских реформ, причем все события и поступки исторических лиц объяснены с позиций разработанной автором пассионарной (   Читать дальше...   )Жанр: История, этнографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0C2D8A01FFB63DD8E6EBA953C5A390BB2D89A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944771   (438198) от 08.10.2015
-
-Джеффри Хоскинг | Россия и русские. Книга 1 (2003) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как ни парадоксально это звучит, наиболее интересные - в смысле оригинальности и нетрадиционное взгляда - исследования истории нашей страны всегда, с древнейших времен, создавали иностранцы.
-Почему?
-Возможно, здесь сказывается суровая непредвзятость объективного научного критицизма? Возможно, нам любопытна сама попытка "понять Россию умом"? Возможно... (   Читать дальше...   )Жанр: История, этнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED80B2B075C52BA4E4D36EFD57142ED97D16021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410245   (437907) от 20.09.2020
-
-Филипп Матышак | Греческие и римские мифы. От Трои и Гомера до Пандоры и «Аватара» (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мифы Древней Греции и Рима завораживают людей не первое тысячелетие. Все мы знаем о подвигах Геракла, Троянской войне, распрях богов и приключениях героев. Осколки этих историй повсюду разбросаны в современных культуре и языке. Эта книга – путеводитель по основным сюжетам, героям и мотивам – поможет собрать разрозненные фрагменты в единую величественную картину. (   Читать дальше...   )Жанр: Культурология, Мифы, легенды, эпосПеревод: Н.Ю. ЖивловаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53E9D164AF9EEA0194611F19EF370DA96E04425
 ```
 
 https://mybot314.ru/tekegram_catalog/

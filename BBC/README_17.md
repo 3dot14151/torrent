@@ -1,3 +1,29 @@
+###  Публикация: 1236241   (554705) от 16.07.2018
+
+BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская империя ( British  Empire ) развивалась и наращивала свою мощь более двух сотен лет. Небольшая европейская страна какой мы её знаем сегодня, вплоть до 30 годов прошлого столетия являлась самым большим государством в мире. Великобритании принадлежали множество колоний на всех континентах земного шара. Почти четвёртая часть человечества насильственно подчинялось (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, история, исследованиеРежиссер: Джереми ПаксманПеревод: Одноголосый закадровый, профессиональный (Кириллица)Субтитры: русские, в непереведённых фрагментахПродолжительность: 5 x 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B240CF0DCEA0C270354051BC1097A82B048A81C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308352   (553914) от 14.06.2019
 
 Тайная жизнь слонов / The Secret Life of Elephants (2009) BDRip [H.264/1080p] (серии 3 из 3)
@@ -6,7 +32,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553914.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Horizon. Океаны Солнечной системы / Oceans of the Sol
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551294.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC.Империя царей: Россия при Романовых с Люс�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550744.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550288.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549890.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549882.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549828.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. Большое австралийское приключение / Coast Au
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546138.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC: Лететь ли нам на Марс? Мысли о будущем / The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543637.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543388.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC. Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542658.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ BBC: Пираты Карибского моря. Черная борода / Bla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541760.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538685.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ BBC: Древние затерянные города. Тёмные правит
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538584.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531456.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ BBC: Живой мир. Шри-Ланка: Остров слонов / Sri Lanka
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528113.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ BBC. Horizon: Тайны солнечной системы / Secrets of the Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527914.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ BBC. Чудеса животного мира / The Wonder of Animals (2014) SAT
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527211.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526975.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ BBC: Невидимое простым глазом / Da Vinci Learning: BBC: Be
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524910.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524331.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ BBC: Сокровища Древнего Египта / Treasures of Ancient Egy
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522399.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_522282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522282.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SA
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520492.jpg" />
 </div>
 
 
@@ -634,39 +660,13 @@ BBC: Мир природы: Королева снежных обезьян / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520299.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Перед Вами удивительная и захватывающая история о жизни и смерти, повествующая об очень разной судьбе трех групп обезьян. Первые живут в достатке и гармонии друг с другом. Вторые вынуждены ежедневно бороться за выживание в горах. А третьи совершают набеги на поселения людей в поисках пищи. Среда обитания японских макак, или как их ещё называют снежных обезьян, весьма (   Читать дальше...   )Жанр: ДокументальныйПеревод: ДублированныйСубтитры: Русские, отдельным файломПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229286   (518247) от 22.08.2010
-
-BBC: Мир природы. Сокровища Анд / Natural World. Treasure Of The Andes (1993) SATRip [112 серия]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Природа не перестает поражать воображение своими нерукотворными чудесами. Некоторые из них создавались на протяжении миллионов лет эволюции. Нас ждет знакомство с удивительными местами и их не менее удивительными обитателями. В этих нетронутых уголках земли до сих пор подчиняются одному закону - закону природы. Животные не спорят, но готов ли следовать ему человек? (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:27
 
 ## Скачать торент
 ```bash

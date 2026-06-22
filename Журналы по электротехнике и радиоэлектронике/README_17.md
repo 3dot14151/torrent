@@ -1,3 +1,81 @@
+###  Публикация: 700396   (483291) от 15.09.2013
+
+Журнал | Everyday Practical Electronics №6 (июнь 2013) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everyday Practical Electronics - популярный английский журнал по электронике и схемотехнике. Для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C49F9881E8B6F4B127C96D4838DC44729897EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700403   (483290) от 15.09.2013
+
+Журнал | Everyday Practical Electronics №4 (апрель 2013) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everyday Practical Electronics - популярный английский журнал по электронике и схемотехнике. Для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251D726F02A9D5F16792F2C0316391533C320EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700374   (483288) от 15.09.2013
+
+Журнал | Everyday Practical Electronics №7 (июль 2013) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everyday Practical Electronics - популярный английский журнал по электронике и схемотехнике. Для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1EA880D1ED3A261B235A9A47D56FD0A8AC1DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 700392   (483283) от 15.09.2013
 
 Журнал | Everyday Practical Electronics №5 (май 2013) [PDF] [En]
@@ -6,7 +84,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483283.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483278.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483276.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482641.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481318.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481313.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481305.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480419.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480366.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480271.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478902.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478740.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477602.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473028.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472572.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472570.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472476.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472472.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472464.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472460.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472459.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472004.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471912.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A740F3A659AB926537C0F9555965B84A8A139E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160570   (471128) от 26.08.2017
-
-Подшивка журналов | Klang+Ton [109 журналов] (2000-2016) [PDF] [De]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Klang+Ton поможет сделать колонки класса Hi-Fi и даже Hi-End своими руками. Прилагаются чертежи корпусов, схемы электроники, обзоры комплектующих и многое другоеЖанр: Аудиотехника, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0B680F90AE490954EC97F9B2085561BA727C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702047   (470124) от 21.09.2013
-
-Журнал | Everyday Practical Electronics №7 (июль 2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Everyday Practical Electronics предназначен для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами. Журнал Everyday Practical Electronics будет полезен и как для начинающих, так и для опытных радиолюбителей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C3639553A695F12939E4A59988AC5EE5AEC621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702055   (470120) от 21.09.2013
-
-Журнал | Everyday Practical Electronics №4 (апрель 2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everyday Practical Electronics - английский журнал по электронике. Для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов , со схемами и печатными платами. Для начинающих и опытных радиолюбителей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F84CCDF20A6E6A404312FD58EF85829E40BA7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

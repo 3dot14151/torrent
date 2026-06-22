@@ -1,3 +1,84 @@
+###  Публикация: 1165829   (423428) от 17.09.2017
+
+[Renault Dialogys 4.59] (01/2017) Электронная версия документации по автомобилям Renault
+
+>>Автомобили
+>>Автомобильные мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dialogys - это электронная версия документации RENAULT для предпродажного и послепродажного обслуживания автомобилей RENAULT, DACIA.
+Dialogys включает в себя абсолютно все руководства по ремонту, диагностике, а также каталоги запчастей для всех моделей автомобилей марки Renault.
+Электросхем в этой программе нет.
+Техноты и MRы на русском для автомобилей примерно после (   Читать дальше...   )Формат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1932B88A2D627F1B7822C4A8A0D237D85636E63B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947010   (422658) от 15.10.2015
+
+Журнал | Автомир [Россия] №43 (октябрь 2015) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422658.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CAEA7C5BE05A16C884FD751D99D86FBAEF372EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166794   (421915) от 18.09.2017
+
+Журнал | Автопарк. 5 колесо №6 (95) (сентябрь 2017) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421915.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автопарк. 5 колесо» - Полноцветное издание рынка коммерческого автотранспорта. Основная цель - предоставление участникам рынка коммерческого транспорта объективной информации о существующих практических решениях, применяемых в данной сфере, а также о текущих тенденциях развития рынка в целом и его сегментов. Над созданием журнала работает профессиональная команда (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D4DA35A1AEC9CFD338F92C6284044CF95969BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947445   (420511) от 16.10.2015
 
 Журнал | Автоцентр №35-36 (сентябрь 2015) [PDF]
@@ -6,7 +87,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420511.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419251.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417612.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416620.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415042.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415021.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414218.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414010.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412816.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412729.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412634.jpg" />
 </div>
 
 
@@ -294,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412356.jpg" />
 </div>
 
 
@@ -320,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410987.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410509.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408360.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408143.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408141.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405595.jpg" />
 </div>
 
 
@@ -477,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404630.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404279.jpg" />
 </div>
 
 
@@ -522,32 +603,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563816   (403307) от 22.10.2012
-
-А.А. Владимиров, С.Н. Погребной | Kia Rio выпуск с 2011 г. Руководство по эксплуатации, техническому обслуживанию и ремонту [2012] [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробное руководство со множеством цветных иллюстраций по эксплуатации, техническому обслуживанию и ремонту автомобилей Kia Rio III с бензиновыми двигателями рабочим объёмом 1.4л и 1.6лФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84762375E11051A8FF2556EB0928BC4D6C254867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564632   (402330) от 24.10.2012
 
 Журнал | АвтоЗвук №11 [ноябрь 2012] [PDF]
@@ -556,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402330.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402114.jpg" />
 </div>
 
 
@@ -608,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401682.jpg" />
 </div>
 
 
@@ -619,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15DF7141EB04EEDA18567438564312D5D31A3907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565191   (400866) от 25.10.2012
-
-Журнал | За рулем [Россия] №11 [ноябрь 2012] [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобильный журнал «За рулем» - один из авторитетнейших авто журналов! В нём публикуются краш тесты, авто-мото новинки, советы по эксплуатации, рецензии экспертов и масса статей на различные аспекты автомобильной жизни.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3E8CCCEA6C28CEEE8696B9BBF9A6B9CBAF7867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565078   (400773) от 25.10.2012
-
-М.Рэндалл | Volvo V70 & S80. Ремонт и техническое обслуживание [2008] [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное руководство предназначено для того, чтобы автолюбитель мог грамотно обсудить и спланировать ремонт автомобиля с профессиональным механиком или выполнить его своими силами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A585C52ECBA84A81093101FDA9F09C9BE2F68352
 ```
 
 https://mybot314.ru/tekegram_catalog/

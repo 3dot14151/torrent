@@ -1,3 +1,61 @@
+###  Публикация: 1472889   (1014036) от 27.05.2021
+
+VA - Rebell Trap Music Mondays (2021) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014036.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rambling Nicholas Heron - Sweet And Sour
+002. Polly Scattergood - Red
+003. Zack Hall - Overgrown
+004. Stereolab - Super Falling Star(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEEF8D9927675B14DC870965407DCE717BC3EA17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472803   (1014033) от 27.05.2021
+
+VA - unknOwn bands (2013 - 2016) [MP3|192 - 320 Kbps] <Alternative, Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014033.jpg" />
+</div>
+
+
+###  Подробнее
+
+UnknOwn bands - Vol. 1 (2013)
+
+01. Bullet Method - Rise
+02. Kita - Twisted Complicated World(   Читать дальше...   )Жанр: alternative, rock, metalПродолжительность: 09:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8350E3F0BCAA5FD201CF78D803E7FF4E324A38A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472836   (1014005) от 27.05.2021
 
 VA - The Classics Rock 'n' Roll (2021) [MP3|320 Kbps] <Rock & Roll, Rock Classic>
@@ -6,7 +64,7 @@ VA - The Classics Rock 'n' Roll (2021) [MP3|320 Kbps] <Rock & Roll, Rock Classic
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014005.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Musical Critic: Сборники паблика Musical Critic (2010 - 2013
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013993.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - 70's Rock Power (2021) [MP3|320 Kbps] <Rock, Classic-Rock, Hard-Rock, Balla
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013968.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Soft Rock (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013473.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The End: Apocalypse Sound (2021) [MP3|320 Kbps] <Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012902.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Rock Matrix (2021) [MP3|320 Kbps] <Rock, Alternative, Classic Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012724.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Mass In The Catacomb (2021) [MP3|320 Kbps] <Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011534.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Confessions (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010509.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Punk Rock Stars (2021) [MP3|320 Kbps] <Punk, Rock Punk>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010190.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Rock (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010142.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Purgatory (2021) [MP3|320 Kbps] <Metal, Hard Rock, Core>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009578.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Rock Drive 13 (2021) от DON Music [MP3|320 Kbps] <Hard Rock, Blues Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009250.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Joe Cocker - The Last Road (2021) 2CD, Compilation [MP3|320 Kbps] <Rock, Blues, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009230.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - The Music Pie: Pop-Rock Indie (2CD) (2021) [MP3|320 Kbps] <Indie, Pop-Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007763.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - 100 Greatest Alternative 80s (2021) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007722.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Rock covers (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007715.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - 100 Greatest Modern Indie Songs (2021) [MP3|320 Kbps] <Alternative & Indie>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007409.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006883.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Rock Hits (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006081.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Technical & Progressive Death Metal 6 (2017-2021) from Domovoy767 [MP3|320 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005187.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - 100 Greatest Soft Rock Songs (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004838.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - 30 The Final Countdown covers (2009) [MP3|128-320 кб/с]<Rock, Metal, Ska
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004715.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Тараканы! covers (2010) [MP3|192 kbps] <Punk>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004698.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004573.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4042E3F56BBC8A680F5BA2BDB0AF4C339D2CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486604   (1004552) от 01.08.2021
-
-VA - Greatest Hard Rock And Metal Songs (2021) [MP3|320 Kbps] <Hard Rock, Hardcore, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004552.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bushido Code - Stench Of Cowards Rot
-002. Nailwound - On Sight
-003. Purgatory - Disease
-004. Lamb Of God - Memento Mori(   Читать дальше...   )Жанр: Hard Rock, Hardcore, MetalПродолжительность: 10:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D531839A88CFB96AA247D98E4DDA4535F4ADF857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349592   (1004295) от 02.01.2020
-
-VA - Animalistic Vol.02 (2019) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beyond The Grey - Unthinkable Tragedy
-002. Vitaform - Devil's Mirror
-003. Hands Of God - 2 Shotz
-004. Primal Fear - Apocalypse(   Читать дальше...   )Жанр: Hard Rock, Metal, HardcoreПродолжительность: 08:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AFD90A2141979EF82A080F0C8042C9973D0C40
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 525429   (607335) от 21.07.2012
+
+Outlanders / Гости с далеких планет [1986, OVA, 1 ep.] DVDRip raw +eng
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принцесса Кам пробивается сквозь блокаду своих соотечественников на «святую землю» (т.е. Землю) под пламенную встречу земных сил ПВО. Естественно, противостоять огневой мощи принцессы не могут ни реактивные самолеты, ни солдаты, среди которых она после приземления устраивает жестокую резню. Однако среди солдат оказывается парень, «на других не похожий»: молодой фотограф (   Читать дальше...   )Жанр: комедия, приключения, фантастикаРежиссер: Ямада Кацухиса / Yamada KatsuhisaПеревод: shintouЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 48 мин..
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525421   (607333) от 21.07.2012
 
 Kyokuguro no Tsubasa / Legend of Lemnear / Легенда о Лемнеар [1989, OVA, 1 ep.] DVDRip raw +eng
@@ -6,7 +32,7 @@ Kyokuguro no Tsubasa / Legend of Lemnear / Легенда о Лемнеар [198
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_607333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607333.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Supernatural | Supernatural The Anime Series | Supernatural the Animation | Св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606727.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] BDRip 1080p R
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606669.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Major Complete Collection | Мэйджор Полное собрание (6 Се
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606559.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606452.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Мой п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606310.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Mushishi Zoku Shou / Мастер Муси [ТВ-2] [2014, TV, 10 ep] HDTVRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605778.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Gokushufudou | The Way of the Househusband | Путь домохозяина [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604328.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Enen no Shouboutai | Fire Force | Пламенный отряд [2019, TV, 24 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604298.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Enen no Shouboutai Ni no Shou | Fire Force (2020) | Пламенный отря�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604284.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Ani ni Tsukeru Kusuri wa Nai! / Нет лекарства для моего бр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604201.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Bakumatsu Kikansetsu Irohanihoheto | Intrigue in the Bakumatsu: Irohanihoheto | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603958.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Junod | Жюно [2010, Movie] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603428.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью: Су�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602440.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602432.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Tsuki ga Kirei / Прекрасна, как луна [2017, TV, 12 эп. + 1 OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602351.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Tsugumomo / Цугумомо [2017, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602322.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Yowamushi Pedal: New Generation / Трусливый Велосипедист: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602317.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601731.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601693.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Youkoso Japari Park | Welcome to Japari Park | Добро пожаловать �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601624.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatte Iru | Beautiful Bones: Sakurako`
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601028.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Natsuyuki Rendezvous / Рандеву под летним снегом (2012, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600528.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Alice to Zouroku | Алиса и Дзоуроку [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599719.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599467.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A66949C37750601F81D191BC1B7C73FAABF16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217916   (599465) от 24.06.2018
-
-Saredo Tsumibito wa Ryuu to Odoru: Dances with the Dragons | И всё же, грешник танцует с драконом [2018, TV, 12 эп.] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599465.jpg" />
-</div>
-
-
-###  Подробнее
-
-История разворачивается в альтернативном мире, где существуют «заклинания-уравнения», способные управлять квантовой константой h, изменять законы физики на ограниченном участке пространства, создавать взрывчатые вещества или ядовитые газы либо генерировать физические феномены вроде плазмы или ядерной реакции. Два «уравнителя», способные использовать данные «заклинания» (   Читать дальше...   )Производство: студия Seven Arcs / セブン・アークスЖанр: приключения, фэнтезиРежиссер: Нисикиори ХиросиПеревод: HorribleSubs; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A062DC5CB0714E0BA8C705B007C9EC2E894D587
 ```
 
 https://mybot314.ru/tekegram_catalog/

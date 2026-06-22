@@ -1,3 +1,82 @@
+###  Публикация: 1818572   (1299) от 23.09.2025
+
+Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пиратов [2021, TV, 12 из 12 эп.] BDRip 10-bit 1080p raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1299.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 век, Атлантический океан. Фена Хаутман отправилась с отцом в морское путешествие, но вскоре на их корабль нападают пираты. Фену сажают в шлюпку и ей удаётся спастить в одиночку. Прошло десять лет. Фена выросла красавицей с белоснежной кожей и отливающими серебром волосами. Когда Фену настигла погоня, её спасает юноша в красных доспехах и шлеме с оленьими рогами. (   Читать дальше...   )Производство: Production I.GЖанр: приключeнияЯзык озвучки: Японский, Английский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672258E0CECFA4DB686D8DB7BC5A3A76B124535F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805861   (1229) от 24.09.2025
+
+Отель для нелюдей | Hotel Inhumans [2025, TV, 12 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1229.jpg" />
+</div>
+
+
+###  Подробнее
+
+За маской безупречного сервиса и изысканной кухни скрываются тёмные тайны. Гости отеля "Для нелюдей" – профессиональные убийцы, прибывшие со всего света, чтобы выполнить свои смертоносные контракты. И тут для них созданы все условия: от новейших технологий в области закупки оружия до гарантированного сокрытия личности и беспрепятственного избавления от (   Читать дальше...   )Производство: Япония / Студия BridgeЖанр: Драма, приключения, экшенРежиссер: Амино ТэцуроЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0CA8952D9BD305992BF4FA0E7C9D33C3266B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805824   (1098) от 25.09.2025
+
+Подобранный авантюристом ранга S | Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru: Kono Shiro Madoushi ga Kikakugai Sugiru | Scooped Up by an S-Rank Adventurer! [2025, ...
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кому вообще сдался этот бездарный белый маг?
+С этими словами всеми обожаемый герой исключает бедного Ллойда из своей группы. Потеряв постоянную работу, наш белый маг по воле случая попадает в группу S-ранга и сопровождает её на задании. Тогда никому и в голову не могло прийти, что группа героя распадётся, а Ллойд, необычный маг поддержки, станет первоклассным авантюристом. (   Читать дальше...   )Производство: Япония / Студия Felix Film, directrainЖанр: Приключения, фэнтезиРежиссер: Тамада ХиросиЯзык озвучки: Русский (AniLiberty), (ТО Дубляжная), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D031F471941EEF9AD0823D2DFA43D43F400CE08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805711   (1084) от 25.09.2025
 
 Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter | Яростный боец Уродомен [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +85,7 @@ Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1084.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1071.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1061.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_888.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126.jpg" />
 </div>
 
 

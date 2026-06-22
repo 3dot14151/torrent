@@ -1,3 +1,263 @@
+###  Публикация: 1071428   (358687) от 10.11.2016
+
+Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы — доктор! Или киллер? В этом посвященном медицине симуляторе реальных ситуаций вам предстоит бороться за жизнь 50 пациентов, которые предстанут перед вами, как под микроскопом, со всеми своими надеждами, взлётами и падениями. Диагнозы самые разнообразные: от преждевременных родов до множественных колотых ран. От каждого вашего решения зависит чья-то жизнь. Будете (   Читать дальше...   )Тип издания: LicenseРазработчик: Legacy InteractiveЖанр: СимуляторЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4192D2BFDCDFB63AC3603EAABE3328359A55A37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327902   (358371) от 02.10.2019
+
+eXoDOS Collection (2019) [En] (4.0) Repack eXo
+
+>>Win Старые Игры
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник eXoDos Collection представляют собой коллекцию из 7000 DOS игр. Коллекция преимущественно сосредоточена на коммерческих релизах, но некоторые известные бесплатные игры в неё тоже включены.Тип издания: RepackРазработчик: РазличныеЖанр: РазличныеЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B901594EF61DA8E2D498F88B05D5ACEDD16E881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328737   (358158) от 02.10.2019
+
+Far Cry - Ёкарный Бабай (2019) [Ru/En] (1.0) Mod Bert-Masters-Studio
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие мода происходит параллельно действию мода «Far Cry - По-русски 2». Бравый майор Забугин получает от высшего командования приказ отправиться на помощь суперагенту Виктору Соболеву и арестовать доктора Дэниела Росса. Среди лесов, гор и болот Камчатки майору Забугину предстоит столкнуться лицом к лицу не только со злыми и опасными врагами, но и с коварством (   Читать дальше...   )Тип издания: ModЖанр: Action (Shooter), 1st PersonЯзык озвучки: РусскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A88919E408FE92E986661E9394D361BF1B88CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417382   (355219) от 21.10.2020
+
+Emperor of the Fading Suns / Император Угасающих Звёзд (1997) [Ru] (1.40) Unofficial
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355219.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале пятого тысячелетия от Рождества Христова человечество наконец-то нашло способ путешествовать между звёздами сквозь «звёздные врата» и не замедлило этим воспользоваться. На пути звёздной экспансии люди терраформировали планеты, нашли братьев по разуму и опасные биологические виды, способные к симбиозу с человеческим телом. Видимые серьёзные угрозы человечеству (   Читать дальше...   )Тип издания: UnofficialРазработчик: Holistic DesignЖанр: Turn-based strategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6950EA464DE78930A55F1B349EB89D6D8BDB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072085   (354097) от 12.11.2016
+
+Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра начинается с того, что главный герой назначается на должность телохранителя Королевы Атлантиды. После того, как Сет прибывает на место, он обнаруживает, что Королева исчезла незадолго до его присоединения к отряду. По мере развития сюжета, главный герой узнаёт, что между Королевой и Консулом произошла серьёзная стычка.Тип издания: LicenseРазработчик: Cryo Interactive EntertainmentЖанр: AdventureЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64207D220183CA4D5DC5EA30A9168271307EDC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072610   (351712) от 13.11.2016
+
+Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.296.2) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Логическая игра про милых домашних зверушек Норнов. Они бегают по всему кораблю и не могут успокоится, но, как заботливый родитель, Капитан обучает своих питомцев всем премудростям жизни в космосе.Тип издания: LicenseРазработчик: Gameware DevelopmentЖанр: Logic, Virtual petsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73221EECE9F65B5A59718BBB8D366303FF9153C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201788   (350489) от 23.10.2020
+
+Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра, возродившая серию! У Чувака первый рабочий день в компании RWS. Тут-то и начинается веселье! Подеритесь с копами! Задайте жару прохожим! Проучите террорюг! Купите молоко! Получите автограф Гэри Коулмана! Забудьте все, что вы знали о шутерах с видом от первого лица. Влезьте на недельку в шкуру Чувака из Postal. Вас ждет открытый трехмерный мир, более ста уникальных (   Читать дальше...   )Тип издания: LicenseРазработчик: Running With ScissorsЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, ПольскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221BF8288B8939DE4C9D53497BB50E9C291CC6CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179333   (348497) от 31.10.2017
+
+Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятное приключение начинается. Предыдущие попытки раскрыть секреты загадочной и давно заброшенной планеты Аргилис не увенчались успехом. Команды исследователей докладывали о необычайных находках, а после этого таинственно исчезали. В своих путанных сообщениях они говорили о мире, в котором по воздуху бесцельно плывут покинутые экипажами живые корабли - все, (   Читать дальше...   )Тип издания: RepackРазработчик: Detalion и LK AvalonЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Польский и другиеЯзык интерфейса: Русский, Английский, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB4778A9E7E03213123A5F5C1D0AC7BA23D4A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179336   (348489) от 31.10.2017
+
+Final DOOM (1994) [En] (1.9) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Doom - сборник из двух любительских IWAD-файлов к компьютерной игре Doom II: Hell on Earth, по 32 уровня каждый: TNT: Evilution от Team TNT и The Plutonia Experiment от братьев Касали. Уровни распространялись как официальный продукт id Software. Множество фактов намекают на любительское прошлое игры: новых монстров нет, выходы на секретный уровень находятся (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8BE565B607FCB3B100FD821A361FE07FD21898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179432   (348361) от 31.10.2017
+
+DOOM II (1994) [En] (1.9/dlc) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры начинается вскоре после событий Doom. Игрок снова управляет безымянным морпехом из игры, расправившимся с силами ада на Фобосе, Деймосе и Марсе в оригинальной игре. Оказавшись на своей родной Земле, он обнаруживает, что она тоже стала жертвой нашествия монстров. На протяжении 30 уровней (не считая двух секретных) игрок снова сталкивается с адскими полчищами. (   Читать дальше...   )Тип издания: LicenseРазработчик: id SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36743EDEBBF5D61964FFCFAD1E295F9342DDEB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578144   (347636) от 23.11.2012
 
 Uprising 2: Lead and Destroy [En] (L) 1998
@@ -6,7 +266,7 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347636.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Independence War 2: Edge of Chaos (2001) [En] (F14.6) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346886.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ Etherlords / Демиурги (2001) [Ru/En] (1.07/1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346870.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ Legacy of Kain: Soul Reaver 2 (2001) [Multi] (1.02) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346139.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340196.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ Evolva / Evolva. Риск заражения (2000) [En] (1.2.944) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339277.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) L
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338402.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ Fallout 2 [Ru] (L) 1998
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325043.jpg" />
 </div>
 
 
@@ -214,7 +474,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322440.jpg" />
 </div>
 
 
@@ -240,7 +500,7 @@ Supreme Ruler 2020 (2008) [Multi] (2.0.0.1/dlc) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320247.jpg" />
 </div>
 
 
@@ -266,7 +526,7 @@ Conqueror A.D. 1086 (1995) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316394.jpg" />
 </div>
 
 
@@ -292,7 +552,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack Samael
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316223.jpg" />
 </div>
 
 
@@ -318,7 +578,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312897.jpg" />
 </div>
 
 
@@ -344,7 +604,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311651.jpg" />
 </div>
 
 
@@ -370,7 +630,7 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311055.jpg" />
 </div>
 
 
@@ -396,7 +656,7 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305729.jpg" />
 </div>
 
 
@@ -407,267 +667,6 @@ Tale of Imerion (2002) [Multi] (1.0.3) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D045925FFB408E2503F8CCFB2E8781FBB03F676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582982   (304708) от 05.12.2012
-
-The Moment Of Silence / Момент истины [Ru] (L) 2005
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304708.jpg" />
-</div>
-
-
-###  Подробнее
-
-2044 год. Жизнь сотрудника телекоммуникационного агентства Питера Райта, потерявшего семью в авиакатастрофе незадолго до начала описанных событий, внезапно изменилась после ареста его соседа. Темной ночью отряд спецназа взял штурмом квартиру несчастного и уволок неизвестно куда. Помощь испуганным домочадцам жертвы полицейского произвола — гораздо более достойное занятие, чем поиск истины на дне стакана виски. Питер ввязывается в историю с правительственными заговорами, слухами об инопланетянах, контролирующих жизнь каждого землянина, и таинственными «людьми в черном», способными попирать все мыслимые гражданские права и свободы.
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B11B8E57E6E7FDC8B94D6B13CBB122E79EA0E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960910   (304579) от 29.11.2015
-
-Serious Sam: The First Encounter / Крутой Сэм: Первая кровь (2001) [Ru/En] (1.05) Repack R.G. Механики
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304579.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 21 века человечество на раскопках одной из первых и древнейших цивилизаций, древнеегипетской, обнаружило дурно пахнущие останки другого, еще более древнего, но довольно продвинутого в техническом плане мира, существовавшего на нашей планете хрен знает сколько лет назад.Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B63239DF79948E3D0E2DF1EBF9676D7C220955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960914   (304575) от 29.11.2015
-
-Serious Sam: The Second Encounter / Serious Sam. Второе пришествие (2002) [Ru/En] (1.07) Repack R.G. Механики
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целых двенадцать месяцев нас кормили обещаниями сиквела. Половину из них - подзадоривали сообщениями о готовности альфа-, бета- и прочих версий, баловали демками, дразнили скриншотами и постоянно доверительно сообщали - "вот-вот, еще чуть-чуть"… И все это - после неприлично короткой первой части, которую большинство игроков проскакивало за пару дней.Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F703D74B6D8FDF2A870986D34191C817229F6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423051   (303729) от 11.11.2020
-
-Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294/dlc) Repack Other s
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303729.jpg" />
-</div>
-
-
-###  Подробнее
-
-ObsCure II является продолжением ObsCure, в котором игроков ждет новая хоррор-история с ужасными чудовищами, стрельбой и раскрытием мистических тайн. Прошло два года после событий первой части. Те ученики, которые выжили после ужасных событий, поступили в соседний колледж и пытаются вернуться к нормальной жизни. Но и там им не будет покоя. Вскоре нашим героям предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: Hydravision EntertainmentЖанр: Adventure (Horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03CFB60162959F1FF613CE64010A4859778FADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422958   (301772) от 12.11.2020
-
-Magic Chronicle (2003) [En] (1.1) License
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301772.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1995 году Westwood взяли да и «запустили» аки кирпич в озеро под названием «Видеоигры» стратегию Command & Conquer. Волна поднялась что надо – виртуальные генералы «в хлам» убивали мышиные коврики в сюжетной кампании и на многопользовательских полях сражений, менеджеры считали барыши, а сумрачные программисты из конкурирующих контор наперегонки принялись писать (   Читать дальше...   )Тип издания: LicenseРазработчик: CyberPlanet InteractiveЖанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD988D5BDF9F8EB151D0C145A5C965A977CAED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265702   (301621) от 07.12.2010
-
-Mad Dog 2: The Lost Gold / Mad Dog 2: Золотая лихорадка [Ru] (L) 1994/2008
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_301621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гроза Дикого Запада Бешеный Пес МакКри снова выходит на тропу войны. На этот раз в компании других "джентльменов удачи" он отправляется на поиски собственного прииска или хотя бы маленькой золотой жилы, стреляя без разбору во всех, кто стоит на его пути. Приструнить молодца может только тот, кто сильнее его и на чьей стороне - закон.Тип издания: лицензияЖанр: Интерактивный тир / Shooting GameЯзык озвучки: русскийЯзык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331675   (300597) от 26.10.2019
-
-Blitzkrieg / Блицкриг (2003) [Ru] (1.2) Repack/Mod Sprut [Сборник модификаций]
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник военных стратегий в реальном времени, основанный на событиях 2 -й мировой войны, включает в себя более десятка игр. Здесь вам предстоит попробовать себя в ролях самых выдающихся полководцев тех лет, причём, как со стороны Советской армии и армий её союзников, так и со стороны армии фашистской Германии. Вашему вниманию представляются три масштабных кампании, (   Читать дальше...   )Тип издания: Repack/ModЖанр: Strategy (Real-time), IsometricЯзык озвучки: Русский, Немецкий, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C28F9896379C7DF7A97B05BB248A57C31C2EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331680   (300410) от 26.10.2019
-
-Blitzkrieg - GZM / Блицкриг - GZM (2003) [Ru] (1.2/9.15) Repack/Mod Sprut [Mod]
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300410.jpg" />
-</div>
-
-
-###  Подробнее
-
-GZM9 – наиболее крупномасштабный проект на базе стратегии(тактике) в реальном времени «Блицкриг» от компании «Нивал», сделанной изначально на тему Второй мировой войны. Проект GZM охватывает временной отрезок от 1914 до 1970 года, при этом исторические события представлены в 7 кампаниях за СССР, Германию, Союзников, Японию, Италию, Финляндию и Венгрию.Тип издания: Repack/ModЖанр: Strategy (Real-time), IsometricЯзык озвучки: Русский, Немецкий, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC00E7680DC57C9561F51C0DB974E88A50EED4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078654   (299370) от 01.12.2016
-
-CivCity: Rome (2006) [Multi] (1.1) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299370.jpg" />
-</div>
-
-
-###  Подробнее
-
-CivCity: Rome — новаторский симулятор градостроителя, вдохновленный миром «Цивилизации» Сида Мейера. На протяжении нескольких десятков миссий вам предстоит строить, планировать и управлять величайшими римскими городами, ведя Империю к расцвету.Тип издания: LicenseРазработчик: Firefly Studios, Firaxis GamesЖанр: Strategy (Manage Busin, Real-time), 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A83457BEC5B1BDB4F1F0CB8524D03959CCBC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078621   (299266) от 01.12.2016
-
-Sid Meier's Civilization III (2001) [En] (1.22) License GOG [Complete]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sid Meier's Civilization III: Complete — это самое последнее предложение в серии Sid Meier's Civilization III, предоставляющее фанатам возможность играть в игру Sid Meier's Civilization III, затягивающее исследовательское путешествие в сочетании с обновленным и улучшенным многопользовательским дополнением Sid Meier's Civilization III: Play the WorldТип издания: LicenseРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), IsometricЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A55E6DEB4DF5755AF39AA5E1F44A9DF01C30D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

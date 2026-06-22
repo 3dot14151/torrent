@@ -1,3 +1,110 @@
+###  Публикация: 1359983   (963050) от 13.02.2020
+
+Ехезкель Котик | Мои воспоминания [2-й том]. Скитаясь и странствуя (2012) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963050.jpg" />
+</div>
+
+
+###  Подробнее
+
+От остановки к остановке в беспорядочном путешествии автора по жизни, перед взором читателя предстают и тотчас исчезают, сменяя друг друга, десятки типичных героев, родственников и друзей, цадиков и хасидов, раввинов и ученых, крестьян и шляхтичей, польских дворянок и еврейских женщин, балагул и меламедов, купцов и арендаторов, богатых и бедных, общественных деятелей (   Читать дальше...   )Жанр: Биографии и МемуарыПеревод: Майя УлановскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15EFDF2D82377AD5789F686A7DA141D31CD9468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359940   (963042) от 13.02.2020
+
+Валентин Гнатюк, Юлия Гнатюк | Мифы и предания праславян (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящие «Сказания» тесно связаны с известной «Велесовой книгой» и являются собранием устных народных преданий, повествующих о тех же временах, которые отображены в «Велесовой книге», а порой и более древних событиях, имевших место в праславянской истории.
+Книга представляет собой широчайшую панораму событий, времён и народов, сменявших друг друга на протяжении (   Читать дальше...   )Жанр: Мифы, Легенды, ЭпосФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987DD9B047FAC4AD8436035AEDC9E9B36BD7056E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359937   (962978) от 13.02.2020
+
+Николай Непомнящий | Крым. 47 сюжетов о прошлом и будущем (2014) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962978.jpg" />
+</div>
+
+
+###  Подробнее
+
+На небольшом клочке суши переплелись в сложном узоре уникальные ландшафты, исторические события, людские судьбы. Каждый найдет здесь кусочек своей родины: альпийский луг, азиатскую пустыню, среднерусское поле, таежный бурелом.
+Крым был яблоком раздора для десятков стран и империй.
+Много прошло по дорогам полуострова народов, культур, религий. И все они оставляли (   Читать дальше...   )Жанр: Общая история, ПутеводителиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CFC6F809EE6FE6D1652D1DD016DC0A8065533E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978637   (962620) от 24.01.2016
+
+Л. И. Гинцберг | Борьба немецких патриотов против фашизма, 1939-1945 (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основное внимание уделено подпольной работе КПГ, сплочению всех противников фашизма, включая военнопленных и иностранных рабочих, угнанных в Германию. Подробно освещается деятельность Национального комитета «Свободная Германия» на советско-германском фронте и в лагерях немецких военнопленных в СССР. Автор раскрывает несостоятельность попыток многих западногерманских (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C8457DA4EEE493D1662BDEBB8B725FA0AC0D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978872   (962516) от 24.01.2016
 
 Э. Че Гевара | Эпизоды революционной войны (1974) [DJVU]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962516.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962404.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962291.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962166.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960737.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960673.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959860.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959338.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958107.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957702.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956992.jpg" />
 </div>
 
 
@@ -301,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956386.jpg" />
 </div>
 
 
@@ -329,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956292.jpg" />
 </div>
 
 
@@ -355,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956283.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956173.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956172.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956163.jpg" />
 </div>
 
 
@@ -459,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956100.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955515.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954767.jpg" />
 </div>
 
 
@@ -538,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954051.jpg" />
 </div>
 
 
@@ -564,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953252.jpg" />
 </div>
 
 
@@ -576,112 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD202263AB0ED4DEC9BF46CF56FDDDC114965F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981104   (953046) от 31.01.2016
-
-Роман Белоусов | Знаменитые авантюристы (1996) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для тех, кто любит историю и увлекается авантюрными сюжетами.
-Похождения героев — реальных людей, живших много лет назад, — и сегодня поражают воображение. Кто-то из них приобрел громкую известность благодаря дерзости и находчивости, кто-то остался на обочине человеческой памяти. Однако их приключения никого не могут оставить равнодушными, наверное, потому, (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AA01A2F124394BDD1EB8E56571C3D330CF97CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981352   (952802) от 31.01.2016
-
-Николай Лузан | Кто, если не мы (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952802.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу рукописи положены драматические события августа 2008 года, и последующая деятельность руководства Департамента военной контрразведки ФСБ России, и одного из его головных управлений в период проведения в российской армии сложной, далеко не однозначной и болезненной реформы 2008–2012 годов.
-Эта их многогранная деятельность проходит на фоне борьбы с иностранными (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85481DBAFCF332667C9D10E0CA893D2D26A6C73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981043   (952779) от 31.01.2016
-
-Александр Никишин | Тайны русской водки. Эпоха Иосифа Сталина (2013) [FB2, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Тайны русской водки. Эпоха Иосифа Сталина" не столько о гастрономических пристрастиях генералиссимуса, сколько о той части истории русской водки, которая пришлась на время его правления. При Сталине отменили сухой закон 1914 года и при нем сухой закон ввели в США, повторив русские ошибки. У американского народа алкоголь отняли, а в СССР его вернули. (   Читать дальше...   )Жанр: ИсторияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2CD03FCDB7F7DDA4C08B80B1938817925DDB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982179   (949717) от 02.02.2016
-
-Фёдор Трофимович Моргун | Сталинско-гитлеровский геноцид украинского народа: факты и  последствия (2007) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аннотация книги: Современный читатель совсем недавно стал свидетелем того, с каким трудом было принято в зале Верховной Рады Украины постановление о признании Голодомора 1932-33 годов геноцидом украинского народа. Известный писатель-публицист Федор Моргун идет еще дальше и расширяет временные границы геноцида по крайней мере - до масштабов первой половины кровавого (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6E457F21AC47F4761A072B6E65D3B5B23B8C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

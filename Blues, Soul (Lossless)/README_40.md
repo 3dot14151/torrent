@@ -6,7 +6,7 @@ The Bluesbones - Live at the Bosuil (2013) [FLAC|Lossless|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797650.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Magic Sam Blues Band - Black Magic (1969),2015,Delmark Records [FLAC|Lossless|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797029.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dusty Springfield - A Girl Called Dusty (1964) Reissue 1997 [FLAC|Lossless|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794471.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bugs Henderson And The Shuffle Kings - Four Tens Strike Again (1996) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793726.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bill Thomas Trio - Rough Draft (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793622.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Otis Redding - Otis Blue / Otis Redding Sings Soul (1965) Remastered 1991, Mono 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793585.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ James Brown - Live At The Apollo (1962) Expanded Edition Remastered 2004 [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793471.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eric McFadden - Eric McFadden does AC/DC: Acoustic Tribute (2018) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793002.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Melanie Mason - Bendin' The Blues (2001) [FLAC|Lossless|image + .cue] <Chicago B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792930.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dave Fields - Unleashed (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792528.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jason Barnhouse - The Wounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792524.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Delta Saints - Bones (2015) [FLAC|Lossless|tracks + .cue] <Delta Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792522.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Yardbirds - Birdland (2003) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792489.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Gov't Mule - Heavy Load Blues (2021) 2xCD, Deluxe Edition [FLAC|Lossless|image +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791416.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Otis Redding - Stax Classics (2017) [FLAC|Lossless|tracks + .cue] <Rhythm & Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791337.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Carl Verheyen - Essential Blues (2017) [FLAC|Lossless|image + .cue] <Blues, Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790462.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jimmie Vaughan - 6 альбомов, 7 CD (1994-2011) [FLAC|Lossless|image + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790450.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Marvin Gaye - What's Going On 1971 (2009) Limited Edition [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790075.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Carl Hancock Rux - Rux Revue (1999) [FLAC|Lossless|tracks + .cue] <Ragga Hip-Hop
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789486.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mississippi MacDonald - Do Right, Say Right (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789207.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dion - Stomping Ground (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789203.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Vargas Blues Band - Back In Memphis (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789199.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Liza Ohlback - Mercy Train (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789038.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788977.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Union Blues - We All Need The Morning (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788774.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Climax Blues Band - Hands Of Time (2019) [FLAC|Lossless|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788577.jpg" />
 </div>
 
 

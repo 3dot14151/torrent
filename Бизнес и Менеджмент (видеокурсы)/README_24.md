@@ -6,7 +6,7 @@ Vugar Rustamov | Приватный канал Американский YouTube.
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3934.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Content Punks, Саша Чернышев | Хевирайтинг. Челлен�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3911.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3905.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3021.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2809.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2790.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1899.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Storytelling School, Татьяна Жакова | Pinterest - с нуля до 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1873.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1861.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Stepik, Карпов и Партнёры | Основы управления п�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1847.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Step Up, Step Up | Перенос онлайн-школы на Salebot (2025) WE
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1832.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_355.jpg" />
 </div>
 
 

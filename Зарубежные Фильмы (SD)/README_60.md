@@ -1,3 +1,136 @@
+###  Публикация: 137760   (992913) от 03.01.2012
+
+Храброе сердце / Braveheart (1995) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма начинается в 1280 году в Шотландии. Это история легендарного национального героя Уильяма Уолласа, посвятившего себя борьбе с англичанами при короле Эдварде Длинноногом.
+Он рано лишился отца, погибшего от рук англичан, и его забрал к себе дядя Оргайл, который дал ему хорошее образование в Европе. На родину Уильям возвращается уже взрослым человеком, (   Читать дальше...   )Жанр: боевик, драма, военный, биографияРежиссер: Мэл Гибсон / Mel GibsonПеревод: Профессиональный - полное дублированиеСубтитры: НетФормат: AVIПродолжительность: 02:57:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 133981   (992910) от 03.01.2012
+
+Ничего личного / Duplicity (2009) [Лицензия|Дубляж] DVDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер ЦРУ Клэр Стенвик и агент службы MI6 Рэй Коваль покинули сферу правительственной разведки, чтобы нажиться на холодной войне, бушующей между двумя конкурирующими многонациональными корпорациями. Их миссия? Сохранить в тайне формулу, которая обеспечит благосостояние первой запатентовавшей ее компании.
+
+Для их работодателей — промышленного гиганта Говарда Талли (   Читать дальше...   )Жанр: триллер, криминалРежиссер: Тони ГилройАктеры: Клайв Оуэн, Джулия Робертс, Том Уилкинсон, Пол Джаматти, Дэн Дэйли, Лиза Робертс, Дэвид Шамбрис, Рик Уорси, Олег Штефанко, Дэнис О`ХареСубтитры: Нет
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430975   (992905) от 03.01.2012
+
+Профессионал / Killer Elite (2011) HDRip [H.264]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшему бойцу британских силовых структур приходится забыть о тихой размеренной жизни отставника, когда его лучший друг оказывается в опасности.Производство: Ambience Entertainment / Current Entertainment / International Traders / Omnilab Media / Palomar PicturesЖанр: Боевик, триллер, криминалРежиссер: Гэри МакКендриАктеры: Джейсон Стэтхэм, Клайв Оуэн, Роберт Де Ниро, Доминик Пурселл, Аден Янг, Ивонн Страховски, Бен Мендельсон, Адевале Акиннуойе-Агбадже, Дэвид Уайтели, Мэтью НэйблПеревод: ДублированныйСубтитры: Вшитые, отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B1EA5320077AE01760800C11E3F7CB6F975854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 135594   (992882) от 03.01.2012
+
+Ведьмина гора / Race to Witch Mountain (2009) [HQ|Лицензия|Дубляж] BDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992882.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Джека Бруно, таксиста-неудачника из Лас-Вегаса, всё перевернулось с ног на голову в тот момент, когда к нему в такси, спасаясь от погони, запрыгнули Тони и Тиа. Вскоре он поймёт, что его пассажиры — дети с необычными паранормальными способностями, которых ему предстоит защитить от безжалостных преследователей.Жанр: Фантастика, триллер, комедия, приключенияРежиссер: Энди ФикменАктеры: Дуэйн «Скала» Джонсон, Анна-Cофия Робб, Александр Людвиг, Карла Гуджино, Киаран Хиндс, Том Эверетт Скотт, Крис Маркетт, Билли Браун, Гэрри Маршалл, Ким РичардсСубтитры: Russian, Ukrainian, EnglishФормат: AVI
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 123847   (992877) от 03.01.2012
+
+Адреналин: Высокое напряжение / Crank: High Voltage (2009) DVDRip [H.264]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он умер, но обещал вернуться! Не чудом, а благодаря современным медицинским технологиям Чев Челиос получает новое сердце и новый шанс отомстить своим врагам. Теперь для постоянной подзарядки ему требуется электрический разряд мощностью не меньше, чем у автомобильного аккумулятора.Производство: США / Lakeshore Entertainment, LionsgateЖанр: Криминал, Боевик, Комедия, ФэнтезиРежиссер: Марк Невелдайн, Брайан ТейлорАктеры: Джейсон Стэйтем, Эми Смарт, Дуайт Йоакам, Бай Лин, Клифтон Коллинз мл., Эфрен Рамирез, Арт Хсю, Хосе Пабло Кантильо, Джозеф Джулиан Сория, Дэвид КэррединПеревод: Дублированный, Авторский одноголосый (Дмитрий Пучков aka Гоблин)Продолжительность: 01:31:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 145381   (992868) от 03.01.2012
 
 Голая правда / The Ugly Truth (2009) [Лицензия|Дубляж] DVDRip
@@ -6,7 +139,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992868.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992724.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992678.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992665.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992614.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992550.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992503.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992484.jpg" />
 </div>
 
 
@@ -214,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992381.jpg" />
 </div>
 
 
@@ -240,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992320.jpg" />
 </div>
 
 
@@ -266,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992319.jpg" />
 </div>
 
 
@@ -292,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992203.jpg" />
 </div>
 
 
@@ -320,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992196.jpg" />
 </div>
 
 
@@ -346,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992191.jpg" />
 </div>
 
 
@@ -375,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991916.jpg" />
 </div>
 
 
@@ -401,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991673.jpg" />
 </div>
 
 
@@ -427,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991624.jpg" />
 </div>
 
 
@@ -454,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991577.jpg" />
 </div>
 
 
@@ -481,7 +614,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991569.jpg" />
 </div>
 
 
@@ -507,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991563.jpg" />
 </div>
 
 
@@ -533,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991561.jpg" />
 </div>
 
 
@@ -544,136 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1403C3C50C9E9DBA80C5B341FADDEFB04DC4CED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609522   (991541) от 27.01.2013
-
-Мой парень – псих / Silver Linings Playbook (2012) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная перемена в жизни героя, после того, как жена ему изменяет — что у него диагностируют биполярное расстройство, и он 8 месяцев проводит в психушке. После чего по решению суда не должен с ней встречаться.Жанр: Драма, Мелодрама, КомедияРежиссер: Дэвид О. РасселлПродюсер: Брюс Коэн, Донна Джильотти, Брэдли КуперАктеры: Брэдли Купер, Дженнифер Лоуренс, Роберт Де Ниро, Джеки Уивер, Крис Такер, Анупам Кхер, Джон Ортиз, Ши Уигхэм, Джулия Стайлз, Пол ХерманПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DA0F73C9567D357C8CE242736E0DAD9CEEAFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353588   (991515) от 18.01.2020
-
-Старые шпионские игры (Паук в паутине) / Spider in the Web (2019) BDRip [H.265] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В свое время Адерет был одним из лучших секретных агентов в мире. Но время идёт, и вот уже начальство считает его слишком старым и отправляет шпиона в вынужденную отставку. Последний шанс восстановить былую репутацию появляется благодаря секретной операции, которая наводит Адерета на след поставщика химического оружия. Пока он выслеживает Анджелу, руководство посылает (   Читать дальше...   )Производство: Великобритания, Израиль / Eran Riklis Productions, Ciné Cri De Coeur, Film ConstellationЖанр: ТриллерРежиссер: Эран РиклисАктеры: Бен Кингсли, Моника Беллуччи, Итай Тиран, Ицик Коэн, Филип Пеетерс, Хильде Ван Мигхем, Макрам Хури, Матейс Шеперс, Марсель Хенсема, Воутер Ван ЛирдПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9416E3236EDE8D18C119CFF6864E1FB38774F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191251   (991507) от 18.01.2020
-
-Чтец / The Reader (2008) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повествование структурировано на три истории, каждая из которых вызывается из памяти постаревшим Михаэлем Бергом. Первая часть происходит в 1950-е годы в послевоенной Германии, в провинциальном городке, название которого не указывается (подразумевается Гейдельберг). Вторая часть — спустя 10 лет — происходит в Берлине, где Михаэль изучает юриспруденцию. Заключительная (   Читать дальше...   )Производство: США, Германия / The Weinstein Company LLC, Mirage EnterprisesЖанр: Драма, МелодрамаРежиссер: Стивен ДолдриАктеры: Рэйф Файнс, Кейт Уинслет, Давид Кросс, Жанетт Хайн, Сюзанна Лотар, Алисса Вильм, Флориан Бартоломай, Фредерике Бехт, Маттиас Хабих, Фридер ВенусПеревод: Авторский (Юрий Сербин)Субтитры: Русские, АнглийскиеПродолжительность: 02:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A26F8FB14C71C49A59BE4D52BCB311DB0789411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609318   (991495) от 27.01.2013
-
-Робот и Фрэнк / Robot & Frank (2012) [H.264] DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о трогательной дружбе старика и робота. История заключается в том, что пожилой мужчина, Фрэнк, в прошлом, кстати, вор-взломщик, живет в одиночестве. Его уже взрослые дети далеко, и чтобы хоть как-то помочь стареющему отцу, у которого начинает развиваться болезнь Альцгеймера, сын дарит Фрэнку робота-компаньона. Действие фильма происходит в не очень далеком будущем, роботы в домашнем хозяйстве — вполне нормальное явление. Поскольку Фрэнк считает себя человеком самостоятельным и не желает, чтобы за ним кто-то или что-то присматривало, он с опаской относится к подаренному роботу.Жанр: Фантастика, Драма, КомедияРежиссер: Джейк ШрейерАктеры: Фрэнк Ланджелла, Джеймс Марсден, Лив Тайлер, Сьюзен Сарандон, Питер Сарсгаард, Джереми Стронг, Дарио БароссоПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6590ACE6024EC8FCB9FD3C4ECD2AD9EA25449198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609716   (991447) от 27.01.2013
-
-Синистер / Sinister (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с семьей автор детективов поселяется в небольшом городке, в доме, где почти год назад развернулась леденящая душу трагедия — были убиты все жильцы. Писатель случайно находит видеозаписи, которые являются ключом к тайне преступления. Но ничто не дается даром: в доме начинают происходить жуткие вещи и теперь под угрозой жизнь его близких. Они столкнулись с чем-то, (   Читать дальше...   )Производство: США / Alliance Films, Automatik Entertainment, Blumhouse ProductionsЖанр: Ужасы, Триллер, ДетективРежиссер: Скотт ДерриксонАктеры: Итан Хоук, Джульет Райлэнс, Фред Долтон Томпсон, Джеймс Рэнсон, Майкл Холл Д’Аддарио, Клер Фоли, Роб Райли, Тэвис Смайли, Джанет Заппала, Виктория ЛиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10E75E67019EAF75BFA7E9085CB34EA5819D0D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

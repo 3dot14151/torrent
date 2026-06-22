@@ -1,3 +1,55 @@
+###  Публикация: 1360196   (961851) от 14.02.2020
+
+Игорь Свинаренко | ВПЗР: Великие писатели Земли Русской (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игорь Свинаренко - прозаик, журналист и редактор - еще одним своим профессиональным занятием сделал застольную беседу. А с кем в России поговорить по душам и со вкусом? Конечно, с ВПЗР, "Великими писателями Земли Русской". Аббревиатура эта иронична лишь отчасти, многие литераторы применяют ее к себе всерьез, особенно если разговор застольный, а собеседник (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 31:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653090C1611828E6D55AEBB3FE94B41822E6F16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360250   (960426) от 15.02.2020
+
+Михаил Хазин | Воспоминания о будущем. Идеи современной экономики (2020) [MP3]
+
+>>След.
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание представляет собой популярное авторское изложение экономических закономерностей, которые делают наш мир таким, каков он на сегодня есть. Через призму экономики и экономических процессов пропущены основополагающие события в истории человечества: смена формаций, открытие и завоевание новых материков и земель, появление религиозных доктрин, войны, их предпосылки (   Читать дальше...   )Жанр: Публицистика, Экономическое развитиеПродолжительность: 15:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370DB73B747D75579E9D7B9AF7DCEE2B771301AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981626   (951483) от 01.02.2016
 
 Юлий Малис | Николай Пирогов (2015) [MP3]
@@ -6,7 +58,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951483.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951310.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950921.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948272.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947987.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945270.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939263.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936884.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925898.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915421.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913544.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907789.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905992.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901747.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901554.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897273.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891747.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886057.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885167.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881989.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881719.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879874.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878371.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870593.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:186F909EB0D4ACC1719984F8859B0DB09C3D8F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374511   (868520) от 12.04.2020
-
-Ракитин Алексей | Перевал Дятлова (2017) [MP3]
-
->>След.
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868520.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге разобраны основные версии происшедшего вечером 1 февраля 1959 г. на склоне горы Холатчахль на Северном Урале, восстановлена последовательность действий участников драмы, объяснена логика, причинно-следственные связи и взаимная обусловленность внешне противоречивых событий.Жанр: История/научно-популярноеПродолжительность: 31:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E7C4624B90F2978DC66A77D3CCC9175307BE3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375475   (865381) от 14.04.2020
-
-Наоми Вульф | Миф о красоте. Стереотипы против женщин (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865381.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Миф о красоте» – культовое произведение американской писательницы и журналистки Наоми Вульф. В нем автор рассказывает о том, откуда берутся стереотипные представления о женской красоте и почему они ограничивают свободу женщин не меньше, чем патриархальное «домашнее рабство». Физическое совершенство становится для женщин навязчивой идеей, а несоответствие ему – источником (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 14:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517011DA06C30CAA2DAB6AD453C5A7795D68D400
 ```
 
 https://mybot314.ru/tekegram_catalog/

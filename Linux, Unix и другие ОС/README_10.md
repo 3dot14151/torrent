@@ -1,3 +1,141 @@
+###  Публикация: 1395189   (756859) от 09.07.2020
+
+Debian Edu - Skolelinux 10.4.0 Buster [Linux для школы] [i386, x86-64] 2xBD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D55310A8FBE6D29A20956011A651DAA262DB0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662917   (756822) от 30.05.2013
+
+Debian GNU/kFreeBSD 7.0.0 [i386, amd64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одновременно с Debian GNU/Linux 7.0.0 вышел Debian GNU/kFreeBSD 7.0.0.
+
+Перенос Debian на GNU/kFreeBSD состоит из пользовательского окружения GNU, использующего библиотеку C GNU, которое запущено поверх ядра FreeBSD, а также привычного набора пакетов Debian.
+
+Основные обновления аналогичны обновлениям в основной версии Debian GNU/Linux 7.0.0. В репозитории представлено 37493 бинарных пакетов, что примерно на 30% больше, чем было представлено в Debian 6.0. По сравнению с Debian 6.0 добавлено 12800 новых пакетов, удалено 4125 устаревших пакетов, обновлено 20160 пакетов.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018605   (755671) от 20.05.2016
+
+Calculate Linux 15.17 [i686] 1xCD, 6xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755671.jpg" />
+</div>
+
+
+###  Подробнее
+
+На серверах размещена следующая версия российского дистрибутива Calculate Linux - 15.17. Calculate Linux 15.17, построен на основе Gentoo Linux, поддерживает непрерывный цикл выпуска обновлений и оптимизирован для быстрого развёртывания в корпоративной среде.
+
+Дистрибутив доступен в нескольких редакциях, собранных для архитектур i686 и x86_64: Calculate Linux Desktop (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC15E8E28A475D33245A6BBC23359A0ED864E6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888283   (754886) от 14.04.2015
+
+Scientific Linux 7.1 (w. LiveDVD) [x86-64] 3xDVD, 1xDL DVD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следом за CentOS 7.1 и Oracle Linux 7.1 стал доступен релиз дистрибутива Scientific Linux 7.1, построенного на пакетной базе Red Hat Enterprise Linux 7.1 и дополненного средствами, ориентированными на использование в научных учреждениях. Дистрибутив поставляется для архитектуры x86_64, в форме DVD-сборок (4.3 Гб и 7.1 Гб) и сокращённого образа для установки по сети (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF04870AE19C64257A57760E31E05CEA411A5E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663349   (754872) от 31.05.2013
+
+Chakra (Arch + KDE) 2013.05 Benz [x86-64] (1xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз Chakra GNU/Linux 2013.05 – третий выпуск новой ветки Benz (под таким кодовым наименованием будут выходить релизы Chakra GNU/Linux с рабочим окружением KDE 4.10.x) дистрибутива с непрерывным циклом обновления, выполненного на основе наработок Arch Linux и среды рабочего стола KDE.
+
+Основные особенности выпуска Chakra GNU/Linux 2013.05:  KDE Software Compilation 4.10.3; Chromium 26.0.1410.63, Firefox 21.0, Opera 12.15, QupZilla 1.4.2, Rekonq 2.3.0; KMPlayer 0.11.3d, SMPlayer 0.8.5, Plasma Media Center 1.0.0, VLC 2.0.6, XBMC 12.2; Amarok 2.7.1, Musique 1.2.1, Qmmp 0.7.0, Tomahawk 0.7.0, Yarock 0.9.62; Blender 2.66a, KDevelop 4.5.0, Kdenlive 0.9.6, QtCreator 2.7.0, Rosegarden 13.04; Calligra 2.6.3, FocusWriter 1.4.2, LibreOffice 4.0.3; KMyMoney 4.6.3, Skrooge 1.7.1; digiKam 3.1.0, KDE Telepathy 0.6.1.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280521   (754698) от 06.02.2019
 
 Phoenix OS 3.0.8.529 x86/x64 [En]
@@ -6,7 +144,7 @@ Phoenix OS 3.0.8.529 x86/x64 [En]
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754698.jpg" />
 </div>
 
 
@@ -32,7 +170,7 @@ Calculate Linux 15.17 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_753546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753546.jpg" />
 </div>
 
 
@@ -60,7 +198,7 @@ ZevenOS 3.1 Neptune [x64] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752897.jpg" />
 </div>
 
 
@@ -88,7 +226,7 @@ Manjaro Linux 0.8.6 (Arch + XFCE, openbox, net) [i686, x86-64] (4xCD, 2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749241.jpg" />
 </div>
 
 
@@ -116,7 +254,7 @@ Snowlinux 4.0 Frosty [Cinnamon, Mate] [i386 + amd64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747243.jpg" />
 </div>
 
 
@@ -142,7 +280,7 @@ OSGeo-Live 9.5 (Дистрибутив для географов, картогр
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746485.jpg" />
 </div>
 
 
@@ -168,7 +306,7 @@ Q4OS 1.4.10 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746244.jpg" />
 </div>
 
 
@@ -196,7 +334,7 @@ BackBox Linux v5.1 [Аудит безопасности, хакинг] 2xDVD [i3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744360.jpg" />
 </div>
 
 
@@ -224,7 +362,7 @@ DaVinci Resolve for Linux 17.4.3 Build 10 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743432.jpg" />
 </div>
 
 
@@ -250,7 +388,7 @@ Debian GNU/Linux 8.0 Jessie RC3 (Testing, 20.04.2015) [amd64] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742981.jpg" />
 </div>
 
 
@@ -278,7 +416,7 @@ Debian GNU/Linux 8.0 Jessie RC3 (Testing, 20.04.2015) [i386] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742913.jpg" />
 </div>
 
 
@@ -306,7 +444,7 @@ OSGeo-Live 10.5 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740605.jpg" />
 </div>
 
 
@@ -332,7 +470,7 @@ Sabayon 14.05 [x86] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738598.jpg" />
 </div>
 
 
@@ -360,7 +498,7 @@ Sabayon 14.05 [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738593.jpg" />
 </div>
 
 
@@ -388,7 +526,7 @@ Kali Linux 2021.4a (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит б�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738007.jpg" />
 </div>
 
 
@@ -414,7 +552,7 @@ Edubuntu 14.04 LTS [x86, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737147.jpg" />
 </div>
 
 
@@ -442,7 +580,7 @@ Lubuntu 14.04 LTS [x86, x86-64] 4xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737030.jpg" />
 </div>
 
 
@@ -468,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733303.jpg" />
 </div>
 
 
@@ -495,7 +633,7 @@ GeckoLinux "Rolling" edition 999.200729.0 [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732834.jpg" />
 </div>
 
 
@@ -521,7 +659,7 @@ ROSA Desktop Fresh R9 KDE 4 [i586, x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729374.jpg" />
 </div>
 
 
@@ -547,7 +685,7 @@ Sabayon 16.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728469.jpg" />
 </div>
 
 
@@ -560,141 +698,6 @@ Sabayon 16.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:226BD167DD49BE2957EFEA2A0F02BECFCCAA1A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399782   (724983) от 02.08.2020
-
-Debian GNU/Linux 10.5.0 + nonfree Buster [amd64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано пятое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 101 обновление с устранением проблем со стабильностью и 62 обновление с устранением уязвимостей.
-
-Из изменений в Debian 10.5 выделяется устранение уязвимости в GRUB2, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3ED413D878CE3A3D6D50C587B84C1FDB1E2C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399784   (724858) от 02.08.2020
-
-Debian GNU/Linux 10.5.0 + nonfree Buster [i386] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано пятое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 101 обновление с устранением проблем со стабильностью и 62 обновление с устранением уязвимостей.
-
-Из изменений в Debian 10.5 выделяется устранение уязвимости в GRUB2, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A522AA71F180A3DF34E801DBD7C99F7A9F2B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400029   (722734) от 03.08.2020
-
-Debian Edu - Skolelinux 10.5.0 Buster [Linux для школы] [i386, x86-64] 2xBD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8809286008D945F56DA3EA30D5C6B535E7226066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023892   (722032) от 06.06.2016
-
-Debian GNU/Linux 8.5.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722032.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25245CD7CEBBBAFEC143B54C8E1E177CDEC30D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218932   (717022) от 12.04.2018
-
-ArchBang 110418 beta[OpenRC] [x86-64] 1xCD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717022.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArchBang Linux — легковесный дистрибутив Linux с плавающими релизами, основанный на Arch Linux с Openbox в качестве оконного менеджера. Благодаря этому он способен показывать высокую скорость работы даже на старом или малопроизводительном оборудовании с ограниченными ресурсами.
-Задача ArchBang — обеспечивать простую «из коробки» установку основанной на Arch Linux (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75295B566E4654EB2343A9E72582846F425F8968
 ```
 
 https://mybot314.ru/tekegram_catalog/

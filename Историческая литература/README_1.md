@@ -1,3 +1,81 @@
+###  Публикация: 1857479   (1059659) от 06.03.2026
+
+Ш. Гибсон | Последние дни Иисуса. Археологические свидетельства (2010) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние дни жизни Иисуса до сих пор являются тайной, разгадка которой многие сотни лет не дает покоя человечеству. Известный археолог Шимон Гибсон проливает новый свет на эти события, пользуясь своим исключительным доступом к самым свежим археологическим находкам как к главным свидетельствам. Описывая последние дни Иисуса в хронологической последовательности, от (   Читать дальше...   )Жанр: История, АрхеологияПеревод: Леонид СедовИздательство: АстрельФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D197B4536F0BD1863CDD9CC08549B99269FB85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857478   (1059658) от 06.03.2026
+
+Л.М. Ляшенко | Александр II, или История трех одиночеств (ЖЗЛ вып. 1239) (2010) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историко-биографическая книга Л. М. Ляшенко является одним из первых в мировой литературе исследованием, где сделана попытка всестороннего описания жизни человека, занимающего исключительное место в ряду российских самодержцев. Личность Александра II, заслоненная грандиозностью его реформ, прежде всего отменой крепостного права, предстает во всей полноте человеческих (   Читать дальше...   )Жанр: ИсторияИздательство: Молодая гвардияФормат: PDF, DJVUКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9FE77953D40EB53A94BBABEF29325044E61476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857477   (1059653) от 06.03.2026
+
+Анатолий Кошкин | Японская дилемма 1941 года. Удар на север или на юг (2024) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059653.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге впервые опубликованы на русском языке секретные стенограммы японских Императорских совещаний и заседаний Координационного совета правительства и императорской ставки, дающие представление об особенностях японского политического и военно-стратегического мышления и планирования, что способствует анализу современных подходов официального Токио к внешней политике (   Читать дальше...   )Жанр: ИсторияИздательство: ВечеФормат: PDF, DJVUКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88E300E902DE217F97E33DA933381E976AADD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857475   (1059652) от 06.03.2026
 
 М.Б. Бессуднова | «Ливонские обременения» и русско-ганзейская торговля в преддверии ливонской войны. Источники и комментарии (2025) [PDF]
@@ -6,7 +84,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059652.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059651.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059650.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059649.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059648.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059647.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059646.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059645.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059644.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059643.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059642.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059641.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059640.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059639.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059638.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059637.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059636.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059634.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059554.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059553.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059546.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059475.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059474.jpg" />
 </div>
 
 
@@ -591,85 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90CEF4FBDB8B07DC404A6C2AE498C2BE8DD236FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857286   (1059472) от 05.03.2026
-
-Александр Юрьевич Давыдов | Военный коммунизм. Народ и власть в революционной России. Конец 1917 г. — начало 1921 г. 2-е издание (2025) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги — профессор кафедры русской истории Российского государственного педагогического университета им. А. И. Герцена — на основе изучения большого количества источников и материалов определяет корреляционную зависимость между практикой большевистской партии и радикальной перестройкой главных сфер общественного развития в период военного коммунизма (кон. 1917 (   Читать дальше...   )Жанр: ИсторияИздательство: Евразия (Интермедиатор)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0CDC7D89EC0EE4685EF7461A7AB92DE6448DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857283   (1059471) от 05.03.2026
-
-Льюис Френсис Зальцман | Англия во времена Тюдоров. В контексте социальной жизни и промышленности. 2-е издание (2025) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059471.jpg" />
-</div>
-
-
-###  Подробнее
-
-По словам самого автора - известного английского историка Льюиса Френсиса Зальцмана - Англия эпохи Тюдоров представляет собой переходный период от Средневековья к Новому времени. В ярких и выразительных зарисовках представлено это движение от феодальной монархии к монархии абсолютистской.
-Церковная Реформация и создание самостоятельной Англиканской церкви; распространение (   Читать дальше...   )Жанр: ИсторияПеревод: Е.Е. ПреображенскойИздательство: Евразия (Интермедиатор)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C3015EDCAB1DE0F9B725B98C1FB70F1710FF38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857282   (1059470) от 05.03.2026
-
-Льюис Френсис Зальцман | Английская промышленность в Средние века. 2-е издание (2025) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название этой книги указывает одновременно и на ее цель, и на ее хронологические рамки. Она не претендует на то, чтобы быть полной историей ранней индустриальной жизни Англии, но в то же время может стать введением в изучение этого предмета. Я надеюсь и даже верю, что обычный читатель, проявляющий интерес к истории своей страны, а не к техническим знаниям, получит (   Читать дальше...   )Жанр: ИсторияПеревод: Е.Е. ПреображенскаяИздательство: Евразия (Интермедиатор)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C9BB3C63EDE8064F8BB1208C7ADC27A5ABAABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1197890   (811892) от 09.01.2018
+
+Д. Р. Киркпатрик | Война... ради чего? (1920) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга написана для того, чтобы помочь научить и пробудить рабочий класс. И если эта беспритязательная книга хотя бы в самой ничтожной степени принесет с собою луч света уму моих младших братьев на борту громадных стальных боевых кораблей и в голых пасмурных казармах, зажжет свет в умах моих обездоленных и обманутых братьев и сестер на заводах, на копях и на фермах (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860EEC7F1BFF74737BD83DF8F779C857C566676D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383684   (809966) от 16.05.2020
+
+Валерий Даниленко | Картина мира в мифах древнего Китая (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мифическая картина мира того или иного народа по-своему отражает мировидение этого народа. У каждого народа оно своеобразно. Цель этой книги – наметить путь к воссозданию картины мира в древнекитайских мифах.
+Книга предназначена для тех, кто ценит народную мудрость.Жанр: Древневосточная литература, Мифы, легенды, эпосФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399D1B407881DE744EE2CF9C857CC1874876886E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383687   (809963) от 16.05.2020
+
+Лафкадио Хирн | Призраки и чудеса в старинных японских сказаниях (2017) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония – удивительная, завораживающая страна с богатейшей историей – бережно сохраняет наследие своих предков. Один из образцов такого наследия – кайданы – диковинные легенды и рассказы о призраках, необычных суевериях, жутких и сверхъестественных событиях. Почти все они заимствованы из старинных японских книг, таких как «Ясо-кидан», «Буккё-хаякка-дзэнсё», «Кокон-тёмонсю», (   Читать дальше...   )Жанр: Древневосточная литература, Мифы, легенды, эпосПеревод: Ольга ПавловскаяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495DDE4FB99BD89457EC39A665B5100D23819FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383483   (809825) от 16.05.2020
+
+Вячеслав Клыков | Союз Русского Народа в борьбе за Россию (2005) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представленная книга написана знаменитым, к сожалению рано ушедшим из жизни человеком.
+В конце 90-х и начале 2000-х годов из-за определённых националистических фобий, книга в продажу не поступала и её тираж не известен. В интернете можно найти только отдельные её фрагменты.
+В книге изложена точка зрения Вячесла́ва Миха́йловича, с позиций сегодняшнего времени (   Читать дальше...   )Жанр: историческийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD1832C5AF05F0FD48BE917FBD0537DD35DFCCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112919   (809020) от 27.03.2017
 
 Д.А. Соболев | Экспериментальные самолёты России, 1912-1941 (2015) [PDF, FB2]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809020.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806373.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806271.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803556.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802636.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802149.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801869.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801842.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801528.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801026.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800638.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800635.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800619.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_800595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800595.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800319.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799198.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798838.jpg" />
 </div>
 
 
@@ -456,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798135.jpg" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797414.jpg" />
 </div>
 
 
@@ -508,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796645.jpg" />
 </div>
 
 
@@ -534,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796641.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796583.jpg" />
 </div>
 
 
@@ -571,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D73B162BE36D8F5583C23F9A44BC598FC93A5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385853   (796578) от 26.05.2020
-
-Андре Моруа | История Германии (2017) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андре Моруа, классик французской литературы XX века, автор знаменитых романизированных биографий Дюма, Бальзака, Виктора Гюго, Шелли и Байрона, считается подлинным мастером психологической прозы. Однако значительную часть наследия писателя составляют исторические сочинения. «История Германии» (1965) повествует об основных этапах становления немецкого государства: (   Читать дальше...   )Жанр: Популярно об историиПеревод: Серафима ВасильеваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30EFC047E36AC1C2DD8142E9D5AB655156D5696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199327   (796455) от 20.01.2018
-
-Б. П. Пальванова | Октябрь и женщины Туркменистана (1967) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796455.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой работе освещается одна из актуальнейших проблем — раскрепощение женщины-туркменки, превращение ее в активного строителя новой жизни. Убедительно показана руководящая и направляющая роль Коммунистической партии, разнообразие форм и методов, помощь старших сестер — русских коммунисток и работниц в борьбе за разрешение этой сложной проблемы, подведены (   Читать дальше...   )Жанр: История, политология, экономика, культурология, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A6D7164972CB6E53D73716C1C9D125D81D7370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200058   (796422) от 20.01.2018
-
-Н. Н. Михайлов и др. (сост.) | Беседы об общественном и государственном устройстве СССР [2-е изд.] (1948) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Беседы об общественном и государственном устройстве СССР» (второе, переработанное и дополненное издание) предназначена для комсомольских политкружков по изучению основ общественного и государственного устройства СССР и Устава ВЛКСМ. Она является учебным пособием при прохождении соответствующего раздела программы этих кружков. Книга рассчитана в первую очередь (   Читать дальше...   )Жанр: История, политология, экономика, правоведение, культурология, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C41188C7E92A2C612CB2090681F4C6F0D44F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200074   (796411) от 20.01.2018
-
-Н. В. Волков | 1200 миллиардов с процентами [о долгах развивающихся стран Западу] (1989) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как и почему задолженность развивающихся стран Западу превратилась из частной проблемы финансовых отношений кредиторов и должников в глобальную проблему мирового хозяйства? На эти вопросы, как и на другие, связанные со всем спектром экономических отношений между периферией капитализма и его центром, вы найдете во многом нестандартные ответы в предлагаемой брошюре. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96469707A4B5CB46C649E1E6F6F7FE7F6A3690C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

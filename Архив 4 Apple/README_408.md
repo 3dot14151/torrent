@@ -1,3 +1,61 @@
+###  Публикация: 1415099   (380886) от 10.10.2020
+
+Commander One PRO Pack 2 v2.5.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
+
+Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE14CFF30F7EC32376D5EC14FC0FD7DEFC9AF958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068758   (380740) от 01.11.2016
+
+Shredo 1.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shredo - красивая и функциональная утилита удаления файлов.
+Уничтожение данных — последовательность операций, предназначенных для осуществления программными или аппаратными средствами необратимого удаления данных, в том числе остаточной информации.
+Shredo поддерживает внешние диски и флэш-накопители.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 сентября 2016Разработчик: mymixapps.comПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0700EB316A473B2F046184408011F0386E6669EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068726   (380728) от 01.11.2016
 
 Camtasia 3.0.2 [En]
@@ -6,7 +64,7 @@ Camtasia 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380728.jpg" />
 </div>
 
 
@@ -33,7 +91,7 @@ Waltr 2 v2.0.3 (Halloween) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380591.jpg" />
 </div>
 
 
@@ -60,7 +118,7 @@ Cinemagraph Pro 2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380444.jpg" />
 </div>
 
 
@@ -86,7 +144,7 @@ Apple iMovie 10.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380136.jpg" />
 </div>
 
 
@@ -114,7 +172,7 @@ Human Fall Flat v.1.1.2G (2016) [En] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379864.jpg" />
 </div>
 
 
@@ -140,7 +198,7 @@ Twitterrific 5 for Twitter 5.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379704.jpg" />
 </div>
 
 
@@ -168,7 +226,7 @@ iFinance 4 v4.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379631.jpg" />
 </div>
 
 
@@ -194,7 +252,7 @@ Vectoraster 7 v7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379626.jpg" />
 </div>
 
 
@@ -222,7 +280,7 @@ Contacts Journal CRM 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379625.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ VideoboxPro 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379624.jpg" />
 </div>
 
 
@@ -278,7 +336,7 @@ beaTunes 5.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379623.jpg" />
 </div>
 
 
@@ -306,7 +364,7 @@ Easy New File 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379622.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ MWeb: Markdown writing,note taking,static blog Gen 3.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379621.jpg" />
 </div>
 
 
@@ -359,7 +417,7 @@ Principle 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379620.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ iNotepad Pro 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379618.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Tower 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379585.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Airmail 3 v3.6.42 (3.6.43) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379518.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Navicat Premium 12 v12.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379517.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Movavi Video Editor 15 v15.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379431.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ TurboCollage 7 v7.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379312.jpg" />
 </div>
 
 
@@ -545,7 +603,7 @@ TechTool Pro 8.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379266.jpg" />
 </div>
 
 
@@ -572,7 +630,7 @@ Permute 3 v3.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379255.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ MediaHuman Youtube Downloader 3.9.9.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379254.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ PullTube 1.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379249.jpg" />
 </div>
 
 
@@ -638,60 +696,6 @@ PullTube 1.5.8 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FAB0784D93E79F3915058B61EC78E8A11993A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415248   (379246) от 11.10.2020
-
-CheckBook Pro 2.6.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379246.jpg" />
-</div>
-
-
-###  Подробнее
-
-CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2020Разработчик: Splasm Software, Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333D1AAB201DA982703BD5300DDF774204F6B60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415182   (379245) от 11.10.2020
-
-Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1861 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2020Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70F79378BEA932A1F6127172B71AE08B38C60F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

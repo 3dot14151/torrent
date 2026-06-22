@@ -1,3 +1,29 @@
+###  Публикация: 1604739   (209968) от 15.01.2023
+
+Save Room - Organization Puzzle (2022) [En] (1.0) License GOG
+
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Save Room - Organization Puzzle – игра-головоломка с 40+ последовательными уровнями, сложность которых повышается по мере прогресса. Каждая локация начинается с того, как главный герой входит в комнату сохранения. Это безопасная зона, где жизни подопечного ничего не угрожает, он здесь может залечить раны, восстановить ресурсы и улучшить снаряжение. Также он может (   Читать дальше...   )Тип издания: LicenseРазработчик: Fractal ProjectsЖанр: Стратегия, Головоломка, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43266B17ACFCB655ED56D473E85EEF69B54CDAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575622   (208405) от 10.09.2022
 
 The Zachtronics Solitaire Collection (2022) [En] (1.0) License GOG
@@ -6,7 +32,7 @@ The Zachtronics Solitaire Collection (2022) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208405.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Foretales (2022) [Multi] (1.1.4127) License GOG [Deluxe Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207732.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sudocats (2022) [Ru/Multi] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206458.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ FixFox (2022) [En] (402_c39e385a) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204362.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Zodiacats (2022) [Ru/Multi] (1.0006) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199477.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Monster Tribe (2023) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198009.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Dr. Fetus Mean Meat Machine (2023) [Ru/Multi] (1.0.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196279.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Lucas Chess (2023) [Ru/Multi] (2.09b) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194595.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Lynn, The Girl Drawn On Puzzles (2020) [Ru/Multi] (1.0.01) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193981.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Hidden Cats in Paris (2022) [En] (11956959) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176556.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133468.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Little Inferno [En] (RePack) 2012 | R.G. Механики
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131793.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Indie Collection [Ru/En] (RePack) 2008 - 2011 | R.G. Catalyst
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131334.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2) Repack dixen18 [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130621.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Divine Journey: The Life of Jesus (2023) [En] (1.0) Unofficial [Collector's Edit
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126977.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123970.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ GNOG (2018) [Ru/Multi] (1.0.7) License GOG [VR]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100871.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Azkend (P) [En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90810.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89485.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Jewel Legends: Tree of Life (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88693.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Big Kahuna Reef 3 (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88251.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Tumble Jumble (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87548.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Azkend 2: The World Beneath (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86938.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Gobs of Fobs (P) [En] 2006
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86748.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Sters (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86130.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Sters - некие существа, обитающие в домах с при�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80286F92F0B8D4DB85244C310000D3665432AD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473597   (84562) от 26.03.2012
-
-Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны древности 4. Оракул из Ура. Коллекционное издание (P) [Ru] 2012
-
->>Win Игры
->>Board/Puzzle/Logic (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в новое приключение и станьте свидетелем любовного треугольника в фантастической игре жанра "три в ряд" и "я ищу". Отправьтесь в прошлое, разберитесь, где любовь, а где романтика, насладитесь поисками пропавших сокровищ и найдите самые великолепные драгоценности всех времен! Познакомьтесь с тремя друзьями по имени Эмма, Руперт и Себастьян и присоединяйтесь к ним в их путешествии по всему миру. Насладитесь игрой в десяти различных сценах, решите все хитрые головоломки, преодолейте все препятствия и откройте для себя множество мини-игр в коллекционном издании!(   Читать дальше...   )Тип издания: ПираткаЖанр: Логическая, Три в ряд, Квест, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский ("Наша Версия")
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E38698530DAC851304D872D6A9CF132601B978
 ```
 
 https://mybot314.ru/tekegram_catalog/

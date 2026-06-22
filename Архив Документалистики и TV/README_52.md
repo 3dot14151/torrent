@@ -1,3 +1,29 @@
+###  Публикация: 996957   (877765) от 15.03.2016
+
+Футбол. Кубок Англии 2015-2016. 1/4 финала. Обзор матчей. (14.03.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей очередного раунда.Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 00:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7B4C9228D7C123B526924EC64FEAED1E2E1BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996829   (877763) от 15.03.2016
 
 Футбол. Чемпионат Германии 2015-2016. 26 тур. Обзор матчей. (14.03.2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877763.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877761.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877760.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877679.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877675.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877666.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877574.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Discovery: Выжить любой ценой: Гватемала [4 сезон|
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877132.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Discovery: Выжить любой ценой: Китайские джунгли
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876990.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876836.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876835.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ HDScape. Гавайи / HDScape. Hawaii (2005) BDRip [H.264/720p]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876769.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876754.jpg" />
 </div>
 
 
@@ -366,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876753.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876752.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876751.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876750.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876749.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876748.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876747.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876746.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876648.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876631.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876011.jpg" />
 </div>
 
 
@@ -677,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876005.jpg" />
 </div>
 
 
@@ -688,32 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D2996AA73234D1C82B7BA57D63B16582EBBC596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643549   (875896) от 13.04.2013
-
-Зеленый рай. В суровой и бескрайней земле / Green Paradise. In a gentle and savage land (2007) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если край мира существует, то он находится именно в этом далеком и суровом краю Патагонии, на территории Чили... Вы увидите эти бескрайние просторы со своей неповторимой, суровой и неброской красотой...Жанр: документальныйПеревод: Двухголосый закадровый (переведен ТПО «РЕД МЕДИА»)Продолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875B4D8CC267AB238EC21479F2C2EBCA731AE7EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

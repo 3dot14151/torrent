@@ -1,3 +1,90 @@
+###  Публикация: 1776064   (29278) от 30.01.2025
+
+Ronnie James Dio - Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29278.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Along Comes A Spider [03:33]
+002. Golden Rules (2019 - Remaster) [04:52]
+003. Master Of The Moon (2019 - Remaster) [04:18]
+004. Black (2019 - Remaster) [03:08](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 07:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBEBDF8B993F8529B106BB0D30AB87495EC6D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776803   (28885) от 02.02.2025
+
+VA - Light And Shadows (2025) [MP3|320 Kbps] <Rock, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Angels - Brahma - 04:50
+002. Letdown - Dead Right - 02:43
+003. Phantogram - Jealousy - 03:02
+004. Garbage - Starman - 04:09(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 14:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B0CCE257F0CA130BA3C056813D9134CA9497F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776952   (28709) от 04.02.2025
+
+VA - Time Of Rock & Metal от ALEXnROCK Part 1 (2025) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переделал и улучшил выпущенный ранее сборник, по просьбе одного очень хорошего человека. На тот момент выпуска, всё что у меня было из звука — это простенький музыкальный центр SONY подключённый к компу. Сборник составлял для себя, так как мне категорически не нравились официальные сборки, ещё со времён кассет. В основном пихают скучный, однообразный или заезженный (   Читать дальше...   )01. Firehouse - Get In Touch
+02. Suicidal Tendencies - Get Whacked
+03. Bon Jovi - In These Arms
+04. Helloween - Sole Survivor(   Читать дальше...   )Жанр: RockПродолжительность: 04:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3BC52CD95AC066C196DAC3F5CA861492277219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777245   (28589) от 05.02.2025
 
 VA - Classic Glam Rock (2025) [MP3|320 Kbps] <Rock, Glam>
@@ -6,7 +93,7 @@ VA - Classic Glam Rock (2025) [MP3|320 Kbps] <Rock, Glam>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28589.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Bloodhound Gang - Compilation (1995-2015) [MP3|320 Kbps] <Alternative, Comedy ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28569.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27325.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27195.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Al
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27015.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26275.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Masters of Rock & Metal - The Best Rock & Metal Tracks ever... (2025) [MP3|
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25873.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ U.D.O. - Compilation (1987-2025) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25795.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Metallica - Compilation (1983-2024) [MP3|320 Kbps] <Metal, Hard rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25454.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - The Elegy Of Sunset (2025) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24771.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24612.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Music For You vol.31 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24558.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24069.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Music For You vol.32 (2025) [MP3|320 Kbps] <Prog Rock, Heavy Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23527.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Disturbed - Compilation (2000-2025) [MP3|320 Kbps] <Alternative metal, Heavy met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22791.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21668.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21636.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21592.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ blink-182 - Compilation (1995-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skat
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21432.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21386.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Dave Stewart - Compilation (2025) [MP3|320 Kbps] <Rock, Pop rock, Soft Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21310.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Rock Hits Of Today (2025) [MP3|320 Kbps] <Rock, Punk, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20528.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Scorpions - Compilation (1972-2022) [MP3|320 Kbps] <Hard rock, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20445.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Scorpions - Compilation (1972-2022) [MP3|320 Kbps] <Hard rock, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFC9C9F60B9FB9DBD446C45ECA2F460EC1B3A958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765974   (20212) от 26.04.2025
-
-Billy Idol - Compilation (1981-2025) [MP3|320 Kbps] <Punk rock, Post punk, New wave, Power pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neuromancer (Cyberpunk 1993)
-02. White Wedding. part 1 (Billy Idol 1982)
-03. Baby Put Your Clothes Back On (The Roadside EP 2021)
-04. Baby Talk (Don't Stop EP 1981)(   Читать дальше...   )Жанр: Punk rock, Post punk, New wave, Power popПродолжительность: 05:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4290050B17F53D65138DF51F94676108ABB16BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794239   (19858) от 29.04.2025
-
-Krokus - Compilation (1976-2017) [MP3|320 Kbps] <Hard rock, Heavy metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer (Pay It In Metal 1978)
-02. Our Love (The Blitz 1984)
-03. Screaming In The Night (Headhunter 1983)
-04. Smelly Nelly (Hardware 1981)(   Читать дальше...   )Жанр: Hard rock, Heavy metalПродолжительность: 06:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C368E6C2078D9A7380AFC034219BC4010401D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795367   (19384) от 04.05.2025
-
-Uriah Heep - Collection (2025) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Livin' [02:35]
-02. Choices [05:44]
-03. July Morning [10:31]
-04. Free 'n' Easy [03:04](   Читать дальше...   )Жанр: Hard RockПродолжительность: 07:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF62B4509867043B40984B7D0C948CC986663FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

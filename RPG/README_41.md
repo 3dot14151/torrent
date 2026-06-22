@@ -1,3 +1,107 @@
+###  Публикация: 1641383   (196768) от 22.06.2023
+
+Tales of Vogar - Lost Descendants (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tales of Vogar - Lost Descendants - это созданная на базе RPG Maker японская ролевая игра с захватывающим сюжетом и интересным фэнтезийном миром. Королевство Вогар сотни лет представляло собой экземпляр лучшей империи за счет мудрого правителя, который ставил в приоритет жизни мирных жителей. Все изменилось после его гибели, когда страна погрузилась в кровавую войну. (   Читать дальше...   )Тип издания: SceneРазработчик: Torsten ScholzeЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC1B15D837DE8EBFA698C2E4B26EA600B80F069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641634   (196691) от 23.06.2023
+
+Spriters, Hopes Blooming Dawn (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spriters: Hopes Blooming Dawn - это игра в стиле RPG, в которой вы отправитесь в эпическое приключение по миру, наполненному магией, тайнами и опасностями. Сражайтесь с опасными существами, собирайте драгоценные камни с уникальными способностями и раскрывайте тайны своего прошлого в этой увлекательной инновационной игре. В этой игре вы играете за больного амнезией, (   Читать дальше...   )Тип издания: SceneРазработчик: Tusk.inkЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B5823AD387E782623FFC35E4136D05A08DA147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643566   (196294) от 02.07.2023
+
+A Long Journey to an Uncertain End (2023) [Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196294.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Long Journey to an Uncertain End – смесь квеста и приключенческой повествовательной игры, в которой вы отправитесь в путешествие по открытому космосу в роли живого разумного космического корабля… Некогда разумные космические корабли были запрещены и оказались вне закона. Все они были уничтожены, кроме вас, последнего такого корабля. Но мир не стал менее опасным (   Читать дальше...   )Тип издания: LicenseРазработчик: Crispy CreativeЖанр: Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Английский, Французский, ИспанскийЯзык интерфейса: Английский, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196BA8773B6EAFA776E440ABA0D752A9BCB73D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643659   (196203) от 02.07.2023
+
+FRONT MISSION 1st: Remake (2023) [Multi] (2.01) Scene FairLight
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196203.jpg" />
+</div>
+
+
+###  Подробнее
+
+FRONT MISSION 1st: Remake - атмосферная тактическая пошаговая RPG, где вам предстоит управлять внушающими трепет Ванзерами - мощными боевыми машинами. Станьте отважным пилотом, что бороздит просторы опасных полей сражений, где каждый стратегический маневр пробуждает истинные реалии войны. Игра совмещает интересное повествование, где почти на каждом шагу вас ждут (   Читать дальше...   )Тип издания: SceneeРазработчик: Forever Entertainment S. AЖанр: Strategy, RPGЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8223CBE7A91B96FAFDC447CF3E3DE6B5AB887B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645127   (196018) от 08.07.2023
 
 Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
@@ -6,7 +110,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196018.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Ravenbound (2023) [Ru/Multi] (1.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196015.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Atelier Marie Remake: The Alchemist of Salburg (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195658.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Rule of Land: Pioneers (2023) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195395.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195345.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ REMEDIUM: Sentinels (2023) [Ru/Multi] (11729250) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195307.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194894.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194707.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Adore (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194662.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194658.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.10/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194599.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Mato Anomalies (2023) [Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194512.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194450.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194346.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.009/dlc) License GOG [Hero Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194315.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194244.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193777.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Shining Resonance Refrain (2018) [Multi] (1.00.1618) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193742.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Starfield (2023) [Multi] (1.7.23.0/dlc) Repack DjDI [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192472.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191994.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Danger Forever (2022) [En] (845) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191884.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Danger Forever (2022) [En] (845) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC260F068A5F08EDF4CDD632AC83D859A07CD2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577296   (191169) от 05.11.2022
-
-Lovecraft's Untold Stories 2 (2022) [Ru/Multi] (0.9.049b) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lovecraft’s Untold Stories 2 – ролевой экшен с элементами rogue-like, сюжет которого продолжает историю Lovecraft’s Untold Stories. В этой игре герои переходят на новый этап борьбы с неведомым, а новый стиль графики делает происходящее гораздо более захватывающим. Собирайте выпадающие случайным образом добычу и ресурсы, мастерите из них снаряжение, исследуйте старые (   Читать дальше...   )Тип издания: LicenseРазработчик: LLC Blini GamesЖанр: Экшны, Ролевая игра, RoguelikeЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329C3C79331B2BA90D8872D568261D0E86FC225C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659013   (190344) от 10.09.2023
-
-The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License PLAZA [Enhanced Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190344.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Fall of the Dungeon Guardians - Dungeon Crawler RPG с видом от первого лица, вдохновением для которой послужила классика в лице Dungeon Master и Might & Magic. В игре современная боевая система, основанная на механике триптиха "танк, дамагер, хилер". Исследуйте огромное подземелье, полное опасностей, тайн и секретов, в dungeon crawler с тактическими (   Читать дальше...   )Тип издания: LicenseРазработчик: Mana GamesЖанр: Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB94796D57B93B708C5F5BECB3F4C5946091114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509769   (189864) от 11.09.2023
-
-Gordian Quest (2020) [Ru/Multi] (1.4.2) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Землю поразило жуткое проклятие. Отныне тут царит тьма, бродят чудовища, наживаются на чужом горе негодяи, а трусы бегут отсюда. Но появляются герои. Возглавь отряд героев, чтобы спасти мир и уничтожить корень зла, что поглотило все вокруг. Падёшь ли ты под ударами врагов или станешь жертвой собственных неверных решений? Твое путешествие начинается.Тип издания: LicenseРазработчик: Mixed Realms Pte Ltd, Swag Soft Holdings Pte LtdЖанр: Ролевая игра, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB57E2159C06D600DCCBF231C8873EB44BD9B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661088   (188688) от 14.09.2023
-
-ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188688.jpg" />
-</div>
-
-
-###  Подробнее
-
-2037. Накано, Токио. Поллон Такаока и его лучший друг Кросс Юмикава зарабатывают на жизнь, работая профессиональными хакерами везде, где только можно; везде, где не затронула катастрофа "Печальное утро", произошедшая 6 февраля 2036 года. Однажды Поллон объявляет, что собирается "сбежать", несмотря на то, что он одинок. Однако в месте, где никого (   Читать дальше...   )Тип издания: SceneРазработчик: MAGES. Inc.Жанр: Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7886A22CD77B2691610BB996E260A752CED52D88
 ```
 
 https://mybot314.ru/tekegram_catalog/

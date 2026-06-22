@@ -1,3 +1,55 @@
+###  Публикация: 989973   (913600) от 24.02.2016
+
+Н. Мещеряков | Поповские обманы [Факты и документы] (1919) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913600.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приводятся материалы о вскрытии мощей православных святых в первые годы Советской власти.Жанр: История, религиоведение, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22F8FF910E71BC7327E47E9EBA5F0A86F86E308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989972   (913467) от 24.02.2016
+
+К. Ш. Шулембаев | Маги, боги и действительность [Общее и особенное в религиозных верованиях казахов] (1975) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ислам в Казахстане - явление синкретическое. Автор рассказывает о доклассовых религиозных верованиях, впоследствии ассимилированных исламом, o формах проявления пережитков фетишизма, тотемизма, анимизма, магии и шаманизма в наши дни. Второй раздел книги noсвящен рассмотрению идеологии ислама и проповеднической деятельности мусульманских служителей культа. Значительное (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71F642681E1F34E033AC5D82C688CF25A7C5EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491280   (912497) от 24.08.2021
 
 Митрополит Вениамин Федченков | Всемирный светильник. Преподобный Серафим Саровский (2015) [PDF, DJVU, FB2]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912497.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912308.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912304.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912286.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912216.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910913.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910004.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909689.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909027.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908808.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907271.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905700.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905647.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905632.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905502.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905407.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905310.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904897.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904018.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903390.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903298.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902102.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901766.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901588.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9237EE4F682EB0D0E2A30F04D90540C80391C544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100270   (901586) от 03.02.2017
-
-Стефано Мария Капилупи | «Трагический оптимизм» христианства и проблема спасения: Ф. М. Достоевский (2013) [FB2, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предметом исследования является художественно-литературное отражение "драмы" иудео-христианской эсхатологии - истина "уже и не еще" Спасения в мире, воплощенная в словах Христа (Ин 4, 23), Святого ап.Павла (Рим 8, 18-25) и во всей полноте традиции Востока и Запада Христианства вплоть до современных богословия и филологической экзегетики. Данная (   Читать дальше...   )Жанр: МонографияФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4CEA147A801DD92F1A3281CE2092C48F251800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100284   (901502) от 03.02.2017
-
-Гео Виденгрен | Мани и манихейство (2001) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга германского историка и религиоведа Гео Виденгрена посвящена одной из самых влиятельных дуалистических религий мира, основанной пророком Мани (216-276 гг. н. э.). Мани - одна из самых загадочных и мифологизированных фигур в мировой истории. Он родился в Месопотамии, проповедовал в Персии, где мученически погиб. Несмотря на интеллектуальную изощренность и сложность (   Читать дальше...   )Жанр: История религийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E8981E71838BCF94A748822D63E79B8FACE22B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1156634   (527077) от 08.08.2017
-
-Miles Davis - Walkin' (1954) 1994, GBH Music [FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' [13:20]
-02. Blue 'n' Boogie [8:15]
-03. Solar [04:45]
-04. You Don't Know What Love Is [04:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC56A289DB43D501541E7A2FCEFE5BA3A33F8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559071   (527000) от 24.06.2022
 
 Konstantin Klashtorni - Chillaxonic: 2nd Facet (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
@@ -35,7 +6,7 @@ Konstantin Klashtorni - Chillaxonic: 2nd Facet (2020) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527000.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Jazz Blues Classics (2017) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526977.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Art Tatum - Goldfingers (1933 - 1956) 3CD, 2011, Le Chant du Monde [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526443.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Marcus Miller - Free (2007) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526227.jpg" />
 </div>
 
 
@@ -153,7 +124,7 @@ Eddie Daniels - Blackwood (1989) GRP Records[FLAC|Lossless|image + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526155.jpg" />
 </div>
 
 
@@ -182,7 +153,7 @@ The Bill Perkins Big Band - Our Man Woody (1991) [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526153.jpg" />
 </div>
 
 
@@ -211,7 +182,7 @@ Lester Bowie - The Complete Remastered Recordings On Black Saint & Soul Note (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526120.jpg" />
 </div>
 
 
@@ -240,7 +211,7 @@ Swingrowers - (Pronounced Swing Grow'ers) (2013) [FLAC|Lossless|image + .cue] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526035.jpg" />
 </div>
 
 
@@ -269,7 +240,7 @@ The Rocky Athas Group featuring Larry Samford - Miracle (2003) [APE|Lossless|ima
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525959.jpg" />
 </div>
 
 
@@ -298,7 +269,7 @@ Tommy Emmanuel - The Guitar Mastery of Tommy Emmanuel (2014) 2 CD, Compilation [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525923.jpg" />
 </div>
 
 
@@ -327,7 +298,7 @@ Paul Whiteman - Greatest Hits (1920 - 1928) 1999, Collector's Choice [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525883.jpg" />
 </div>
 
 
@@ -356,7 +327,7 @@ Duke Pearson - Profile (1959) 1999, Blue Note [FLAC|Lossless|image + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525882.jpg" />
 </div>
 
 
@@ -385,7 +356,7 @@ Dmitry Baevsky - The Day After (2017) Jazz Family [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525878.jpg" />
 </div>
 
 
@@ -414,7 +385,7 @@ VA - Orchestral Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525859.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ Frank Sinatra - Sinatra Sings Gershwin (2003) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_525693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_525693.jpg" />
 </div>
 
 
@@ -478,7 +449,7 @@ Willem Breuker Kollektief - Celebrating 25 Years On The Road (2002) 2CD, BV Haas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525540.jpg" />
 </div>
 
 
@@ -507,7 +478,7 @@ Eugene Serebrennikov (Евгений Серебренников) - Revelation (�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525538.jpg" />
 </div>
 
 
@@ -536,7 +507,7 @@ Bob James - The Genie (1983) 2006, Koch Jazz [FLAC|Lossless|tracks + .cue] <Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525537.jpg" />
 </div>
 
 
@@ -565,7 +536,7 @@ Miguel "Anga" Diaz - Echu Mingua (2005) World Circuit [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525233.jpg" />
 </div>
 
 
@@ -594,7 +565,7 @@ Monti Amundson - Somebody's Happened to Our Love (2006) [MP3|320 Kbps] <Modern E
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525224.jpg" />
 </div>
 
 
@@ -623,7 +594,7 @@ The Sean Webster Band - If Only (2005) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525223.jpg" />
 </div>
 
 
@@ -652,7 +623,7 @@ Albert King - The Tomato Years (1994) [FLAC|Lossless|tracks + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525221.jpg" />
 </div>
 
 
@@ -681,7 +652,7 @@ Paul Bley - Early Trios (1953, 1954) 2005, Fresh Sound [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524780.jpg" />
 </div>
 
 
@@ -710,7 +681,7 @@ Bert Joris Quartet - Magone (2007) Dreyfus [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524778.jpg" />
 </div>
 
 
@@ -739,7 +710,7 @@ Ronnie Magri And His New Orleans Jazz Band - Shim Sham Revue (2001) Jubilee Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524773.jpg" />
 </div>
 
 
@@ -753,6 +724,35 @@ Ronnie Magri And His New Orleans Jazz Band - Shim Sham Revue (2001) Jubilee Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E639F60356EF7EE3F0E9A2FF88AEEFAB88A28D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313328   (524512) от 08.07.2019
+
+Heather Newman - Rise From The Flames (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming For You
+02. Zakary
+03. She Sure Looks A Lot Like Me
+04. You MeanTo Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC87DC90414DB21D2613E44741A40A1C211C905
 ```
 
 https://mybot314.ru/tekegram_catalog/

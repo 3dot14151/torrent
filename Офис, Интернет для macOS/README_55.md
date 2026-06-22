@@ -1,3 +1,58 @@
+###  Публикация: 1706169   (113717) от 11.03.2024
+
+DB-Text 1.12.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение DB-Text может открывать файлы CSV и TSV и управлять ими, как никогда раньше. Для
+импорта любого файла CSV или TSV достаточно перетащить (или выбрать в стандартном диалоговом окне открытия) файл для импорта.
+ПО имеет множество утилит и функций, чтобы сделать вашу работу быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2012-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6381E19E4E180A8639D7DB3B42CBC417D4ABA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706107   (113715) от 11.03.2024
+
+Soulver 3 v.3.10.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего Excel много, а калькулятора мало или неудобно. Понимает цифры вперемешку со словами, не нужно жать «равно», может отнять 100 евро от тысячи долларов и поделить на троих.
+Имея простой и понятный интерфейс, рабочее окно приложения состоит всего из двух частей. В левой части записываются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2024 Acqualia Software OÜПоддерживаемая ОС: macOS X 11.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443A2DE48EE2D52168CAF6D0F860E60829505BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706102   (113710) от 11.03.2024
 
 OmniFocus Pro 3.15.6 [Multi/Ru]
@@ -6,7 +61,7 @@ OmniFocus Pro 3.15.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113710.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ NoteList 4 v.4.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113693.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ FSNotes 6.7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113691.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ Invoices for Mac 3.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113680.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Stash for Mac 2.5.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113646.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Navicat for Redis on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113635.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ Navicat for Oracle on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113621.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ Navicat for MongoDB on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113617.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ Data Merge for Mac 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113615.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ BBEdit 15.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113609.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ Navicat for PostgreSQL on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113563.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ Deckset 2.0.28 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113555.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ iBarcoder 3.14.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113552.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ Navicat for SQLite on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113548.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ NCH ClickCharts Diagram Pro 9.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113547.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ SQLPro Studio 2024.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113484.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ Prism 10 v.10.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113479.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ Kaleidoscope 4.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113478.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ TS Calc 1.8.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113456.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ Desktop Stickers 2.72 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113407.jpg" />
 </div>
 
 
@@ -536,7 +591,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113389.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ Navicat for MySQL for Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113296.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ Product Manager 2 v.2.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113259.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ Navicat Charts Creator for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113227.jpg" />
 </div>
 
 
@@ -625,59 +680,6 @@ Navicat Charts Creator преобразует ваши данные в эффе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE4B6DBB120AFBD2D3DF6B7BA2CB6E5D0519A18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708220   (113160) от 19.03.2024
-
-GarageSale 9.7.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2023 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BD0F9BF2D1AA53832876BB5173AA0830CE8C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708034   (113150) от 19.03.2024
-
-Tap Forms Organizer 5 v.5.3.41 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tap Forms Organizer простое в использовании, абсолютно настраиваемое и очень мощное приложение. Tap Forms Organizer поможет вам отслеживать всю наиболее важную информацию вашей жизни. Tap Forms Organizer - настраиваемое приложение базы данных, оно разработано, чтобы удовлетворить Ваши уникальные потребности на работе, дома или в движении.
-Используйте Tap Forms Organizer (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.03.2024Разработчик: ©2024 Tap Zapp Software Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9636C9F8E72DE65EF8B77DD097ADD3AA1E250B
 ```
 
 https://mybot314.ru/tekegram_catalog/

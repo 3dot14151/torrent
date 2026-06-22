@@ -1,3 +1,32 @@
+###  Публикация: 1310242   (547686) от 23.06.2019
+
+She Pleasures Herself - XXX (2019) [FLAC|Lossless|tracks + .cue] <Post-Punk, Coldwave, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ich Bin Dead
+02. Obscure
+03. Private Hell (Feat. Ash Code)
+04. Darkroom(   Читать дальше...   )Жанр: Post-Punk, Coldwave, Goth RockПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9209D5B866652746936468E120368D004D81ECB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048157   (547275) от 01.09.2016
 
 The Veils - Total Depravity (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie>
@@ -6,7 +35,7 @@ The Veils - Total Depravity (2016) [FLAC|Lossless|tracks] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547275.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ LP (Laura Pergolizzi) - Death Valley (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547134.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Mono Inc. - Welcome to Hell (2018) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547025.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - Money $hot (Shot) (
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546419.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Florence + The Machine - Wish That You Were Here (From "Miss Peregrine’s Home 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546416.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545751.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ The Cat Empire - Stolen Diamonds (2019) [FLAC|Lossless|tracks + .cue] <Funk, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545241.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ A Projection - Framework (2017) [FLAC|Lossless|tracks + .cue] <New Wave, Post-Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545235.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ De Staat - O (2016) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544861.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Weeping Willows - After Us (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544538.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Cachorro Grande - Baixo Augusta (2012) [FLAC|Lossless|tracks + .cue] <Pop Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543744.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Night Moves - Can You Really Find Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543743.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Manafest - Stones (2017) [FLAC|Lossless|tracks] <Alternative Rock, Rap Rock, Chr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542779.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Underoath (UnderØath) - 9 Albums (The Best of Oll) (2002-2022) [FLAC|Lossless|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542585.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Mega Bog - Dolphine (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541983.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Tunng - This Is Tunng…Magpie Bites and Other Cuts (2019) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541981.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Atreyu - Lead Sails Paper Anchor (2007) [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540070.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Vatican - Ultra (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Metalcore, Hardcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537466.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Brand New - Discography 7 Releases (2001-2017) [FLAC|Lossless|tracks|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536303.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Braii - City of Nothing (2018) EP [FLAC|Lossless|tracks] <Alternative Rock, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535101.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Unloved - Heartbreak (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534490.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ PIG - Candy (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Industrial, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534397.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Sophia - The Infinite Circle (1998) [FLAC|Lossless|tracks + .cue] <Lo-Fi, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532787.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Sophia - People Are Like Seasons (2004) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532783.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530959.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D0C51B3479A0DD92AEE0E950260E043A2BA8F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312835   (529211) от 06.07.2019
-
-The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Headlight (5:17)
- 02. 6th Avenue Heartache (5:40)
- 03. Three Marlenas (5:00)
- 04. The Difference (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861268723D9E996A057D71D90E0EC495C479A74C
 ```
 
 https://mybot314.ru/tekegram_catalog/

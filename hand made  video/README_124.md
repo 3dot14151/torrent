@@ -1,3 +1,29 @@
+###  Публикация: 1727061   (54801) от 31.05.2024
+
+Такси 3 / Taxi 3 (2003) WEB-DLRip [H.265/2160p] [Open Matte] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Рождества банда Санта-Клаусов совершает ограбления банков в Марселе. Ловить преступников предстоит таксисту Даниелю и полицейскому Эмильену. Но те вытворяют такое, что вреда от них может быть больше, чем от самих грабителей.Производство: Франция / Apipoulaï, ARP Sélection, Canal+, Europa Corp., TF1 Films ProductionЖанр: боевик, комедия, криминалРежиссер: Жерар КравчикАктеры: Сами Насери, Фредерик Дифенталь, Бернар Фарси, Бай Лин, Эмма Виклунд, Марион Котийяр, Эдуард Монтут, Жан-Кристоф Буве, Леон-Пьер Мондини, Бернард ЛьописПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, ФранцузскийСубтитры: русские, французскиеПродолжительность: 01:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC825897AD010474C21020365EF4E5CD57F752AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727060   (54794) от 31.05.2024
 
 Такси 2 / Taxi 2 (2000) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54794.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54791.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54789.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54787.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54765.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54760.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54710.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54701.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54700.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54681.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54619.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54611.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) WEB-DLRip [H
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54607.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54605.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54575.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54574.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54572.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54563.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54559.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54556.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54508.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54505.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) WEB-DLRip [H
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54498.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54497.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54488.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:420FB91261460226DF29FB01B5DAFAD84393CF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727475   (54486) от 03.06.2024
-
-Очень страшное кино 3 / Scary Movie 3 (2003) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналистка Синди Кэмпбелл становится свидетельницей необъяснимых явлений. На Землю готовится высадиться десант зловещих инопланетян, на полях появляются странные концентрические круги, некий Избранный пророчит нехорошее всему человечеству, дети со странными глазами пугают взрослых, под угрозой жизнь самого Президента. Зло наступает со всех сторон.Производство: США, Канада / Brad Grey Pictures, Dimension FilmsЖанр: комедияРежиссер: Дэвид ЦукерАктеры: Анна Фэрис, Энтони Андерсон, Лесли Нильсен, Камрин Менхейм, Саймон Рекс, Джордж Карлин, Памела Андерсон, Дженни МакКарти, Марни Энг, Чарли ШинПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английскиеПродолжительность: 01:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84EB493DB94E06A9113C80E2785B9CD4B055DD34
 ```
 
 https://mybot314.ru/tekegram_catalog/

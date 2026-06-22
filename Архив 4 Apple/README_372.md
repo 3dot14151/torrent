@@ -1,3 +1,32 @@
+###  Публикация: 1060197   (457571) от 06.10.2016
+
+iShowU Instant (Advanced) 1.0.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое
+iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени.
+
+iShowU (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 октября 2016Разработчик: shinywhitebox ltdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A057F1C25AAEC0CDE25F409917ADB367FEFDB1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059981   (457560) от 06.10.2016
 
 Together 3.6.1 [En]
@@ -6,7 +35,7 @@ Together 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457560.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Path Finder 7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457465.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Vertus Fluid Mask 3.3.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457458.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Lyn 1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457398.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ TinkerTool System 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457388.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ Beyond Compare 4.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457240.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ Disk Drill Enterprise 3.6.906 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456835.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ OptimUSB 7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456717.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ Apple MainStage 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456501.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ UninstallPKG 1.1.8  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455911.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ DropDMG 3.2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455875.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Pacifist 3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455874.jpg" />
 </div>
 
 
@@ -337,7 +366,7 @@ Swinsian 1.11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455868.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ SMART Utility 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455747.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ Framer Studio v72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455463.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Affinity Designer 1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455313.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ CleanMyMac X 4.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455292.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ VMware Fusion Professional 8.0.1 (3094680) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455266.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ TotalFinder 1.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455261.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ WinX DVD Ripper for Mac 4.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454906.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Nimble Commander 1.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454905.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Audio Hijack 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454898.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Airmail 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454895.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Lyn 1.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454862.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ iMazing 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454847.jpg" />
 </div>
 
 
@@ -682,32 +711,6 @@ iMazing: отличная альтернатива iTunes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9090CCE5B72E2DD9511063B9E45CE3CEDCAA2EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060397   (454822) от 07.10.2016
-
-TG Pro (Temperature Gauge Pro) 2.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454822.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro (ранее Temperature Gauge Pro) - не просто очередной монитор температуры, а приложение для полного контроля системы охлаждения вашего Macbook (или любого другого Mac), c возможностью тестирования всех встроенных температурных датчиков и автоматическим управлением вентиляторами при превышении установленного предела температуры для компонентов системы. Приложение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE406AA140FB2958BFE3593D2039060A8F3EBBED
 ```
 
 https://mybot314.ru/tekegram_catalog/

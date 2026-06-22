@@ -1,192 +1,22 @@
-###  Публикация: 369892   (526396) от 31.07.2011
+###  Публикация: 1240278   (529760) от 10.08.2018
 
-VA - DJ Essentials (24.07.2011) [MP3|~310 kbps]<Dance, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adamski - Killer 2011 (Hoxton Whores Remix)
-02. Ce Ce Rogers Serena - In The Cloud (Whelan & Di Scala Remix)
-03. Bass Kleph, Stellar MC - Spend My Money (2011 Club Mix)
-04. Havana Brown - We Run The Night (Angger Dimas Remix)
-05. Avicii & Junior Jack - Jailbait Thrill me (Promise Land Mash Up)
-06. Bingo Players - Get On Move (Illegal Beat Remix)
-07. Plastic Funk - Upside Down (2Elements Remix)
-08. Kid Massive & Peyton - A Little Louder (TV Rock Remix)
-09. Armin van Buuren feat.Nadia Ali - Feels So Good (Jerome Ima Ae Remix)
-10. Milk & Sugar feat. Miriam Makeba - Hi a Ma (Pata Pata) (Milk & Sugar Club Mix)(   Читать дальше...   )24.07.2011Жанр: Dance, HouseПродолжительность: 02:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C02CA0CE01870780D68CDFB56DDCFFA4818B1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369123   (526394) от 31.07.2011
-
-Lotfollah Majd & Naser Eftetah – Tar (1999) [MP3|128 kbps]<persian traditional music>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526394.jpg" />
-</div>
-
-
-###  Подробнее
-
-[14:05] 01.  Homayoun
-[14:15] 02.  Segah
-[06:56] 03.  Bayat-e-Tork
-[07:09] 04.  Shooshtari
-[07:05] 05.  Abooata
-[06:59] 06.  Isfehan
-[07:39] 07.  Dashti1999Жанр: persian traditional musicПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589964EDDC8E87C2BD919F6B7D9E7FCD8E9FFC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369759   (526393) от 31.07.2011
-
-VA - Hot Dance vol.196 (2011) [MP3|~287 kbps]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 Strings - Safe From Harm (Extended Mix)
-02. Agulo feat. David Berkeley - Fire Sign (Suncatcher remix)
-03. Arash Feat. Helena - Broken Angel (Dj Aligator & Weekend Wonderz Radio Mix)
-04. Blake - Someone
-05. Blush - Undivided (Dave Aude Club Mix)
-06. Brisby & Jingles feat. Miloud - Relax (Sunrider Remix)
-07. Bumpers - Why
-08. Cerf, Miniska & Jaren - Another World (Shogun Remix)
-09. Chic Flowerz - Playa D'en Bossa
-10. C-Systems - Daylight (DNS Project Remix)(   Читать дальше...   )2011Жанр: Dance, ClubПродолжительность: 02:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F77EAC13357669504AC12CBA012A281DF09680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369865   (526392) от 31.07.2011
-
-VA - House Vip 25.07.11 (2011) [MP3|320 kbps]<House, dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blastaguyz - Rage (Aerotronic Remix) (5:59)
- 02. Cram - Famous (Peak Mix) (6:27)
- 03. Crystal Clear & Stapleton - Levels (Crystals Crackhouse Mix) (4:57)
- 04. Diana King - Shy Guy (Dj Zhukovsky remix) (6:09)
- 05. James Egbert - Lady Luck (Original Mix) (6:01)
- 06. Moby - Lie Down In Darkness (Bassjackers Remix) (6:01)
- 07. N-Trance - Set You Free (Andrey Dubovitskiy Remix) (7:11)
- 08. Raaban, Mistress - Suck My (Extended Mix) (6:06)2011Жанр: House, danceПродолжительность: 06:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069E76BBF3CECACF4E35E710534B4B1B0A5536A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369561   (526391) от 31.07.2011
-
-Gnawa Boys - Pigeons du Sable, Gnawa Chants from Morocco (2004) [MP3|~224 kbps]<gnawa, african music>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526391.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:17] 01.  • Track 01
-[03:48] 02.  • Track 02
-[02:52] 03.  • Track 03
-[03:37] 04.  • Track 04
-[05:19] 05.  • Track 05
-[03:38] 06.  • Track 06
-[03:18] 07.  • Track 07
-[05:04] 08.  • Track 08
-[04:03] 09.  • Track 09
-[05:57] 10.  • Track 10(   Читать дальше...   )2004Жанр: gnawa, african musicПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73BA08A477FFC2D1999392329D6EA301994F378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157027   (526379) от 09.08.2017
-
-Cumulative Update KB4034660 for Windows 10 [Ru/En]
+Chromium 70.0.3518.0 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кумулятивное обновление KB4034660 для x86-x64 платформ, повышающее номер сборки Windows 10 Version 1511 до 10586.1045.Также в раздаче присутствует обновление для Adobe Flash Player KB4034662Язык интерфейса: Русский,Английский
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CF9713AD168A616A660547B7B33242914AE5A35
+magnet:?xt=urn:btih:958732670D89E88B3B3D4ADBD2040517DF73CC10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,80 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156985   (526374) от 09.08.2017
+###  Публикация: 1240247   (529759) от 10.08.2018
 
-Андрей Лазарчук | Солдаты Вавилона (2017) [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526374.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Солдаты Вавилона» – завершающая книга цикла «Опоздавшие к лету». Здесь сходятся многие нити предыдущих историй, объединяя и завершая то, что будет названо гиперроманом. Кажется, что вот-вот каждый элемент встанет на своё место – и мы увидим картину целиком. Только это совершенно не та картина, которую мы ожидали увидеть. Она намного сложнее и глубже. Мы всматриваемся (   Читать дальше...   )Жанр: Фантастика, альтернативная историяПродолжительность: 12:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9166A450F8FC1923AD7071F8236AA6522AD16A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156866   (526373) от 09.08.2017
-
-VA - I Love R&B - Ministry Of Sound (2017) [MP3|320 Kbps] <R&B, Soul>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526373.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Bootylicious - Destiny's Child
-2. SexyBack - Justin Timberlake feat. Timbaland
-3. Ignition - R. Kelly(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 03:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C319FB740D3AB5794DC2EA69B3EC15F378879E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156932   (526372) от 09.08.2017
-
-Cyberfox 52.3.0 for Intel + Portable [Multi/Ru]
+BurnAware Professional 11.5 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры Intel. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский, др.
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C73998B0F1F859DAEB359C2D331856CA78859D35
+magnet:?xt=urn:btih:20ADFC006E947DBC7F347B3C177DAAC88E329119
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -275,27 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369562   (526366) от 31.07.2011
+###  Публикация: 1240306   (529757) от 10.08.2018
 
-The Splendid Master Gnawa Musicians Of Morocco & Randy Weston (1992) [MP3|~210 kbps]<gnawa, african music>
+CocCoc 72.4.208 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[19:02] 01.  La Voix Errante
-[43:27] 02.  Sound Playing
-[08:31] 03.  Chalabati1992Жанр: gnawa, african musicПродолжительность: 01:11:01
+CocCoc Browser - браузер, который является продуктом вьетнамской компании Cốc Cốc. Браузер основан на открытом исходном коде проекта Chromium, поэтому браузер очень похож на Google Chrome.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DD7E85175B5EE3DC7F05AA49268C1423ED11259
+magnet:?xt=urn:btih:8EC52E5EFD6D9FDF2DE334FAABF37D8479BCBE1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -303,34 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369746   (526364) от 31.07.2011
+###  Публикация: 1240297   (529755) от 10.08.2018
 
-VA - World Top 40 Singles Charts (30.07.2011) [MP3|~263 kbps]<Dance, Pop>
+BeatMaker - 808 Bass Module III 3.0.0 VSTi, VSTi3 (x86/x64) Retail [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. LMFAO feat. Lauren Bennett & GoonRock - Party Rock Anthem
-02. Pitbull feat. Ne-Yo, Afrojack & Nayer - Give Me Everything
-03. Katy Perry - Last Friday Night (T.G.I.F.)
-04. Lady GaGa - The Edge Of Glory
-05. Adele - Rolling In The Deep
-06. Bruno Mars - The Lazy Song
-07. Jason DeRulo - Don't Wanna Go Home
-08. Nicki Minaj Feat. Ester Dean - Super Bass
-09. Jennifer Lopez Feat Pitbull - On The Floor
-10. Coldplay - Every Teardrop Is A Waterfall(   Читать дальше...   )30.07.2011Жанр: Dance, PopПродолжительность: 02:37:11
+BeatMaker 808 - мощный бас модуль с широким спектром различных 808 басов, готовых к использованию. Более 185 различных пресетов были разработаны для быстрого и вдохновляющего продакшена.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:690F9227A72F3C1C60379C9C0D449EA438360D23
+magnet:?xt=urn:btih:A3EC2F76BACD6CBDBF8CEF1364BBB560F58AF774
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,34 +102,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369580   (526363) от 31.07.2011
+###  Публикация: 1240289   (529753) от 10.08.2018
 
-Maalem Si Mohamed Chaouqi - Les Gnawa Du Maroc - Ouled El Abdi (1995) [MP3|~220 kbps]<gnawa, african music>
+Torch Browser 65.0.0.1604 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[03:21] 01.  Fangara Fangarie
-[02:36] 02.  Sidi'Amar
-[05:23] 03.  Youbadi
-[06:34] 04.  I Jellaba Tiktou
-[05:58] 05.  Allah Sawiye
-[03:05] 06.  Abou Mlik
-[06:56] 07.  Ana Hayou
-[04:51] 08.  Marhaba
-[07:59] 09.  Mimouna
-[06:08] 10.  Lalla Aicha Al Soudania(   Читать дальше...   )1994Жанр: gnawa, african musicПродолжительность: 01:12:47
+Torch Browser - браузер на платформе Chromium с расширенными возможностями: прямо из браузера можно будет скачать файл с торрента, сохранить видео, ускорить загрузку файлов, поделиться ссылками и т.д.
+Кроме этого, в Torch Browser встроены функции безопасности, призванные защитить пользовательские данные, а также обеспечить приватность деятельности в интернете.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:490A07CA3FF0D762E40E22ECE9C6AB1EC1B9F904
+magnet:?xt=urn:btih:7140686E0E6F39BD67BF6ADC961D72A87FAE68B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,30 +129,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369606   (526358) от 31.07.2011
+###  Публикация: 1240098   (529752) от 10.08.2018
 
-Malouma - Nour (2007) [FLAC|Lossless] <world, african blues>
+TSR Watermark Image 3.5.9.5 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[03:44] 01.  Khayala
-[03:19] 02.  yemma
-[04:45] 03.  Nebrine
-[05:00] 04.  Kentawiyate
-[04:36] 05.  Gamly
-[03:31] 06.  Nnew
-[05:05] 07.  Yarab
-[04:36] 08.  Habib
-[04:03] 09.  Chtib
-[04:24] 10.  Casablanca(   Читать дальше...   )2007Жанр: world, african bluesПродолжительность: 00:50:43
+Watermark Image - приложение для нанесения так называемых "водяных знаков" на фото и иные изображения. Программа позволяет использовать в качестве такого знака как текст, так и графику. Водяной знак может быть настроен - пользователь волен выбрать цвет, уровень прозрачности, расположение и его размер (в процентах). Поддерживается программой изменения размера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B899367B552AF68748F2DD70DF1CDF30AAA86521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368322   (529744) от 27.07.2011
+
+VA - Andes Pan Pipes - The Cherokee Spirit - Meditation (2011) [FLAC|Lossless] <new age, pan pipes>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529744.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:12] 01.  Wairapasunquy
+[05:07] 02.  The Big Circle
+[04:17] 03.  The Last Mohicans
+[05:52] 04.  Precious Water
+[03:30] 05.  Flyght Song
+[03:58] 06.  Night Bird
+[04:46] 07.  Brave Hearts
+[05:31] 08.  Love Mountain
+[05:34] 09.  Harmony
+[06:17] 10.  Miracle(   Читать дальше...)2011Жанр: new age, pan pipesПродолжительность: 01:06:20
 
 ## Скачать торент
 ```bash
@@ -408,23 +190,87 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369964   (526356) от 31.07.2011
+###  Публикация: 368327   (529742) от 27.07.2011
 
-Ashampoo GetBack Photo 1.0.0 + Portable [Multi/Rus]
+VA - Andes Pan Pipes Plays - CHAVEneeZ - Great Spirit (2011) [FLAC|Lossless] <new age, pan pipes>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ashampoo GetBack Photo — программа для восстановления потерянных или удаленных цифровых фотографий. С помощью эффективной функции поиска Ваши фотографии будут найдены и восстановлены в кратчайшие сроки.
+[05:28] 01.  Maht Jchi
+[05:49] 02.  Lakota lullaby
+[05:02] 03.  Haya-haya-ho
+[03:19] 04.  First cry
+[04:39] 05.  Dela dela
+[04:45] 06.  Drum song
+[04:35] 07.  Weyo ho "Woman's honor chant"
+[04:25] 08.  Song for Sean
+[05:27] 09.  Amanecer andino
+[04:41] 10.  Wamanchallay(   Читать дальше...)2011Жанр: new age, pan pipesПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368402   (529738) от 27.07.2011
+
+VA - The Magical Sound of the Pan Pipes (3CD, 2004) [FLAC|Lossless] <new age, pan pipes>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529738.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004Жанр: new age, pan pipesПродолжительность: 03:33:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368086   (529735) от 27.07.2011
+
+Label: Glasgow Underground (1997-2003) [MP3|128-320 kbps]<Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529735.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (Продолжительность: 01:01:12)
 
-Возможностей успешного восстановления становится все меньше и меньше, чем больше данных записано или удалено из Вашего жесткого диска или карты флэш-памяти с интерфейсом USB!? Установите Ashampoo GetBack Photo сейчас и Вы будете подготовлены к любой чрезвычайной ситуации и восстановите свои фотографии прежде чем станет поздно!Язык интерфейса: Multi/Rus
+N/A
+CD2 (Продолжительность: 01:14:07)
+
+N/A1997-2003Жанр: Deep HouseПродолжительность: 02:15:19
 
 ## Скачать торент
 ```bash
@@ -436,34 +282,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369702   (526355) от 31.07.2011
+###  Публикация: 927280   (529729) от 12.08.2015
 
-VA - Dance Hits Vol.190 (2011) [MP3|~311 kbps]<Dance, Club>
+Mozilla Firefox 41.0 beta 1 (x86/x64) [Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Sanny J feat. Los Tiburones - Shake Boom (Andy Grape Remix)
-02. Alex Gaudino feat. Kelly Rowland - What A Feeling (Michael Mind Project Remix)
-03. Marc Thomson - Turn Me Loose (Tom & Terry Radio Edit)
-04. Dj Spampy Engel - The Love Of My Heart (Matty D Remix)
-05. Loona - Bailando (Phobia & Shaker Bootleg Mix)
-06. Darius & Finlay feat. Daz - Here Comes The Night (Club Mix)
-07. Violet - Yo Te Quiero (Luca Zeta Extended Rmx)
-08. Ced Tecknoboy feat. Yvar - More (Extended Mix)
-09. LMFA0 Vs Dj Bigice & Outffit - Vejo Bonito Party (Paride Bono Dj Mashup Extended)
-10. PLSCB feat. Csilla - Ne Varj (Club Mix)(   Читать дальше...   )2011Жанр: Dance, ClubПродолжительность: 01:51:49
+Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:603F366C79FD2FB616D07BDAB555C45FE766A4D6
+magnet:?xt=urn:btih:B2FCFB375DD3FF1999C0D3A9097A4FEC3DAEA763
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,25 +308,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369730   (526354) от 31.07.2011
+###  Публикация: 927216   (529726) от 12.08.2015
 
-Журнал | Школа кулинара №14 [2011] [PDF]
+Мэтт Хейг | Эхобой (2015) [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рецепты, присланные в редакцию читателями, готовятся профессиональными шеф-поварами. Подробные фотоиллюстрации всех этапов приготовления. Рецепты сопровождают практические советы, экскурс в историю продуктов и другая полезная информация.2011Формат: PDF
+Одри 16 лет. Она читает настоящие бумажные книги, слушает музыку и мечтает изучать философию, чтобы оставаться человеком в мире, который изменился до неузнаваемости. Топливные войны 2040-х, засуха в Европе в 2060-х, катастрофа с генетически модифицированной пшеницей, гугл-бунты, магнитотреки, иммерсионные капсулы, и роботы, роботы, роботы — такова теперь повседневная (   Читать дальше...   )Жанр: Социально-философская фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:97DDA5CEA152511F85F996BE05D2F43145A535B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,25 +334,159 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156847   (526341) от 09.08.2017
+###  Публикация: 926942   (529721) от 12.08.2015
 
-Opera 47.0.2631.39 Stable [Multi/Ru]
+MotoGP. Этап 10/18. Гран-При США Индианаполис. Гонка (2015) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятый этап США. Гонки чемпионата мира MotoGP 2015 в королевском классе. Чемпионат мира по шоссейно-кольцевым мотогонкам (англ. FIM Road Racing World Championship Grand Prix) — высшая категория спортивных гонок на мотоциклах. Проводится Международной мотоциклетной федерацией с 1949 года. Этапы MotoGP (класс Moto Grand Prix) состоит из 3-х свободных практик, квалификации (   Читать дальше...   )Телекомпания: Авто+Жанр: Спорт, мотогонкиПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA5C582AD3D9E63C190340E33655DBE6DED5587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927100   (529712) от 12.08.2015
+
+ExpanDrive 5.0.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529712.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExpanDrive - удаленный сервер, как локальный диск
+Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
+
+Эта программа позволяет монтировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 августа 2015Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE71C39DD54A6497AA1DFD1A94DBC38A8B58BAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155918   (529691) от 05.08.2017
+
+Soulver 2.6.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего экселя много, а калькулятора мало или неудобно.
+Для пользователей интересным в Soulver может оказаться то, что в самой программе можно задавать числа не только используя цифры, но и их словесные обозначения, Soulver прекрасно понимает оба варианта записи даже вперемешку. Например, можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 августа 2017Разработчик: AcqualiaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3D590AC9812068168CD684CBC376F25B59E103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156129   (529676) от 05.08.2017
+
+КВН-2017. Премьер лига. 1.8 финала. Игра 3 (2017.08.05) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9094AFB9E705D81BC80321E947EBFAF876A02B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119648   (529674) от 05.08.2017
+
+Mac Blu-ray Player Pro 3.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mac Bluray Player - Проигрыватель HD Blu-ray дисков, отличное качество воспроизведение видео и аудио с поддержкой Dolby DTS, поддержка просмотра Blu-ray, DVD, Video CD, MOV, MKV, AVI, FLV, WMV, MP4, MPEG, RMVB, MP3, WMA, AAC, AC3 и других форматов, обход защит AACS, BD+ и других, имеет ряд стандартных функций сменные шкурки, проигрывание графики, маркировка и закладки, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 августа 2017Разработчик: Macgo INTERNATIONAL LTD.Поддерживаемая ОС: Mac OS X 10.8  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EEF73581218ACEC8E0E37366EAC8A5DCC90AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240219   (529671) от 10.08.2018
+
+EZ CD Audio Converter 7.1.7.1 Ultimate [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE99C4F24807FCBF4073BDE7410CF70FC1EEB72D
+magnet:?xt=urn:btih:F3D18A020F8D251A57BC928EB2B9E652577FBEB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,25 +494,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156562   (526337) от 09.08.2017
+###  Публикация: 1240251   (529670) от 10.08.2018
 
-YTD Video Downloader PRO 5.8.6 RePack (& Portable) by TryRooM  [Multi/Ru]
+Infix PDF Editor Pro 7.2.8 RePack (& Portable) by TryRooM [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+С помощью Infix PDF Editor вы можете открывать, изменять и сохранять файлы PDF. Это просто и не занимает много времени: можно изменить текст, шрифты, изображения и пр. И в отличие от других PDF-редакторов, Infix работает как обычный текстовый редактор, и действительно удобен в использовании. Избавление от опечаток: быстрое исправление ошибок в файлах PDF. Использование (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4EFA100A36817624D84ACB0BE6DC85E505B0F24
+magnet:?xt=urn:btih:3AA073EA5CD5251AFDA7949116B0D0DF9B786222
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,60 +520,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369752   (526328) от 31.07.2011
+###  Публикация: 1240246   (529669) от 10.08.2018
 
-VA - Best Dance Music vol.13 (2011) [MP3|~312 kbps]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Smith feat. Luvli - Dancin (Weekend Vibes Remix)
-02. Axwell - I Found U (Paul Johns Remix)
-03. Darius & Finlay Ft. Nicco - Downpour (Radio_Mix)
-04. Desperado feat. Play & Win - Inside I Want You (Naksi & Brunner Remix)
-05. Euphoria Project By Cj Choopa feat. Mc Mad - Get Up And Move Your Ass (Extended Mix)
-06. Gromee feat. Jayden Felder - Open Up Your Heart (Radio Edit)
-07. Housedoll - Pump , Lock And Drop it (Original Mix)
-08. John Puzzle feat. Elise - So Far So Good (Official Radio Edit)
-09. Kaazai & Acid Luke feat. Pitbull - Ay Chico (Shake It) (Mr LV Mix)
-10. Laurent Pepper feat. I-V - Shimmy Shake (Original Edit Mix)(   Читать дальше...   )2011Жанр: Pop, DanceПродолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E0EC0BF73DD1EE7B7158382E8B534B8734F6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369617   (526325) от 31.07.2011
-
-Freemake Video Downloader 2.1.7 [Multi/Rus]
+Soft Organizer 7.27 RePacK by KpoJIuK [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Freemake Video Downloader – это удобный и бесплатный видео даунлодер, который позволяет скачивать видео с многочисленных видео порталов, включая YouTube, Facebook, Google Video, MetaCafe, Vimeo и др. С помощью Freemake Video Downloader Вы сможете быстро и удобно скачать видео в оригинальном формате, сконвертировать клипы в WMV and MP4 или извлечь MP3 из видео. Вы также можете выбрать видео самого лучшего качества, находящегося на сайте, включая HD.Язык интерфейса: Multi/Rus
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8D98321FAC5755C365D7FBE821D21D66B14EA66E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,25 +546,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369765   (526318) от 31.07.2011
+###  Публикация: 1240316   (529668) от 10.08.2018
 
-Mozilla Thunderbird (Earlybird) 7.0  Alpha 2 [Русский]
+O&O SafeErase Professional 12.7 Build 178 RePack by D!akov [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird - простая и удобная бесплатная программа для работы с электронной почтой от Mozilla. Программа поддерживает протоколы SMTP, POP3, IMAP и RSS. Имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет дополнительных модулей и фильтрует рекламу, а так же нежелательную корреспонденцию. Интерфейс программы основан на технологии XUL, разработанной Mozilla Foundation, в результате чего интерфейс на всех платформах выглядит так же, как у приложений, разработанных для этой конкретной платформы. Интерфейс программы прост и удобен в использовании, поддерживает смену скинов. Во второй версии программы включено множество новых возможностей, помогающих вам лучше управляться с бурным потоком информации, устремляющимся в ваш почтовый ящик и быть в курсе последних событий.Язык интерфейса: Русский
+O&O SafeErase Pro - полностью исключает возможность восстановления удаленных данных. Вы сможете полностью удалить нужный файл одним нажатием на кнопку. При удалении файла занимаемое им дисковое пространство перезаписывается несколько раз, в соответствии с фундаментальными научными исследованиями в области безопасности. Для полного удаления файлов и папок вам (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:61F586EB5D21F1F1356CEED0FF3D716A9715BE49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,25 +572,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369802   (526316) от 31.07.2011
+###  Публикация: 1240093   (529661) от 10.08.2018
 
-Google Chrome 14.0.835.8 Dev [Русский\Multi]
+Master PDF Editor 5.1.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Google Chrome - веб-браузер производства Google с открытым исходным кодом, сочетающий поддержку веб-приложения и удобный поиск с высокой скоростью и стабильностью. В Chrome использованы наработки Apple WebKit и Mozilla Firefox. Из особенностей Chrome разработчики особо выделяют изолированные вкладки, предотвращающие сбой работы программы и обеспечивающие более надёжную защиту от опасных сайтов. Кроме этого, в Chrome реализован новый движок JavaScript V8, который позволит браузеру работать с веб-приложениями нового поколения.Язык интерфейса: Русский\Multi
+Master PDF Editor - это программа, предназначенная для просмотра и редактирования документов в формате PDF. Приложение включает в себя удобные инструменты выделения текста и картинок на страницах, дает возможность легко перемещаться по документу при помощи оглавления, а также добавлять заметки и комментарии. Одним из важнейших преимуществ программы можно считать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:781E5F9BAE19EEC800939E17254646A99B296C8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,115 +598,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 369563   (526313) от 31.07.2011
+###  Публикация: 1240058   (529658) от 10.08.2018
 
-Hassan Hakmoun - Gnawa Discography (1991-2002) [MP3|~227 kbps]<gnawa, african music>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526313.jpg" />
-</div>
-
-
-###  Подробнее
-
-1991-2002Жанр: gnawa, african musicПродолжительность: 03:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8997679CD61D4B0208A70B01233977F49EBC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369750   (526311) от 31.07.2011
-
-VA - Свидание под Луной (2011) [MP3|~286 kbps]<Instrumental, relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Goya - Woman In Love
-02. Santana - Flor De Luna
-03. Armik - For your eyes
-04. Paul Mauriat - L`ete indien
-05. Diego Modena - La criola
-06. Pavlo - Mediterranean Eyes
-07. Fausto Papetti - Melodia
-08. Bloncer - Anak
-09. Francis Goya - Emmanuelle
-10. James Last - Hotel California(   Читать дальше...   )2011Жанр: Instrumental, relaxПродолжительность: 01:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD209F125317C3CDF96BFD1100BE71B3C5C0BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156293   (526305) от 09.08.2017
-
-Кино - Черный Альбом (Последний) (1990)  [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <POP-ROCK>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кончится лето (05:53)
-02. Красно-Желтые дни (05:51)
-03. Нам с тобой (04:49)
-04. Звезда (04:27)(   Читать дальше...   )Жанр: POP-ROCKПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74747CD716FF9923C13E706702196DC60098F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157036   (526302) от 09.08.2017
-
-Cumulative Update KB4034658 for Windows 10 [Ru/En]
+uTorrent 3.5.4 Build 44508 Portable by A1eksandr1 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кумулятивное обновление KB4034658 для x86-x64 платформ, повышающее номер сборки Windows 10 Anniversary Update до 14393.1593.Также в раздаче присутствует обновление для Adobe Flash Player KB4034662Язык интерфейса: Русский,Английский
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA837EE2A1B96D92BAC17FA836F2977D9B8F06B8
+magnet:?xt=urn:btih:0BA2E1156F0CB468AE05DBE35AE9F114A8D5B668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240292   (529654) от 10.08.2018
+
+SwagArch 18.08 [x86_x64] 1xDVD
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529654.jpg" />
+</div>
+
+
+###  Подробнее
+
+SwagArch - это легковесная операционная система, основанная на базе Arch Linux, использующая легковесное и стабильное окружение рабочего стола Xfce и официальные репозитории Arch Linux. Содержит минимальное количество софта из коробки, что позволяет установить остальные приложения по своему вкусу. Для установки используется графический установщик Calamares.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63DB0B7CD9EBBCEEB36B3FD51C347FEF98598CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253054   (529642) от 21.06.2022
+
+Лекарственные растения v1.2.5 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529642.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лекарственные растения» - приложение, содержащее в себе подробное описание наиболее известных лекарственных растений. Оно будет полезно всем людям, которые любят природу и заботятся о своем здоровье.Тип издания: Пиратка (удалена реклама)Релиз состоялся: 02.06.2022Разработчик: VT LabsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3712E653967EB99810651EFAF1451B97E56A1E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927001   (529630) от 12.08.2015
+
+Подшивка журналов | Woodworking Crafts №2-4 (июль-сентябрь 2015) [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый журнал по столярному делу публикуется для всех работающих с деревом мастеров (от любителей до профессионалов), кто ищет свежие идеи для проекта, обзоры деревообрабатывающей техники и оснастки для мастерской.Жанр: столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6A7D72D2321C1EB3C56DB48E2966C4981EE7B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

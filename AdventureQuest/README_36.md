@@ -1,3 +1,107 @@
+###  Публикация: 1303009   (577392) от 18.05.2019
+
+A Plague Tale: Innocence (2019) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577392.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Plague Tale: Innocence – это невероятный средневековый мир, благодаря поразительным декорациям и таланту опытных разработчиков оживающий под незабываемую музыку, что пробирает до глубины души. Осмелитесь ли вы открыть ужасающую страницу историиТип издания: RepackРазработчик: Asobo StudioЖанр: Adventure, Action, Stealth, 3rd PersonЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA4832C34869B269B5927EA450DDA422D09B0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042991   (575853) от 14.08.2016
+
+Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doorways: Holy Mountains of Flesh - это приключенческий хоррор, повествующий о загадочных исчезновениях в небольшом аргентинском городке. Про исчезновение Хуана Торреса и его семьи ходили страшные слухи – говорят, они жили в маленькой деревне (с населением в 4800 человек) в провинции Аргентины. Одна из историй связана с каннибализмом, другая – с черной магией, а (   Читать дальше...   )Тип издания: LicenseРазработчик: Saibot StudiosЖанр: Adventure (Horror), Action, 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71DCE8323CA9C2AB858195216BF68CB2E0142AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043020   (575843) от 14.08.2016
+
+Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doorways: Holy Mountains of Flesh - это приключенческий хоррор, повествующий о загадочных исчезновениях в небольшом аргентинском городке. Про исчезновение Хуана Торреса и его семьи ходили страшные слухи – говорят, они жили в маленькой деревне (с населением в 4800 человек) в провинции Аргентины. Одна из историй связана с каннибализмом, другая – с черной магией, а (   Читать дальше...   )Тип издания: RepackРазработчик: Saibot StudiosЖанр: Adventure (Horror), Action, 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768713A7B3C1CD81EF7F7F322F52B9DC36178344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303116   (575733) от 19.05.2019
+
+The Long Dark (2017) [Ru/Multi] (1.50) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575733.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Long Dark – это хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма. Главной вашей задачей будет выжить как можно дольше, чтобы выяснить что же произошло с миром и как он изменился...Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABC7C3950080184268494E0F67EABC42D583A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554836   (573755) от 01.06.2022
 
 Coffee Talk (2020) [Ru/Multi] (1.48) License GOG
@@ -6,7 +110,7 @@ Coffee Talk (2020) [Ru/Multi] (1.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573755.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572692.jpg" />
 </div>
 
 
@@ -62,7 +166,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572315.jpg" />
 </div>
 
 
@@ -92,7 +196,7 @@ Sephonie (2022) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571838.jpg" />
 </div>
 
 
@@ -118,7 +222,7 @@ Observation (2019) [Multi] (1.04) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570202.jpg" />
 </div>
 
 
@@ -144,7 +248,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569919.jpg" />
 </div>
 
 
@@ -170,7 +274,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569914.jpg" />
 </div>
 
 
@@ -196,7 +300,7 @@ Grim Fandango Remastered (2015) [Ru/En] (1.4.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568422.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ American Fugitive (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568403.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ Gone Home (2013) [Ru/En] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568346.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ Observation (2019) [Ru/Multi] (1.04) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566719.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0.5.1) License GOG [Digital Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566715.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ Dollhouse (2019) [Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564976.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ You Deserve (2016) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564903.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ You Deserve (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564670.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ Reflecting Fate (2017) [En] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563028.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Pilot Brothers 2 / Братья Пилоты 2: Дело о серийном м�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562857.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ Dreamfall Chapters (2017) [Multi] (5.7.2.1/dlc) License CODEX [The Final Cut Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562743.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562722.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562719.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ Door to Door (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560876.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ Alter Cosmos (2018) [En/Pl] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560022.jpg" />
 </div>
 
 
@@ -572,111 +676,6 @@ Alter Cosmos - приключенческая игра в стиле комик�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ADBBF2642C8AAD78176388179D15FEE116768C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221183   (559260) от 28.05.2019
-
-Lost Eden (1995) [Multi] (1.0cs) License GOG
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит в сказочных землях, которые населены людьми и динозаврами. Долгое время люди жили в мире и согласии с этими величественными животными. Вместе они противостояли Моркусу Рексу – предводителю тираннозавров, который хотел уничтожить все живое на Земле. Но времена изменились. Один из королей тех краев в свое время разорвал все дружеские отношения (   Читать дальше...   )Тип издания: LicenseРазработчик: Cryo InteractiveЖанр: Приключение, Квест, ФантастикаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Испанский, Итальянский и другиеЯзык интерфейса: Английский, Испанский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A298C705C63B2F9F4BD3C8579DBC702CBBFADF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086461   (558364) от 12.07.2018
-
-Firewatch (2016) [Ru/Multi] (1.09) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558364.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989-й год. Тебя зовут Генри, и ты уехал от тяжелой жизни в леса Вайоминга, чтобы работать там дозорным. Расположившись на самой вершине горы, ты должен следить за сохранностью окружающей природы. Особо жаркое, сухое лето заставляет всех беспокоиться. Твой начальник, женщина по имени Делайла, всегда поддерживает с тобой контакт с помощью небольшой ручной рации - (   Читать дальше...   )Тип издания: RepackРазработчик: Campo SantoЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F95D3AE31BCF19AFBF32FBE71E3223C587AB654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305135   (558051) от 29.05.2019
-
-Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558051.jpg" />
-</div>
-
-
-###  Подробнее
-
-На далекой планете, которой не существует, утеряна бесценная ваза. Полковник взбешен, он жаждет вернуть ее. Есть только один человек, обладающий достаточным опытом... мастерством... и идиотизмом, чтобы отправиться за ней: межзвездный авантюрист, бестолковый Рекс Небулар! Помогите Рексу, который ведет "Скользкую Свинку" прямым путем на Терру Андрогену, планету, (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroProseЖанр: Приключение, Квест, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B9C3206E6A181E60C4AD75A878638A8641C0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045809   (557485) от 24.08.2016
-
-Conclusion (2016) [Ru/En] (1.0.2) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил - белая ворона в своём окружении. Его особенности чинят ему всю жизнь препятствия и проблемы. И главные из них на повестке дня - он оказался неизвестно где и непонятно как. Но почему эта дорога рядом с ним кажется такой знакомой? Дать ответ на этот и все остальные вопросы сможете только Вы.
-Conclusion - это адвенчура с элементами детектива. Вам придётся распутывать (   Читать дальше...   )Тип издания: RepackРазработчик: TomadeiraЖанр: Adventure, Casual, IndieЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEBBD6DEE13C14D02CE14FEF8999FADBC8DEE3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

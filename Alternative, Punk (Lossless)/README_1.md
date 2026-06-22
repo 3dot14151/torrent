@@ -6,7 +6,7 @@ Child - Soul Murder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Bluesy, Ps
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036739.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Celebrity Sex Scandal - Convergence of Infinite Sequences (2023) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036729.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Seconds Ago - Dysphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <hardcore, metalcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036450.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Illmatic - Watching The World Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036449.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ U.S. Girls - Bless This Mess (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036445.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Algiers - Shook (2023) [FLAC|Lossless|WEB-DL|tracks] <Post Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035871.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Silverside - V: Transmissions (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035869.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Imminence - Heaven in Hiding (2021) Deluxe Edition, 2023, Arising Empire [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035863.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Xiu Xiu - Ignore Grief (2023) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035334.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Tom Chaplin - Midpoint (2022) 2 CD [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034174.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Blue October - Approaching Normal (2009) [FLAC|Lossless|tracks + .cue] <Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034167.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sacha Korn - Nokout (2009) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033051.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Bloodsucking Zombies From Outer Space - Geisterhaus [Morder Blues III] (2023) [F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032316.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Field Music - Commontime (2016) [FLAC|Lossless|WEB-DL|tracks] <Art rock, Indie-p
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032136.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Clap Your Hands Say Yeah - New Fragility (2021) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032129.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032082.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Sleeping Dog - Meltwater Pulse 1B (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031908.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Love And Death - 2 Albums (2013, 2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031889.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ad Nauseam - Imperative Imperceptible Impulse (2021) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031376.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Eiffel - Foule Monstre (2012) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031365.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ August Burns Red - Death Below (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030995.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Senshi - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Reggae Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030051.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Scarlet Letter - Friss Oder Stirb (1990) [FLAC|Lossless|image + .cue] <Gothi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029066.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Architects (UK) - For Those That Wish To Exist (2021) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029036.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Nick Cave & Warren Ellis - Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029024.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaz
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027779.jpg" />
 </div>
 
 

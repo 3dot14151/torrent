@@ -1,3 +1,83 @@
+###  Публикация: 1065370   (421636) от 22.10.2016
+
+Bevy 1.1.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bevy – все приложения в одном окне
+Многие пользователи Mac OS X используют на своих компьютерах столько программ, что они просто не помещаются в Dock. Для решения этой проблемы существуют специальные приложения, которые позволяют быстро запускать нужные программы. Одним из них является Bevy, с помощью которого можно легко получить быстрый доступ к ярлыкам программ. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 октября 2016Разработчик: bergdesign inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6456271CE159522C25310F5997EE0F4A030E498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246963   (421397) от 19.10.2010
+
+Preps 5.3.3 [Eng] (PPC)
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_421397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preps – это мощный пакет предназначенный для выполнения электронного спуска полос из отдельных страниц перед выводом на плёнку или пластину. Preps используется и как отдельное приложение в PostScript или PDF среде, и как компонента популярных систем допечатной подготовки таких как Apogee, Brisque, Prinergy и Rampage.
+Preps – один из наиболее популярных программных пакетов для изготовления электронного спуска полос. Гибкость настроек Preps позволяет интегрировать его в любую рабочую среду с учётом всех индивидуальных особенностей. Preps позволяет не только изготавливать журнальные раскладки, но и специализированные книжные и газетные раскладки для печати на роллевых машинах. С помощью Preps можно изготавливать сложные этичеточные и упаковочные раскладки, включая раскладки с гнездованием. Preps может комбинировать на одном печатном листе страници, предоставленные в PostScript, PDF, EPS, DCS, TIFF и Delta List. Кроме этого, если формат печатной машины больше, чем формат выводного устройства, то Preps може корректно (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412283   (420443) от 28.09.2020
+
+Adobe Zii 2020 - Universal Patcher 5.2.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B49F6F1F7BF062D7F1F5165D837288207CBA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947228   (420267) от 16.10.2015
 
 Things 2.8.0 [Multi/Ru]
@@ -6,7 +86,7 @@ Things 2.8.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420267.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ Tonality CK (Pro) 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420172.jpg" />
 </div>
 
 
@@ -63,7 +143,7 @@ Spectre 1.9.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420089.jpg" />
 </div>
 
 
@@ -90,7 +170,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.23 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419773.jpg" />
 </div>
 
 
@@ -110,6 +190,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247668   (419351) от 20.10.2010
+
+Capture One Pro 5.2.1 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_419351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" и "недосвеченные" снимки, тонко настроить резкость снимка и устранять цветные шумы.
+
+Capture One позволяет использовать несколько вариантов корректировки одного и того же изображения. В качестве шаблона используется исходный RAW, а не результат предыдущих корректировок. Рабочая область делится на несколько областей. Их количество равняется числу вариантов обработки исходного цифрового негатива.Настройка баланса белого осуществляется с помощью регуляторов цветовой температуры и оттенка. Кроме того, имеется возможность выбора сюжетных программ, традиционных для многих фотокамер. Вы можете также воспользоваться пипеткой. На фотографии (   Читать дальше...   )2010Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412433   (418367) от 29.09.2020
 
 A Better Finder Attributes 7 v7.01 [En]
@@ -118,7 +226,7 @@ A Better Finder Attributes 7 v7.01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418367.jpg" />
 </div>
 
 
@@ -144,7 +252,7 @@ Translatium 14.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418359.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ Bartender 3 v3.1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417911.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ PVF Update (091) Mojave [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417842.jpg" />
 </div>
 
 
@@ -225,7 +333,7 @@ OnyX 3.8.6 for macOS Catalina 10.15 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417839.jpg" />
 </div>
 
 
@@ -251,7 +359,7 @@ Focus CK (Pro) 1.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417801.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ Wondershare TunesGo 9.7.2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417596.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ Brightly Pro 2.1.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417261.jpg" />
 </div>
 
 
@@ -329,7 +437,7 @@ Metadata Converter Pro for Mac 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417259.jpg" />
 </div>
 
 
@@ -355,7 +463,7 @@ Filmage Editor 1.3.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417258.jpg" />
 </div>
 
 
@@ -381,7 +489,7 @@ Synalyze It! Pro 1.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417257.jpg" />
 </div>
 
 
@@ -409,7 +517,7 @@ PDF Plus - Merge & Split PDFs 1.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417254.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ Hyperkey 0.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417251.jpg" />
 </div>
 
 
@@ -461,7 +569,7 @@ Music Converter Pro 1.6.3.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417120.jpg" />
 </div>
 
 
@@ -487,7 +595,7 @@ Contexts 3.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417118.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ Deflection Pro 6.5.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417104.jpg" />
 </div>
 
 
@@ -541,7 +649,7 @@ Smart Player Premium 1.1.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417097.jpg" />
 </div>
 
 
@@ -567,7 +675,7 @@ Forecast Bar 2.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417041.jpg" />
 </div>
 
 
@@ -582,117 +690,6 @@ Forecast Bar - точный прогноз погоды  Forecast.io  прямо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B58B0F9FE1F44720F0978205CF41E7440DCDDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572935   (416896) от 29.08.2022
-
-Author 8.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Author это - полный контроль над процессом авторства с помощью расширенной копии цитирования, расширенного глоссария, расширенных представлений, вырезок и многого другого.
-Когда вы будете готовы поделиться своей работой в формате PDF, вы получите автоматически созданный справочный раздел. Вы также можете публиковать сообщения в WordPress.Тип издания: macOS SoftwareРелиз состоялся: 26.08.2022Разработчик: © 2007-2021 The Augmented Text Company LTD, UKПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FED8E2554F95314495E40E1B174D608E1D77D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066015   (416855) от 24.10.2016
-
-StatusDuck 0.82 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416855.jpg" />
-</div>
-
-
-###  Подробнее
-
-StatusDuck реализует управление приложениями находящимися в Doc , используя пространство панели меню.
-Мгновенно увидеть запущенные приложения. Легко  приложение и без необходимости использовать Cmd-Q, или проходящие через пункты меню
-Прикрепите ваши любимые папки в строке меню (Отбросьте папку на StatusDuck, удерживая клавишу Command вниз)
-Переключение между приложениями. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2014Разработчик: StatusDuck ApplicationПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4FA411B85DFD8D3BF8B227674E39F70175FACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248353   (416759) от 21.10.2010
-
-iLife '11 [Multi/Rus]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_416759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор программ для работы с фото, видео, звуком, создания веб-страниц и DVD-Video дисков.
-Соответственно в комплекте iPhoto '11, iMovie '11, GarageBand '11, iWeb (v3.0.2), iDVD (v7.1)
-и электронная документация.MacOS XНазвание программы: Apple iLife'11Язык интерфейса: Многоязыковой, в тч Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573081   (416682) от 29.08.2022
-
-FruitJuice - Active Battery Health and Monitoring 2.5.4 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416682.jpg" />
-</div>
-
-
-###  Подробнее
-
-FruitJuice - правильный уход за батареей MacBook
-FruitJuice - приложение тесно интегрированное с онлайн-сервисом, которые совместно помогут максимизировать жизненный цикл батареи вашего Macbook и максимально эффективно увеличить время автономной работы, в точном соответствии с рекомендациями компании Apple . Приложение отслеживает состояние батареи в режиме реального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.08.2022Разработчик: © 2010-2022 The Battery Project, LLCПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E02BF41A3E54A7BC07A20659164456CF09370F
 ```
 
 https://mybot314.ru/tekegram_catalog/

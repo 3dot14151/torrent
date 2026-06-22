@@ -1,3 +1,57 @@
+###  Публикация: 1641591   (210722) от 23.06.2023
+
+Native Instruments Kontakt 7 v.7.4.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.06.2023Разработчик: © 2022 Native Instruments GmbHПоддерживаемая ОС: macOS 10.14.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A811369DECCC3D4568E9CDF0A93935B54CD9CC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641807   (210658) от 24.06.2023
+
+Slidepad 1.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210658.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2023Разработчик: © 2023 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACB8E41D7C0903E5D49D432F315106358D11C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641799   (210653) от 24.06.2023
 
 System Dashboard Pro 1.4.7 [En]
@@ -6,7 +60,7 @@ System Dashboard Pro 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210653.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ PhotoMill X 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210651.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ OnlySwitch 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210649.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Pixelmator Pro 3.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210594.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ iNet Network Scanner 2.9.81 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210399.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ Path Finder 2156 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210370.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ Keka 1.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210354.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ TechSmith Camtasia 2023 Studio 2023.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210352.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ Wondershare UniConverter for Mac 14.2.17 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210344.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210317.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ PDF Reader Pro Edition 2.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210312.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Wolfram Mathematica 13.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210283.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ iStat Menus 6 v.6.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210184.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ Adobe Substance 3D Painter 8.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209487.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ Luminar Neo 1.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209300.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ DjVu Reader Pro 2.6.8 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209219.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ Commander One PRO - FTP client 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208858.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ Magnet 2.11.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208850.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ Disk Drill Enterprise 5.1.1112 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208581.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ Planner 5D Premium 4.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208569.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ MAMP PRO 6 v.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208481.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ ZBrush 2023.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208411.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ Final Cut Pro X 10.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208385.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ WiFi Explorer 3 Pro 3.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208366.jpg" />
 </div>
 
 
@@ -627,60 +681,6 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:494915F859974291858AC3DD8368F91F72736057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648018   (208346) от 21.07.2023
-
-ProPresenter 7.13.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208346.jpg" />
-</div>
-
-
-###  Подробнее
-
-ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
-Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
-Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2023Разработчик: ©️ 2023 Renewed Vision, LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Русский, Английский  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DC92850713E847BA8E94DB741B26E66A77D868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609453   (208298) от 03.02.2023
-
-ZBrush 2023.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixologic ZBrush - программа для трёхмерного моделирования, созданная компанией Pixologic. Созданный с уникальным неповторимым интерфейсом, ZBrush предлагает наиболее продвинутые технологии для художников. ZBrush создает множество возможностей творить и вдохновляет творческий процесс. Возможность создавать с помощью скульптинга модели с миллионами полигонов в ZBrush (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2023Разработчик: © 2022 Pixologic Inc.Поддерживаемая ОС: macOS 10.14 or newerЯзык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075642769B67C7899CA2F4A2C68F90C631B88FCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

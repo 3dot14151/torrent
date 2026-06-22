@@ -1,119 +1,3 @@
-###  Публикация: 1736644   (106653) от 13.07.2024
-
-Александр Городницкий  - 2 Альбома (1997-1998) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снег
-02. А женам надоели расставанья...
-03. Бухта Тикси / Две весны
-04. Песня полярных летчиков(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A544BD528397BAC0DE9F5B370A341C1C9073A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736594   (106636) от 13.07.2024
-
-Виталий Заиграев - Для своих (2024) [MP3|320 Kbps] <Военная песня, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - За Донбасс [00:04:07]
-02 - Война [00:02:55]
-03 - После войны [00:02:55]
-04 - Герои России [00:03:33](   Читать дальше...   )Жанр: Военная песня, ChansonПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBDCDC8D336BECDA244E12D6152172B8BF35489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736498   (106601) от 14.07.2024
-
-Слава Благов - Первый (2024) [MP3|320 Kbps] <Pop>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Такая хорошая [00:03:27]
-02 - Она любила виски [00:03:08]
-03 - Соседи [00:04:20]
-04 - Голос кубинских улиц [00:04:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96B992DA4AAEB1395F95119749376B189EFE215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742062   (105591) от 10.08.2024
-
-Марина Вайсберг - Я женщина приличная (2024) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Булка [00:01:40]
-02 - Вася [00:01:56]
-03 - Тюльпаны [00:01:30]
-04 - Жрушка [00:01:29](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745731   (105022) от 27.08.2024
 
 Василий Уриевский - Космос обещает быть тёплым (2024) [MP3|320 Kbps] <Авторская песня>
@@ -122,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105022.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104841.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103387.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103369.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103363.jpg" />
 </div>
 
 
@@ -267,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102469.jpg" />
 </div>
 
 
@@ -302,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102407.jpg" />
 </div>
 
 
@@ -337,7 +221,7 @@ VA - Песни нашей победы (2010) [MP3|320 kbps]<Военная п�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101835.jpg" />
 </div>
 
 
@@ -372,7 +256,7 @@ VA - Единственной и любимой (2007) [MP3|320 kbps]<Военн
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101778.jpg" />
 </div>
 
 
@@ -407,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101343.jpg" />
 </div>
 
 
@@ -436,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100653.jpg" />
 </div>
 
 
@@ -465,7 +349,7 @@ VA - Мы военной разведки спецназ (2005) [MP3|256 кб/с
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90469.jpg" />
 </div>
 
 
@@ -500,7 +384,7 @@ VA - Война закончилась давно (2005) [MP3|320 kbps]<Воен
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90016.jpg" />
 </div>
 
 
@@ -535,7 +419,7 @@ VA - Поклонимся Великим Тем Годам (2010) [MP3|320 kbps]
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90010.jpg" />
 </div>
 
 
@@ -570,7 +454,7 @@ VA - Песни Великой Отечественной войны (2000) [MP3
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89889.jpg" />
 </div>
 
 
@@ -599,7 +483,7 @@ VA - Мы Вас помним и чтим (2010) [MP3|320 kbps]<Ретро, во
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89820.jpg" />
 </div>
 
 
@@ -634,7 +518,7 @@ VA - Для всех, кто служит (2006 - 2008) (2CD)[MP3|320 кб/с]<�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89818.jpg" />
 </div>
 
 
@@ -669,7 +553,7 @@ VA - Мы Вас помним, Вы заслужили (2010) [MP3|320 kbps]<В�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89606.jpg" />
 </div>
 
 
@@ -704,7 +588,7 @@ VA - Песни о Великой войне (2005) [MP3|320 kbps]<Военна�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89236.jpg" />
 </div>
 
 
@@ -739,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89115.jpg" />
 </div>
 
 
@@ -774,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81377.jpg" />
 </div>
 
 
@@ -807,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81273.jpg" />
 </div>
 
 
@@ -818,6 +702,125 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DF8B7F208F718C171ACF21AF13386FC1B769349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465073   (80990) от 09.03.2012
+
+Романтик - Лучшие песни о любви (2007) [MP3|128 кб/с]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80990.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Благослови... (03:18)
+2. Обещай мне... (02:42)
+3. Если будет... (02.30)
+4. Ты проснулась (02:53)
+5. Два образа (04:15)
+6. Мой ангел (04:20)
+7. Она любит его (03:03)
+8. Подарки (02:06)
+9. Она одна (04:29)
+10. Не плачь (03:15)(   Читать дальше...   )2007Жанр: Авторская песняПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F63283D66B0BC62E007D8984B72B4CE13DA176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 418563   (72947) от 29.01.2012
+
+Владимир Высоцкий - Спасибо, что живой (Коллекция издательства «Амфора» 11 CD) (2011-2012) [MP3|320 kbps]<Авторская песня>
+
+>>След.
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Авторская песняПродолжительность: 07:01:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774550   (71537) от 21.01.2025
+
+Андрей Швиденко - 2 Albums (2023, 2024) [MP3|320 Kbps] <авторская и военная песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В море-дома [00:04:46]
+02. Глубина [00:04:18]
+03. Торпедная атака [00:03:22]
+04. БЧ-5 [00:04:51](   Читать дальше...   )Жанр: авторская и военная песняПродолжительность: 2 CD, 02:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D885DD5EBFBA01B8005D53FD173045D18DBFB37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774916   (71500) от 25.01.2025
+
+Алла Иошпе и Стахан Рахимов - Вчера и сегодня (2008) [MP3|320 Kbps] <Ретро, Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Листая старые альбомы [00:07:10]
+02. Говорят [00:03:07]
+03. Дорогая моя, дорогой [00:03:42]
+04. Гости на дачу [00:03:44](   Читать дальше...   )Жанр: Ретро / ЭстрадаФормат: MP3 (tracks)Продолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104C2DC514F50F9A191BCBB19E2EA4C65CA4888A
 ```
 
 https://mybot314.ru/tekegram_catalog/

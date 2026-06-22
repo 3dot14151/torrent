@@ -1,4 +1,136 @@
 https://t.me/izofen
+###  Публикация: 1877199   (1073818) от 
+
+Делай ноги / Happy Feet (2006) BDRip [H.265/2160p] [4K, SDR, 10-bit] [handmade upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073818.jpg" />
+</div>
+
+
+###  Подробнее
+
+В музыкальном мире императорских пингвинов, которые находят себе пару благодаря пению, рождается пингвинёнок по имени Мамбл, который не может издать ни одной ноты… зато может отплясывать ту ещё чечетку. Его родители, Норма Джин и Мемфис, в отчаянии, но надеются, что их лишённый музыкального слуха малыш перерастёт своё нелепое танцевальное увлечение. Однако пытаясь (   Читать дальше...   )Производство: США, Австралия / Warner Bros. Pictures, Village Roadshow PicturesЖанр: мультфильм, мюзикл, мелодрама, комедия, приключения, семейныйРежиссер: Джордж Миллер, Уоррен Коулмэн, Джуди МоррисПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (PGS), английские (PGS)Продолжительность: 01:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9A260A4C22DF55AC890FAFFBC11AB8B34617F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876843   (1073588) от 17.06.2026
+
+Супер Марио: Галактическое кино / The Super Mario Galaxy Movie (2026) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боузер-младший похищает принцессу Розалину и пытается вернуть отца, создав пушку, способную уничтожать вселенные. Марио, Луиджи и найденный ими дракон Йоши пытаются перевоспитать поверженного Боузера, но вскоре того освобождает сын. Водопроводчик объединяет силы со своими друзьями, чтобы помешать планам Боузера-младшего по достижению вселенского господства.Производство: Япония, США / Illumination Entertainment, Nintendo Co. Ltd., Universal PicturesЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Аарон Хорват, Михаэль Еленик, Пьер ЛедюкАктеры: Крис Пратт, Дональд Гловер, Бри Ларсон, Вирджиния Даре Еленик, Бенни Сэфди, Кевин Майкл Ричардсон, Чарли Дэй, Кигэн-Майкл Ки, Аня Тейлор-Джой, Эрик БаузаПеревод: Дублированный (Продубляж)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB27024D62B3DB80F123D3AC0EC2FCB0FF35EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876608   (1073394) от 16.06.2026
+
+Кунг-фу Панда 3 / Kung Fu Panda 3 (2016) UHD BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воссоединившись со своим давно потерянным отцом, По отправляется в тайный рай для панд, где его ожидает встреча с множеством веселых сородичей. Однако вскоре злодей Кай начинает зачистку - он уничтожает кунг-фу мастеров по всему Китаю.
+
+По предстоит сделать невозможное - обучить боевому искусству деревню, полную его веселых, неуклюжих собратьев, и тем самым превратить (   Читать дальше...   )Производство: США, Китай / China Film Co., Ltd., DreamWorks Animation, 	Oriental DreamWorksЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Алессандро Карлони, Дженнифер Ю НельсонАктеры: Джек Блэк, Брайан Крэнстон, Дастин Хоффман, Анджелина Джоли, Дж.К. Симмонс, Джеки Чан, Сет Роген, Люси Лью, Дэвид Кросс, Кейт ХадсонПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC70B1FCA04F14B268DEFB0E219AC63CFD2871C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876395   (1073288) от 
+
+Прыгуны / Hoppers (2026) UHD BDRip [H.265/2160p] [4K, HDR10, DV 8.1, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студентка Мейбл — большая любительница природы и активная зоозащитница. Всеми силами она пытается спасти уголок дикой природы, который так любила её бабушка, от амбициозного мэра, намеревающегося завершить строительство скоростного шоссе. Внезапно девушка узнаёт, что профессор её университета разработала технологию, позволяющую переносить сознание человека в роботизированное (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, комедия, фантастика, приключения, семейныйРежиссер: Дэниэл ЧонгАктеры: Пайпер Курда, Бобби Мойнахан, Джон Хэмм, Мэрил Стрип, Дэйв Франко, Николь Блум, Эдуардо Франко, Сэм Ричардсон, Кэти Нэджими, Исайя Уитлок мл. и другиеПеревод: Дублированный (MovieDalen, LeDoyen)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, full), украинские (forced, full, CC, SDH), английские, испанские, французкиеПродолжительность: 01:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115D5A8FE161F08CE042BF88812D04309AA7C270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875934   (1073101) от 
+
+Супер Марио: Галактическое кино / The Super Mario Galaxy Movie (2026) UHD BDRemux [H.265/2160p] [4K, HDR10, DV 7.6, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боузер-младший похищает принцессу Розалину и пытается вернуть отца, создав пушку, способную уничтожать вселенные. Марио, Луиджи и найденный ими дракон Йоши пытаются перевоспитать поверженного Боузера, но вскоре того освобождает сын. Водопроводчик объединяет силы со своими друзьями, чтобы помешать планам Боузера-младшего по достижению вселенского господства.Производство: США, Япония / Universal Pictures, Nintendo Co. Ltd., Illumination EntertainmentЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Аарон Хорват, Михаэль Еленик, Пьер Ледюк, Фабьен ПолакАктеры: Крис Пратт, Аня Тейлор-Джой, Джек Блэк, Бенни Сэфди, Бри Ларсон, Кигэн-Майкл Ки, Чарли Дэй, Кевин Майкл Ричардсон, Глен Пауэлл, Дональд Гловер и другиеПеревод: Дублированный (ПроДубляж, LeDoyen)Язык озвучки: Русский, украинский, английский, испанскийСубтитры: Русские (forced, full), украинские (forced, full, SDH), английские (full, SDH), испанские (forced, full), французскиеПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208B668A3288A82ED4EA5EF102AF8F34C9F54DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875747   (1072883) от 
 
 Супер Марио: Галактическое кино / The Super Mario Galaxy Movie (2026) BDRemux [H.264/1080p]
@@ -7,7 +139,7 @@ https://t.me/izofen
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072883.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072882.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072881.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072738.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072628.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072627.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072387.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ GOAT: Мечтай по-крупному / GOAT (2026) BDRip [AV1/1080p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072207.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072201.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072152.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072107.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071658.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071092.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071091.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071090.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071063.jpg" />
 </div>
 
 
@@ -424,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071023.jpg" />
 </div>
 
 
@@ -450,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070965.jpg" />
 </div>
 
 
@@ -476,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070797.jpg" />
 </div>
 
 
@@ -502,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070796.jpg" />
 </div>
 
 
@@ -528,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070358.jpg" />
 </div>
 
 
@@ -539,138 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC9EAD27A5510BC3335B477186980B4AB593BD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871584   (1070050) от 17.05.2026
-
-Экзорцизм. Хроники: Начало / Toemalog / Exorcism Chronicles: The Beginning (2024) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070050.jpg" />
-</div>
-
-
-###  Подробнее
-
-145-й настоятель тайного храма, сотни лет проведя в изгнании, готовится провести зловещий ритуал, чтобы обрести силу абсолютного зла. Его пытаются остановить хранители храма — представители разных религий.Производство: Корея Южная / Locus Studio, ShowboxЖанр: мультфильм, фэнтези, боевикРежиссер: Ким Дон-чхольАктеры: Чхве Хан, Нам До-хён, Чон Ю-джон, Ким Ён-у, Ким Мин-джу, Хон Сын-хё, Хван Чхан-ён, Пхё Ён-джэПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, КорейскийСубтитры: Русские (Forced, Full), Корейские, АнглийскиеПродолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3758FE09A6BF98A301BAC329C8D352F7BFC2811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871585   (1070049) от 17.05.2026
-
-Экзорцизм. Хроники: Начало / Toemalog / Exorcism Chronicles: The Beginning (2024) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070049.jpg" />
-</div>
-
-
-###  Подробнее
-
-145-й настоятель тайного храма, сотни лет проведя в изгнании, готовится провести зловещий ритуал, чтобы обрести силу абсолютного зла. Его пытаются остановить хранители храма — представители разных религий.Производство: Корея Южная / Locus Studio, ShowboxЖанр: мультфильм, фэнтези, боевикРежиссер: Ким Дон-чхольАктеры: Чхве Хан, Нам До-хён, Чон Ю-джон, Ким Ён-у, Ким Мин-джу, Хон Сын-хё, Хван Чхан-ён, Пхё Ён-джэПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, КорейскийСубтитры: Русские (Forced, Full), Корейские, АнглийскиеПродолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE7B747AB4A7C943B884102604FF2E67BAA6CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870872   (1069442) от 15.05.2026
-
-Хроники Риддика: Темная ярость / The Chronicles of Riddick: Dark Fury (2004) BDRip [H.265/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимационная лента «Хроники Риддика: Темная ярость» сюжетно связана с первой частью фильма о приключениях отважного героя. Здесь мы увидим, что случилось с уцелевшими членами экипажа, покинувшими планету, кишащую ужасными монстрами из первой части под названием «Черная дыра».
-В представленной картине наш герой попадает в руки охотников за головами, которые решили (   Читать дальше...   )Производство: США / Universal Animation Studios, Universal Cartoon StudiosЖанр: короткометражный, фантастика, боевикРежиссер: Питер ЧонАктеры: Вин Дизель, Риана Гриффит, Кит Дэвид, Роджер Л. Джексон, Тресс МакНилл, Ник Чинланд, Дуайт Шульц, Сарж, Джулия Флетчер, Хеди Барресс и другиеПеревод: Дублированный (Первый канал), многоголосый (Universal Pictures Russia)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7565E39A2580F97ED5B059EC10C71BFDC7FDD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869868   (1069257) от 09.05.2026
-
-В чужой шкуре / Swapped (2026) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Handmade Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькое лесное существо Олли и величественная птица Айви, которая охотится на него, волшебным образом меняются телами. Чтобы снова оказаться в своей шкуре, им приходится объединить силы и вместе отправиться в приключение.Производство: Испания, США / Skydance Animation, Skydance ProductionsЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Нэйтан ГреноАктеры: Майкл Б. Джордан, Джуно Темпл, Седрик «Развлекатель», Жустина Мачадо, Нейт Торренс, Кемден Брукс, Táta Vega, Амбика Мод, Лолли Адефопе, Джон РатценбергерПеревод: Дублированный (Videofilm Int.)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CAEFFB13707DA4F7E894723E7674E848B3E6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869748   (1068510) от 08.05.2026
-
-Я, Франкельда / Soy Frankelda / I'm Frankelda (2025) WEB-DL [H.264/1080p] [ESP / RU Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в Мексике XIX века. Главная героиня, талантливая писательница мрачных историй по имени Франкельда, разочарована тем, что её творчество отвергают. В облике призрака она отправляется в созданное ею самой королевство, населённое монстрами из её рассказов.
-Вместе со своим спутником — принцем призраков Эрневалем — она должна восстановить баланс (   Читать дальше...   )Производство: Мексика / Woo Films, Cinema FantasmaЖанр: мультфильм, мюзикл, фэнтези, семейныйРежиссер: Arturo Ambriz, Roy Ambriz, Mireya MendozaАктеры: Assira Abbate, Анаи Аллуэ, Arturo Ambriz, Lourdes Ambriz, Roy Ambriz, Antonio Badía, Gaby Cárdenas, Sergio Carranza, Бету Кастилло, Джесси КондеПеревод: СубтитрыЯзык озвучки: ИспанскийСубтитры: РусскиеПродолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE065A5EBD30E60DB335A40C2D8BF2A6BCE33B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

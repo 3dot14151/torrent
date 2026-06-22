@@ -1,3 +1,55 @@
+###  Публикация: 1859256   (1060810) от 15.03.2026
+
+Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E103F3DEC6B79714CE2B55E6F5892FC089E0AC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857797   (1060477) от 10.03.2026
+
+Madein - Pung! (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Южная КореяЖанр: KpopПродолжительность: 00:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E60C75A4CBF0D9DE034E4FAABF914BB5287407C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854024   (1060461) от 11.03.2026
 
 RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/2160p]
@@ -6,7 +58,7 @@ RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/216
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060461.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ NiziU - Emotion (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060460.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ First Love (CSR) - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060459.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ ILLIT - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060458.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Girls' Generation - FOREVER 1 (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060441.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058361.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Baby DONT Cry - I DONT Care (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049897.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Alice - Dance On (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049896.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049885.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045626.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045623.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045390.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045034.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045031.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041893.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ Dessar - Вопрос (2023) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036126.jpg" />
 </div>
 
 
@@ -440,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035067.jpg" />
 </div>
 
 
@@ -469,7 +521,7 @@ Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033915.jpg" />
 </div>
 
 
@@ -498,7 +550,7 @@ Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032498.jpg" />
 </div>
 
 
@@ -524,7 +576,7 @@ Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030665.jpg" />
 </div>
 
 
@@ -551,7 +603,7 @@ VA «20 Years Of Nuclear Blast» 2007 2DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030591.jpg" />
 </div>
 
 
@@ -577,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027454.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027337.jpg" />
 </div>
 
 
@@ -632,7 +684,7 @@ Dua Lipa - We're Good (2021) WEB-DL [1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025596.jpg" />
 </div>
 
 
@@ -644,61 +696,6 @@ Dua Lipa - We're Good (2021) WEB-DL [1440p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71BAC5A47B3EFADEE01BC20749CEC29397F930B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368146   (1024985) от 22.03.2021
-
-Little Big Family - 40 Music Videos (2013-2021) WEB-DLRip [H.264/V9/1080p/2160p-LQ]
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2013 Little Big - Everyday I'm Drinking [1080p] (srt)Производство: Warner Music RussiaЖанр: Rave, Raprave, Electronicmusic, PopСубтитры: Английские, Русские, Украинские, Французские, Польские, Турецкие, Азербайджанские, Немецкие, Венгерские, Португальские, Чешские, Румынские, Арабские, Итальянские, Иврит и тд.
-
-Видео 01: AVC/H.264, 1920x1080, ~6924 kbps, 1920x560, ~5806 kbps, 1920x972, ~6336 kbps
-Видео 02: AVC/V9, 3840x2160, ~17.4 Mbps(   Читать дальше...   )Продолжительность: 02:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792CCE67C2E6B40388A2092ADF37D66330BDE8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459555   (1023106) от 02.04.2021
-
-The Beatles: Мне следовало быть осторожнее / I Should Have Known Better (A Hard Day's Night) (1964/2014) BDRip [H.264/1080p] [hand made colored]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клип из фильма полностью колоризован - каждый кадр в отдельсности.Производство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: Мюзикл, комедия, музыкаРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE5586D445E2D4D03FE2C2D50E669CF188E5E9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

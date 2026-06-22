@@ -1,3 +1,60 @@
+###  Публикация: 518524   (643442) от 03.07.2012
+
+Мистические истории. Выпуск №23. Лесная вампирша / Вечная любовь  (2012.07.02) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643442.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мистические истории» это цикл из 50 документальных фильмов, каждый из которых расскажет о странной и страшной цепи событий. Это рассказы о необычных историях любви и родовых проклятиях, о странных снах, которые предсказывают будущее, и также о том, как самые, казалось бы, незначительные события могут повлиять на ход всей жизни человека... Каждая «Мистическая история» - невыдуманная. Авторы передачи по крупицам собирали таинственные сведения, тщательно восстанавливали ход событий, опрашивали свидетелей историй. Герои программы становятся участниками поистине загадочных явлений, происходящих в их жизни. Проклятия соседей, ворожба на крови, смертельные опыты... Каждый сюжет комментируют опытные специалисты: доктора наук, ученые, экстрасенсы и даже священники... С их помощью мы сможем узнать, как обезопасить себя от неблагоприятных событий и как можно сгладить негативное влияние тех или иных факторов.
+Все истории нам расскажет ведущий передачи – знаменитый актер Виктор Вержбицкий. Это не случайный выбор, ведь в карьере (   Читать дальше...   )В выпуске: Лесная вампирша
+Возвращаясь из командировки, Руслан оказывается ночью на незнакомой трассе. Его автомобиль сломался, и парень решает дойти пешком до ближайшего поселка. Идти приходится через лес. Там Руслан видит фигуру девушки в белом, которая как будто ведет его за собой…
+
+Вечная любовь
+Молодой реставратор давно мечтал найти старинный клад. Однажды его мечта сбывается. В старом доме какого-то обедневшего офицера он случайно находит потайную комнату, где видит похожий на мумию труп женщины, держащей в своих руках старинный кубок.Жанр: ТелепередачаПродолжительность: ~ 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F9860DCD3F6A77E65555697DD2A6185A64397D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032976   (641668) от 09.07.2016
+
+Экстрасенсы ведут расследование (2016.07.09) SATRip (сезон 7, выпуск 9)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D365489C6E8C18012C1E39E46CB14597ECE055F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032977   (641663) от 09.07.2016
 
 Экстрасенсы ведут расследование (2016.07.09) DVB [H.264] (сезон 7, выпуск 9)
@@ -6,7 +63,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641663.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640846.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639548.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639122.jpg" />
 </div>
 
 
@@ -115,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638348.jpg" />
 </div>
 
 
@@ -145,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637458.jpg" />
 </div>
 
 
@@ -171,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637200.jpg" />
 </div>
 
 
@@ -197,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635340.jpg" />
 </div>
 
 
@@ -228,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635114.jpg" />
 </div>
 
 
@@ -254,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634797.jpg" />
 </div>
 
 
@@ -285,7 +342,7 @@ Discovery: Темные материи. Запутанные, но правди�
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630448.jpg" />
 </div>
 
 
@@ -311,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626984.jpg" />
 </div>
 
 
@@ -337,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626761.jpg" />
 </div>
 
 
@@ -368,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624838.jpg" />
 </div>
 
 
@@ -399,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624762.jpg" />
 </div>
 
 
@@ -430,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624571.jpg" />
 </div>
 
 
@@ -456,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624334.jpg" />
 </div>
 
 
@@ -482,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623516.jpg" />
 </div>
 
 
@@ -508,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620782.jpg" />
 </div>
 
 
@@ -535,7 +592,7 @@ Discovery: Темные материи. Запутанные, но правди�
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616495.jpg" />
 </div>
 
 
@@ -561,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615383.jpg" />
 </div>
 
 
@@ -587,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615162.jpg" />
 </div>
 
 
@@ -614,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614546.jpg" />
 </div>
 
 
@@ -640,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614082.jpg" />
 </div>
 
 
@@ -652,58 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B31682B23FE03B2FCD217AF4DCA4873FE97E54F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037441   (613870) от 24.07.2016
-
-Экстрасенсы ведут расследование (2016.07.16) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 10)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9884C7C3A20F243F8562A8F0213A767AE4D7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037442   (613671) от 24.07.2016
-
-Экстрасенсы ведут расследование (2016.07.23) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 11)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183597CB4367054EA54E9958B3859344925BFAB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

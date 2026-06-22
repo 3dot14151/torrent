@@ -1,119 +1,3 @@
-###  Публикация: 1414859   (381593) от 10.10.2020
-
-Andrea Motis - Do Outro Lado do Azul (2019) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antonico [5:39]
-02. Sombra de La [4:00]
-03. Brisa [5:38]
-04. Sense Pressa [6:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF3341BBCBF99F1471FA4ED7CAA80203D768A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574690   (381442) от 07.09.2022
-
-Billy Higgins - Billy's Smile (2002) Red Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plexis [7:32]
-02. Three And Four For Peace [8:33]
-03. Judgement [8:36]
-04. Girl Talk [5:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE146DA6CFFFB0962BFCF6B12EA3C51EC89D58C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326840   (381150) от 22.09.2019
-
-Lee Morgan - 3 Essential Albums (1957, 1963, 1966) 3CD, 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381150.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Sidewinder:
-01. The Sidewinder [10:25]
-02. Totem Pole [10:15]
-03. Gary's Notebook [6:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC451939BB7F9D06EE4F6BFA43496D0AF625C077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068346   (381005) от 01.11.2016
-
-Lars Gullin - Swings (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jeepers Creepers [04:59]
- 02.Like Someone In Love [05:36]
- 03.Half Nelson [05:42]
- 04.Ma [05:53](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F913FFBC4ABA8B47173FAB2B1CBC9AED20A28EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068653   (380883) от 01.11.2016
 
 Austin Cromer - Sings for Her (1964) Remaster, 2014, Warner[FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -122,7 +6,7 @@ Austin Cromer - Sings for Her (1964) Remaster, 2014, Warner[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380883.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ John Hicks - Friends Old and New (1992) BMG[FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380882.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ Chris Flory with Duke Robillard - Blues In My Heart (2003) [APE|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380879.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ Jay McShann - Hootie's Jumpin' Blues (1997) [APE|Lossless|image + .cue] <Piano B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380871.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ Victor Wooten - Sword and Stone & Words and Tones (2012) [FLAC|Lossless]<Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380858.jpg" />
 </div>
 
 
@@ -273,7 +157,7 @@ Glenn Miller - The Missing Chapters. Vol. 1 – 9 (1995 - 1998) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380472.jpg" />
 </div>
 
 
@@ -303,7 +187,7 @@ Clifford Brown with Strings (1955) 2011, Universal [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379632.jpg" />
 </div>
 
 
@@ -332,7 +216,7 @@ VA - Western Swing and Pretty Things (1977) Digitally Remastered, 2016 [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379423.jpg" />
 </div>
 
 
@@ -361,7 +245,7 @@ Herbie Harper - Jazz In Hollywood (1953 - 1954) 2008, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379251.jpg" />
 </div>
 
 
@@ -390,7 +274,7 @@ Peter Bernstein - Signs Of Life (1995) Criss Cross Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379248.jpg" />
 </div>
 
 
@@ -419,7 +303,7 @@ Sonny Clark - The Best Of The Blue Note Years (1957 - 1961) 2001, Blue Note [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379247.jpg" />
 </div>
 
 
@@ -448,7 +332,7 @@ Walter Bishop, Jr. Trio - Speak Low + 3 (1961) 1987, Tokuma [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379110.jpg" />
 </div>
 
 
@@ -477,7 +361,7 @@ Miles Davis - Miles' Groove (1953 - 1956) 3CD, 2007, IMC Music [APE|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378788.jpg" />
 </div>
 
 
@@ -506,7 +390,7 @@ Mel Torme - The Capitol Rarities (1949-1952) 2008, EMI[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378529.jpg" />
 </div>
 
 
@@ -535,7 +419,7 @@ John Hicks, Elise Wood, Walter Booker - Single Petal of a Rose (1994) Mapleshade
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378527.jpg" />
 </div>
 
 
@@ -564,7 +448,7 @@ Ernestine Anderson - Nightlife: Live at Dizzy's Club Coca-Cola (2011) HighNote R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378525.jpg" />
 </div>
 
 
@@ -593,7 +477,7 @@ Andre Previn - Alone: Ballads For Solo Piano (2007) Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378457.jpg" />
 </div>
 
 
@@ -622,7 +506,7 @@ Art Pepper & Conte Candoli - Mucho Calor (1957) 1987, V.S.O.P. Records[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378456.jpg" />
 </div>
 
 
@@ -651,7 +535,7 @@ Wild Carrot with Hank Ross - I've Heard That Song Before (2008) Falling Mountain
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378453.jpg" />
 </div>
 
 
@@ -680,7 +564,7 @@ Paolo Fresu & Omar Sosa - Eros (2016) Tuk Music[FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378449.jpg" />
 </div>
 
 
@@ -709,7 +593,7 @@ Jeanne Lee & Ran Blake - The Legendary Duets (1961) 1987, Bluebird[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378448.jpg" />
 </div>
 
 
@@ -738,7 +622,7 @@ Sir Roland Hanna Trio - Milano, Paris, New York finding John Lewis (2003) Venus 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378315.jpg" />
 </div>
 
 
@@ -752,6 +636,120 @@ Sir Roland Hanna Trio - Milano, Paris, New York finding John Lewis (2003) Venus 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD352E0F317CCA6E3B13973620D3C74412D14B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251199   (378260) от 29.10.2010
+
+John Coltrane - Lush Life (1957) Reissue, Remastered, 1997, DCC [WavPack|Lossless|image + .cue]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_378260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone in Love (4:59)
+02. I Love You (5:32)
+03. Trane's Slo Blues (6:07)
+04. Lush Life (14:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573545   (377754) от 11.11.2012
+
+Bob James & Company - Casino Lights '99 (2000) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377754.jpg" />
+</div>
+
+
+###  Подробнее
+
+--DISC 1--
+
+1. Mind GamesЖанр: JazzПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949558   (377705) от 23.10.2015
+
+Virgil Gonsalves Sextet & Steve White Quartet / Quintet - Jazz In Hollywood Series (1954) /1997, Nocturne Records/[FLAC|tracks+.cue]<Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bounce [03:18]
+ 02.Out Of Nowhere [02:31]
+ 03.Too Marvelous For Words [04:07]
+ 04.It Might As Well Be Spring [03:57](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:229F4C819C4671D729F37E327FDF0ACC06B1E29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949409   (377695) от 23.10.2015
+
+The John Coltrane Quartet - Africa/Brass (1961) /2007, Verve/[FLAC|tracks+.cue]<Hard Bop, Post-Bop, Modal Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Africa [16:29]
+ 02.Greensleeves [10:01]
+ 03.Blues Minor [07:23]Жанр: Hard Bop, Post-Bop, Modal MusicПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72478B9FAE4720D99BB6CE943C88A7443DAF7369
 ```
 
 https://mybot314.ru/tekegram_catalog/

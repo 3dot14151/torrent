@@ -1,3 +1,32 @@
+###  Публикация: 1140616   (655016) от 07.06.2017
+
+Волейбол. Чемпионат мира среди клубов 2017. Женщины. Матч за 5 место. Динамо (Россия) — Волей Нестле (Бразилия) (14.05.2017) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655016.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 мая 2017 года
+Чемпионат мира среди клубов 2017. Женщины. Матч за 5 место
+Динамо (Москва, Россия) — Волей Нестле (Осаско, Бразилия)
+Стадион: Кобе Грин Арена (Кобе, Япония), вместимость 4852 зрителей(   Читать дальше...   )Телекомпания: FIVB TVЖанр: СпортПеревод: Не требуется, нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 02:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980EA8AED3441F7C7D7CF20D01733537E632BD8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139708   (655015) от 07.06.2017
 
 Волейбол. Чемпионат мира среди клубов 2017. Женщины. Группа B. 2-й тур. НЕК Ред Рокетс (Япония) — Волеро (Швейцария) (10.05.2017) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655015.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655014.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655013.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655012.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655011.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655010.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654988.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654985.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654983.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654980.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654976.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Monster Energy Nascar Cup Series-2017, Этап 13 - Dover (2017) HDTVRip [H.264
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654974.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654862.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654829.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654827.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654823.jpg" />
 </div>
 
 
@@ -458,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654789.jpg" />
 </div>
 
 
@@ -487,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654787.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654748.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654468.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654467.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654408.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ BBC: Средневековая монархия. Ранние королевы 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_654351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_654351.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654344.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654343.jpg" />
 </div>
 
 
@@ -689,32 +718,6 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86ADBB41C03A9A6B92DAF30A93B31016DE745C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344422   (654308) от 31.05.2011
-
-PBS Nature: Собаки, которые изменили мир. Создание собаки [часть 2] / Dogs That Changed The World. Dogs by design (2007) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654308.jpg" />
-</div>
-
-
-###  Подробнее
-
-"У каждого народа своя история происхождения собак. Но откуда они на самом деле? Этот фильм - рассказ о появлении собак на Земле. О самом удивительном скачке эволюции. И рассказ о том, как собака меняла жизнь людей на протяжении 15 тысяч лет. Согласно генетике, эти милые существа вначале были волками. Долгое время считалось, что древние люди забрали волчат и приручили их. Но идея о том, что люди взяли волчат и воспитали из них собак, сейчас под сомнением. Новая теория считает, что волк сам превратился в собаку, в каменном веке, в эпоху мезолита..."Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7258AECFEE05C0180160D30B2ADE753368F87B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

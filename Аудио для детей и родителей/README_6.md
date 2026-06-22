@@ -1,3 +1,32 @@
+###  Публикация: 127726   (1021999) от 08.04.2021
+
+Елена Качур | Мифы Древней Греции (2004) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающие приключения Одиссея, путешествие Аргонавтов, подвиги Геракла – антология преданий древней Эллады в форме увлекательных спектаклей. Ваш ребенок без труда, развлекаясь, усвоит множество терминов, понятий и знаний.В серию вошли:
+1. Дедал и Икар. Орфей и другие Мифы
+2. Миф о Персее. Тезей и Ариадна
+3. Подвиги Геракла. Часть 1(   Читать дальше...   )Жанр: Аудиоспектакль для детейПродолжительность: 05:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780D5CD29B063799C7E3F06FD624D5333976EF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 45574   (1021848) от 09.04.2021
 
 Григорий Гладков, Давид Тухманов и Юрий Энтин и др. | Сказки для детей. Часть 2 [Сборник Г-И]  [MP3]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021848.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021841.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021682.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021674.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021630.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021580.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021492.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021246.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021222.jpg" />
 </div>
 
 
@@ -260,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021077.jpg" />
 </div>
 
 
@@ -289,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020556.jpg" />
 </div>
 
 
@@ -315,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020525.jpg" />
 </div>
 
 
@@ -341,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020329.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020169.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020165.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020156.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019669.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019503.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019501.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of ABBA (2011) [MP3|192 Kbps
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019474.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019410.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019402.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019350.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of ADELE (2011) [MP3|192 Kbp
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019306.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019156.jpg" />
 </div>
 
 
@@ -683,34 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3618A6FB987270B0A0E9B553856C6563D0AF2E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465559   (1019152) от 26.04.2021
-
-Юлия Гиппенрейтер | Родителям: как быть ребенком (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путь понимания к своим детям!
-
-Эта хрестоматия составлена из воспоминаний многих известных людей о своем детстве. Живо написанные тексты раскрывают внутреннюю жизнь детей разных возрастов, характеров и судеб. На ярких примерах взаимоотношений детей и родителей они помогают увидеть, как творческие силы ребенка раскрываются в ходе воспитания и обучения. В аудиокниге (   Читать дальше...   )Жанр: Педагогика/Психология/Воспитание детейПродолжительность: 11:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF13B39D22E9510B8CA9F82027FC69AE6B49146E
 ```
 
 https://mybot314.ru/tekegram_catalog/

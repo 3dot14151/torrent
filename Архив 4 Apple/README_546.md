@@ -1,3 +1,58 @@
+###  Публикация: 1424646   (228184) от 17.11.2020
+
+Doxillion Plus 4.51 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doxillion - один из самых стабильных, простых в использовании и всеобъемлющих конвертеров файлов мультиформатных документов.
+● Конвертируйте текстовые документы в считанные минуты после загрузки
+● Быстрый и простой процесс конвертации документов в один клик
+● Пакетный конвертер файлов для конвертации тысяч файловТип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DDD122F0DC8DEE702A02877BD796395036CC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965198   (228170) от 13.12.2015
+
+AirServer 6.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228170.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirServer – это мощное приложение для Mac, которое позволяет вести потоковую передачу или зеркалировать ваше устройство iOS, на ваш Mac. Если ваш компьютер подключен ко второму или альтернативному дисплею, такому как HDTV или проектор, ваше устройство iOS сможет использовать этот дисплей. Если устройство iOS поддерживает зеркалирование, то все, что вы видите на дисплее (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 октября 2015Разработчик: AirServerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C153FAD76EC2C5F0E7429A01E47F56EBB3A39E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424732   (228164) от 17.11.2020
 
 beaTunes 5 v5.2.15 [En]
@@ -6,7 +61,7 @@ beaTunes 5 v5.2.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228164.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Ink2Go 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228152.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ Dropshare 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228098.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ Persecond 1.5[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228066.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ SoundSource 5.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228043.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ Movist Pro 2.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227989.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ SyncBird Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227960.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ Scrivener 3 v3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227950.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ Keka 1.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227901.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ ON1 Effects 2021 v15.0.1.9783 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227891.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ WiFi Explorer 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227881.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ Cinemagraph Pro 2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227872.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ GarageSale 8 v8.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227699.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Translate Tab 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227682.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Audirvana 3.5.27 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227670.jpg" />
 </div>
 
 
@@ -409,7 +464,7 @@ ColorSnapper 2 v1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227664.jpg" />
 </div>
 
 
@@ -438,7 +493,7 @@ Movavi Screen Recorder 21.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227663.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Tipard Blu-ray Converter for Mac 9.2.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227649.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ Fix My iPhone 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227645.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ Cookie 6.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227635.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ ON1 Portrait AI 2021 v15.0.1.9783 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227587.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ Adguard 2.2.3 679 nightly (CL - 1.5.141) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227471.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ PDF Converter OCR 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227320.jpg" />
 </div>
 
 
@@ -625,7 +680,7 @@ Photo Mechanic 5.0 (16960) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227306.jpg" />
 </div>
 
 
@@ -636,59 +691,6 @@ Photo Mechanic — фотобраузер и фоторедактор опера
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C553E8C52F08C98AF50A88DB7FA7877793EABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341877   (227293) от 30.11.2019
-
-Meta 1.9.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
-С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2019Разработчик: Benjamin JaegerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1594F89DDF587AE5DFA1B744E4090E24188DDCDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342106   (227285) от 30.11.2019
-
-Audirvana 3.5.28 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B66A79A1AC2975D3AFBF8DFECB7E078812247D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

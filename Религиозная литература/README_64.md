@@ -1,3 +1,57 @@
+###  Публикация: 1239729   (535250) от 07.08.2018
+
+Е. Мусорина, С. Выстрелков | Храм Иверской иконы Божией Матери на Всполье (2008) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется краткая история церкви Иверской иконы Божией Матери на Всполье и ближайших окрестностей, изложенная на основании информации найденной в архивах Москвы и Московской области c целью освящения культовых сооружений и святынь города Москвы, а также с целью возрождения краеведения в разных районах Москвы.Жанр: Православие. ИсторияФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D520436F8C89BF6C7384D2D171A8CA2D252E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239535   (535248) от 07.08.2018
+
+В. Зоберн (сост.) | Праведные и грешные. Непридуманные истории (2013) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит необычные рассказы, в основу которых легли реальные события.
+
+Эти истории, записанные священниками и мирянами, публиковались в конце XIX — начале XX века в журналах «Кормчий», «Воскресный день», «Русский паломник» и других. Они доступно и увлекательно повествуют о религиозной жизни в дореволюционной России, о грешниках, которые возвышались до праведников, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3C326352C2A0964C0D80AD125865A11501F9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239657   (535233) от 07.08.2018
 
 В.М. Зоберн (сост.) | Пришествие антихриста: Православное учение (2012) [FB2, PDF]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535233.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535220.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535104.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534517.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534487.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533767.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533511.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533239.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532794.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531579.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530583.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530394.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528970.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528494.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527778.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526693.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526654.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526620.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526605.jpg" />
 </div>
 
 
@@ -520,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526406.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525868.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525519.jpg" />
 </div>
 
 
@@ -598,7 +652,7 @@ Cвященник Сергий Косых (ред.-сост.) и др. | С мо
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524580.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524579.jpg" />
 </div>
 
 
@@ -640,61 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:384FA3738DB71D646928533A5419449BE96C780B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313451   (523758) от 09.07.2019
-
-Н.А. Павлович | Победитель смерти (2000) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523758.jpg" />
-</div>
-
-
-###  Подробнее
-
-В чём же победа Христа?
-
-Прежде всего в самом факте Воскресения Христа, соединившего в Себе Божеское и человеческое начало. Он, попирая смерть, прошёл через её порог и повёл через него всех, соединённых с Ним верою и любовию. Воскреснув Сам, Он воскресит каждого из нас как личность.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E141B719A00DC8C6DDD2ABFC2C9C78AEEB12FA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313479   (523756) от 09.07.2019
-
-К. Ковалев-Случевский | Преподобный Савва и великие битвы Древней Руси [Историческое расследование о походах русских дружин на Орду] (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга начинает серию изданий, объединённых одним главным героем, который сыграл важнейшую роль в нашей истории. Его имя — преподобный Савва Сторожевский, Звенигородский чудотворец. Он жил в те времена, когда заканчивалась эпоха великих свершений, связанных с Куликовской битвой и княжением св. благ. вел. князя Димитрия Донского. События и факты, о которых рассказывается (   Читать дальше...   )Жанр: Православие. ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D143D4C3C21E9B5DF86E8F1FCED6C27DE33575E
 ```
 
 https://mybot314.ru/tekegram_catalog/

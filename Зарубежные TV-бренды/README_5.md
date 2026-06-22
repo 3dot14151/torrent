@@ -1,3 +1,29 @@
+###  Публикация: 1484610   (1005986) от 20.07.2021
+
+NG: Загадки королевской кобры / Secrets of the King Cobra (2008) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она королева змей, непоколебимая, гипнотическая, смертоносная, поедающая себе подобных. Правительница дикого, но в тоже время не защищенного королевства. Королевская кобра - самая большая из ядовитых змей, способная убить взрослого слона, и мы почти ничего о ней не знаем. Но скоро все измениться. Две королевские кобры, хирургическим путем снабженные приборами слежения, (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, фауна, исследованияРежиссер: Тодд ХерманПеревод: Одноголосый профессиональный (АРК-ТВ)Субтитры: АнглийскиеПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3731E2629F0291E28A27E03390B40C299A548F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485251   (1005577) от 24.07.2021
 
 NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@ NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005577.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ NG. Чудесная посадка на Гудзон / Miracle Landing on the H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005567.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Связанные: Шесть ступеней отдаления / Connec
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005405.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ NG. Огромная акула-молот / Mega Hammerhead (2016) WEB-DL [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005167.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ NG. Человек против акулы / Man vs Shark (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005067.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ BBC: Не могу выбросить тебя из головы / Can't Get You
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004518.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ PBS. Секреты Колизея / Colosseum. Roman Death Trap (2015) WEB-DL [
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004511.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004277.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004006.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ BBC: Винсент Ван Гог. Живопись в словах / Vincent Va
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003935.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ BBC: Глобальное потепление: факты / Climate Change: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003931.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003742.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Discovery. Битва самогонщиков / Master Distiller (2020) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003013.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ NG. На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002502.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ BBC: Серенгети / Serengeti (2019) WEB-DL [H.264/1080p] (сезон 1, �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002384.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ BBC: Серенгети / Serengeti (2019) BDRemux [H.264/1080i] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002139.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ BBC: Жизнь / Life (2009) BDRip [H.264/1080p] (серии 10 из 10)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002133.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ BBC: История Шотландии с Нейлом Оливером. Пос�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998883.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998877.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ BBC: История Шотландии с Нейлом Оливером. Мол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998507.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ BBC: История хирургии. Обретение лица [4 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998023.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997425.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Discovery: Красота змей / The Beauty Of Snakes (2003/2008) BDRip [720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996121.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996000.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995813.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46F1926BA604E686A00C0D0E036E7E9824E575B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608282   (993401) от 25.01.2013
-
-Discovery. Пятёрка лучших / Discovery. World's TOP 5 (1-6 выпуски) (2012) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993401.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Пятерка лучших" - это новый документальный цикл на канале Дискавери, в котором представлены самые мощные, самые быстрые, самые совершенные автомобили, самолеты и поезда. В каждом новом выпуске встретятся пять представителей своего класса, чтобы начать беспрецедентное состязание. В этом соревновании участвуют не только транспортные средства, но и крупнейшие заводы и высочайшие небоскребы так же выступят в отдельном зачете. Экспертное жюри сравнит пять их основных характеристик и определит лучшего из лучших! Пять дисциплин по пять участников в каждой оцениваются по пяти критериям – и пять победителей в итоге!Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 6 х ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33955566562D967A31D9572B94EF6AD4DFE035DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

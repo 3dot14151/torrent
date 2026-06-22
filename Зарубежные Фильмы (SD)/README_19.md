@@ -1,3 +1,133 @@
+###  Публикация: 1612022   (1040437) от 14.02.2023
+
+Чтение / The Reading (2023) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмма Лиден, потерявшая семью после инцидента с вторжением в ее дом сверхъестественной силы, пишет книгу, в которой делится своим тяжелым опытом. Чтобы привлечь внимание прессы, Эмма соглашается, чтобы в ее новом доме, защищенном от нечистой силы, состоялись постановочные чтения. Когда 19-летняя Скай Браун приступает к чтению, в доме появляется новое потустороннее (   Читать дальше...   )Производство: США / AWW Entertainment, Courtney GlaudeЖанр: триллерРежиссер: Courtney GlaudeАктеры: Моник, Шарнель Браун, Сара Элави, Courtney Glaude, Lisa Alavi, Chasity Sereal, Cooper Helm, Denisha Hardeman, Ian Haywood, Mcauley TetersПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60773B35CCF7F635A30F4AFF0FAC9B93D082D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438965   (1040412) от 10.01.2021
+
+Крестная мама (Наркомама) / La Daronne / Mama Weed (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливая переводчица работает в полиции, помогая раскрывать преступления. Однажды ей становится известно о крупной партии наркотиков. Соблазн изменить жизнь слишком велик. И вот она превращается в НаркоМаму, которая строит свою империю. Теперь вся полиция охотится за ней.Производство: Франция / Les Films du Lendemain, La Boétie Films, Le PacteЖанр: Драма, комедия, криминалРежиссер: Жан-Поль СаломеАктеры: Изабель Юппер, Ипполит Жирардо, Фарида Ушани, Лилиан Ровер, Ирис Бри, Надя Нгуйен, Ребекка Мардер, Рашид Гуэллаз, Мурад Будауд, Юссеф СарауиПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02939428DC4114E9096BA171936C2A63F3D3B74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438864   (1040411) от 10.01.2021
+
+Ночной конвой / Police (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парижские полицейские Виржини, Эрик и Аристид вынуждены принять необычное задание — вернуть мигранта на границу. По дороге в аэропорт Виржини понимает, что по возвращении на родину их подопечному грозит смерть. Столкнувшись с этим испытанием совести, она пытается убедить коллег позволить ему сбежать.Производство: Франция, Бельгия, Китай / F Comme Film, Ciné@, StudioCanalЖанр: Драма, криминалРежиссер: Анн ФонтенАктеры: Омар Си, Виржини Эфира, Грегори Гадебуа, Пейман Моаади, Элиза Ласовски, Эмманюэль Барруйе, Анн-Паскаль Клермбур, Анна-Гаэль Журден, Сесиль Реббоа, Седрик ВиейраПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90663A5C9648B07FC6548274A03F34BEF7DB7135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612483   (1040309) от 15.02.2023
+
+Кое-что о Генри / Regarding Henry (1991) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри Тернер - преуспевающий, но бессердечный нью-йоркский адвокат, готовый добиваться успеха любой ценой, даже за счёт своих жены и дочери. Но однажды случается несчастье, которое обрывает стремительную карьеру Генри. Он оказывается недееспособным и, к тому же, полностью теряет все воспоминания о своей прошлой жизни. Необходимо начинать всё заново. И Генри постепенно (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: драма, мелодрамаРежиссер: Майк НиколсАктеры: Харрисон Форд, Аннетт Бенинг, Билл Нанн, Ребекка Миллер, Брюс Олтмен, Камиан Аллен, Элизабет Уилсон, Дональд Моффет, Джеймс Ребхорн, Робин БартлеттПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC4200E82D14CC5BC8E4D642826BCCD5FB3CA0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429369   (1040292) от 11.01.2021
+
+Цена молока / The Price of Milk (2000) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люсинда, Роб и их 117 коров ведут заколдованное существование в волшебной стране. Боясь потерять страсть в отношениях, Люсинда принимает совет подруги и пытается заставить Роба сердиться. Но она заходит слишком далеко. Любуясь на обручальное кольцо, Люсинда сбивает на дороге пожилую женщину. Обычный несчастный случай становится первым звеном в цепи таинственных событий, (   Читать дальше...   )Производство: Новая Зеландия / John Swimmer Productions, New Zealand FilmЖанр: фэнтези, драма, мелодрама, комедия, магический реализмРежиссер: Гарри СинклерАктеры: Даниэль Кормак, Карл Урбан, Уилла О’Нилл, Майкл Лоуренс, Ранги Моту, Лоуренс Макор, Кристофер Грэхэм, Рэй Бишоп, Той Ити, Бобби ТауПеревод: Многоголосый профессиональныйЯзык озвучки: русскийСубтитры: Русские отдельным файломПродолжительность: 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C96AAC0249D0E39243CCEBDC5A855E40EB4619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439017   (1040284) от 11.01.2021
 
 Геошторм / Geostorm (2017) BDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040284.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040268.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040215.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040206.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040126.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040014.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040009.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039975.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039775.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039759.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039725.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039718.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039685.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039588.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039468.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039466.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039432.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039324.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039190.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038983.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038975.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C453DAAB9B90C5229DE062E4F215AF6BBE1171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613729   (1038974) от 20.02.2023
-
-Боулинг Сатурн / Bowling Saturne (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейскому Гийому достается в наследство семейный боулинг-бизнес. Герой ведет важное расследование серии убийств, поэтому не может заниматься боулингом. Он отдает управление бизнесом своему сводному брату-маргиналу Арману. Но спустя время Гийом вынужден вернуться к боулингу, поскольку его брат вместе с командой погрузили бизнес в пучину криминала и насилия.Производство: Франция, Бельгия / BE TV, Canal+ International, Canal+Жанр: триллер, драмаРежиссер: Патрисия МазюиАктеры: Арье Вортхальтер, Achille Reggiani, Y-Lan Lucas, Leïla Muse, Фредерик ван ден Дрише, Эммануэль Мэтт, Nicolas Lepy и др.Перевод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4F0F2C30418CEC2A90BD96FE8DA5261A9C6B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613916   (1038966) от 20.02.2023
-
-Тень Караваджо / L'ombra di Caravaggio (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обвиненный в убийстве соперника и приговоренный к смертной казни Караваджо бежит из Рима в Неаполь. Когда до папы Павла V доходит слух, что талантливый художник бросает вызов церкви, используя в качестве моделей для написания библейских сюжетов нищих, проституток и воров, тот обращается к секретной службе Ватикана. В Неаполь (   Читать дальше...   )Производство: Италия, Франция / Canal+Жанр: драма, биография, историяРежиссер: Микеле ПлачидоАктеры: Риккардо Скамарчо, Микаела Рамаццотти, Луи Гаррель, Изабель Юппер, Микеле Плачидо, Виничио Маркиони, Лолита Шамма, Алессандро Абер, Мони Овадия, Лоренцо ЛавиаПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6624966E232E9DFA9BF321EB245F0D2B78F55DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440231   (1038937) от 16.01.2021
-
-Дрожь земли: Остров крикунов / Tremors: Shrieker Island (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатенький плейбой незаконно завёз Грабоидов на курортный остров, чтобы устроить опасную трофейную охоту. Миру снова понадобится помощь Бёрта Гаммера в борьбе с этими тварями.Производство: США / Living Films, Universal 1440 EntertainmentЖанр: Боевик, ужасыРежиссер: Дон Майкл ПолАктеры: Майкл Гросс, Джон Хидер, Ричард Брэйк, Кэролайн Лэнгриш, Джеки Крус, Кэсси Клер, Сахайак Бунтханакит, Matthew Douglas, Randy Kalsi, Bear WilliamsПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E8B95851679BA697C9C386081DC02FC3070214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440264   (1038913) от 16.01.2021
-
-Охота на Санту / Fatman (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обиженный на Санту мальчик нанимает киллера, чтобы отомстить за плохой подарок. Но он не подозревает, что Санта не так прост и за долгие годы службы приобрел много необычных навыков.Производство: Великобритания, Канада, США / Panasper Films, Fortitude International, Saban FilmsЖанр: Фэнтези, боевик, триллер, комедияРежиссер: Эшом Нелмс, Йен НелмсАктеры: Мэл Гибсон, Уолтон Гоггинс, Марианн Жан-Батист, Чэнс Херстфилд, Сюзанна Сатчи, Роберт Бокстэл, Майкл Дайсон, Дебора Гровер, Эллисон Грайр Батлер, Эрик ВулфПеревод: Дублированный (IVI), профессиональный многоголосый (AMS)Субтитры: Английские (Full, SDH)Продолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB5CD8CAE74FDA7400AD258BD95F0ADE2D01387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614198   (1038714) от 21.02.2023
-
-Хроника случайной связи / Дневник мимолетного романа / Chronique d'une liaison passagere / Diary of a Fleeting Affair (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мать-одиночка и женатый мужчина понимают, что их роман завязан сугубо на сексе. Хотя они соглашаются, что у этих отношений нет будущего, они становятся все ближе.Производство: Франция / arte France Cinéma, Centre National de la Cinématographie (CNC), CinéЖанр: мелодрамаРежиссер: Эмманюэль МуреАктеры: Сандрин Киберлэн, Винсент Макен, Georgia Scalliet, Максанс Туаль, Brahim Zairi, Mohamed Zairi, Juliette Capieu и др.Перевод: Многоголосый любительский (Синема УС)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9F092D34583302B63BF6F6DEB5870BABB2BE90
 ```
 
 https://mybot314.ru/tekegram_catalog/

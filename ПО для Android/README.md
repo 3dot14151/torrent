@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876516   (1073512) от 
+
+Rosetta Stone: Изучение языков 9.2.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему приложение Rosetta Stone? Потому что лучший способ выучить новый язык — окружить себя им, и метод Dynamic Immersion® от Rosetta Stone делает именно это. Интерактивные и контекстуальные уроки сочетаются с функциями расширенного обучения, которые буквально у вас под рукой — в любое время, в любом месте и на любом устройстве; онлайн или оффлайн и совершенно без (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.05.2026Разработчик: Rosetta Stone LtdПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710504DA888595124FE34D0B4DC49A3F82E2AC8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874038   (1071820) от 31.05.2026
 
 Lift 0.2.40 Mod by Enter [Ru]
@@ -7,7 +33,7 @@ Lift 0.2.40 Mod by Enter [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071820.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ ADB AppControl 1.3.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071524.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Seena 1.4.12 By dezhur [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071523.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ FreeZona 3.0.58 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070598.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Rosetta Stone: Изучение языков 9.1.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069255.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Rosetta Stone: Изучение языков 9.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066921.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Plus Messenger (Telegram+)  v12.6.4.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065924.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ AI Photo Editor Pro - Polish v1.741.254 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065923.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ PictureThis - Plant Identification v5.23.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065916.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Remini / Улучшение Фото v3.7.1306.202520571 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065915.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065841.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Photo Studio PRO v2.10.1.4939 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065839.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ LazyMedia Deluxe v3.445 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065800.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ NokoPrint - Мобильная печать v5.26.12 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064989.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ CYBERPORTAL // X 1.0.5 Mod by STR_BYPASS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064815.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ TuDiziPlay / Просмотр турецких сериалов 1.1.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063989.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ CYBERPORTAL // X  1.0.2 Mod by STR_BYPASS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063471.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Opera Proxy для Android 3.0.19 [Ru] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062968.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Opera Proxy для Android 3.0.12 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062883.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Rosetta Stone: Изучение языков 9.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062491.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Opera Proxy для Android 3.0.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062309.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Solid Explorer File Manager v3.4.2 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062074.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Grok - ИИ ассистент v1.1.44-release.01 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062073.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ PictureThis - Plant Identification v5.22.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062072.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Smart Tools v2.1.17a mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062068.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Smart Tools® это набор инструментов состоящий из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A83C5A554CB75AC96177C3D645720B74CE77DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860501   (1062067) от 21.03.2026
-
-Vanced Tube v5.5.80.529 Mod by TRUMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 20.03.2026Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8E756B91503924E26D11D9B59A0B48CF131345
 ```
 
 https://mybot314.ru/tekegram_catalog/

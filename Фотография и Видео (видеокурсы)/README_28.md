@@ -1,3 +1,29 @@
+###  Публикация: 1806422   (11627) от 13.07.2025
+
+Filmmakers Academy, Shane Hurlbut | DIY Lighting Tips and Tricks (2021) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите осветить как в Голливуде, но, к сожалению, у вас нет денег на покупку или даже аренду профессионального освещения? Не проблема — «Советы и хитрости по самостоятельному освещению» — это курс, на котором Шейн Хёрлбат, член Американского совета по освещению, объясняет, как эффективно использовать светильники и приборы, которые обычно продаются в ближайшем магазине (   Читать дальше...   )Производство: Filmmakers AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 02:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF89EB01C9049650497AE716E467AA8BA80B3263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806801   (11439) от 15.07.2025
 
 Udemy, Eyevenear | An Ultimate Premiere Masterclass: Beginner to Pro Editing (2025) WEBRip [EN]
@@ -6,7 +32,7 @@ Udemy, Eyevenear | An Ultimate Premiere Masterclass: Beginner to Pro Editing (20
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11439.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7782.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7764.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7010.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6173.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ TutorPlace, Наталья Устич | Мобильная фотография 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5849.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5573.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3065.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Galina Miami, Галина Шувалова | Мастер-класс по по�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3025.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2804.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2803.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1867.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1734.jpg" />
 </div>
 
 

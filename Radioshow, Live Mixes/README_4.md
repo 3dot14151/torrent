@@ -1,3 +1,148 @@
+###  Публикация: 1478634   (1010200) от 20.06.2021
+
+Lane 8 - Summer 2021 Mixtape (2021-06-15) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010200.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ID - ID
+2. ID - ID
+3. Peer Kusiv feat. Johanson - Bring You Back
+4. Massane - Genova(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDD7D87BBB2A2E19AFFD17632554B2907ABD9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349557   (1004312) от 02.01.2020
+
+Kaskade - Live @ Marquee New York, United States 2019-12-31 [MP3|~245 Kbps (V0)] <House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Velvet - Flash (Nicky Romero Remix) w/Enrico Sangiuliano - Ghettoblaster
+02. SNBRN & Mossberg Pump - Cool Beans
+03. CID & Kaskade - Sweet Memories
+04. Kaskade & EDX - Ubuntu (Kaskade Edit)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AFE9B8586DF93EBD39B19FE83672CEF63535F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349685   (1004305) от 02.01.2020
+
+Hardwell - Hardwell On Air Yearmix 2019 (2019) [MP3|~245 Kbps (V0)] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Time to celebrate 2019, here's the first part of my Yearmix!
+1. Hardwell feat. Trevor Guthrie - Summer Air (DubVision Remix)
+2. Calvin Harris & Rag'n'Bone Man - Giant (Audien Remix)
+3. Tiesto, Jonas Blue feat. Rita Ora - Ritual(Jonas Aden Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85F708E227CD323D11FB33B2DDBB03F2F6281E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349658   (1004299) от 02.01.2020
+
+Andrew Rayel - Find Your Harmony Radioshow Yearmix 2019 (2020-01-01) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel - Originem (FYH 150 Anthem)
+02. Andrew Rayel - Originem (FYH 150 Anthem) (Husman Remix)
+03. Avao - Cosmic Order
+04. Ruben de Ronde & Elevven - Lucky Penny(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB9C206CB32D8C758CD1F10ACA9BEF0522BA758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350827   (1003010) от 07.01.2020
+
+Above & Beyond - Live @ The New York Expo Center, United States 2019-12-31 [MP3|~245 Kbps (V0)] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Hideaway
+02. Above & Beyond ft. Zoe Johnston - Always (Above & Beyond Club Mix)
+03. Mat Zo ft. GQ - The Next Chapter
+04. Fatum & Genix & Jaytech & Judah - All In(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B1B2869CEB4245585B00EC6B90B56CA7F56D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351032   (1002765) от 08.01.2020
 
 Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
@@ -6,7 +151,7 @@ Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002765.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Pete Tong & The Heritage Orchestra and Jules Buckley - Ibiza Classics - Live at 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002757.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech Ho
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001191.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975748.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Traxtorm records - Hardcore Italia podcast 1-106 (2011-2016) (обновляем
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969166.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ DJ S.I.D.R. - Keep It Ob'ecore Podcast # 1-20 (2013-2015) [MP3|320 кб/с]<Happ
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967662.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967433.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Dj Sveta - My City (2016) [MP3|320 кб/с] <Progressive House, House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964584.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 �
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959383.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942610.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942495.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Will Rees - Live @ Trance Room, Uniclub Buenos Aires, Argentina 2020-02-22 [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941025.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Paul Pearson - Live @ Subteran, Joshua Brooks Manchester, United Kingdom 2020-02
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929147.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Tiesto - Tomorrowland Friendship Mix (2021-08-12) [MP3|320 Kbps] <Electro Pop, B
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927157.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Tiesto - Club Life 750 (Top 50 Fan Favorites) (2021-08-13) [MP3|192 Kbps] <Elect
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917514.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Cosmic Gate - Live @ New York City Sunset Set (2021-08-18) [MP3|320 Kbps] <Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917356.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Armin van Buuren - A State of Trance 551 - 750 (2012-2016) [MP3|128 ~ 320 кб/�
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901828.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Paul van Dyk - Live @ Main Stage, Exit Festival, Serbia (2021-07-10) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895618.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Craig Connelly - Trance Classics Golden Years Mix (1997-2002) 2020-03-23 [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895201.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar C
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894223.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Aurosonic - Yearmix 2015-2016 (2016) [MP3|320 Kbps] <Progressive Trance, Melodic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892893.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Aurosonic - Yearmix 2015-2016 (2016) [MP3|320 Kbps] <Progressive Trance, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D469822F56D6128826CF9627DCE42A2D3056FE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494687   (887852) от 08.09.2021
-
-VA - Luminosity Beach Festival, Netherlands (2021) [MP3|128-320 Kbps] <Trance, Progressive House, Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Activa @ Beachclub Bronze, Luminosity Beach Festival, Netherlands 2021-08-20(128Kbps):
-01. Activa - The Lost Language (Original Mix)
-02. Orkidea & Activa - Z21 (Activa’s ‘Origins’ Remix)
-03. Alex Daf - Back To Life (Activa Rework)(   Читать дальше...   )Жанр: Trance, Progressive House, Hard DanceПродолжительность: 17:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB29DB2BBB7ACDCCBCDC8057B03BB6DC103778C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373333   (876895) от 08.04.2020
-
-Greg Dusten - Pure Trance Selection Winter 2020 2020-03-30 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Murray - Inception feat Veronica Moran (Extended Mix)
-02. Joe Schaeffer - There and Back (Skua Remix)
-03. LTN & Cassidy Ford - Hurt Yourself (Extended Mix)
-04. Costa & Sarah Lynn - Never Fade (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BD20256735F225271F107AFE2B3FA21273E687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496506   (871658) от 18.09.2021
-
-Yoshi & Razner - Transmission Live, Spain (2021-08-28) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Quicksilver - Ameno (Yoshi & Razner Remix)
-02. UCast vs. The Killers - Sympton Brightside (Yoshi & Razner Mashup)
-03. Steve Dekay - Sublime
-04. Miikka Leinonen ft. Kim Kiona - Breath Of The Wild (Metta & Glyde Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACF6C781C56AACAC6DC9FFAF5A460CC332B12C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496717   (871546) от 18.09.2021
-
-Lane 8 - Fall 2021 Mixtape (2021-09-15) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma & Janus Rasmussen feat. Delhia De France - Claire
-02. Sultan + Shepard - ID
-03. Leaving Laurel - Winter In The Woods
-04. Parvenu - Captured (Tagavaka Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE370EF15DC137E594B2C5F783DC17B3F824D9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496734   (871404) от 18.09.2021
-
-Tiesto - Formula 1 Grand Prix Circuit Zandvoort, Netherlands (2021-09-05) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - The Business
-02. Tiësto & Sevenn - BOOM
-03. Tiësto - Grapevine
-04. Tiësto & The Chainsmokers - Split (Only U)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0371A637151EC03CC87BB88739F3D01D724AE479
 ```
 
 https://mybot314.ru/tekegram_catalog/

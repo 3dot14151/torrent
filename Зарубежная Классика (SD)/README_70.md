@@ -1,3 +1,29 @@
+###  Публикация: 230366   (513841) от 26.08.2010
+
+Нечто / The Thing (1982) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513841.jpg" />
+</div>
+
+
+###  Подробнее
+
+На американскую антарктическую станцию прибегает собака. Но это она только с виду - собака! На самом деле вовсе она и не собака, а жуткий монстр, который пожирает зверей / людей, а потом искусно притворяется ими, норовя подмять под себя всю Землю. Но на пути распоясавшегося монстра встает отважный вертолетчик МакРиди (Курт Рассел). "Нечто" считается не только лучшим фильмом известного специалиста по ужасам, режиссера Джона Карпентера, но и пожалуй одиним из лучших фантастических фильмов ушедшего двадцатого века. Картина исключительно напряженная. Отличная, страшная музыка. Спецэффекты начала восьмидесятых сделаны настолько тщательно, что даже сегодня смотрятся более чем достойно.Жанр: Ужасы, Фантастика, Триллер, ДетктивРежиссер: Джон КарпентерАктеры: Курт Расселл, Дэвид Кленнон, Кейт Дэвид, Ричард Мазур, Т. К. Картер, Уилфорд Бримли, Джоэл Полис, Дональд Моффат, Питер Мэлоуни, Ричард Дайсарт, Чарльз ХэллаханПеревод: Многоголосый закадровый + Многоголосый закадровый (Украинский) + Авторский закадровый (Гоблин)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925697   (513799) от 24.08.2015
 
 Жестяная звезда / Cahill U.S. Marshall (1973) BDRip
@@ -6,7 +32,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513799.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513759.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513706.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513661.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513516.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513374.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513359.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_513202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_513202.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512715.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512695.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512656.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512361.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_512210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_512210.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_512016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_512016.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511701.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_511095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_511095.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510860.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510858.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510648.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510529.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510448.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510211.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509977.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509948.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509081.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FFD8B92CEEA538E6CDD78F557C1E746B19669C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376785   (508170) от 19.08.2011
-
-Человек с золотой рукой / The man with the golden arm (1955) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_508170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнки Макине, маэстро карточной игры, возвращается домой из наркологического реабилитационного центра, в котором он лечился. Он мечтает начать новую жизнь, бросить игру и стать джазовым барабанщиком. Но его прикованная к инвалидной коляске жена Зош, требует, чтобы все осталось по-старому. Его бывший хозяин шантажом заставляет его вновь сесть за карты, а наркодиллер соблазняет бесплатным уколом. И только его бывшая любовница Молли поддерживает в нем надежду на перемены и веру в себя. Обиду, злость, ревность, наркотические ломки предстоит пережить Фрэнки, чтобы приблизиться к своей мечте.Жанр: ДрамаВ ролях: Фрэнк Синатра, Элинор Паркер, Ким Новак, Арнольд Стэнг, Дэррен МакГэвин, Роберт Штраусс, Джон Конте, Doro Merande, Джордж Э. Стоун, Джордж Мэтьюз, Леонид Кински, Эмиль Мейер, Jered Barclay, Leonard Bremen, Пол Э. Барнс, Pete Candoli, Харольд 'Томми' Харт, Шелли Манне, Фрэнк Марлоу, Джо МакГерк, Гордон Митчел, Джек Мулхолл, Ральф Нефф, Ernest Raboff, Фрэнк Ричардс, Шорти Роджерс, Чарльз Сил, Марта Вентуорф, Уилл РайтПеревод: Профессиональный (двухголосый, закадровый)Формат: AVIПродолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C4A10773CEA0CBAA5E2842E588948567E6691D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

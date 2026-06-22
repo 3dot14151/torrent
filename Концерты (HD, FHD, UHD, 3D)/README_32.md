@@ -6,7 +6,7 @@ Lacrimosa - Live in Moscow 19.11.2015 (2015) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309827.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Peter Gabriel - Secret World Live (2012) BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_309764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_309764.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309348.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Alice Cooper: Theatre of Death - Live At Hammersmith (2009) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308831.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Muse - Live in Rome (The Unsustainable Tour) (2013) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308752.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Peter Gabriel / Secret World Live (1993/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307199.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Linkin Park / Road to Revolution - Live at Milton Keynes (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307195.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304794.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304202.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Depeche Mode - Alive In Berlin (2014) WEB-DL 1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303670.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302216.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302184.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302159.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300992.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Slipknot - Day Of The Gusano (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300976.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Roger Waters - The Wall (2014) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300433.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ U.D.O. – Steelhammer: Live from Moscow (2014) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299716.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Muse - Live at Rome Olympic Stadium (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299197.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298734.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Black Sabbath - The End (Live In Birmingham) (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298529.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Motley Crue: The End – Live in Los Angeles (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297810.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296684.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295563.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Queen - Live At The Rainbow '74 (2014) SD BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295330.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Dream Theater - Live At Luna Park (2013) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294987.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_293240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_293240.jpg" />
 </div>
 
 

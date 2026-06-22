@@ -1,3 +1,109 @@
+###  Публикация: 1334412   (296744) от 28.10.2019
+
+Архимандрит Савва (Мажуко) | Духовные упражнения (2019) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296744.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Духовные упражнения» — новая книга архимандрита Саввы (Мажуко), в которой автор делится своими смелыми размышлениями, предлагая читателю новый, неожиданный взгляд на духовную жизнь и прежний, полюбившийся читателям стиль: немного философии, немного юмора и много доброты.
+
+По признанию архимандрита Саввы, его книга — «диалог» между «юношей» и «старичком». На страницах (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CC2475D309B4B5BDD67F45858F2789E9064506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423989   (295930) от 15.11.2020
+
+Братство в честь святого Архистратига Михаила (изд.) | Каноны или Книга Правил Святых Апостол, Святых Соборов, Вселенских и Поместных, и Святых Отец (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Правил является в Церкви Христовой записанным Преданием, а потому она так же свята и Богодухновенна, как Священное Писание, как Святое Евангелие, из которого эта книга выходит, как логическая необходимость помочь православным христианам держаться евангельского пути. Если жизнь по Святому Евангелию есть путь в Царствие Небесное, то Книга Правил служит вехами (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D654460717348AEF36E1F84C6F75E21A754AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962196   (295342) от 04.12.2015
+
+Е.А. Лукина | Христианская экология. Учебное пособие (2014) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_295342.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемом учебном пособии раскрываются цели и задачи новой дисциплины «Христианская экология», её связь с другими предметами, раскрывается содержание тем, определяются области и характер знаний и навыков, которыми студент должен овладеть в процессе изучения дисциплины, обозначается круг литературных источников, которые студент должен использовать для наиболее (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3436D2FC3DFE1BEBA48F35D3C691C1957313ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962435   (294944) от 04.12.2015
+
+Александр Станкевичюс | 53 самых живучих мифа атеизма о христианстве (2014) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько людей сожгла инквизиция, считали люди Средневековья ли Землю плоской, создавал ли Константин Великий канон Нового Завета, сжигала ли Католическая Церковь рыжих женщин, были ли крестовые походы агрессией христианского мира против Востока — на эти и многие другие вопросы вы найдете ответы в этой книге. История христианства является, пожалуй, самой благодатной (   Читать дальше...   )Жанр: АпологетикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B717ECC5FB23BE1CBCA9BCB648D5DE3EAB6901B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184544   (293741) от 21.11.2017
 
 Исток (изд.) | Из духовной сокровищницы (1990) [PDF, DJVU]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293741.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293649.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293643.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293634.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293628.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292321.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291734.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291158.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290342.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289919.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288365.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285948.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284285.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282597.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282529.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282528.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282526.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282374.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281253.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280758.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280443.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280156.jpg" />
 </div>
 
 
@@ -571,112 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:294F70F5B63E0ED8379CAF147C7582B19DDB6F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336328   (279254) от 07.11.2019
-
-В.Ю. Григорьева | «Согласникъ» из рукописи РНБ. Соловецкое собрание № 690/752: Публикация, исследование и интерпретация памятника (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279254.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании впервые представлены подробное исследование и научная трактовка памятника музыкально-теоретической мысли середины XVII века - Согласника из рукописи РНБ Соловецкого собрания № 690/752, л. 107-107 об. Это уникальное музыкальное руководство безпометного периода посвящено описанию объёма и структуры обиходного звукоряда.
-
-Согласник построен его автором по (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9271EB51E28E742C6F81E1128F1970B13776CBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336515   (279253) от 07.11.2019
-
-В.М. Зоберн (автор-составитель) | Чистые души. Рассказы о святых женщинах [Сборник] (2014) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279253.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли истории о женщинах, живших в разное время в разных концах света. Кто в юности, кто в зрелости – все они предпочли торжеству плоти духовное подвижничество. Блаженная Матрона Московская, Блаженная Ксения Петербуржская, затворница Досифея, святая благоверная княгиня Анна Кашинская, святая равноапостольная Нина и другие подвижницы от древности до нашего (   Читать дальше...   )Жанр: ХристианствоФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1471C37BA309BE94328964CC2867625539722D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336517   (279171) от 07.11.2019
-
-Наталия Черных | Приходские повести: рассказы о духовной жизни (2015) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – о том удивительном святом, что есть в душе каждого человека. В пространстве нашей веры рождается что-то такое особое, что тянет нас к Богу. Проникновенные повести и рассказы в новой книге автора «Океана веры», «Сокровищ святых» и «Острова любви» о людях, которых объединила в их непростой повседневной жизни православная вера.Жанр: Христианская литератураФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7375658BF4B11DBA17F48F8BC0D9C71811B8292C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082481   (278884) от 12.12.2016
-
-В.Н. Лосский, Л.А. Успенский | Смысл икон (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском языке выходит книга "Смысл икон", ранее издававшаяся па немецком, английском и французском языках. Известный богослов В.Н.Лосский и иконописец и исследователь икон Л.А.Успенский составили ее прежде всего в расчете на западного читателя, мало знакомого с историей и теорией православной иконы и основных иконографических типов. Книга доступно, (   Читать дальше...   )Жанр: ИконографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCC4B0B25DDBAD2FCCFC783BEF31BAA39C5D972
 ```
 
 https://mybot314.ru/tekegram_catalog/

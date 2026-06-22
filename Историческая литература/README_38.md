@@ -1,3 +1,109 @@
+###  Публикация: 1402010   (705617) от 12.08.2020
+
+Willard M. Oliver | The Birth of the FBI / Рождение ФБР (2019) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство людей считают, что Федеральное бюро расследований возникло при Дж. Эдгаре Гувере в 1920-х или 1930-х годах. Многие также естественно предполагают, что оно было разработано специально для борьбы с преступностью. Однако в действительности все обстоит иначе. На самом деле всё началось гораздо раньше, в 1908 году, при президенте Теодоре Рузвельте. В книге (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE7BA6EB4981B9BF4D8998AD5E15DA1FEA932ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287134   (705516) от 06.03.2019
+
+А. Л. Мортон, Д. Тэйт | История английского рабочего движения [1770-1920] (1959) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рабочее движение Великобритании имеет славные традиции. Долог и сложен пройденный им двухсотлетний путь. История развития и борьбы, побед и неудач рабочего класса этой старейшей капиталистической страны чрезвычайно поучительна. Она показывает, что в английском народе никогда не угасало стремление к подлинной демократии — демократии для трудящихся. Эта история помогает (   Читать дальше...   )Жанр: История, политология, публицистика, экономика, социологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D4026BC55EDEF83FBDE4E74A604C77B81E9F65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131869   (705413) от 07.05.2017
+
+В. К. Никольский | Семья и брак в прошлом и настоящем (1936) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра объясняет, когда и как возникла семья и какие формы принимала она у различных классов на различных ступенях общественного развития. Она показывает, как Великая пролетарская социалистическая революция и победа социализма в СССР положили конец вековому угнетению женщины и привели к созданию высшей, социалистической формы семьи.
+
+Брошюра разъясняет закон советского (   Читать дальше...   )Жанр: История, политология, экономика, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BF311D08B247CAFA0C6E7E027F336197E2B367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131908   (705226) от 07.05.2017
+
+Л. Я. Островский | Рабочее время по советскому трудовому законодательству (1963) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705226.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются вопросы правового регулирования рабочего времени; исследуется правовая природа и виды рабочего дня, понятие и виды рабочей недели; освещается правовое регулирование и практика распределения рабочего времени в условиях семичасового рабочего дня; особо исследуются применяющиеся на предприятиях режимы рабочего времени на непрерывном производстве (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEECC2DAAA3D26E007D934ED927C39F0912B9B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131865   (704712) от 07.05.2017
 
 Е. Г. Ширвиндт (ред.) | Классовая борьба и преступность (1930) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704712.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703294.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703187.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703042.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702940.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702551.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702549.jpg" />
 </div>
 
 
@@ -198,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702548.jpg" />
 </div>
 
 
@@ -226,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702433.jpg" />
 </div>
 
 
@@ -252,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702305.jpg" />
 </div>
 
 
@@ -278,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701893.jpg" />
 </div>
 
 
@@ -304,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701891.jpg" />
 </div>
 
 
@@ -330,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701890.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701353.jpg" />
 </div>
 
 
@@ -384,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701299.jpg" />
 </div>
 
 
@@ -410,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699699.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699567.jpg" />
 </div>
 
 
@@ -462,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699374.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699330.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699215.jpg" />
 </div>
 
 
@@ -540,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698976.jpg" />
 </div>
 
 
@@ -566,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698970.jpg" />
 </div>
 
 
@@ -577,110 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58F9DA84EDC116A4355DA927AAEA861554989DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132928   (698875) от 10.05.2017
-
-Н. Флеровский | Положение рабочего класса в России (1869) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698875.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дается описание экономической ситуации и положение трудящихся в России в 60-70-х годах ХIХ века. Книга разбита на три части, характеризующие быт и положение рабочего класса в Сибири, северной и пустынной России, работников земеледельчества и промышленности. Автор приводит многочисленные статистические данные.Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E009E0E2CBE490047E21C4184ECC28EE8CDB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132783   (698864) от 10.05.2017
-
-Н. А. Рубакин (сост.) | В неведомые страны (1903) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698864.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книжке рассказано о знаменитых путешествиях и открытиях, морских и сухопутных, во всех пяти частях света. Рассказано о некоторых лишь самых знаменитых путешественниках разных времен и народов. А кроме этих жили, страдали и трудились многие тысячи других путешественников. И труды их неизвестны, и имена-то их, быть может, забыты, а все же и эти забытые путешественники (   Читать дальше...   )Жанр: История, культурология, этнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F8AC7AB67A0B3A1B5768693EB369514B2AEDAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027157   (698355) от 18.06.2016
-
-Клод М. Лайтфут | Восстания в гетто за освобождение негров (1972) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию советского читателя книга написана одним из крупных знатоков негритянской проблемы в Америке, секретарем Национального комитета Коммунистической партии США Клодом М. Лайтфутом. Автор дает глубокую характеристику современного этапа негритянского освободительного движения, анализирует его главные особенности. Он показывает, что в негритянских (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5BEF01196BAF8D8B817104445D6E9A71000AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288152   (697778) от 10.03.2019
-
-П. Н. Баташев | Ленская забастовка [Воспоминания председателя Центрального бюро стачечного комитета] (1933) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ленская забастовка вспыхнула в 1912 г., когда рабочее движение переживало лишь первые признаки подъема. Несмотря на героические «всенародные классовые битвы 1905—1907 гг.», революция была подавлена, рабочие и крестьянские массы были разбиты. Помещики-крепостники остались у власти.Жанр: История, политология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D607AC4993487FE5D2AA6AAA502B3C040AA9C4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

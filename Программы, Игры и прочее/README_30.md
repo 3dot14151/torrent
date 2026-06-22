@@ -1,3 +1,32 @@
+###  Публикация: 1442039   (1021073) от 14.04.2021
+
+KMPlayer Plus v31.04.120 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Функция медиаплеера
+Воспроизведение видео высокой четкости: HD, 4K, 8K, UHD, Full HD.
+Настройка цвета: изменение яркости, контрастности, оттенка, насыщенности, информации о гамме
+Масштабирование видео: Увеличьте масштаб и переместите видео, которое вы смотрите.(   Читать дальше...   )Тип издания: Пиратка (Plus Paid)Релиз состоялся: 12 апреля 2021 г.Разработчик: PANDORA.TVПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67E976A15299B7AB2891D9B8766DFA71081C1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462651   (1020974) от 15.04.2021
 
 1984 Cam – VHS Camcorder, Retro Camera Effects v1.1.0 [En]
@@ -6,7 +35,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020974.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ IELTS Listening v2020.08.25.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020972.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Handy Photo v2.3.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020962.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kinoplay v0.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020904.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Wim Hof Method v6.2.0 [En] - Making you strong, healthy & happy
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020775.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020706.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020143.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020123.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020053.jpg" />
 </div>
 
 
@@ -262,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020033.jpg" />
 </div>
 
 
@@ -289,7 +318,7 @@ KnownReader Premium v2021.04.14.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019937.jpg" />
 </div>
 
 
@@ -315,7 +344,7 @@ Lingvist v2.65.8 + Lite Mod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019764.jpg" />
 </div>
 
 
@@ -341,7 +370,7 @@ MIX by Camera360 v4.9.12 + Opti-Lite Mod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019643.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ n-Track Studio 9 Pro v9.3.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019626.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019435.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ SoundStream v4.3.17 [Ru] - слушаем различные подкасты (�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019379.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ Titan Quest: Legendary Edition v2.9.9 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019369.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ Mokoroom v1.1.2 [En] - Мультяшный фоторедактор (обнов
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019278.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019259.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019256.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ mcpro24fps v035b [Ru] - для профессиональной записи в�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019247.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Bikemap v13.1.0 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019204.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ OruxMaps Donate v8.1.8 GP [Ru/Multi] - Регистратор маршрутов
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019180.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019105.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019104.jpg" />
 </div>
 
 
@@ -675,32 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69CD46CC8B805DE15EF0EE571821E5B1FECE54DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465387   (1019098) от 26.04.2021
-
-Проезд перекрестков. Тренажер v1.38 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тренажер проезда перекрестков создан для закрепления теоретических знаний по проезду перекрестков и основан на новейших требованиях Правил дорожного движения РФ за 2021 год и охватывает такие темы как: проезд регулируемых, нерегулируемых равнозначных, нерегулируемых неравнозначных перекрестков, перекрестки с круговым движением, дорожные ситуации с участием трамваев, (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 21.01.2021Разработчик: VolgaAppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0239281547775A4B446CD5FC620D62BD22ED7A99
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1213373   (771626) от 16.03.2018
+
+Обращение Президента к гражданам России (16.03.2018) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771626.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 марта в России пройдут выборы президента. Действующий глава государства Владимир Путин обратился к гражданам в преддверии голосования.Телекомпания: Россия 1 HDЖанр: ПолитикаСубтитры: Русские (бегущая строка)Продолжительность: 00:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EDE39848722DBBE6F6D2ACADAB79AE4F95162D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213518   (768129) от 17.03.2018
+
+Захар Прилепин. Уроки русского. Хватит стесняться комплексов ракетных (16.03.2018) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный проект Захара Прилепина находится на стыке жанров сетевого видеоблога и аналитической телепередачи. В нем известный писатель анализирует наиболее актуальные и общественно значимые темы недели. Фигура Захара Прилепина известна не только поклонникам литературы. Его публицистические выступления никогда не оставляют аудиторию равнодушной, подтверждая известный (   Читать дальше...   )Телекомпания: НТВ HD, ООО «Гринвич Продакшн»Жанр: Телепередача, Политика, Авторская программаСубтитры: ОтсутствуютПродолжительность: 00:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80522CFCD4D1A232FFE8F858E3A21BB8621A7BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213486   (767300) от 18.03.2018
+
+Новая русская философия Ивана Охлобыстина (05.03.2018) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767300.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей авторской программе известный актер, кинорежиссер, сценарист, писатель Иван Охлобыстин отвечает на вопросы зрителей со всего света. Это вопросы о любви, об империи, вере, об искусстве и о личном-житейском. Нестандартные ответы на самые неожиданные вопросы. Выходит несколько раз в месяц.
+
+В этом выпуске программы  ее ведущий  Иван Охлобыстин поучаствовал в выборе (   Читать дальше...   )Производство: Россия, НАО «Царьград медиа»Жанр: Телепередача, авторская передачаСубтитры: ОтсутствуютПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B245A794A48B43F9E933D89EB5DBFD8CFC9D7FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214044   (766561) от 19.03.2018
+
+Информационный канал Выборы-2018 (18.03.2018) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766561.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 марта 2018 года состоялись выборы Президента России. Самые свежие новости, оценки, комментарии – в прямом эфире телеканала «Россия 1». Герои передач «60 минут» и «Вечер с Владимиром Соловьевым» подводят итоги выборов Президента.Телекомпания: Россия 1 HDЖанр: Политика, ТелепередачаСубтитры: отсутствуютПродолжительность: 05:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E5AFBC211A26EA27EAEEAFED643B5801176AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521181   (766103) от 01.01.2022
 
 Агитпроп. Год сдал. Год принял! (31.12.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +112,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766103.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765200.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764905.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764904.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761451.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761407.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761372.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760335.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759841.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ SophieCo. Интервью с Дмитрием Песковым (23.03.2018) WEB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759826.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756220.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755925.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755080.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754009.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753364.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752948.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752638.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752258.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751616.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750830.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749435.jpg" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749328.jpg" />
 </div>
 
 
@@ -572,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9616EE13179286AD22B0E398570CB48CD2E4EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216863   (747721) от 01.04.2018
-
-Время - вперед! О России без грязи и лжи (2016) WEBRip [H.264/720p-LQ] (выпусков 41)
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами еженедельная программа позитивных новостей из жизни страны. Мы устали от деструктивной пропаганды, каждый день нам вдалбливают, что Россия деградирует, отстает, и у нас ничего не получится. Но мы знаем, что мы лучше, чем сами привыкли о себе думать. В наших выпусках только правда. В наших выпусках только позитив. В программу входят хорошие новости промышленности, (   Читать дальше...   )Телекомпания: Время - вперед!Жанр: Новости, Экономика, Наука, Медицина, Спорт, КультураПродолжительность: 02:34:47 (41 выпуск по ~4 мин)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797BB7FEC62BCEA2BE0B420457A361644D470FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216893   (746121) от 02.04.2018
-
-Время - вперед! О России без грязи и лжи (2015) WEBRip [H.264/720p-LQ] (выпусков 40)
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами еженедельная программа позитивных новостей из жизни страны. Мы устали от деструктивной пропаганды, каждый день нам вдалбливают, что Россия деградирует, отстает, и у нас ничего не получится. Но мы знаем, что мы лучше, чем сами привыкли о себе думать. В наших выпусках только правда. В наших выпусках только позитив. В программу входят хорошие новости промышленности, (   Читать дальше...   )Телекомпания: Время - вперед!Жанр: Новости, Экономика, Наука, Медицина, Спорт, КультураПродолжительность: 02:56:28 (40 выпусков по ~4 мин)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1750059460E9D3DEDF8A520404A1D68758C81A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216993   (746117) от 02.04.2018
-
-Время - вперед! О России без грязи и лжи (2014) WEBRip [H.264/720p-LQ] (выпусков 36)
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами еженедельная программа позитивных новостей из жизни страны. Мы устали от деструктивной пропаганды, каждый день нам вдалбливают, что Россия деградирует, отстает, и у нас ничего не получится. Но мы знаем, что мы лучше, чем сами привыкли о себе думать. В наших выпусках только правда. В наших выпусках только позитив. В программу входят хорошие новости промышленности, (   Читать дальше...   )Телекомпания: Время - вперед!Жанр: Новости, Экономика, Наука, Медицина, Спорт, КультураПродолжительность: 03:00:09 (36 выпусков по ~5 мин)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFB451B6809BD59BBCA921B8E181297DDF33446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020822   (743950) от 27.05.2016
-
-Анатолий Вассерман. Открытым текстом (27.05.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Александрович Вассерман — журналист, политический консультант, известен как многократный победитель интеллектуальных телеигр в программе «Новости24. Открытым текстом» за 10 минут даёт свой обзор главного в прошедшей неделе...Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7668ADD4C2CB68FAAA42880C4AB9835802C8EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

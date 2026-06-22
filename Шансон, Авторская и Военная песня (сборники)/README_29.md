@@ -1,3 +1,32 @@
+###  Публикация: 1588500   (191508) от 04.11.2022
+
+VA - Шансон Осень 2022 [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edik Salonikski - Бокал Вина (4:11)
+02. Pavlos Bouros - Когда Ты Рядом (4:17)
+03. Sevenrose - Туда, Где Ты (4:08)
+04. Shodi - Бродяга Странник (5:13)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C7C6CB6D60F3FBF0D765E52012AB668BCCCBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429301   (176576) от 06.12.2020
 
 VA - Chanson Francaise: Toute Chose En Ton Coeur (2020) [MP3|320 Kbps] <Chanson>
@@ -6,7 +35,7 @@ VA - Chanson Francaise: Toute Chose En Ton Coeur (2020) [MP3|320 Kbps] <Chanson>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176576.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - La Ballade Du Coeur (2020) [MP3|320 Kbps] <Chanson>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174940.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Шансон Зима (2020) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174854.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Уголовочка от радио Шансон. Часть 4 (2015) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158490.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Стая белых голубей. Академия хитов шансо�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158449.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - 50 лучших треков Шансон 2022 [MP3|320 Kbps] <Шансон
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154652.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152225.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151977.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Шансон в натуре (2015) [MP3|320 кб/с] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145589.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Хиты под водочку: Поворот на 360 (2005) [MP3|320 Kbp
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145401.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Хиты под водочку: Замкнутый круг (2016) [MP3|320
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145338.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Зимний шансон года Выпуск № 3 (2016) [MP3|256 Kbps]
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145308.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Масть крестовая от радио Шансон. Часть №7
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145279.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Убойные хиты на Шансоне Часть № 6 (2016) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145190.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Блатной шансон на любимой волне. Выпуск �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145165.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Гуляночка блатного радио Часть № 9 (2016) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145152.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Душевная музыка Шансона. Версия № 4 (2016) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145125.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Высшая лига хитов шансона. Часть № 10 (2016) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145057.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Новогодний ресторан Шансона. Сборник № 6 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144971.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Эх, Разгуляй! Новогодний выпуск Шансона В
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144899.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Золотые застольные хиты от радио Шансон �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144891.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Наше Радио. Лучшее '2019 MP3  (2019) от DON Music [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144027.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142445.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Холодных Глаз Очарованье (2015) [MP3|256 кб/с] <Ш
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141500.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Масть крестовая. Новогодний выпуск (2012) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140419.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ VA - Масть крестовая. Новогодний выпуск (2012) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3AFD196401F89D88CA3018540EB2FC14291775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520901   (138680) от 30.12.2021
-
-VA - Радио Шансон. Лучшее (2021) MP3 от DON Music [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Пискун - Падал белый снег
-002. Воровайки - Тикают часы
-003. Григорий Лепс - Lucky Man
-004. Яна Павлова - Предновогодняя(   Читать дальше...   )Жанр: ШансонПродолжительность: 15:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1994E11CD968026190BF626606244F755DAC4ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/

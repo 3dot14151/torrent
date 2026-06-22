@@ -6,7 +6,7 @@ Colibri 2.1.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171200.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WinX HD Video Converter for Mac 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171042.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ OmniPlayer Pro - Media Player 2.1.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171016.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Downie 4 v.4.6.32 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170357.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Audiobook Builder 2 v.2.2.7 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169950.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Mac DVDRipper Pro 10.0.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169549.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ MacX DVD Ripper Pro 6.6.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169436.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ AirFoil+Airfoil Satellite 5.10.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167981.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ dBpoweramp Video Converter 2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167904.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Waltr 2 v2.6.25 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166947.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ MediaHuman Youtube Downloader 3.9.9.51[Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166750.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Elmedia Player Pro 7.8 (build 1897) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165712.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Audirvana 3.5.29 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163646.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ HD Video Converter Movavi 22.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163471.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Tidabie Tidal Music Converter 1.4.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162625.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VideoProc Vlogger for Mac 1.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162278.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Aiseesoft 4K Converter for Mac 9.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160205.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ AudFree Auditior 2.7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159408.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ DRmare Audio Converter for Mac 2.7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159398.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Viwizard Audio Converter for Mac 3.8.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159387.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ AirFoil+Airfoil Satellite 5.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151764.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Music Player for VK 3.0 [En/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151488.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ mirethMusic 4.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148830.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ TunePat Apple Music Converter 1.4.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148417.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Tipard Blu-ray Player for Mac 6.2.60 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147490.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ WebVideoHunter Pro 6.2.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146713.jpg" />
 </div>
 
 

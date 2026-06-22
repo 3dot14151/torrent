@@ -6,7 +6,7 @@
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85001.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84578.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Hwaja / Хвая (2011) [35 глав+2 extra+эпилог+послесловие
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83877.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77625.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Vandread / Вандред [2000][manga][Русский][главы 1-14][Complet
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76880.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ JoJo no Kimyou na Bouken Part 4: Diamond wa Kudakenai | Невероятные �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70230.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай (2018) [13 том
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70228.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Rozen Maiden: Tales | Девы Розена 2 (2008) [11 томов, 66 глав
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70224.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ JoJo no Kimyou na Bouken Part 5: Ougon no Kaze | Невероятные Прик
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67645.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Gwihwanja-ui Mabeop-eun Teukbyeol-haeya Hamnida | Магия Вернувшег�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67643.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Gunslinger Girl | Школа убийц (2002) [15 томов, 100 глав] [М
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67634.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы (2020) [16 т�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67618.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Enen no Shouboutai | Пламенная бригада пожарных (2015) [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67617.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Fairy Tail: Blue Mistral | Хвост Феи - Голубой Мистраль (
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66949.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Fairy Tail Gaiden | Хвост Феи - Гайден (2015) [3 части, 53 г
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66947.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Tale of Fairy Tail: Koori no Kiseki | Хвост Феи. Ледяная троп
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66918.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Kami nomi zo Shiru Sekai | Одному лишь Богу ведомый мир 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66849.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Bad Company | Плохая Компания (1996) [1 том, 10 глав] [Ма
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66848.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Shonan Seven | Семерка Шонана (2014) [17 томов, 67 глав] [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66844.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen | Кагуя: В лю
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66842.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Shounan Junai Gumi | Крутой учитель Онидзука: Ранние 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66839.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Majo to Kishi wa Ikinokoru | Ведьма и рыцарь выживают (2021
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66838.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ GTO - Shonan 14 Days | Крутой Учитель Онидзука: 14 дней
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66837.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Darwin's Game | Игра Дарвина (2012) [30 томов, 121 глава + 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66836.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Gamaran | Гамаран (2009) [22 тома, 194 главы] [Манга] [Ру
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66828.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ GT-R: Great Transporter Ryuji | Великий Водитель Рюдзи (2012
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66822.jpg" />
 </div>
 
 

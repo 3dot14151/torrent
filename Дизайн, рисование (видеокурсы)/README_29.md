@@ -6,7 +6,7 @@ Lynda.com | Up and Running in VUE (2015) PCRec [H.264/720p-LQ] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778638.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ITVDN | Видео курс Unity3D Essential (2015) PCRec [H.264/720p]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777801.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ W.D.I | Типографика в веб (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777427.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ CG Cookie | Создание воксельного арта в Blender 2.8 / Cr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772791.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ CG Cookie | Основы цифрового скульптинга в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772625.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Victory3D | Создание игрового окружения "Античны
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772495.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ CG Cookie | Создание игры Portalethium часть 2: Дизайн у
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771270.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770392.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Polygon Runway | Создание 3D леттеринга в Blender 2.82 / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770390.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Polygon Runway | Стань 3D иллюстратором в Blender 2.8 / Becom
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770294.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ CGMA | Mastering Destruction in Houdini (2019) PCRec[En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769018.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767424.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766490.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Allan McKay | FX Technical Director Transformation Module 6 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765286.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VideoSmile, Артём Слаква | Мини-курс «Blender для нов�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765094.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ CG Masters | Мастер создания автомобиля в Blender / Mas
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765018.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Michael Pavlovich | Creature Production by Michael Pavlovich (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763628.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Krita Foundation | Тренинг по Krita №2: Музы / Krita Training Vol
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763623.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Beonmax | Курс Photoshop для начинающих Веб-дизайнер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763410.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ CG Cookie | Моделирование и анимация Sci-Fi люка в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762106.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ CG Cookie | Моделирование мотоцикла в Blender 2.69 / Mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761836.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ FlippedNormals, Henning Sanden | Switching to Blender for Experienced Artists (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759914.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ CtrlPaint.com | Arena Design. Portfolio Builder (2016) PCRec [H.264/1080p-LQ] [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759541.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Udemy.com | Introduction to 3D Coat (2015) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759452.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Lynda.com | 3D Printing with ZBrush (2014) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759451.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Allan McKay | FX Technical Director Transformation Module 9 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751811.jpg" />
 </div>
 
 

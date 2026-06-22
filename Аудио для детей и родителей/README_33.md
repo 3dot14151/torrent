@@ -1,3 +1,58 @@
+###  Публикация: 1529468   (732722) от 06.02.2022
+
+Джастин Маркс | Книга джунглей. История Маугли (2021) [MP3, Александр Шаронов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли вы историю Маугли, мальчика, которого воспитали волки и пантера Багира?
+Добро пожаловать в самое сердце диких джунглей, ярких, зеленых и неподвластных человеку! Настоящей семьей Маугли стали звери, а домом – лес. И хотя временами мальчику казалось, будто его место не здесь, он и представить себе не мог, что однажды покинет джунгли. Но все изменилось, когда (   Читать дальше...   )Жанр: Сказка, Зарубежное фэнтези, Зарубежные детские книгиПродолжительность: 06:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED09508B5869DEC532AE212B26FDD8160FBEEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529712   (732561) от 07.02.2022
+
+Франц Кайнер, Аннетте Нольден | Беременность день за днём. Книга-консультант от зачатия до родов (2021) [MP3, Татьяна Николашина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта энциклопедия уже давно стала главной книгой всех мам Германии. Выносить и родить здорового малыша она поможет и вам, ведь информация в ней тщательно выверена и адаптирована под российского потребителя.
+
+У каждой беременной женщины процесс вынашивания ребёнка протекает индивидуально. Но для всех без исключения будущих мам это самый важный период в жизни. На протяжении (   Читать дальше...   )Жанр: Акушерство и гинекология, Зарубежная прикладная литература, Зарубежная справочная литература, Здоровье, Педиатрия и неонатология, Популярно о медицине, ЭнциклопедииПеревод: Мария ВиноградоваПродолжительность: 20:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A84B5BC9EFD41CC2527E97F9CE4EBC46B5F2575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530330   (729801) от 10.02.2022
 
 Елена  Качур | Увлекательная химия. Детские энциклопедии с Чевостиком (2014) [MP3, Таисия: Аведикова , Д. Столбцов]
@@ -6,7 +61,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729801.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728364.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727748.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727544.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727534.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ VA - Любимому малышу. (2010) [MP3|128-256 kbps]<Классика  
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725561.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725238.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725153.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725151.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725150.jpg" />
 </div>
 
 
@@ -281,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725147.jpg" />
 </div>
 
 
@@ -310,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_725128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725128.jpg" />
 </div>
 
 
@@ -336,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725083.jpg" />
 </div>
 
 
@@ -365,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_724880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_724880.jpg" />
 </div>
 
 
@@ -394,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724853.jpg" />
 </div>
 
 
@@ -420,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724848.jpg" />
 </div>
 
 
@@ -446,7 +501,7 @@ VA - Спят Усталые Игрушки. Колыбельные Песни (
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_724754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_724754.jpg" />
 </div>
 
 
@@ -475,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724713.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724181.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ VA - Моцарт для малышей (2005) [MP3|256 кб/c]<Детская, 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724178.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ VA - Классическая музыка для малышей (2009) [MP3|320
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724041.jpg" />
 </div>
 
 
@@ -585,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723154.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723151.jpg" />
 </div>
 
 
@@ -643,7 +698,7 @@ VA - Эффект Моцарта - Музыка для малышей (от 3 м
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722425.jpg" />
 </div>
 
 
@@ -657,59 +712,6 @@ VA - Эффект Моцарта - Музыка для малышей (от 3 м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42E58E76B4646F5F74E5B191678C88E995ADA43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023519   (722351) от 06.06.2016
-
-Любовь Кантаржи | Чудеса без конца (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительные истории о том, как Крылатик и Крапинка разгадывали тайны и загадки этого мира. Эта книга родилась из журнальных публикаций. В течение пяти лет выходила в детском журнале «Ступени» (приложение к православной газете «Благовест») рубрика «Божья коровка». Её герои — забавные лесные человечки Крылатик и Крапинка — полюбились маленьким читателям. Вместе с (   Читать дальше...   )Жанр: СказкаПродолжительность: 03:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3615AED94D33414F5F8F74B1EF175C688A4413D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327226   (721657) от 23.04.2011
-
-Виктор Драгунский | Он живой и светится... (Денискины рассказы, часть 2) [2007] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы В.Ю.Драгунского с неизменным интересом читают и взрослые и дети. Современники писателя вспоминают его как открытого, доброго, обаятельного человека, а название знаменитого рассказа "Он живой и светится…" вполне подходило и самому автору. Таким было и все творчество писателя.
-Драгунский писал для детей, создавая удивительный мир солнечных зайчиков, (   Читать дальше...   )Жанр: Детская литература
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE3C04397BDB1BF4EA1F2F1D2224AB7D70737D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

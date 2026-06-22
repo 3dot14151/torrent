@@ -1,3 +1,55 @@
+###  Публикация: 1536841   (672561) от 13.03.2022
+
+Приключения Лысого (1916) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия приключений Лысого, которого играл перебравшийся в Россию французский комик Робер Рейнольдс, пользовалась до революции бешеным успехом. Незатейливые сюжеты, универсальные гэги и выразительная жестикуляция – и даже титры уже были не нужны. Это добавляло популярности среди неграмотных зрителей, коих в достославной Российской Империи было немало.  До наших дней (   Читать дальше...   )Производство: Российская империя, Ателье  Александра ДранковаЖанр: Комедия, немое кино, короткометражныйРежиссер: Робер РейнольдсАктеры: Робер РейнольдсПродолжительность: ~00:03:00 серия (3 серии)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11BA8328EE34BE77C3F9763A9D8BF6C74EBA5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291209   (672133) от 23.03.2019
+
+Семейный круг (1980) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бракоразводный процесс уже немолодых супругов Медведевых, который ведет Сомова Татьяна Михайловна, заставляет ее задуматься о собственном одиночестве, конфликте со взрослыми детьми и разрыве с мужем.Производство: CCCР / Киностудия имени А. ДовженкоЖанр: ДрамаРежиссер: Владимир ДовганьАктеры: Ада Роговцева, Ирина Бунина, Сергей Голованов, Лилия Гурова, Владимир Заманский, Сергей Иванов, Татьяна Митрушина, Александр Пороховщиков, Юрий Пузырёв, Надежда СмирноваСубтитры: ОтсутствуютПродолжительность: 01:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D490F2FC57AAE3FE203E9E39FAE8B10D5233EDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 797434   (671483) от 21.06.2014
 
 Злая судьба (1969) TVRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671483.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669477.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664226.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662543.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662477.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661092.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660716.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660613.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658797.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657800.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657729.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657716.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656872.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656730.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656590.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656091.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654906.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654689.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650297.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650288.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650280.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650100.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650097.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649106.jpg" />
 </div>
 
 
@@ -618,62 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA10266BF8F7612A9EE89611DEB8DA392753DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345777   (648962) от 03.06.2011
-
-Хорошо сидим! (1986) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648962.jpg" />
-</div>
-
-
-###  Подробнее
-
-«— Выпивка без тостов - это пьянка.
-А пьянка, с тостами - это же мероприятие, это же - Банкет!»
-
-Шеф, Ляля, начснаб, толкач и Эдик любят выпить и пошутить (а кто ж не любит?!).(   Читать дальше...   )Жанр: Сатирическая комедияРежиссер: Мунид ЗакировАктеры: Олег Анофриев, Лариса Удовиченко, Роман Ткачук, Спартак Мишулин, Михаил Кокшенов, Евгений Моргунов,
-Юрий Медведев, Борислав Брондуков, Леонид Харитонов, Николай Скоробогатов, Виктор Ильичев.Перевод: ОригинальныйПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC6D8EC370D6629E2C05610805228137A5EF10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291717   (648391) от 28.03.2019
-
-Дон Сезар де Базан (1989) DVDRip [H.265] (1-2 серии из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины происходит в Испании в XVII веке. Дон Хосе, первый министр короля, тайно домогается любви королевы Марии. Но получив отказ и затаив обиду, он думает проучить королеву и короля Карла II. Очень кстати дон Хосе узнает о том, что сам король положил глаз на очаровательную цыганку Маритану, и у него созревает план мести. Он просит обедневшего дворянина (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Комедия, МузыкальныйРежиссер: Ян ФридАктеры: Михаил Боярский, Анна Самохина, Михаил Светин, Игорь Дмитриев, Юрий Богатырёв, Наталья Лапина, Юрий Дедович, Андрей Краско, Герман Орлов, Алексей Подгорнов,Субтитры: РусскиеПродолжительность: 02:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7264FB0A781F61513FC63539CDA1CF3802553936
 ```
 
 https://mybot314.ru/tekegram_catalog/

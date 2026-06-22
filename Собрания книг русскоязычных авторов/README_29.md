@@ -1,3 +1,56 @@
+###  Публикация: 1810171   (3810) от 08.09.2025
+
+Аристарх Риддер | Сборник произведений [48 книг] (2021-2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дамы и господа! Добро пожаловать на Пангею! Мир созданный по прихоти самых могущественных людей в нашей галактике! Добро пожаловать в театр величиной в планету, и в этом театре разыгрывается эпическая пьеса, густо замешанная на амбициях и похоти…Жанр: Альтернативная история, Боевая фантастика, ПопаданцыИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B371E9EC61D547CBB756F34D4AD056CCF411769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816935   (3791) от 08.09.2025
+
+Сергей Тармашев | Собрание сочинений [58 книг] (2008-2025) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Тармашев — один из самых известных российских авторов научной фантастики, постапокалипсиса, фэнтези и боевой прозы. Его книги часто сочетают военную тематику, философские размышления, экологические угрозы и глобальные конфликты, создавая масштабные миры с глубокими идеологическими подтекстами.
+Если тебе интересны сюжеты с мужским характером, выживанием в экстремальных (   Читать дальше...   )Жанр: Фантастика, Фэнтези, приключения, постап, боевикИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E804B45C50801C3B48CF0500012BD339A7EEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815581   (3789) от 08.09.2025
 
 Влад Тепеш | Сборник произведений [12 книг] (2023-2025) [FB2] [Обновляемая]
@@ -6,7 +59,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3789.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3784.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3777.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3767.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3763.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3745.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3737.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3736.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3734.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3719.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3713.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3645.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3637.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3613.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3506.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3499.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3399.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3395.jpg" />
 </div>
 
 
@@ -492,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3379.jpg" />
 </div>
 
 
@@ -518,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3376.jpg" />
 </div>
 
 
@@ -544,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3366.jpg" />
 </div>
 
 
@@ -572,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3352.jpg" />
 </div>
 
 
@@ -599,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3351.jpg" />
 </div>
 
 
@@ -626,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3349.jpg" />
 </div>
 
 
@@ -638,61 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAF4758B83E43C805C5A71E537DE5942C1F67941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809374   (3060) от 13.09.2025
-
-Евгений Астахов | Собрание произведений [41 книга] (2020-2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Астахов — современный российский писатель, специализирующийся на фантастике, фэнтези и ЛитРПГ. Его творчество охватывает жанры, близкие к эпическому фэнтези, боевой фантастике и приключенческим историям с элементами исекая и трансформации героя.
- Характерные черты его прозы:
-Глубокая проработка миров и систем магии.
-Эволюция персонажей от обычных людей до (   Читать дальше...   )Жанр: Попаданство, ЛитРПГ, Боевая фантастикаИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68311CD9FBCDA87A9F8DB179C2A616B963A0303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809619   (3048) от 13.09.2025
-
-Саша Токсик | Собрание произведений [69 книг] (2022-2025) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планета Земля сгорела в ядерном огне. Но мудрая и добрая Система перенесла всех людишек в новый мир. Каждого наградили новым именем, стартовым бонусом и бодрящим пинком под зад. Кто-то получил меч, кто-то корону, а я... Картошку?! Как вообще с этой штукой покорить мир? Система, ты точно мудрая и добрая?!Жанр: Попаданцы, Альтернативная история, ЛитРПГ, Боевое фэнтези, ПриключенияИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB9FA98AE17B98BB6C7A5DCF9671719DE8F3D25
 ```
 
 https://mybot314.ru/tekegram_catalog/

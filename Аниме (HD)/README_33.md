@@ -6,7 +6,7 @@ Hoshi wo ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279703.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KissXsis TV | KissXsis 2010 | Поцелуй сестер [2010, TV, 12 эп] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278786.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Devil's Line | Линия дьявола [2018, TV, 12 + 1 ОВА] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275101.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272274.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pocket Monsters Sun & Moon / Покемон: Солнце и Луна [2017, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272189.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MM! / Молодые мазохисты! [2010, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268485.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kidou Senshi Gundam: Twilight Axis | Mobile Suit Gundam Twilight Axis | Моби
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266953.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Densetsu no Yuusha no Densetsu / The Legend of the Legendary Heroes / Леген
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266624.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Wakaokami wa Shougakusei! | Хозяйка гостиницы из младше�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266441.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266266.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ New Game!! | Новая игра! [ТВ-2] [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264966.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264051.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Netojuu no Susume / Recommendation of the Wonderful Virtual Life / Рекоме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263360.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262997.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261886.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Kakegurui | Compulsive Gambler | Маниакальный игрок [2017, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261859.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ KanColle 2 | Kantai Collection 2 - Itsuka Ano Umi de | Коллекционна�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255292.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 / Не л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255009.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Yuusha-Ou GaoGaiGar Final | Король храбрецов Гаогайгар: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254844.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Kidou Senshi Gundam: Cucuruz Doan no Shima | Mobile Suit Gundam: Cucuruz Doan's 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254718.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Inu ni Nattara Suki na Hito ni Hirowareta. / My Life as Inukai-san's Dog / Я с
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252140.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Dr. Stone: Ryuusui | Доктор Стоун (спэшл) [2022, Special, 1 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250330.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247494.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Vinland Saga Season 2 / Сага о Винланде 2 [2023, TV, 24] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247486.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Герой сдох! [2023, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247416.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita / Др
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247414.jpg" />
 </div>
 
 

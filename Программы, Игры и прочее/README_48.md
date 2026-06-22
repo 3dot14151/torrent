@@ -1,3 +1,29 @@
+###  Публикация: 1007706   (819450) от 16.04.2016
+
+Garmin: City Navigator China NT 2015.40 AN (по регионам) [Ch]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная карта Китая, для навигаторов Garmin, по регионам, на китайском языке.Тип издания: карты заблокированы (таблетка есть в комплекте)Релиз состоялся: ноябрь 2015Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: КитайскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA300363C2420BD7ACBFEAA5781C163194A2B18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007641   (819448) от 16.04.2016
 
 Garmin: TOPO Southern Africa v3 PRO + Madagascar [En]
@@ -6,7 +32,7 @@ Garmin: TOPO Southern Africa v3 PRO + Madagascar [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819448.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Garmin: Topo Chile Deluxe 2015.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819444.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Garmin: TOPO Portugal Light v3 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819442.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Garmin: TOPO Belarus v3 Light [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819156.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Garmin: TopoActive East+West Europe v3.00 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819006.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Garmin: City Navigator Middle East & N Africa NT 2018.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818764.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Perfect Angle v1.6 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818720.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816884.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815723.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815389.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815293.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815289.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814940.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Pool Break Pro 3D Billiards v2.7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814620.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Comix Zone 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814554.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Shortcut Maker Pro v3.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813988.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811530.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Yandex.Maps / Мобильные Яндекс.Карты v3.20 (2013) <Ru>
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810994.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Garmin: TOPO UK & Ireland v4 Light [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809661.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Garmin: City Navigator Thailand NT 2016.20 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809550.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Worms 3 v.2.04 + mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808565.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Garmin: City Navigator Eastern Africa NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807710.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807430.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Battletoads. Battletoads And Double Dragon. Антология (SEGA Genesis Gam
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806676.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Golden Axe. Golden Axe 2. Golden Axe 3. Антология (SEGA Genesis Game) [
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804754.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Golden Axe. Golden Axe 2. Golden Axe 3. Антология (SEGA Genesis Game) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCFDB5A73145C7891746AFAF2614635DF3015B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384265   (804173) от 19.05.2020
-
-Pilzlexikon 2 PRO 1.0.17 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто изучает грибы и все, что с ними связано, разработан специальный справочник по микологии Pilzlexikon 2 PRO. Руководство по миру грибов может быть интересно и новичку, и продвинутому ученому. Вы узнаете о царстве Грибов все, и даже больше, научитесь по внешним признакам безошибочно определять название гриба, используя данные, цифры и картинки. Справочник (   Читать дальше...   )Тип издания: Premium+Релиз состоялся: 17.01.2018Разработчик: NATURE MOBILE GmbHПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A624C99FBF7D07F75874B5284F25D961A5A2F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

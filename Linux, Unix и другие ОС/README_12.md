@@ -1,3 +1,171 @@
+###  Публикация: 1030728   (671718) от 01.07.2016
+
+Phoenix OS 1.0.9 RC [x86] 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС *Nix (Alpha, Beta, RC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phoenix OS - проект по портированию ОС Android на персональные компьютеры с архитектурой Intel и x86, использует кодовую базу Android-x86. Позволяет запускать мобильную операционную систему от Google на ПК, будь то стационарная машина или ноутбук. Phoenix OS является отдельной веткой разработки известной системы Remix OS и проекта Android-x86, которые имеют общую (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD96F307A7DA564BCE905EB1A11DB05A72C5F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798376   (670892) от 21.06.2014
+
+Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat объявила о выпуске операционной системы Red Hat Enterprise Linux 7. Новая система закладывает основы для создания открытых гибридных облаков.
+
+Разработанная в полном соответствии с требованиями современных центров обработки данных, система Red Hat Enterprise Linux 7 усиливает весь спектр корпоративных ИТ-технологий – от контейнеров приложений до облачных служб.
+
+Как отмечают разработчики, Red Hat Enterprise Linux 7 представляет собой согласованную единую основу, которая позволит клиентам подстроиться под современные требования и в то же время использовать преимущества вычислительных инноваций, в том числе – контейнеров Linux для обмена данными больших объемов через физические системы, виртуальные машины и облачные службы, которые составляют единое открытое гибридное облако.
+
+Изменения в Red Hat Enterprise Linux 7: Релиз основан на Fedora 19;  zero-copy в сетевых операциях; Virtio-scsi - новый слой блочных устройств - папье-маше из блочных устройств; добавление AutoNuma/SchedNuma в планировщик для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DFA34DAFE3461D38566DB82C818B4869203397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224254   (666993) от 09.05.2018
+
+Openfiler 2.99.1 + 2.99.2 [x86_64] 2xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Openfiler — это операционная система, которая предоставляет возможность выделять файловые устройства NAS и блочные устройства SAN. Она была создана компанией Xinit Systems и базируется на rPath Linux. Это свободное программное обеспечение с лицензией на основе GNU General Public License v. 2. Программное обеспечение с открытым кодом от сторонних разработчиков.
+Кодовая (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9331A63FE74A3170ED9C0E5485DEC0E275CC6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138229   (664036) от 29.05.2017
+
+Rescatux 0.41b1 [i386, i486, x86-64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rescatux новый rescue GNU/Linux CD/USB основанный на Debian, с дружественным меню для управления задачами восстановления и решения ряда других проблем в операционных системах.
+
+Включает в себя следующие инструменты: Super Grub2 Disk; восстановление GRUB / GRUB2; проверяет и исправляет файловые системы; очищает пароли Windows; позволяет изменить пароли Gnu/Linux; (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A241083E73130BCC3FF250D2C824BFF6CFD8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138851   (661927) от 31.05.2017
+
+ROSA Desktop Fresh R9 GNOME Desktop Fresh R9 [i586, x86_64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661927.jpg" />
+</div>
+
+
+###  Подробнее
+
+ROSA FRESH R9  GNOME — первый релиз с окружением рабочего стола GNOME на платформе 2016.1. В этом выпуске мы постарались приблизить GNOME по эргономике к другим окружениям рабочего стола ROSA.
+GNOME - стильное и оригинальное окружение рабочего стола на GTK3. Оно настолько не похоже на все остальные, что мы не стали использовать для него фирменный стиль Росы, оригинальность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495F1F83FD3B7C1E247C3360DA9005FA36521578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226070   (655436) от 20.05.2018
+
+Rockstor 3.9.1 [x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux-дистрибутив Rockstor 3.9, предназначенный для развёртывания сетевых (NAS) и облачных хранилищ. Дистрибутив построен на пакетной базе CentOS и использует для локального хранения файловую систему Btrfs, а для внешнего доступа протоколы Samba/CIFS, NFS, SFTP и AFP.
+
+Особенностью Rockstor является поддержка запуска дополнительных приложений-обработчиков, упакованных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52701005C8AB5EBB4BCB7B269805B77824AAE87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226080   (655372) от 20.05.2018
 
 FreeNAS 11.1-U4 [x64] 1xCD
@@ -6,7 +174,7 @@ FreeNAS 11.1-U4 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655372.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ Sabayon 15.06 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654254.jpg" />
 </div>
 
 
@@ -58,7 +226,7 @@ Allegorithmic Substance Designer 6.0.3 build 181 (Linux) [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653668.jpg" />
 </div>
 
 
@@ -84,7 +252,7 @@ Parted Magic 2019.03.17 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652088.jpg" />
 </div>
 
 
@@ -110,7 +278,7 @@ Calculate Linux 14.16.2 [i686] 2xCD, 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651355.jpg" />
 </div>
 
 
@@ -138,7 +306,7 @@ Slackware 14.2 [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650912.jpg" />
 </div>
 
 
@@ -166,7 +334,7 @@ Calculate Linux 14.16.2 [x86-64] 1xCD, 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649051.jpg" />
 </div>
 
 
@@ -194,7 +362,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [amd64] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648899.jpg" />
 </div>
 
 
@@ -222,7 +390,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [i386] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648893.jpg" />
 </div>
 
 
@@ -250,7 +418,7 @@ Remix OS for PC 2.0.402 Beta [x86, x86-64] 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647093.jpg" />
 </div>
 
 
@@ -276,7 +444,7 @@ Ubuntu ServerPack 16.04 (февраль 2019) [i386, amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646454.jpg" />
 </div>
 
 
@@ -303,7 +471,7 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 3xDVD, update DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645325.jpg" />
 </div>
 
 
@@ -329,7 +497,7 @@ Debian GNU/Linux 8.1.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645316.jpg" />
 </div>
 
 
@@ -355,7 +523,7 @@ Debian GNU/Linux 8.1.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645047.jpg" />
 </div>
 
 
@@ -381,7 +549,7 @@ Linux Mint 17-v2 Qiana Cinnamon [32bit, 64bit] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643844.jpg" />
 </div>
 
 
@@ -411,7 +579,7 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643217.jpg" />
 </div>
 
 
@@ -437,7 +605,7 @@ Debian GNU/Linux 8.1.0 Jessie [amd64] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643095.jpg" />
 </div>
 
 
@@ -463,7 +631,7 @@ Parted Magic 2017.06.12 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642258.jpg" />
 </div>
 
 
@@ -489,7 +657,7 @@ Linux Mint 17-v2 Qiana Mate [32bit, 64bit] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641755.jpg" />
 </div>
 
 
@@ -519,7 +687,7 @@ JonDo 0.9.81 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641614.jpg" />
 </div>
 
 
@@ -532,171 +700,6 @@ Jondo Live-DVD предлагает безопасные, предварител
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65844F34FFAD8E59CFBC8C4886CA616AC807150C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906322   (641273) от 10.06.2015
-
-OpenVMS 7.3 [VAX] 1xCD
-
->>Linux, Unix и другие ОС
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641273.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenVMS (англ. Open Virtual Memory System, или просто VMS) — проприетарная серверная операционная система, разработанная во второй половине 1970-х годов компанией Digital Equipment Corporation для серии компьютеров VAX. Позже портирована на платформы DEC Alpha и Intel Itanium. В августе 2014 года выкуплена у компании Hewlett-Packard и полностью принадлежит компании (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999DD737CDB71B5DCA4A07193065BFC0705CF6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518624   (640723) от 04.07.2012
-
-Commodore OS Vision 1.0 Beta 9 [amd64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commodore OS Vision - это 64-битный дистрибутив Linux на базе Linux Mint, который был создан специально для фанатов Commodore, использующих Commodore USA, например, Commodore 64, машины серии VIC, а также ожидающуюся в скором времени высокопроизводительную линейку Amiga. В Commodore OS Vision используется классический инфтерфейс GNOME 2, дополненный разнообразными эффектами рабочего стола Compiz,Emerald. Он включает в себя поддержку десятков игр различных жанров (FPS, Racing, Retro и т.д.), поддерживает браузеры Firefox и Chromium, а также LibreOffice, Scribus, GIMP, Blender, OpenShot и Cinellera, сложные инструменты разработки, работу со звуком с помощью Ardour или Audacity.
-
-login: admuser
-pass: admuser
-
-На втором диске игры.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226793   (640718) от 29.05.2018
-
-OpenBSD 6.3 [amd64, i386] 2xCD
-
->>Linux, Unix и другие ОС
->>ОС *BSD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640718.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenBSD — свободная многоплатформенная операционная система, основанная на 4.4BSD — BSD-реализации UNIX-системы. Основным отличием OpenBSD от других свободных операционных систем, базирующихся на 4.4BSD (таких, как NetBSD, FreeBSD), является изначальная ориентированность проекта на создание наиболее безопасной, свободной и лицензионно чистой из существующих операционных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C875FC23122823420AFE0F976FFA70AA3AA0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800931   (638278) от 30.06.2014
-
-Kubuntu 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый  альфа релиз следующей версии Kubuntu 14.10 -  Utopic Unicorn. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 14.10 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BC3492077048C4055AAF5597753ADFBA25CDE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800930   (638179) от 30.06.2014
-
-Ubuntu Gnome 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел первый Alpha релиз Ubuntu GNOME 14.10 (Utopic Unicorn), отличающийся от основного релиза DE, в котором вместо Unity используется традиционный Gnome. Комитет по техническому развитию Ubuntu (Ubuntu Tech Board) утвердил придание сборке Ubuntu с десктоп-окружением GNOME статуса официального ответвления от Ubuntu.
-
-Ubuntu — это разрабатываемая Canonical, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит все необходимые программы, которые вам нужны: просмотр Интернета, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3685A753A54CEA007A2A1EE01031391804CB54F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908097   (635287) от 13.06.2015
-
-KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект KaOS представил июньский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. Plasma/KDE desktop 5. Ядро Linux Kernel 4.0.5, glibc 2.21 и Binutils 2.25, libpng 1.6 series, systemd 220
-
-Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве основного рабочего окружения последнюю версию (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
 ```
 
 https://mybot314.ru/tekegram_catalog/

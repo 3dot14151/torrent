@@ -1,3 +1,55 @@
+###  Публикация: 1531337   (710863) от 21.02.2022
+
+Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлен видеоальбом снятый в Ирландии, коллектив исполняет вещи со своего второго альбома, пользующегося популярностью во многих странах мира. Монахи поют кавер-версии мировых рок-хитов в григорианском стиле. Здесь вы можете услышать композиции Pink Floyd, Deep Purple, Phill Collins и многих других, окунуться в атмосферу средневековья, увидеть потрясающее (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6224CE41A7AE0AE8202CEA636B305CEAAF1740FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531336   (710701) от 21.02.2022
+
+Gregorian - Masters Of Chant Chapter III (2002) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710701.jpg" />
+</div>
+
+
+###  Подробнее
+
+B октябре 2002 г. вышел альбом "Masters Of Chant Chapter III". Список звезд мировой музыки, перепетых на этом диске впечатляет – Depeche Mode, Elton John, Sting, Duran Duran, Chris Isaak, HIM… Также в альбом было включено три оригинальные композиции – Be, Before The Dawn и Out Of The Cold. Женские партии исполнила Сара Брайтман, скрывшаяся под псевдонимом (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCC79AEB2CAAF34035B935A735A9C22ACB39D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 329772   (709212) от 29.04.2011
 
 VH1 All Classics Hits (2005) 10xDVD5
@@ -6,7 +58,7 @@ VH1 All Classics Hits (2005) 10xDVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709212.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708721.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ VA - Millenium Melody 6 (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705582.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703392.jpg" />
 </div>
 
 
@@ -118,7 +170,7 @@ Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702674.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702539.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699693.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_699526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699526.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ Lady Gaga - Judas (2011) HDTVRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_695625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695625.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685990.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683179.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678568.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676544.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676508.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672568.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ Millenium Extended (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670648.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670309.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667962.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667212.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665981.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ Sandra - The Complete History (1974 - 2002) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_663383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663383.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Avril Lavigne - Smile (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_662512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662512.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661920.jpg" />
 </div>
 
 
@@ -638,7 +690,7 @@ Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660496.jpg" />
 </div>
 
 
@@ -649,61 +701,6 @@ Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF034B147119700524983F5A60E1DFA0BF9E78AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513929   (660453) от 22.06.2012
-
-Ажур. Summer love / Ажур. Summer love (2012) [H.264/720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B2C78171566C88B30B4665868F56EFB287F597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903185   (657478) от 31.05.2015
-
-VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Длительное время публиковал соответветствующие Топы в разделе музыка. Теперь появилась возможность делать сборники официальных видеоклипов. Если найдет поддержку у членов NNM-Club, то постараюсь сделать их регулярными. Итак, поехали...01. Marlon Roudette - When The Beat Drops Out  (3:43)
-02. Jessie J - Flashlight (from Pitch Perfect 2)  (3:52)
-03. Sia - Elastic Heart feat. Shia LaBeouf & Maddie Ziegler (Official Video)  (5:07)
-04. Alesso - Cool ft. Roy English  (3:57)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E8A7762DD51C1C282D6509DDCAD60A907D475E
 ```
 
 https://mybot314.ru/tekegram_catalog/

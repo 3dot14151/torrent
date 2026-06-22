@@ -1,3 +1,29 @@
+###  Публикация: 1748490   (44045) от 10.09.2024
+
+pro-z.ru | Проектирование одноэтажного жилого дома в сейсмическом районе (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44045.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках курса вы научитесь проектировать фундаментную плиту, железобетонный каркас и конструкцию крыши "от и до" на индивидуальные жилые дома, расположенные в сейсмических регионах.Производство: pro-z.ruЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:27:07Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE19FCEB5F80955CE845DEB16C1A42EBD4F278FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745003   (44040) от 10.09.2024
 
 pro-z.ru | Обследование конструкций зданий (2024) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ pro-z.ru | Обследование конструкций зданий (2024) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44040.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ pro-z.ru | Проектирование стального каркаса скл
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44039.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44033.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44020.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ George Vondriska | Изготовление ящиков: «ласточкин �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43452.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43318.jpg" />
 </div>
 
 
@@ -177,7 +203,7 @@ George Vondriska | Основы изготовления мебели (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42760.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ George Vondriska | Основы изготовления шкафа (2015) WEBRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42083.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41488.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ George Vondriska | Делайте качественные двери (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41244.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ remontkv.pro, Александр Смолин | Новейший курс по �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39446.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ George Vondriska | Необходимые техники заточки (2015) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39314.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37540.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32951.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32949.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32676.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ chemelova.design, Кристина Чемелова | Курс по стройк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32645.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32603.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30713.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28823.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28772.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28658.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28654.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28473.jpg" />
 </div>
 
 
@@ -681,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28269.jpg" />
 </div>
 
 
@@ -692,34 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4636659094A9E7E95F8743D51AEC4D9EB2D8C99D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779114   (27948) от 11.02.2025
-
-Алена Спирина | Все о песочном тесте. Открытые пироги с ягодами (2017) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27948.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 видеоуроков от Алены Спириной в одном мастер-классе! Автор расскажет все о песочном тесте, выборе форм для различных пирогов, как приготовить идеальный патисьер (заварной крем).
-Вы узнаете, чем отличаются бризе, сабле и сюкре, как замесить эти виды теста разными способами и как их правильно хранить.
-Научитесь печь на его основе разнообразные пироги, такие как тарталетка (   Читать дальше...   )Жанр: КулинарияЯзык озвучки: РусскийПродолжительность: 01:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131D488AE6D9BCD4929A3CB59AF48B7E1E33EB58
 ```
 
 https://mybot314.ru/tekegram_catalog/

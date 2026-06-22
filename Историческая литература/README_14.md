@@ -1,3 +1,109 @@
+###  Публикация: 981104   (953046) от 31.01.2016
+
+Роман Белоусов | Знаменитые авантюристы (1996) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для тех, кто любит историю и увлекается авантюрными сюжетами.
+Похождения героев — реальных людей, живших много лет назад, — и сегодня поражают воображение. Кто-то из них приобрел громкую известность благодаря дерзости и находчивости, кто-то остался на обочине человеческой памяти. Однако их приключения никого не могут оставить равнодушными, наверное, потому, (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AA01A2F124394BDD1EB8E56571C3D330CF97CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981352   (952802) от 31.01.2016
+
+Николай Лузан | Кто, если не мы (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952802.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу рукописи положены драматические события августа 2008 года, и последующая деятельность руководства Департамента военной контрразведки ФСБ России, и одного из его головных управлений в период проведения в российской армии сложной, далеко не однозначной и болезненной реформы 2008–2012 годов.
+Эта их многогранная деятельность проходит на фоне борьбы с иностранными (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85481DBAFCF332667C9D10E0CA893D2D26A6C73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981043   (952779) от 31.01.2016
+
+Александр Никишин | Тайны русской водки. Эпоха Иосифа Сталина (2013) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Тайны русской водки. Эпоха Иосифа Сталина" не столько о гастрономических пристрастиях генералиссимуса, сколько о той части истории русской водки, которая пришлась на время его правления. При Сталине отменили сухой закон 1914 года и при нем сухой закон ввели в США, повторив русские ошибки. У американского народа алкоголь отняли, а в СССР его вернули. (   Читать дальше...   )Жанр: ИсторияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2CD03FCDB7F7DDA4C08B80B1938817925DDB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982179   (949717) от 02.02.2016
+
+Фёдор Трофимович Моргун | Сталинско-гитлеровский геноцид украинского народа: факты и  последствия (2007) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аннотация книги: Современный читатель совсем недавно стал свидетелем того, с каким трудом было принято в зале Верховной Рады Украины постановление о признании Голодомора 1932-33 годов геноцидом украинского народа. Известный писатель-публицист Федор Моргун идет еще дальше и расширяет временные границы геноцида по крайней мере - до масштабов первой половины кровавого (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6E457F21AC47F4761A072B6E65D3B5B23B8C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982190   (948514) от 03.02.2016
 
 К. И. Суворов (общ. ред.) | Исторический опыт борьбы КПСС против троцкизма (1975) [DJVU]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948514.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948441.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948428.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948305.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947103.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947057.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945865.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945476.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945467.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945416.jpg" />
 </div>
 
 
@@ -276,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945391.jpg" />
 </div>
 
 
@@ -304,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945316.jpg" />
 </div>
 
 
@@ -331,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944881.jpg" />
 </div>
 
 
@@ -357,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944841.jpg" />
 </div>
 
 
@@ -383,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943793.jpg" />
 </div>
 
 
@@ -410,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943789.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943737.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943673.jpg" />
 </div>
 
 
@@ -489,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943633.jpg" />
 </div>
 
 
@@ -515,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943627.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942243.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942242.jpg" />
 </div>
 
 
@@ -579,112 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBEC21E54F804EB04C34A73006471C2AC56B3A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363428   (942231) от 28.02.2020
-
-Артур Вейгалл | Великие правители Древнего Египта. История царских династий от Аменемхета I до Тутмоса III (2018) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артур Вейгалл, известный английский египтолог, в своей книге прослеживает историю Древнего Египта в эпоху правления фараонов XII–XVIII династий. Опираясь на данные, полученные в ходе реконструкции надписи на Палермском камне и расшифровке Туринского папируса, Вейгалл выстраивает новую хронологию событий описываемого периода. На основе предметов материальной культуры (   Читать дальше...   )Жанр: История Древнего мираПеревод: А.Б. ДавыдоваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D8151BE608D8B7C942CA47F14F989868A68375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984014   (942186) от 07.02.2016
-
-А. Матьез | Французская революция [3 тома] (1925-1930) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Точная, ясная и живая картина того, чем была Французская революция в своих различных проявлениях. Повествует о предыстории, причинах и начале революции. Красочно описывает политическую борьбу фельянов, жирондистов, якобинцев и монархистов. Хронологически охватывает период до 1794 г., поэтому не включает в себя годы правления термидорианской Директории.Жанр: История, политология, экономика, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEAF008BF69A298F2C3AD3B44B69F6387D75842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363495   (942134) от 28.02.2020
-
-Екатерина Мишаненкова | Блудливое Средневековье. Бытовые очерки западноевропейской культуры (2020) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Средневековье – жестокую и веселую эпоху, когда люди с одинаковым рвением молились и убивали, пировали и постились, грешили и каялись. Время фанатиков, умиравших за веру Христову в Крестовых походах, и лицемеров, именовавших бобров рыбой, чтобы их можно было есть в постные дни.
-В этой книге автор расскажет о том, как в Средние века влюблялись и (   Читать дальше...   )Жанр: История Средних веков и ВозрожденияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6993AC04AEEF4E2DB020CDD4DA1EA9917888C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983325   (941961) от 07.02.2016
-
-Роберт Оуэн | Литвиненко. Расследование [Доклад по делу о смерти  Александра Литвиненко] (2016) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открытая Россия перевела на русский язык все 327 страниц доклада судьи Роберта Оуэна по делу об убийстве Александра Литвиненко.
-Высокий суд Лондона завершил публичные слушания и 21 января огласил решение по делу о гибели бывшего сотрудника ФСБ Александра Литвиненко. Судья Роберт Оуэн в докладе, который он готовил несколько месяцев, пришел к выводу, что «операция (   Читать дальше...   )Жанр: История. Расследования. СпецслужбыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CAADA986624F4304895AD3F90BAFFFE8D7D5F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

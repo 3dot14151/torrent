@@ -1,3 +1,61 @@
+###  Публикация: 1170397   (399626) от 01.10.2017
+
+TouchCopy 16.17 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Передача музыки с вашего iPod, iPad и iPhone в iTunes
+TouchCopy позволяет копировать вашу iPod, iPhone и iPad музыку на жесткий диск. Вы даже можете передавать музыку, плейлисты и видео прямо на iTunes, включая все ваши данные песни, ваши рейтинги и обложки альбомов
+
+TouchCopy позволяет просматривать данные, хранящиеся на сенсорных устройствах iPhone, iPAD, или iPod, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2017Разработчик: Wide Angle Software LtdПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97B5B1EF55780BA59ACC1F2694EF69C7A332041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170399   (399538) от 01.10.2017
+
+Geekbench 4.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 4 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+
+Geekbench 4 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2017Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D0B877C9853786CE4721F342FC2CE1A7BF02DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170466   (398741) от 02.10.2017
 
 Textual 7 Standard Edition 7.0.5 [En]
@@ -6,7 +64,7 @@ Textual 7 Standard Edition 7.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398741.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Downie 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398630.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ DCommander 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398623.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ TotalFinder 1.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398565.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ Little Snitch 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398352.jpg" />
 </div>
 
 
@@ -147,7 +205,7 @@ popCalendar 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397802.jpg" />
 </div>
 
 
@@ -175,7 +233,7 @@ NetWorker - Advanced Network Information App 4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397773.jpg" />
 </div>
 
 
@@ -203,7 +261,7 @@ FontDoctor 10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397772.jpg" />
 </div>
 
 
@@ -231,7 +289,7 @@ Mazzy Star - 3 альбома [ALAC|Lossless]<Indie Rock>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397677.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Tuxera NTFS for Mac 2012.3.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397673.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Carbon Copy Cloner 5.0.3 (5115) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397620.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ CADintosh X 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397617.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ Araxis Merge Pro 2017 (4937) macOS Sierra Edition [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396726.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Translatium - translator 7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396718.jpg" />
 </div>
 
 
@@ -403,7 +461,7 @@ Winclone Pro 6.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396628.jpg" />
 </div>
 
 
@@ -430,7 +488,7 @@ Bartender 3 v.3.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396568.jpg" />
 </div>
 
 
@@ -457,7 +515,7 @@ Privatus 5.0.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395813.jpg" />
 </div>
 
 
@@ -483,7 +541,7 @@ Paste 2.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395812.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ Dropshare 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395764.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ PhoneClean Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395575.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ iStat Menus 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395464.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ PaintCode 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394927.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ iFinance 4.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394893.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Disk Sensei 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394889.jpg" />
 </div>
 
 
@@ -657,63 +715,6 @@ Disk Sensei инструмент мониторинга и анализа дис
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83AC1772F5F679D476ED2921F7756F84BDD4E24D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171980   (394840) от 06.10.2017
-
-PopChar X 8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш Mac включает более чем 700 шрифтов, каждый из которых содержит тысячи знаков - Почему бы не сделать их максимально доступными?
-
-PopChar X - утилита представляющая собой всплывающее окно, которое может располагаться поверх всех остальных окон и выводить таблицу различных символов, которые пользователь может вставить в текст любого документа. Кроме стандартных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2017Разработчик: Ergonis SoftwareПоддерживаемая ОС: OS X 10.6 или вышеЯзык интерфейса: Английский, немецкий, французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535E46761286248950DFC54B02A8A9CC1F21895A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171961   (394721) от 06.10.2017
-
-Archiver 3.0.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archiver - Открывайте и создавайте архивы в Mac OS X.
-Archiver - Быстрый и удобный архиватор, который поддерживает RAR, StuffIt, 7zip, Zip и многие другие архивы. При этом он позволяет создавать зашифрованные бэкапы данных, и конвертировать архивы из одного формата в другой.
-
-Кто сказал, что работа с архивами должна быть скучной и утомительной? Archiver превращает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 октября 2017Разработчик: Incredible Bee Ltd.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E959436EDD50B2D73876BDB7112E051E41457A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

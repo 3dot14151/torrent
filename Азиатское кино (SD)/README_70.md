@@ -1,3 +1,81 @@
+###  Публикация: 1809605   (9766) от 31.07.2025
+
+Побережье богов войны / Zhan shen tan / Beach Of The War Gods (1973) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9766.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поздние дни династии Мин юго-восточное побережье Китая было во власти японских пиратов. Когда Ханчжоу был оккупирован, племянник генерала Сяо Фенг, мастер боя на мечах, прибыл, чтобы спасти своего дядю, но опоздал. Когда он пришёл в маленький городок, то столкнулся там с японцами, терроризирующими население. Сяо Фенг пытается спасти жителей и организовать оборону. (   Читать дальше...   )Производство: Гонконг, Тайвань / Golden Harvest Company Ltd.Жанр: боевик, военныйРежиссер: Джимми Ван ЮйАктеры: Джимми Ванг Ю, Лунг Фей, Тин Яу, Сит Хон, Шан Мао, Цай ХунгПеревод: любительский одноголосый (Master Zen)Язык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A584D34D18561351CF5B1E3BCBEE106A985E35B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413719   (9172) от 06.08.2025
+
+Хиросима / Hiroshima (1953) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гимназия в Хиросиме. В классе учителя Китагавы слушают по радио рассказ об атомной бомбардировке Хиросимы. Внезапно падает в обморок ученица Матико Оба. Она страдает белокровием. Треть учеников класса также пережили атомную бомбардировку. В эти дни в Хиросиме уже мало что напоминает тот день, на улицах можно снова услышать милитаристскую песню «Марш боевых кораблей». (   Читать дальше...   )Производство: Япония, East West, Japan's Teacher's UnionЖанр: Драма, военныйРежиссер: Хидэо СэкигаваАктеры: Эйдзи Окада, Юмэдзи Цукиока, Ёси Като, Такаси Канда, Исудзу Ямада, Токуэ Ханадзава, Кэндзо Каварадзаки, Сидзуэ Каварадзаки, Хатаэ Киси, Эйтаро МацуямаПеревод: Дублированный (Киностудия им. М. Горького)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E8E383FB18529FB70D541DD2AA36873C1C6391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811086   (8944) от 08.08.2025
+
+Иллюзия контроля / Seolgyeja / The Plot (2024) HDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда наёмных убийц обставляет смерти своих жертв как несчастные случаи. Готовясь к очередному заданию — убийству политика, заказанного собственной дочерью — глава группировки Ён-иль выясняет, что мать клиентки погибла под колёсами автобуса. Точно так же, как его друг и напарник по планированию преступлений. Ён-иль убеждён, что подобных совпадений не бывает и эти (   Читать дальше...   )Производство: Южная Корея / Next Entertainment World, Zip CinemaЖанр: триллер, детектив, криминалРежиссер: Ли Ё-сопАктеры: Кан Дон-вон, Ли Му-сэн, Ли Ми-сук, Ли Хён-ук, Тхан Джун-сан, Чон Ын-чхэ, Ким Хон-пха, Ким Щин-нок, Ли Дон-хви, Ли Джон-сокПеревод: Дублированный (Paragraph Media)Язык озвучки: русский, корейскийСубтитры: русские (forced), английскиеПродолжительность: 01:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232110A4C9D86C54C27E3B48B2797C807B5F90F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812973   (7253) от 17.08.2025
 
 Румяна / Yim ji kau / Rouge (1987) BDRip [H.264] [AVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7253.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7134.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6499.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5975.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5378.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4140.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4104.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2948.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2718.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1018.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_750.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_550.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_397.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183.jpg" />
 </div>
 
 

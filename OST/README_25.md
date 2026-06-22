@@ -1,3 +1,163 @@
+###  Публикация: 534140   (134346) от 24.12.2012
+
+Отбросы / Misfits [Season 1-4] (2009-2012) [MP3|128-320 Kb/s]<Unofficial Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Unofficial SoundtrackПродолжительность: 18:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D52A62A0980E165F1CA75D955D5A2095221FBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594117   (133526) от 26.12.2012
+
+Судья Дредд / Dredd (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She’s A Pass [3:16]
+02. Mega City One [3:13]
+03. The Plan [2:37]
+04. The Rise Of Ma-Ma [1:55]
+05. Anderson’s Theme [2:37]
+06. Lockdown [2:46]
+07. Cornered [2:17]
+08. Kay Escapes [3:17]
+09. Mini-Guns [2:02]
+10. Undefined Space [1:17](   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD1DE88CF89DDE0D980953C6EF786D4C32891C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594102   (133511) от 26.12.2012
+
+Облачный атлас / Cloud Atlas  (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_133511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude - The Atlas March [1:15]
+02. Cloud Atlas Opening Title [3:47]
+03. Travel To Edinburgh [1:42]
+04. Luisa's Birthmark [3:00]
+05. Cavendish In Distress [1:23]
+06. Papa Song [4:15]
+07. Sloosha's Hollow [2:59]
+08. Sonmi-451 Meets Change [3:34]
+09. Won't Let Go [4:10]
+10. Kesselring [1:54](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594109   (133476) от 26.12.2012
+
+007: Координаты «Скайфолл» /Skyfall (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133476.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grand Bazaar, Istanbul [05:16]
+ 02. Voluntary Retirement [02:22]
+ 03. New Digs [02:32]
+ 04. Severine [01:19]
+ 05. Brave New World [01:50]
+ 06. Shanghai Drive [01:26]
+ 07. Jellyfish [03:22]
+ 08. Silhouette [00:56]
+ 09. Modigliani [01:05]
+ 10. Day Wasted [01:31](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682058   (132055) от 05.12.2023
+
+Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet
+02. Estrella
+03. Fairy of Water
+04. The Field(   Читать дальше...   )Жанр: Score, New AgeПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523B88FD73EB8E988AFE0B878D9D8818D050C599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688743   (125097) от 30.12.2023
 
 VA - Бременские музыканты (Официальный саундтрек к фильму) (2023) [MP3|320 Kbps] <OST>
@@ -6,7 +166,7 @@ VA - Бременские музыканты (Официальный саунд�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125097.jpg" />
 </div>
 
 
@@ -35,7 +195,7 @@ Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121727.jpg" />
 </div>
 
 
@@ -64,7 +224,7 @@ VA - Александр Зацепин. 31 июня (2021) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119517.jpg" />
 </div>
 
 
@@ -93,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107358.jpg" />
 </div>
 
 
@@ -122,7 +282,7 @@ VA - Nocturna (1979) 2LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105414.jpg" />
 </div>
 
 
@@ -151,7 +311,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100580.jpg" />
 </div>
 
 
@@ -180,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90944.jpg" />
 </div>
 
 
@@ -215,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89375.jpg" />
 </div>
 
 
@@ -245,7 +405,7 @@ VA - Уличные танцы 2 / Street Dance 2 (2012) [MP3|320 кб/с]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88229.jpg" />
 </div>
 
 
@@ -280,7 +440,7 @@ Project X / Проект Х: Дорвались (2012) [MP3|320 кб/с]<Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86477.jpg" />
 </div>
 
 
@@ -315,7 +475,7 @@ John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83309.jpg" />
 </div>
 
 
@@ -350,7 +510,7 @@ Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82515.jpg" />
 </div>
 
 
@@ -385,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82403.jpg" />
 </div>
 
 
@@ -420,7 +580,7 @@ VA - Любимые мелодии Советского кино (2012) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81860.jpg" />
 </div>
 
 
@@ -455,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81834.jpg" />
 </div>
 
 
@@ -490,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78964.jpg" />
 </div>
 
 
@@ -525,7 +685,7 @@ Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75868.jpg" />
 </div>
 
 
@@ -560,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69940.jpg" />
 </div>
 
 
@@ -592,7 +752,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61834.jpg" />
 </div>
 
 
@@ -620,7 +780,7 @@ Tom Holkenborg (Junkie XL) - Furiosa A Mad Max Saga OST (2024) OST [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52029.jpg" />
 </div>
 
 
@@ -649,7 +809,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39741.jpg" />
 </div>
 
 
@@ -663,152 +823,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D0C484A0E82788C9498285C4D59E98E63B325EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759382   (37884) от 08.11.2024
-
-Комбинация - Комбинация (2024) [MP3|320 Kbps] <OST, Pop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37884.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Russian Girls (Radio Edit)
-2. Хэй, мама
-3. Echoes across the sea (Кирилл Бородулев)
-4. Пойдем со мной(   Читать дальше...   )Жанр: OST, PopПродолжительность: 01:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661F7B7CDC752A014AAD74028F5A2EC4A967A02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760216   (37471) от 12.11.2024
-
-Руки Вверх! - Руки Вверх! (2024) [MP3|320 Kbps] <OST, Pop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Студент (Саундтрек из фильма "Руки вверх!")
-2. Крошка моя (Саундтрек из фильма "Руки вверх!")
-3. Чужие губы (Саундтрек из фильма "Руки вверх!")
-4. Бандито (Саундтрек из фильма "Руки вверх!")(   Читать дальше...   )Жанр: OST, PopПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F4B9800E2FE7C40925AEBF49B5FFA2BAEDD6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649845   (33472) от 21.12.2024
-
-Владимир Косма / Vladimir Cosma - Soleil (1997) [MP3|256 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33472.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Soleil (6:06)
-2. Sarah Et Meyer (2:28)
-3. Les Roses De Blida (3:30)
-4. Maman Titine (01:44)(   Читать дальше...   )Производство: ФранцияЖанр: SoundtrackПродолжительность: 00:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE4B52B176CDE3055AF726EA02F83F01C3AE107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911836   (28900) от 02.02.2025
-
-Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail Columbia
-02. Boyd's journey
-03. Welcome to Fort Spencer
-04. Noises Off(   Читать дальше...   )Жанр: FolkПродолжительность: 1:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92A3BBE10B266BB75EF582D81A749973CDCC61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803571   (13359) от 26.06.2025
-
-Lorien Testard - Clair Obscur: Expedition 33 (Original Soundtrack) (2025) [MP3|320 Kbps] <Soundtrack, Rock, Classic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clair Obscur: Expedition 33 — компьютерная ролевая игра, разработанная французской студией Sandfall Interactive и выпущенная Kepler Interactive.
-67 лет назад в мире Clair Obscur: Expedition 33 произошёл разлом, который отделил город Люмьер от всего остального мира. Неподалёку появился загадочный монолит, на котором Художница ежегодно рисует цифры — все, кто достигают (   Читать дальше...   )01. Alicia [2:50]
-02. Gustave [3:48]
-03. Lumière [3:43]
-04. Lumière - Lumière à l'Aube [3:53]Жанр: Soundtrack, Rock, ClassicПродолжительность: 08:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BA43A06CCA01B69568DFF266517B4F1A17196B
 ```
 
 https://mybot314.ru/tekegram_catalog/

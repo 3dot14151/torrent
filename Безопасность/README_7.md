@@ -1,3 +1,107 @@
+###  Публикация: 1815344   (5480) от 29.08.2025
+
+ESET Endpoint Antivirus / ESET Endpoint Security 12.0.2062.0 RePack by KpoJIuK [Multi/Ru]
+
+>>Безопасность
+>>Комплексные системы защиты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5480.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET Endpoint Security — это комплексное решение для обеспечения безопасности, являющееся результатом долгих усилий, направленных на достижение оптимального сочетания максимальной степени защиты с минимальным влиянием на производительность компьютера. Современные технологии, основанные на применении искусственного интеллекта, способны превентивно противодействовать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1495DC26F57217453939F98C74DEF5A466D650C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816164   (4597) от 03.09.2025
+
+Adguard 7.21.3 (7.21.5089.0) RePack by KpoJIuK [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0D7F3AD240A0EE878BB415882CCC8552F4F729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817060   (3780) от 08.09.2025
+
+Folder Guard Pro 25.9 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folder Guard - программа для защиты информации, хранящейся на жестком диске, и предотвращения несанкционированного доступа к компьютеру. Позволяет "спрятать" папки и файлы, а также ввести авторизацию пользователей на компьютере. Кроме этого, с помощью Folder Guard можно установить пароли для доступа к определенным папкам или к компьютеру в целом, ограничить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFF07C6A02E9289F2F638592AD994B98D768865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817511   (3355) от 11.09.2025
+
+Auslogics Anti-Malware Pro 1.23.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Anti-Malware предлагает дополнительную защиту для вашего основного антивируса, установленного в системе. Утилита, совместимая с другими программами безопасности, поможет проверить ваш компьютер на наличие распространенных вредоносных программ и опасных изменений в критических областях системы Windows, потенциальных угроз безопасности ваших данных и потенциально (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA1842B42F78F0BB554E760E17E65C113A4E00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817534   (3329) от 11.09.2025
 
 Fort Firewall 3.19.6 + Portable [Multi/Ru]
@@ -6,7 +110,7 @@ Fort Firewall 3.19.6 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3329.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Antivirus Removal Tool 2025.8 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3217.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Auslogics Anti-Malware Pro 1.23.0.2 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2829.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ ESET NOD32 Internet Security 18.2.18.0 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1714.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ MinerSearch 1.4.8.1 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1077.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Minimal Firewall 2.2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_325.jpg" />
 </div>
 
 

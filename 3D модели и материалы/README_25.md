@@ -1,3 +1,55 @@
+###  Публикация: 1263067   (291251) от 17.11.2018
+
+3D модели - ArtStation - Military Tent [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291251.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель военной палаткиФормат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDEAB1EC100891E534BC1B563C0BCA12BB1C248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263006   (290799) от 17.11.2018
+
+3D модели - CGAxis - Winter Conifer Trees Collection – Volume 98 [V-Ray|*.max, C4D, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция зимних конусных деревьев Volume 98 из CGAxis содержит 52 модели деревьев. В нем вы получаете деревья в зимний сезон - покрыты снегом, а также летний сезон. Есть три типа деревьев: ель, хвоя и сосна различных форм и размеров. Эта коллекция будет полезна для вас, если вы работаете над внешним проектом или хотите создать приятный внешний вид в ваших внутренних (   Читать дальше...   )Формат: Corona|MentalRay|Scanline|V-Ray|*.max, C4D, FBX, OBJ, VRMESH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE5081F35C24317B23802254DFD0DB3E8E8BAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334965   (290539) от 31.10.2019
 
 3DDD - Pro Models 1 July 2019 [Corona|V-Ray|*.max, FBX, OBJ]
@@ -6,7 +58,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290539.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289404.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289046.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ CGTrader - Renault Master Van L2H2 2020 [MAX, OBJ, FBX]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285678.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285234.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ iCube R&D Group - ITrees Vol.1 Autumn [V-Ray|*.max]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283914.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283627.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283467.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281686.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ KitBash3D - Brutalist [MAX, MA, OBJ, FBX]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278464.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ KitBash3D - Props: Cyber Streets [MAX, OBJ, FBX]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278346.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ KitBash3D - Parisian [MA, OBJ, FBX]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270330.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ Kitbash3D - Roman Empire [MAX, MA, OBJ, FBX]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270327.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ KitBash3D - Fairy Tale [MAX, MA, OBJ, FBX]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270308.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266790.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266484.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265953.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Kitbash3D - Props: Rooftops [MAX, MA, OBJ, FBX, C4D]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265254.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Hum3D - Honda Valkyrie GL1800C 2015 [Scanline|V-Ray|*.max, 3DS, C4D, OBJ, FBX, L
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264578.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Kitbash3D - Props: Greebles [MAX, OBJ, FBX, C4D]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264547.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ Kitbash3D - Props: Street Side [MAX, MA, OBJ, C4D]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264541.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Kitbash3D - Edo Japan [OBJ, FBX, C4D]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264539.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Kitbash3D - Every City [MAX, MA, OBJ, FBX]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264538.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ Unity Asset Store - Battle Car Package - 97891 [UNITYPACKAGE]
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264208.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Battle Car Package - это высококачественные модели, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C23AFEA37F21229AEDF05BE041D847D11E48140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340185   (264202) от 22.11.2019
-
-Daz 3D - Structures [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 17шт, категории Structures.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32244A32F88E154CBEEE258BCDA704FAE9DB33B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340331   (263837) от 23.11.2019
-
-KitBash3D - Mini Kit: Aristocracy [MAX, OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мини-набор Aristocracy содержит избранные предметы из наших Parisian, Victorian и  Steampunk-полных комплектов и предназначен для того, чтобы помочь вам создать миры гламура, королевской власти, элитарности и декаданса. Ни один мир богатого, исторического значения или будущей империи непревзойденного богатства не обходится без этих великих стилей архитектуры (   Читать дальше...   )Формат: MAX, OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980D4DB0763E81D2180E1148DA657D1D60035AE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

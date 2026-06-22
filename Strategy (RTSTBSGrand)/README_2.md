@@ -1,3 +1,29 @@
+###  Публикация: 1092768   (934545) от 14.01.2017
+
+Worlds of Magic (2015) [Ru/Multi] (1.2.6/dlc) SteamRip Let'sPlay
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934545.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Миры Магии” это 4Х пошаговая стратегическая игра. Игроки могут исследовать и завоевывать практически бесконечное число постепенно генерируемых вселенных, используя магические и армейские силы для превосходства над своими противниками.Тип издания: SteamRipРазработчик: Wastelands InteractiveЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA118BA2D3A955FFBCEAFF0E0E831C0F56ECE746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094034   (931621) от 16.01.2017
 
 Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
@@ -6,7 +32,7 @@ Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931621.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Galactic Civilizations: Ultimate Edition [En] (L) 2003 | PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926174.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Endless Legend (2014) [Multi] (1.5.12/dlc) SteamRip R.G. Игроманы [Emper
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923833.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Sid Meier's Civilization V (2011) [Ru/En] (1.0.3.279/dlc) Repack R.G. Механ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918538.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Constructor (1997) [Multi] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906046.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Life in Bunker (2016) [Ru/Multi] (1.0.1192) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905451.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Galactic Civilizations III (2015) [Ru/En] (2.00) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900765.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ King Arthur / Король Артур (2011) [Ru/En] (1.07/1.0.0.6/dlc) License 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895441.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895036.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ S2: Silent Storm (2004) [Ru/En] (1.2/1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893794.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Braveland (2014) [Ru/Multi] (1.4.0.19) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879830.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Braveland Wizard (2014) [Ru/Multi] (1.1.4.14) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879762.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Braveland Pirate (2015) [Ru/Multi] (1.1.1.10) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879745.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ RISK™: Factions (2011) [En/Multi] (1.0) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878518.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Okhlos: Omega (2016) [Ru/Multi] (2.0.1) License GOG [Omega Olympus Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874513.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Total Annihilation: Commander Pack (1997) [En] (3.1.0.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874284.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ KKND 2: Krossfire (P) [En+Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874058.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Victory and Glory Napoleon (2016) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870993.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Alder's Blood (2020) [En] (1.0.4f1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870237.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Planetary Annihilation: TITANS (2015) [Multi] (1.0.0.86422) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869017.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ WARTILE (2018) [Ru/Multi] (1.1.9.4/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868462.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Realpolitiks (2017) [Ru/Multi] (1.3.2) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867207.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Age of Mythology (2014) [Ru/En] (2.6/dlc) Repack R.G. Механики [Extended
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863663.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Command & Conquer: Tiberian Sun + Tiberian Sun: Firestorm [Ru] (P) 1999 - 2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862677.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.0) Repack Other s [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862638.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Alder's Blood — это мрачная и темная тактическая �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5D8A5B44987B8EA17D0E9651A51A340C6AE4DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095153   (860187) от 26.02.2017
-
-Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глобальная космическая стратегия в реальном времени. Основными особенностями второй игры серии стали упрощение и некоторая "либерализация" игрового процесса, а также дань моде: игра выпущена в 3D. Можно смело утверждать, что эксперимент хоть и не стал шедевром, но точно удался. Нам на выбор представлено по одной кампании за три разные стороны: "Федерация (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital RealityЖанр: Strategy (Real-time, Grand strategy), 3DЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1568098544E09409B9D978B1B18ED9D2C5E899E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Hal Singer - Milt & Hal (1968) 2019, Solid Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036670.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Dave Brubeck Quartet - Brubeck in Amsterdam (1962) 2015,  Sony Music Labels 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036668.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Enrique Haneine - Unlayered (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Post Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036666.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jo Jones - Caravan (2019) [FLAC|Lossless|image + .cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036661.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jeff Lorber - West Side Stories (1994) [FLAC|Lossless|tracks + .cue] <Fusion, Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036614.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dinah Washington - Dinah Jams (1954) 1984, EmArcy [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036452.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dinah Washington - Collection: 25 songs (1994) The Collection [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036444.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Najee - Savoir Faire (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036441.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nicki Parrott - Misty (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036428.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Erotica - Nymphomania (2022) [FLAC|Lossless|tracks] <Jazz, Instrumental, Easy Li
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036411.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Buddy De Franco (DeFranco) - Four Classic Albums Plus (1952 - 1954) 2014, 2CD, A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036362.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jimmie Lunceford And His Harlem Express - Wham (2005) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036357.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Al Casey - Buck Jumpin' (1960) 1991,  Prestige/Swingville/Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036265.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Buddy De Franco (DeFranco) - In A Mellow Mood (1954) 2012, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036060.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dinah Washington - Mellow Mama (1945) 1992, Delmark Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035875.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sun Ra Arkestra - Swirling (2020) Strut [FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035866.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dinah Washington - The Queen Sings Jazz: Jazz Archives № 145 (1943 - 1948) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035864.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mary Lou Williams - Black Christ Of The Andes (1963) 2006, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035775.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dinah Washington - After Hours With Miss "D" (1953, 1954) 2004, Verve Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035624.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dinah Shore - Fascination: The Encore Collection (1950-e) 1997, BMG Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035621.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Quincy Jones - Milestones Of A Legend (1953 - 1962) 10CD, 2022, The Intense Medi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035584.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Eva Cassidy & London Symphony Orchestra - I Can Only Be Me (2023) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035567.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mary Lou Williams - Conversation (1940-e) 2002, Past Perfect [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035500.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Kenny Barron - Other Places (1993) Gitanes Jazz [FLAC|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035362.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dinah Washington - The Great Dinah Washington (1993) Goldies [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035332.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Marchio Bossa - I asked for you (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Boss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035320.jpg" />
 </div>
 
 

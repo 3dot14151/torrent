@@ -1,3 +1,55 @@
+###  Публикация: 1245020   (475543) от 04.09.2018
+
+SEO Checker 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475543.jpg" />
+</div>
+
+
+###  Подробнее
+
+SEO Checker - эффективное приложение, которое предлагает инструменты SEO, которые помогут вам проанализировать ваши веб-сайты, все что вам нужно для повышения рейтинга и ускорения ваших веб-сайтов.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Global Web SRLПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80B4BCCC164F29E44A183F6ADBA83C69AB25D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057362   (475332) от 28.09.2016
+
+Diagrammix 2.13 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для для построения любых видов диаграмм с минимальными услилиями с вашей стороны. Если вы студент, менеджер или руководитель, то с этим инструментом вы можете составить диаграмму любой сложности легко и просто. Такой инструмент пригодится для иллюстрирования отчетов и при подготовке презентаций. Он поможет вам схематично выразить свои мысли, обнаружить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2016Разработчик: Deep IT ProПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FE4804359B3AD0CF99D5B65298E70376393DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057187   (475331) от 28.09.2016
 
 Cornerstone 3.0.3 [En]
@@ -6,7 +58,7 @@ Cornerstone 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475331.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ ABBYY Lingvo European 1.11.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474624.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Easy Markdown 1.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474434.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Mailplane 3.7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474018.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Microsoft Excel 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473889.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Microsoft PowerPoint 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473884.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Microsoft Word 2019 16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473875.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Feeder 3 v3.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473193.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Private Contact 3.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472381.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Klokki 1.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472251.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ BookReader 5.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465774.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ Stationery Set for Pages 4.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464291.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ Inspiration Set for Pages 4.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464150.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ Set for MS Office 3.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463699.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ Money  4.7.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461963.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ Flinto 23.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460925.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ Poedit Pro 1.8.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459714.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ CrossFTP Enterprise 1.97.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457401.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ Tyme 2 v1.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455193.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ Kardnote - Daily Note-Taking with Markdown 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449005.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ Goldfish Professional 4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444264.jpg" />
 </div>
 
 
@@ -576,7 +628,7 @@ DayLite 6.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444251.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Fantastical 2 - Calendar and Reminders 2.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441961.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ Mountain Duck 1.5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441957.jpg" />
 </div>
 
 
@@ -644,63 +696,6 @@ Mountain Duck позволяет монтировать любой удален�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:646F4FE30BAA81517EA69B995AE432B8294CACAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164137   (441843) от 09.09.2017
-
-Kardnote - Daily Note-Taking with Markdown 1.0.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организуйте свои заметки в карточках
-Kardnote стремится предоставить ежедневный инструмент для заметок с силой Markdown. Тем не менее, Markdown не является обязательным. У Kardnote есть интуитивно понятный режим редактирования текста. В этом режиме вам даже не нужно знать, что такое Markdown.
-
-WonderPen поддерживает переключение режима редактора между Markdown или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.08.2017Разработчик: EDGENIUS PTY LIMITEDПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39205857C6FD3E48DE7AA07A867FCCAA8479F68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062385   (441762) от 13.10.2016
-
-Business Card Shop 7.0.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произвести  первое впечатление — в бизнесе и жизни! Ваша визитная карточка часто является первым рекламным материалом, который человек получает от вашей компании.
-
-Business Card Shop — #1 бестселлер программного обеспечения создания визитных карточек для Macintosh. Доступен широкий набор инструментов и готовых шаблонов. Business Card Shop поможет вам создать потрясающие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2015Разработчик: Chronos Inc.Поддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D51F454B9933C24799603ADEC3DA92B76587D07
 ```
 
 https://mybot314.ru/tekegram_catalog/

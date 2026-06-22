@@ -1,3 +1,81 @@
+###  Публикация: 1513119   (224719) от 28.11.2021
+
+The Beatles: Вернись / The Beatles: Get Back (2021) WEBRip (серии 1-3 из 3) [AD]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет об атмосфере, царившей на студии во время записи знаменитого альбома «Let It Be», и завершится записью последнего живого концерта группы, который состоялся на крыше дома 3 на лондонской улице Сэвил-Роу 30 января 1969 года.Производство: Великобритания, Новая Зеландия, СШАЖанр: Документальный, музыкаРежиссер: Питер ДжексонПеревод: Многоголосый профессиональный (BaibaKo.tv)Язык озвучки: РусскийСубтитры: Русские, английские (на непереведённые места)Продолжительность: ~02:40:00 серияРеклама: Присутствуют рекламные вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0705E598837CC6BD0619A9B734C51570C8266862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513078   (224691) от 28.11.2021
+
+The Beatles: Вернись / The Beatles: Get Back (2021) WEBRip [H.264/1080p] (серии 1-3 из 3) [AD]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет об атмосфере, царившей на студии во время записи знаменитого альбома «Let It Be», и завершится записью последнего живого концерта группы, который состоялся на крыше дома 3 на лондонской улице Сэвил-Роу 30 января 1969 года.Производство: Великобритания, Новая Зеландия, СШАЖанр: Документальный, музыкаРежиссер: Питер ДжексонПеревод: Многоголосый профессиональный (BaibaKo.tv)Язык озвучки: РусскийСубтитры: Русские, английские (на непереведённые места)Продолжительность: ~02:40:00 серияРеклама: Присутствуют рекламные вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5722F451CBD6FEEC8CDE17074B3C755A56F4D6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425215   (224196) от 19.11.2020
+
+Джим Маршалл: Рок-н-ролл в объективе / Show Me The Picture: The Story of Jim Marshall (2019) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о творчестве и частной жизни знаменитого фотографа Джима Маршалла, который в своих работах запечатлел самые значимые моменты эпохи рок-н-ролла. Маршалл снимал концерты The Beatles, Боба Дилана и Джимми Хендрикса, а также документировал зарождение важных общественных движений 60-х годов прошлого века. Джим Маршалл – автор самых известных фотографий времён расцвета (   Читать дальше...   )Производство: Великобритания, США, Bailey Kennedy Production, Sampsonic MediaЖанр: Документальный, биография, музыкаРежиссер: Альфред Джордж БэйлиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA964A7EE27B92F546D5605A9D44600D0CFF2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513605   (223941) от 29.11.2021
 
 Новое звучание (Расправа над группой The Miami Showband) / ReMastered: The Miami Showband Massacre (2019) WEB-DLRip [EN / RU Sub]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223941.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223867.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223807.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223756.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223696.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223228.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223190.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221093.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220893.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220493.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219454.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219196.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218915.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218902.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218157.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217954.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216941.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216223.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215958.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214924.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214583.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213097.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212617.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42BF920EF00871ABA8F191E37DA3D2E6A6299855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638200   (212028) от 07.06.2023
-
-Ничто не сравнится / Nothing Compares (2022) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история феноменального восхождения Шинейд О’Коннор к всемирной славе и как ее личность привела к изгнанию из мейнстрима поп-музыки. Сосредоточившись на ее пророческих словах и делах в период с 1987 по 1993 год, фильм отражает наследие этого бесстрашного первопроходца через призму современных феминисток.Производство: Великобритания, Ирландия, Ard Mhacha Productions, BFI Doc Society Fund, BFI Doc Society Fund, Northern Ireland Screen, ShowtimeЖанр: документальный, музыка, биографияРежиссер: Кэтрин ФергюсонПеревод: субтитры (Велес)Язык озвучки: английскийСубтитры: русские, английские (отдельным файлом)Продолжительность: 01:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5958A371C4907ABE2FE6BFF4F94A16686383CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980552   (212001) от 25.07.2022
-
-Владимир Высоцкий - Нет, ребята, всё не так… (2013) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание нового DVD альбома «Нет, ребята, все не так…» приурочено к 75-тилетию гениального поэта и актера Владимира Высоцкого. На диске поклонники творчества Владимира Семеновича найдут его лучшие песни, спетые под простой аккомпанемент семиструнной гитары. Помимо этого 14 рассказов об отсутствии официального признания, о работе в кино и театре, о популярности театра (   Читать дальше...   )Производство: Россия, Квадро-ДискЖанр: Авторская песня, Концерт, Театр, ДокументальныйСубтитры: Есть в съемках иностранных компаний (hardsub)Продолжительность: 03:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFB22F4914713827EDE1F2190307A5B5C12C973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639074   (211782) от 11.06.2023
-
-Дневники Энди Уорхола / The Andy Warhol Diaries (2022) WEB-DL [H.264/1080p] (серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о знаменитом американском художнике Энди Уорхоле.Производство: США, NetflixЖанр: документальный, история, биографияРежиссер: Эндрю РоссиУчастники: Билл Ирвин, Джеффри Дейч, Джессика Бек, Боб Колачелло, Кристофер МакосПеревод: многоголосый профессиональный (SDI Media)Язык озвучки: русский, английскийСубтитры: русские (форсированные, полные), английские (полные, для слабослышащих), немецкие, французские, испанские, итальянские, португальские (европейские, бразильские), арабские, венгерские, вьетнамские, голландские, греческие, датские, иврит, индонезийские, корейские, китайские (упрощённые, традиционные), малахийские, норвежские, польские, румынские, тайские, турецкие, (   Читать дальше...   )Продолжительность: 00:56:13+00:52:39+01:12:20+01:14:25+01:05:06+01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA59AD1FBE660FFA6F08C7C02EA854AF2109149
 ```
 
 https://mybot314.ru/tekegram_catalog/

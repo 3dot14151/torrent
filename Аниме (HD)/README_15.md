@@ -6,7 +6,7 @@ Amnesia / Амнезия [2013, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731391.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Haitai Nanafa | Привет Нанафа [ТВ-2]  [2013, TV, 13 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730883.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hamatora The Animation / Хаматора [2014, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729424.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728992.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kotoura-san | Котоура [2013, TV, 12 эп. + 6SP] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728981.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Gin no Saji | Silver Spoon | Серебряная ложка [2013, TV, 22] BDRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728925.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Miyakawa-ke no Kuufuku | The Miyakawa Family's Hunger | Голодные сёс�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728923.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sakurasou no Pet na Kanojo | The Pet Girl of Sakurasou | Кошечка из С�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728920.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Radiant | Радиант [2018, TV, 21] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726102.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hakkenden: Touhou Hakken Ibun 2 / Hakkenden - Eight Dogs of the East S2 / Хак
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725972.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Slow Start / Медленный старт [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725033.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724851.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dororon Enma-kun: Meeramera | Ghastly Prince Enma Burning Up | Доророн Е
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724574.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Hakkenden: Touhou Hakken Ibun / Хаккенден: Легенда о восьм
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723974.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723857.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Overlord II | Повелитель [ТВ-2] [2018, TV, 13] WEBrip 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720907.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Hayate no Gotoku! / Hayate the Combat Butler / Хаятэ, боевой двор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718352.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Soukou Kihei Votoms: Gen-ei Hen / Armored Trooper Votoms: Phantom Arc / Брон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715166.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Grisaia no Meikyuu / Лабиринт Грисайи [2015, TV-спешл] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714795.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mouretsu Pirates / Moretsu Uchuu Kaizoku / Bodacious Space Pirates / Лихие 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713073.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Mahou Shoujo Madoka Magica / Magical Girl Madoka Magica / Девочка-вол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712890.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Tales of Zestiria: The X / Tales of Zestiria: The Cross / Сказания Зе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712097.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Imawa no Kuni no Alice | Alice in Borderland | Элис в Пограничье 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709713.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Demi-chan wa Kataritai | Interviews with Monster Girls | Деми хотят п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709285.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Blend S | Садистская смесь [2017, TV, 12 из 12] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707517.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706385.jpg" />
 </div>
 
 

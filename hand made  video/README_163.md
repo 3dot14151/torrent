@@ -1,3 +1,29 @@
+###  Публикация: 1786650   (23999) от 21.03.2025
+
+Перед рассветом (1989) WEBRip [H.264/1080p] [handmade upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1941 года. Небольшая железнодорожная станция в прифронтовой полосе. В один из вагонов спешно грузят группу уголовников. Не успевает поезд проехать и нескольких километров, как подвергается авианалёту и атаке парашютного десанта. После боя из всего состава в живых остаются только трое: молодой лейтенант НКВД, «вор в законе» и репрессированный партийный работник. (   Читать дальше...   )Производство: СССР, Свердловская киностудияЖанр: боевик, военныйРежиссер: Ярополк ЛапшинАктеры: Николай Бадьев, Евгений Миронов, Александр Панкратов-Чёрный, Валерий Рыжаков, Раиса Рязанова, Константин Степанков, Вера Альховская, Олег Корчиков, Вячеслав Кириличев, Игорь ГоловинПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8FBB451C8AE0C0077EAB16BE422C741E86776F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786288   (23982) от 21.03.2025
 
 Шербурские зонтики / Les parapluies de Cherbourg (1964) BDRip [H.264/1080p] [Handmade correction AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23982.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23975.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23954.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23929.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23928.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23756.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23755.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23754.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23743.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23728.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23718.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23685.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23682.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23677.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23674.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23663.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23659.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23590.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23589.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) WEB-DLRip [A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23585.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23560.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23556.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23553.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23552.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23479.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D813623A31D770546711DEB831304F24C51987FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787691   (23476) от 26.03.2025
-
-Прибытие / Arrival (2016) HybridRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неожиданное появление неопознанных летающих объектов в разных точках планеты повергает мир в трепет. Намерения пришельцев не ясны — вооруженные силы всего мира приведены в полную боевую готовность, а лучшие умы человечества пытаются понять, как разговаривать с непрошенными гостями. Правительство обращается за помощью к лингвисту Луизе Бэнкс и физику Яну Доннели, (   Читать дальше...   )Производство: США / 21 Laps Entertainment, FilmNation Entertainment, Lava Bear FilmsЖанр: фантастика, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Эми Адамс, Джереми Реннер, Майкл Стулбарг, Форест Уитакер, Сангита Патель, Эбигейл Пнёвски, Марк О’Брайэн, Ци Ма, Рут ЧиангПеревод: Дублированный (СинеЛаб СаундМикс)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), английские (forced, full)Продолжительность: 01:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179B31B5CEDB9DB63DB00BB29207460A7CCC0F9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

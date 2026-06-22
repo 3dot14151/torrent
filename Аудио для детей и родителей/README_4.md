@@ -1,3 +1,31 @@
+###  Публикация: 1452461   (1027774) от 06.03.2021
+
+Нина Дашевская | День числа Пи (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027774.jpg" />
+</div>
+
+
+###  Подробнее
+
+В школе Лёву Иноземцева считают странным. Единственный человек, с которым он нашёл общий язык, как назло, садится за одну парту с тем, кто насмехается над Лёвой больше всех. А ещё Лёва Иноземцев любит музыку, потому что она логична. Жалко, мало кто это понимает.
+
+Нина Дашевская – автор восьми книг для детей и подростков, лауреат литературных премий «Книгуру», «Новая (   Читать дальше...   )Жанр: Детская литература/ПрозаПродолжительность: 03:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2783B79ABC6A7DC588CB422D323FDDD66142A85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452470   (1027771) от 06.03.2021
 
 Татьяна Стецкая | Детские истерики: кто виноват и что делать? (2020) [MP3]
@@ -6,7 +34,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027771.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027748.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ VA - Музыка для Малышей (2009) [MP3|320 kbps]<Музыка дл�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027634.jpg" />
 </div>
 
 
@@ -91,7 +119,7 @@ VA - День Рождения (2004) [MP3|128 kbps]<Музыка и песни 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027631.jpg" />
 </div>
 
 
@@ -120,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027612.jpg" />
 </div>
 
 
@@ -148,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027611.jpg" />
 </div>
 
 
@@ -174,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027571.jpg" />
 </div>
 
 
@@ -203,7 +231,7 @@ VA - Disney Love Songs (2009) [MP3|192 kbps]<Музыка и песни для �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027438.jpg" />
 </div>
 
 
@@ -232,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027009.jpg" />
 </div>
 
 
@@ -261,7 +289,7 @@ Songbirds - Песни для детей на английском языке  [
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026999.jpg" />
 </div>
 
 
@@ -290,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026945.jpg" />
 </div>
 
 
@@ -317,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026793.jpg" />
 </div>
 
 
@@ -343,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026421.jpg" />
 </div>
 
 
@@ -369,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026255.jpg" />
 </div>
 
 
@@ -395,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026078.jpg" />
 </div>
 
 
@@ -421,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026005.jpg" />
 </div>
 
 
@@ -448,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025076.jpg" />
 </div>
 
 
@@ -474,7 +502,7 @@ Pregnant and Zen - Музыка для беременных (2011) [MP3|320 kbps
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024989.jpg" />
 </div>
 
 
@@ -503,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024941.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024928.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ VA - Эффект Моцарта - Музыка для новорожденны�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024792.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023833.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023812.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023761.jpg" />
 </div>
 
 
@@ -664,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023729.jpg" />
 </div>
 
 
@@ -678,32 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D24B9694095EA772F7763DFD5396F3F64ED8F48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458841   (1023701) от 30.03.2021
-
-Валентин Катаев | Жемчужина. Сын полка. Белеет парус одинокий. Повести, рассказы и сказки (1955-1970) [Сборник] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023701.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли спектакли с постановками и аудиокниги повестей, рассказов и сказок Валентина Катаева, которые удалось найти в архивах Гостелерадиофонда.Жанр: Детская литератураПродолжительность: 14:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5305DCB65D7CDF26D920A92F35D1219EB375033E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1086728   (149749) от 25.12.2016
+
+Л.П. Зарубина | Гидроизоляция конструкций, зданий и сооружений (2011) [RTF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обобщена и систематизирована информация по производств) гидроизоляционных работ. Рассмотрены первичная и вторичная (обмазочная, оклеенная, проникающая, штукатурная, отсечная противокапиллярная, мембранного типа и др.) гидроизоляции. Наведена классификация гидроизоляционных материалов, облаем, их применения, технология гидроизоляции, сведения о механизмах и оборудовании (   Читать дальше...   )Жанр: СтроительствоФормат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE7E764A6FFDFF28503264D72524342AE7558AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347817   (147135) от 25.12.2019
+
+В.Н. Тищенко | Паровозы железных дорог России (1837-1890) (в 2-х частях) (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147135.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приводится подробное исследование начального периода истории железных дорог России и его главного действующего лица - паровоза - в наименее изученный период возникновения, становления и развития этого вида транспорта. Автор собрал и систематизировал сведения, статистические данные по постройке, эксплуатации, нумерации паровозов российских железных дорог, (   Читать дальше...   )Жанр: история техникиФормат: DJVU, 600 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3705B60DE70D74F209126F5FAD473B08D8BDAD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678089   (147041) от 20.11.2023
 
 Ю.Н. Калачев | SimInTech. Моделирование в электроприводе (2021) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147041.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146468.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144954.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143544.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143542.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142846.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141542.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141435.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141247.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140452.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138959.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138125.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134791.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134768.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134145.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132990.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132937.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132523.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132009.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131800.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131786.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131696.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131415.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131350.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CF8957DB3873593AC3E03C3B7160EDF3ED2E1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683231   (128730) от 10.12.2023
-
-Н.П. Богородицкий и др. | Радиокерамика (1963) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128730.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагается сущность электрических, физико-химических и механических процессов, положенных в основу производства радиокерамических деталей. Рассматриваются сырьевые материалы для получения керамики, методы приготовления керамических масс, способы оформления заготовок, сушка, обжиг керамических деталей, методы шлифования и нанесения металлических слоев.Жанр: ЭлектроникаИздательство: ГосэнергоиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10A3B125F1CFDB8B2D606BB2DF327AE2B9A4233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683432   (128411) от 11.12.2023
-
-А.А. Харкевич | Избранные труды в трех томах [3 книги] (1973) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Т-1 Теория электроакустических преобразователей. Волновые процессы
-
-В первом томе развивается теория электроакустических преобразователей, в частности, устанавливаются соотношения между геометрической формой рупоров и звуковых антенн и их акустическими характеристиками. Рассматривается дифракция волн от прямолинейного края и круглого отверстия и излагаются методы (   Читать дальше...   )Жанр: ЭлектроникаИздательство: НаукаФормат: DJVU, PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA14953DC46926465286AE182E562138E06D7FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

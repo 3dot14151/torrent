@@ -1,3 +1,81 @@
+###  Публикация: 1846512   (1051526) от 07.01.2026
+
+Kodomo no Jikan: Ni Gakki | Детское время: Второй семестр [2009, OVA, 3 эп. + спэшл] DVDRip 576p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рин, Куро и Мими стали на год старше и теперь учатся в четвертом классе. Рин по-прежнему хочет, чтобы Аоки стал ее парнем и делает это извращенными способами. Куро считает Шираи-сенсея своим кумиром, а Мими по-прежнему не уверена в себе.Производство: Япония, DiomedéaЖанр: комедия, драма, эттиРежиссер: Суганума ЭйдзиЯзык озвучки: Русский закадровый (SHIZA Project - Лизавета, Dancel)Продолжительность: 4 серии по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607F05CD5B4D9DECE06A0D3C04E6FEB833137229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846513   (1051525) от 07.01.2026
+
+Kodomo no Natsu Jikan | Летнее время для детей [2011, OAD] DVDRip 576p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайсуке, Кёко, Рин, Куро и Мими отправляются в родной город Дайсуке, где знакомятся с его семьей, включая его младшую сестру Чику. Когда девушки идут на пляж, Рин вспоминает, как она ходила на пляж с Аки и Рейджи. Позже той ночью Рин пытается подкатить к Дайсуке, пока он спит, но отступает, когда считает, что он «немного больше» для неё. Тем временем Кёко, которая (   Читать дальше...   )Производство: Япония, DiomedéaЖанр: комедия, драма, эттиРежиссер: Суганума ЭйдзиЯзык озвучки: Русский закадровый (SHIZA Project - Лизавета, Dancel)Продолжительность: 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5FF112C65790C50836D5752F684F5E0EF7DDA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846372   (1051524) от 07.01.2026
+
+Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убийственный ангел Докуро [2005, OVA, 4 эп.] DVDRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный школьник Сакура-кун даже не подозревает, что в будущем ему суждено изобрести революционную технологию вечной молодости, которая будет прекращать взросление девочек после того, как им исполнилось двенадцать лет (хотя, делая это открытие, он будет преследовать совсем иные цели...). Тем не менее это изобретение даст людям невиданные доселе возможности, что не (   Читать дальше...   )Производство: Япония, HAL Film MakerЖанр: треш-комедия, фэнтези, эттиРежиссер: Мидзусима ЦутомуЯзык озвучки: Русский закадровый (SHIZA Project - Daelit, Dancel, Kitsune, flower, Paragon, Absentia)Продолжительность: 4 серии по 26 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A338016583C073896D6AB5871962734B830E3FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846374   (1051523) от 07.01.2026
 
 Bokusatsu Tenshi Dokuro-chan Second | Bludgeoning Angel Dokuro-chan 2 | Убийственный ангел Докуро 2 [2007, OVA, 2 эп.] DVDRip 720p 10-bit rus
@@ -6,7 +84,7 @@ Bokusatsu Tenshi Dokuro-chan Second | Bludgeoning Angel Dokuro-chan 2 | Убий
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051523.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051519.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Goumon Baito-kun no Nichijou | The Daily Life of a Part-time Torturer | Повс
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051481.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051343.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Lodoss-tou Senki | Record of Lodoss War | Летопись войн остров
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051339.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051122.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku | Sentenced to Be a 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051002.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050833.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050430.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Watashi wo (o) Tabetai, Hitodenashi | This Monster Wants to Eat Me | Монст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050132.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049697.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049324.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ Gekijouban Slayers | Slayers: The Motion Picture | Рубаки на больш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048817.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Slayers Special | Slayers: The Book of Spells | Особые Рубаки [1996,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048816.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Slayers Return | Возвращение Рубак [1996, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048815.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048814.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Jungle Taitei: Yuuki ga Mirai o Kaeru | Jungle Emperor: Courage Changes the Futu
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048345.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048344.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ Jungle Taitei | Jungle Emperor | Император джунглей [1989, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048343.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047837.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047835.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047833.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047827.jpg" />
 </div>
 
 
@@ -593,86 +671,6 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67904F550DC4EC7B165C62FE8D56B042E1F79E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841017   (1047641) от 08.12.2025
-
-Жизнь сорокалетнего мужчины в другом мире | Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper in Another World [2025, TV, 13 из 13] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кенъичи, одинокий художник манги, которому уже почти стукнул сорокет, внезапно, даже без помощи всеми нами любимого грузовика, оказывается в фэнтезийном мире.
-Оглядевшись вокруг и полазив немного в выскочившем игровом меню, он узнает, что несмотря на это чудесное перемещение, ему всё ещё доступен популярный японский онлайн-магазин. Он может в любой момент туда что (   Читать дальше...   )Производство: Япония / Студия East Fish StudioЖанр: Комедия, фэнтези, эттиРежиссер: Юдзуми КэйэйЯзык озвучки: Русский (AniLibria, Dream Cast, КОМНАТА ДИДИ, JAM CLUB, VF-Studio); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188C799E2DED0459006D371D8974B6BE50E02AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840345   (1047280) от 04.12.2025
-
-Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел дизайна [2021, TV, 13 эп.] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047280.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отделе дизайна животных на Небесах дизайнеры ежедневно создают множество новых животных, борясь с необоснованными требованиями своего клиента - Бога. Наблюдая за работой отдела, можно найти ответы на такие вопросы, как: "Почему единороги не могут существовать?", "Что делает животное вкусным?", "Какое существо самое сильное в океане?" (   Читать дальше...   )Производство: Япония, Asahi ProductionЖанр: комедия, фэнтези, повседневность, сейненРежиссер: Масуй СойтиЯзык озвучки: Русский закадровый (AniDub - 9й Неизвестный, Dreamy Sleep), (animevost), (AniFame - Rabe Sachte)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2F559A9A93B97C2D6900A40154885B6FC504A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839648   (1046691) от 30.11.2025
-
-Могу попросить ещё кое-что? | Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshouka | May I Ask for One Final Thing? [2025, TV, 10 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046691.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самый разгар бала жених дочери герцога Скарлет, принц Кайл, внезапно отменяет их помолвку. Более того, он сообщает, что теперь у него новая невеста, а саму Скарлет обвиняет в ужасном поведении, хулиганстве и называет самой настоящей "злодейкой".
-Разумеется, собравшиеся аристократы верят принцу и тут же начинают её осуждать. Им-то невдомёк, что ради женитьбы (   Читать дальше...   )Производство: Япония / Студия Liden FilmsЖанр: Комедия, фэнтези, романтикаРежиссер: Сакамото КадзуяЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7042A761BDF19E99E97E62CD0E4141A8E89354
 ```
 
 https://mybot314.ru/tekegram_catalog/

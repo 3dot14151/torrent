@@ -1,3 +1,59 @@
+###  Публикация: 188187   (871271) от 31.03.2010
+
+М.Е. Литвак | Воспитывать или выращивать. Командовать или управлять (2006) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можно ли воспитать в ребенке лучшие черты характера, или все в нем уже заложено изначально? Как создать отношения сотрудничества с собственными детьми и наладить взаимопонимание в семье?
+Сегодня мы хотим познакомить вас с интересным тренинговым направлением, которое позволяет ответить на эти и многие другие подобные вопросы!..Жанр: ПсихологияПродолжительность: 12:48:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301179   (871021) от 27.02.2011
+
+VA - Toon Tunes: 50 Favorite Classic Cartoon Songs (1997) [MP3|128 kbps]<Детские песенки и музыка из мультфильмов>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871021.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Popeye the Sailor Man
+2. Tom and Jerry
+3. The Woody Woodpecker Show 1
+4. Mighty Mouse(   Читать дальше...   )Жанр: Детские песенки и музыка из мультфильмовПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FA27E6CE0E3570983EF266F8FA17D2F61990C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 302083   (870424) от 27.02.2011
 
 VA - Детские песни. 200 детских хитов. (2011) [MP3|128-256 kbps]<Детские песенки>
@@ -6,7 +62,7 @@ VA - Детские песни. 200 детских хитов. (2011) [MP3|128-2
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870424.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869965.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868578.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ VA - Little People: Christmas Sing-Along (2003) [MP3|224 kbps]<Детские р
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867262.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ VA - Любимые детские песни из кинофильмов.Пок
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867143.jpg" />
 </div>
 
 
@@ -145,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866390.jpg" />
 </div>
 
 
@@ -171,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862917.jpg" />
 </div>
 
 
@@ -197,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862686.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860927.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859281.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859275.jpg" />
 </div>
 
 
@@ -302,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_858851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_858851.jpg" />
 </div>
 
 
@@ -328,7 +384,7 @@ VA - Chansons et Comptines de notre Enfanc (2005) (3CD)[MP3|160 kbps]<Детск
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858341.jpg" />
 </div>
 
 
@@ -357,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858178.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858146.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858072.jpg" />
 </div>
 
 
@@ -438,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858066.jpg" />
 </div>
 
 
@@ -464,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857696.jpg" />
 </div>
 
 
@@ -491,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856276.jpg" />
 </div>
 
 
@@ -517,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856160.jpg" />
 </div>
 
 
@@ -546,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856146.jpg" />
 </div>
 
 
@@ -572,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856144.jpg" />
 </div>
 
 
@@ -598,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856024.jpg" />
 </div>
 
 
@@ -624,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856018.jpg" />
 </div>
 
 
@@ -635,59 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A27A5EF70EE67DDEB67C346328F01E01E937EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305612   (855922) от 07.03.2011
-
-Мелодия | Детские сказки с винила. Часть 2. (2010) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта аудиокнига посвящена нашим детям. Здесь представлены сказки, которые оцифрованы с виниловых пластинок. Многие сказки вы помните с детства - это то, что связывает нас с самым прекрасным и радостным периодом нашей жизни. Выбирайте свою сказку слушайте сами и дайте послушать вашим детям, я думаю, им понравится. Им предоставится уникальная возможность услышать шипение, (   Читать дальше...   )Жанр: Сказка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0231D51358FCB25CD169C41E72561614D0DCB29B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001179   (855821) от 27.03.2016
-
-Филипп Керр | Джинн и Королева-кобра (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые приключения Джона и Филиппы Гонт — нью-йоркских близнецов, в каждом из которых проснулся добрый джинн. В эпопее британского писателя Ф.Б.Керра «Дети лампы» чудеса случаются на каждом шагу: их творят представители добрых и злых джинн-кланов, постоянно борющихся друг с другом.
-В третьей части цикла, «Джинн и Королева-кобра», в беду попадают дядя близнецов Нимрод (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA28ED49174CDBD125A5CA350430CEE646AD26C
 ```
 
 https://mybot314.ru/tekegram_catalog/

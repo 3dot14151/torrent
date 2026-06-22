@@ -1,3 +1,57 @@
+###  Публикация: 1003957   (839424) от 05.04.2016
+
+Никита Жуков | Модицина. Encyclopedia Pathologica (2016) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – первый нескучный научпоп о современной медицине, о наших болячках, современных лекарствах и человеческом теле.
+Никита Жуков, молодой врач-невролог из Санкт-Петербурга, автор ультрапопулярного проекта "Encyclopatia" (от "Encyclopedia pathologicae" – патологическая энциклопедия), который посещают более 100 000 человек в день. Его "Модицина" (   Читать дальше...   )Жанр: Медицина, здоровьеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0618E72B30725D49BD99D902F9CEBC07C310A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004230   (837920) от 06.04.2016
+
+Абигейл Эллсуорт, Пегги Олтман | Анатомия массажа (2011) [DJVU]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Массаж оживляет, восстанавливает, оздоравливает тело и дух. Но чтобы делать массаж правильно, вы должны для начала разобраться в строении тела.
+Эта уникальная книга будет полезна всем: и специалистам, и новичкам в этой области. В ней описано несколько известных направлений в мире массажа: шведский, тайский, шиацу и др. "Анатомия массажа" комбинирует описание (   Читать дальше...   )Жанр: Медицина и здоровьеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5069FE38D675F123649EE39987F94948870D2693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004817   (836320) от 07.04.2016
 
 Абигейл Эллсуорт, Пегги Олтман | Анатомия массажа (2011) [PDF]
@@ -6,7 +60,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836320.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832688.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832129.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830276.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828781.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828705.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828393.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828385.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828307.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828300.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824909.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824903.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824798.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824371.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824222.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823788.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822131.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820533.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817743.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817598.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815284.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813136.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807197.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805885.jpg" />
 </div>
 
 
@@ -628,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE5EB34A1D25502BFB6E51EFC55C1E15DF36E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010356   (804092) от 24.04.2016
-
-Владимир Матвиевский | Целостный и функциональный подход к аутизму (2013) [PDF] [En]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известно, что основным симптомом аутизма является отсутствие непосредственного зрительного контакта, непосредственности общения, то есть отсутствие канала нормального развития. Запертый в застеколье, ребенок становится жертвой распространяющихся по мозгу и телу системных нарушений - вначале функциональных, а затем и биоорганических, гормональных.  Коррекция отдельных (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85ACF53F2126A46F6D21C3B99C839D05B5508372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385087   (800035) от 23.05.2020
-
-Сергей Кардаполов | Исцеляющая Гравитация. Авторская методика самовосстановления позвоночника (2017) [PDF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Кардаполов - человек, который пришёл к своим уникальным знаниям и наработкам через боль и тяжёлые испытания судьбы. Более 25 лет назад автор пережил тяжелейшую травму во время аварии. Шансы на нормальную полноценную жизнь были невелики. Но сила духа и любовь к жизни открыли Сергею путь к здоровью. Книга содержит базовую информацию по теории и практике методики (   Читать дальше...   )Жанр: Массаж. ЛФКФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCA316C87C7E650728505AC22A10EA8E8E275B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

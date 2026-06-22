@@ -6,7 +6,7 @@
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575633.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573899.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VideoHive - Wedding Rose - 4351024 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573019.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VideoHive - Love Story - 916819 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570428.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567984.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567432.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566426.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566083.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VideoHive - White Wedding - 7045957 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564938.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VideoHive - Royal Wedding 3 - 311368 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564783.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VideoHive - Happy Wedding - 310112 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564774.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VideoHive - Magic Wedding - 7194147 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564770.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564760.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564255.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VideoHive - Wedding Photo Gallery - Doves Slideshow - 8012602 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562917.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562876.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Videohive - Wedding Photos Slideshow - 4565295 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560898.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560407.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558696.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558616.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558606.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Revostock - Our Wedding Day Album - 301241 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557511.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553428.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VideoHive - Time Of Our Life - 2425132 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553026.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Revostock - Our Wedding Rings Montage V2 - 715090 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552893.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VideoHive - Romantic Pack - 2808586 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551814.jpg" />
 </div>
 
 

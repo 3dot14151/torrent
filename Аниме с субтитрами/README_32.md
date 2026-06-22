@@ -1,3 +1,29 @@
+###  Публикация: 1483304   (855701) от 27.09.2021
+
+Deatte 5 Byou de Battle | Battle in 5 Seconds After Meeting | Битва через 5 секунд после встречи [2021, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было самое обычное утро. Акира Щироянаги, большой любитель игр и сладостей, внезапно был призван на поле таинственной девушкой по имени Мион. Но Акира не один такой, ему и другим участникам сообщили, что они «удалены из семейного реестра, вовлечены в некий эксперимент и теперь обладают различными сверхспособностями». Парень полон решимости победить в битве с помощью (   Читать дальше...   )Производство: Vega EntertainmentЖанр: приключенияРежиссер: Найто МэаПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5212FE18BAE697CAEE94C5392AAA4A1B2AE188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377090   (854795) от 20.04.2020
 
 Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battle of Unato / Кабанери железной крепости: Битва при Унато [2019, MV] WEB-DL 1080p raw
@@ -6,7 +32,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854795.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Koutetsujou no Kabaneri / Kabaneri of the Iron Fortress / Кабанери же�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854700.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854688.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Kurozuka | Куродзука [2008, TV, 12 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854380.jpg" />
 </div>
 
 
@@ -120,7 +146,7 @@ Magimoji Rurumo | Ведьмочка Рурумо [2014, TV, 12 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854149.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ Heion Sedai no Idaten-tachi | The Idaten Deities Know Only Peace | Боги-ст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853993.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ Haikyuu!! Second Season / Волейбол!! [ТВ-2] [2015, TV, 25 из 25] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853380.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Kidou Senshi Gundam: Tekketsu no Orphans / Mobile Suit Gundam: Iron-Blooded Orph
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853372.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Saiki Kusuo no Psi Nan | The Disastrous Life of Saiki K. | Ох, уж этот �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853240.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Kemonozume / Когти зверя [2006, TV, 13 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853056.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852314.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ Fairy Tail Zero | Фейри Тейл Зеро [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851798.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ Ao no Kanata no Four Rhythm / Aokana / Четыре ритма сквозь си
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850036.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849178.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Hametsu no Mars / Mars of Destruction / Разрушительный Марс [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848538.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ Burn up! | Burn up | Спецотряд Burn Up [1991, OVA, 1 эп.] DVDRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848536.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ Girl Friend (Kari) / Girl Friend Beta / Подружка Бета [2014, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848510.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ Durarara!!x2 Ketsu / Дюрарара!! 2 (сезон третий) [2016, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848411.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ Gintama° / Гинтама [ТВ-4] [2015, TV, 51 из 51] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848393.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ Seijuki Cyguard | Cybernetics Guardian | Кибернетический стра
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848326.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848177.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ Chain Chronicle (2016) / Цепные хроники [2016, Movie, 3 из 3] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848050.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ Hello World | Здравствуй, мир! [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847945.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ Hello World | Здравствуй, мир! [2019, Movie] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847915.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ Koukaku Kidoutai: SAC_2045 | Ghost in the Shell: SAC 2045 | Призрак в д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847654.jpg" />
 </div>
 
 
@@ -660,34 +686,6 @@ Koukaku Kidoutai: SAC_2045 | Ghost in the Shell: SAC 2045 | Призрак в д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E742968B9C91C9039776C27A40C10048C84E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634604   (847161) от 27.03.2014
-
-GJ-bu | Good Job Club | Клуб добрых дел [2013, TV, 12 ep.] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847161.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некоторой старшей школе существует «клуб добрых дел», где, как водится, единственный парень по имени Кёя Синомия вынужден развлекать четырех милых и нестандартных девушек. Президент, шумная малышка Мао Амацука, встревает во все, что можно, а если не получается, угадайте, кто виноват? Ее младшая сестра Мэгуми, наоборот, тихая и спокойная хозяюшка, правда, с двойным дном. Интеллектуальный гений Сион Сумэраги мало разбирается в повседневной жизни, а канадская гостья Клара Бернштейн умеет говорить с кошками и обожает есть мясо. И что же объединяет всех этих персонажей? Конечно же, великая сила аниме!
-
-Добрые дела можно понимать по-разному, и для героев на первом месте – борьба со скукой, чем они регулярно и занимаются. Тут все средства хороши – от поедания вкусностей до танцев и армрестлинга, от игр в «братиков и сестричек» до культурных фестивалей. Комедия ситуаций и «весна юности», языковые шутки и молодежные розыгрыши, симпатичные герои и легко узнаваемые пародии – в общем, любители жанра не будут разочарованы! (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Фудзивара ЁсиюкиПродолжительность: 12 серий по 23 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA0E4884D0AAA62A05F8D6FEBA84FAE2D424A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

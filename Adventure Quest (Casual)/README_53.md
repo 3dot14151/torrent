@@ -1,3 +1,159 @@
+###  Публикация: 1424182   (228718) от 16.11.2020
+
+Paranormal Files 6: The Trap of Truth (2020) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228718.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни Рика Роджерса все складывается просто замечательно: он познакомился с Рейчел, его выступления нравятся зрителям, у него появились новые друзья с паранормальными способностями. Однако кое-кто не хочет открывать свои темные секреты, а наоборот, собирается о Рике и его друзьях рассказать правду, только правду и ничего кроме правды. Сможет ли Рик Роджерс на этот (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F482A50724C891E3AADF3EC5AD82E05762CC116D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341661   (228609) от 29.11.2019
+
+Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное Королевство 6: Леса Аркадии (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной мистической серии игр Enchanted Kingdom. Добро пожаловать в Аркадию! Почти сто лет тому назад произошла эпическая битва между аркадианами и кинзулами, поэтому многое забылось, а мистические воины стали легендой... или так только казалось? До вашей Академии дошли слухи о том, что в Аркадийском Лесу обитатели тех мест видели кинзулов. Это (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A69657C81B8F006C86F7F5D979864AE98CE533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055687   (228407) от 09.12.2018
+
+Another World: 20th Anniversary Edition (2013) [Multi] (1.0.19596) License GOG
+
+>>След.
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228407.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Другой мир» - это история молодого физика, проводившего эксперимент на синхротроне. Из-за удара молнии в установку открылся межпространственный портал, и герой перенёсся на другую планету. Вскоре он попадает в инопланетную тюрьму, находит друга-алиена и вместе с ним совершает побег. Игра поддерживает HD-картинку, имеет новую схему управления, посвежевший саундтрек.Тип издания: LicenseРазработчик: DotEmu, The Digital LoungeЖанр: Arcade (Platform)Язык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8E7D42C59F7F65787AFB9180CD4F02F3A0CF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341932   (226727) от 30.11.2019
+
+Haunted Hotel 18: Room 18 / Проклятый отель 18: Комната 18 (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной мистической серии игр Haunted Hotel. Джон и Джеймс Блэкторн получили приглашение на семейную встречу в отель Sweet 18. Они ожидали приятно провести время со своими родными, но отель оказался пуст, и кроме портье в нём никого не было. Однако вскоре становится понятно, что в этом жутком отеле они не совсем одни: тёмный туман бродит по его (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F5F20B00FE3E7330C8DF8E0A636BABD170EA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342199   (225251) от 01.12.2019
+
+Witches' Legacy 8: Dark Days to Come / Наследие ведьм 8: Грядут лихие времена (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225251.jpg" />
+</div>
+
+
+###  Подробнее
+
+В извечной битве добра и зла темные ведьмы потерпели сокрушительное поражение и лишились своей королевы Морганы. После этого им пришлось затаиться на время, но, стремясь вернуть былое могущество, они призвали на помощь близнецов, злобных и безжалостных ледяных колдунов. Для исполнения коварного плана близнецам нужна белая чародейка, и они похищают Аннабель. Теперь (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5F1DE399C33EBB1464ADB9A550D2427639CBAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851862   (224807) от 20.12.2014
+
+Christmas Stories 3: Hans Christian Andersen's Tin Soldier / Рождественские истории 3: Оловянный солдатик (2014) [Ru] Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть увлекатетельной Рождественской игры Christmas Stories! Однажды ночью Вы получаете отчаянное письмо от своего старого друга Альберта и спешите к нему на помощь. Прибыв на место, вы узнаете, что волшебная палочка Крысиного короля попала в руки мстительного барона, и теперь три невинных человека, в том числе и Альберт, были превращены в игрушки! Вместе с Щелкунчиком и вашим новым другом, оловянным солдатиком, вам предстоит одолеть полчища троллей и разрушить проклятие барона.(   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6915D6E705535D5D4361F8A2A0178EDB91547982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268790   (224487) от 12.12.2018
 
 Spirits of Mystery 12: Whisper of the Past / Тайны духов 12: Шёпот из прошлого (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +162,7 @@ Spirits of Mystery 12: Whisper of the Past / Тайны духов 12: Шёпо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224487.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ The Christmas Spirit 2: Mother Goose's Untold Tales (2018) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223175.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Hidden Expedition 20: Reign of Flames (2020) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221807.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (2.0.3) License GOG [Part 2]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221428.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Christmas Stories 7. Alice's Adventures / Рождественские исто�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220940.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Princess Of Tavern / Принцесса таверн (2016) [Ru] (1.0.3) Unoffic
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220161.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Haunted Legends 9: Faulty Creatures / Легенды о призраках 9: Н
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220068.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Contract with the Devil / Контракт с Дьяволом (2015) [Ru] (1.0)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220044.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Christmas Stories 8: Enchanted Express (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219934.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Fairy Godmother Stories 3: Little Red Riding Hood / Сказки Феи-Крёс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218093.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Darkness and Flame 4: Enemy in Reflection / Тьма пламени 4: Враг 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217973.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Christmas Wonderland 12 (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217660.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Twin Mind 2: Power of Love / Близнецы-детективы 2: Сила л�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217301.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Mystery Case Files 23: Incident at Pendle Tower / За семью печатям
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217246.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Christmas Wonderland 10 (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216669.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Dark City 7: International Intrigue (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216435.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Memoirs of Murder 2: Resorting to Revenge (2018) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215731.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Christmas Stories 10: Yulemen / Рождественские истории 10: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215149.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ The Unseen Fears 3: Last Dance / Невидимые страхи 3: Послед
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214110.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Legendary Tales 4: Map of Hope (2025) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213554.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Legendary Tales возвращаются с новой историей-прик
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0688C876BFCD34047F4C768ADDF59561F1A1182A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561394   (212860) от 04.07.2022
-
-Strange Investigations 2: Two For Solitaire / Удивительные расследования 2: Двойной расклад (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной игры Strange Investigations. Первое расследование завершено, но Дана с Малькольмом снова в деле. Причем зловещее преступление произошло, что называется, на пороге их собственного дома. Детективам понадобятся все их навыки, чтобы найти и обезвредить злодея. Удастся ли им разгадать хитроумный план преступника?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700B491378D254EACFC357516AA6C17F78F67A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831023   (212545) от 28.10.2025
-
-Happy Holidays 4: Trick or Treat / Счастливые праздники 4: Кошелек или жизнь (2025) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение праздничной серии игр поиска предметов с мини-играми Happy Holidays. Исследуйте дома с привидениями, светящиеся веранды и улицы, заполненные монстрами. От некоторых моментов у вас по спине побегут мурашки, а от других - потеплеет на сердце. Решайте головоломки с поиском предметов в уютных и таинственных локациях, от светящегося окна кондитерской до тихой (   Читать дальше...   )Тип издания: UnofficialРазработчик: GameOn ProductionЖанр: Я ищу, КазуальнаяЯзык субтитров: Русский, Французский, НемецкийЯзык интерфейса: Русский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B9F6690DEB71E64476DF8FF9BBB709A796A424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584485   (211966) от 19.10.2022
-
-The Intersection of Worlds: 100 Doors / Перекрёсток миров: 100 дверей (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую увлекательную игру. Получая в наследство особняк с огромным количество комнат, вы не догадываетесь что все не так-то просто! Побег из комнаты в комнату оказывается путешествием по разным мирам и даже путешествием во времени! Какую тайну скрывал от вас дядя, подаривший этот великолепный дом? Есть только один способ это выяснить - исследовать каждую (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383E84A647456EDCB628A90A20DFCE368BC71CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638875   (211864) от 10.06.2023
-
-Strange Investigations 3: Secrets Can Be Deadly (2023) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение детективной серии игр Strange Investigations. Дана Стрэндж и ее напарник Малькольм едва успели завершить сложное дело, как пришлось взяться за еще одно расследование. Группу молодых людей преследует мстительный призрак, а на подругу Даны совершено нападение. На этот раз в деле присутствует легенда о давних событиях - предательстве, убийстве и мести. Правда (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEC1D36DD65A228D72FFF00C3DDBFB6C602EF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639241   (211728) от 12.06.2023
-
-Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Ватсон обеспокоен пропажей своей давней подруги мисс Кьюбит накануне ее свадьбы. Полиция думает, что она сбежала из-за предсвадебного волнения и скоро даст о себе знать. Но ни семью Кьюбит, ни Ватсона не устраивает это объяснение. Ведь незадолго до пропажи девушки все стали получать странные послания с пляшущими человечками. Ватсон обращается за помощью к (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F012333560900D87C2ED79576145A2567D3D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585464   (211724) от 22.10.2022
-
-Gloomy Tales: Horrific Show / Мрачные Истории: Кошмарное Представление (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую мистическую игру. На Хэллоуин в Сиэтл приезжает знаменитый странствующий цирк, на сцене которого выступают настоящие монстры, и ваша сестра Аннабель жаждет увидеть их! Во время представление Аннабель выходит на сцену в качестве добровольца, чтобы исполнить номер с исчезновением. Неожиданно загорается цирковой шатер, и вы теряете Аннабель из виду (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9CAABC692DC6536B4CC0D569F1E46AF82E33FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

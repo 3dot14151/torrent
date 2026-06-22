@@ -1,3 +1,82 @@
+###  Публикация: 1306728   (554916) от 10.06.2019
+
+Чарльз Мартин | В объятиях дождя (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный фотограф Такер Мэйсон объездил весь мир, стремясь быть как можно дальше от дома. В родном городе у него остались отец, с которым Такер никогда не ладил, брат, страдающий психическим расстройством, и подруга детства, с которой у Такера когда-то был роман. Единственный, кто ему по-прежнему дорог, – экономка мисс Элла, которая, увы, при смерти. Такер решает (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 15:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE1A431FECF148308FD0AB8E0427EAD10F44F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306731   (554911) от 10.06.2019
+
+Чарльз Мартин | Когда поют сверчки (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554911.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как успешный кардиохирург Риз не смог спасти жену, он разочаровался в себе и в профессии и уединился в коттедже на берегу озера, чтобы зарабатывать на жизнь ремонтом лодок и не думать о прошлом.
+Но однажды, отправившись в город за покупками, он увидел семилетнюю Энни. История девочки поразила его. Она продает на площади лимонад, чтобы накопить денег себе (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 19:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D7399B7BDB44B78AC89E23609B4D83C9DC0E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306704   (554910) от 10.06.2019
+
+Чарльз Мартин | Колодец с живой водой (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли Финн отправляется в экзотическую Центральную Америку, край тропических лесов и песчаных пляжей, чтобы разыскать сбежавшего из дома сына своего друга Колина. Ведомый клятвой, данной Колину, он спешит по следам пропавшего подростка, но на его пути неожиданно встает Паулина – дочь человека, которого Чарли несколько лет назад довел до банкротства. Знай Паулина, (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 18:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF47CA7A65BA47506EA51E20FD10EE5E514B74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306135   (554909) от 10.06.2019
 
 Роман Сенчин | Зона затопления (2019) [MP3]
@@ -6,7 +85,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554909.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554901.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554854.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554694.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554058.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553829.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553315.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553273.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553041.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552968.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552854.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552849.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_552782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_552782.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552755.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552413.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552149.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552067.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551793.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551785.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551209.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551100.jpg" />
 </div>
 
 
@@ -565,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551020.jpg" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549607.jpg" />
 </div>
 
 
@@ -604,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B04FDE9A095F5EC4F247155A6399DB0310FFE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047487   (548351) от 31.08.2016
-
-Владимир Шаров | Искушение революцией: Русская верховная власть (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание избранных произведений замечательного писателя Владимира Шарова было бы неполным без сборника эссе "Искушение революцией". Историк по образованию, специалист по российской медиевистике (его кандидатская диссертация посвящена Смутному времени в России начала XVII в.), Владимир Шаров и в своих художественных текстах, и в публицистике, и в науке остается (   Читать дальше...   )Жанр: ЭссеПродолжительность: 08:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E935042D1AB9C8CC09650FDC8C8AEBEB2DAB98BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310222   (547850) от 23.06.2019
-
-Эрнст Теодор Амадей Гофман | Ночные рассказы (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547850.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ночные истории» немецкого писателя, композитора и художника Э.Т.А.Гофмана (1776–1822), создавшего свою особую эстетику, издаются в полном объеме на русском языке впервые.
-Это целый мир, где причудливо смешивается реальное и ирреальное, царят призрачные, фантастические образы, а над всеми событиями и судьбами властвует неотвратимое мистическое начало. Это изображение (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF968E7DAE88CB358768E4E49357AB044B95F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310193   (547845) от 23.06.2019
-
-Виктория Холт | Обитель страсти (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая аристократка, сирота, вынужденная наемным трудом добывать средства к существованию, получает место гувернантки в богатом поместье. Огромный мрачный дом, где ей предстоит жить и работать, полон суеверий, страшных тайн и загадочных явлений. Но наибольший интерес, а подчас и наибольший ужас вызывает у гувернантки хозяин поместья - молодой вдовец, мизантроп, (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 9:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D67C8E4772664610693E75EDC68DEE94F439A
 ```
 
 https://mybot314.ru/tekegram_catalog/

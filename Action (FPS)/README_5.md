@@ -1,3 +1,29 @@
+###  Публикация: 1142147   (924906) от 10.03.2020
+
+Borderlands: The Pre-Sequel (2014) [Ru/En] (2.0.0/dlc) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Borderlands: The Pre-Sequel рассказывает о событиях, произошедших в промежуток времени между первой и второй Borderlands. Игра предлагает новый взгляд на мир, отличный от прошлой команды. Теперь герои будут злодеями, или лучше сказать – злодеи станут героями. Действия новой части развиваются на луне Пандоры, где воздух имеет очень важное значение, и его запас вынесен (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Australia, Gearbox Software, Aspyr (Mac and Linux)Жанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039CDF58D8E665D863AE2261AF2FD3A4E4446FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288107   (923145) от 28.01.2011
 
 Far Cry / Rambo 3 - Afganistan [Ru] (P/Mod) 2004/2008
@@ -6,7 +32,7 @@ Far Cry / Rambo 3 - Afganistan [Ru] (P/Mod) 2004/2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923145.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Hard Reset Redux (2016) [Ru/En] (1.1.3.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921928.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ DeadTruth: The Dark Path Ahead (2017) [En] (1.0) License PLAZA [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921794.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Quadrant (2015-2017) [Ru/Multi] (1.53) License POSTMORTEM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920156.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920124.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Arma 3 (2013) [Ru/Multi] (1.56.134627/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919893.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Prospekt (2016) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919870.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Venom. Codename: Outbreak (2001) [Ru/Multi] (1.0.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918548.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Pulang: Insanity (2020) [Multi] (1.0.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916809.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Medal Of Honor: Airborne (2007) [Ru] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916679.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916333.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915125.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ SWAT 4 / SWAT 4: The Stetchkov Syndicate (2005) [En] (1.1) License GOG [Gold Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914997.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913452.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ RICO (2019) [Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913324.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0/tr) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910964.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Last Floor (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909966.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.5) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909737.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905972.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904415.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Rise of the Triad (2013) [En] (1.0) License HI2U [DOOM Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904341.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903626.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Quake II: Quad Damage (1997) [En] (3.20/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902560.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Quake III: Gold (2001) [En] (1.32/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902558.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Quake: The Offering (1998) [En] (1.09/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902551.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Quake: The Offering (1998) [En] (1.09/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3E680CC9693EF015C5E13DAD460226A6DA757BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100233   (900753) от 03.02.2017
-
-Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack YelloSOFT
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гнилые стены заброшенной фермы на американском Юге порождают чувство страха и одиночества. Жуткая «изолированная камера» - это новая страница в жанре survival horror. Движок RE Engine раздвигает границы ужаса - вы не сможете оторваться от экрана, настолько реалистичным будет изображение. Переживите новый чудовищный кошмар.Тип издания: RepackРазработчик: CapcomЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389BD4552E9489AEB32EE855094370F6B56020B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

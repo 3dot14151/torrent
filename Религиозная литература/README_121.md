@@ -1,3 +1,111 @@
+###  Публикация: 1714016   (111813) от 07.04.2024
+
+Никея | О Вере, Христе и науке. Мысли и слова свт. Луки Войно-Ясенецкого (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святой Лука (Войно-Ясенецкий) – известный хирург, ученый, талантливый писатель и архиепископ Русской Православной Церкви. В годы гонений на Церковь не боялся открыто исповедовать свою веру – святой Лука лечил больных, читал лекции, не снимая облачения и наперсного креста. Вера и наука были для него неразрывны.
+
+В этой книге, созданной по трудам святителя Луки, собраны (   Читать дальше...   )Жанр: ПравославиеИздательство: НикеяФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96605F32607D96C8D07E1D9060B8EDC70BEB81C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714028   (111806) от 07.04.2024
+
+Лепта Книга | Святое Евангелие. Священная история в простых рассказах для семейного чтения (2014) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111806.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Евангелие» значит «Благая весть». Это самая важная книга для каждого христианина, потому что в ней Господь возвещает о Своей любви к нам, о том, что ради этой любви Бог жертвует Своего Сына Иисуса Христа для того, чтобы каждый верующий в Него не погиб, но имел Жизнь Вечную.
+
+Мы должны знать о том, как Господь Иисус Христос осуществлял наше Спасение, чтобы мы могли (   Читать дальше...   )Жанр: ПравославиеИздательство: Лепта КнигаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9845A6EE494EED5490A5C17F17F973A6F865805E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714003   (111793) от 07.04.2024
+
+Митрополит Владимир (Иким) | Врата покаяния: Слова, произнесенные в разные годы в период пения Триоди постной (2009) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодатное время Великого поста – время сугубых молитв и духовного совершенствования. Как настроить свою душу на покаянный лад, как правильно понимать смысл великопостных церковных песнопений и чтений из Священного Писания, что важно для христианина во время поста? Ответы на эти вопросы содержатся в книге митрополита Ташкентского и Среднеазиатского Владимира «Врата (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111F87DF2212C93DA4F820C8E754256D7AC91B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714025   (111788) от 07.04.2024
+
+Святитель Феофан Затворник | Избранные проповеди в дни Великого поста (2017) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проповеди свт. Феофана Затворника – истинная сокровищница святоотеческого учения о спасении. Особенно если это проповеди, произнесенные в период приуготовительных недель и самого Великого поста, а также Страстной седмицы. В сборнике с возможной полнотой представлен опыт этого великого учителя Русской Церкви, глубочайшего церковного ученого, подлинного аскета и молитвенника, (   Читать дальше...   )Жанр: ПравославиеИздательство: Лепта КнигаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38B7679133DD20E06CC2853EECF2B9F21C612A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714006   (111785) от 07.04.2024
 
 Никея | Жить – не тужить. Изречения Амвросия Оптинского (2013) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111785.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111747.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111468.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111454.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111453.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111441.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111419.jpg" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111187.jpg" />
 </div>
 
 
@@ -216,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111174.jpg" />
 </div>
 
 
@@ -242,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109864.jpg" />
 </div>
 
 
@@ -268,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109708.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108807.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108705.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108690.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108677.jpg" />
 </div>
 
 
@@ -401,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108675.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108585.jpg" />
 </div>
 
 
@@ -455,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108566.jpg" />
 </div>
 
 
@@ -481,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108561.jpg" />
 </div>
 
 
@@ -507,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108497.jpg" />
 </div>
 
 
@@ -535,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108496.jpg" />
 </div>
 
 
@@ -561,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108494.jpg" />
 </div>
 
 
@@ -572,114 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30F90D79A7119D7788B126EBFD3396C6C55C045C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727524   (108484) от 02.06.2024
-
-Благовест | О просфоре, антидоре и артосе (2017) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108484.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании рассказывается об освященных Церковью для употребления верующими в разных случаях дарах, которыми являются просфора, антидор и артос.
-
-Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0AD5D2EC7B821F1BF1317B5FC897A4E411D204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728070   (108371) от 05.06.2024
-
-Святитель Иустин (Полянский) | Исповедь кающегося грешника (1998) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108371.jpg" />
-</div>
-
-
-###  Подробнее
-
-«…Филарет, митрополит Московский, находя соотношение и соответствие между творением мира и возрождением человека, рассуждает следующим образом:
-
-I. «Каждый человек имеет свое небо и землю, дух и плоть, внутреннее и внешнее, остаток первобытного совершенства и хаос греховного растления, из которого действием благодати постепенно устраивается новая тварь (2 Кор. 5,17), (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D72FB43255C7630FB198A0FD3F4CE1F2FD69CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728064   (108369) от 05.06.2024
-
-Эдуард Качан | Время «безгрешных» (2021) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грешат все, и верующие, и неверующие. Однако разница все же есть. Верующие люди знают об этом и стараются бороться с собой и своими злыми привычками. Неверующие же искренне уверены, что грехов у них нет. Этим людям и посвящена книга, которую вы держите в руках. Что такое грех? Почему грешить плохо? Можно ли быть счастливым, делая зло? Все ли равно, как верить? Есть (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EED179BDB055B6A2B0A5DF28964B2D34DFC0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728047   (108367) от 05.06.2024
-
-Эдуард Качан | Читаем псалмы с детьми (2023) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108367.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лучше солнцу не светить, чем людям не читать Псалтирь». Так сказал однажды святитель Иоанн Златоуст. Но те православные христиане, что приступали к этой библейской Книге, знают, какое это непростое дело. Эта книга – помощь юным и взрослым христианам в понимании смысла тех псалмов, с которыми мы сталкиваемся чаще всего, – звучащих в храме во время чтения Часов и (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91D42B18309EF0DE5743A46C6D8ACF1A6ADD634
 ```
 
 https://mybot314.ru/tekegram_catalog/

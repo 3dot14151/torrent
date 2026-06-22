@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1876507   (1073523) от 
+
+Lost Lands 11: Stories About the Sorceress, the Prince and the Minotaur / Lost Lands 11: Истории про Волшебницу, Принца и Минотавра (2026) [Ru] (1.0) Unofficial [Collector's Edition / Коллекци ...
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Lost Lands. Сьюзан Шепард вновь открывает книгу историй! На этот раз вас ждут три новых персонажа и захватывающее путешествие в неизведанный уголок Затерянных земель. Этот район расположен между легендарной башней и древним городом. В переплетающихся историях герои должны решить, что для них важно: вопросы дружбы, справедливости, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC6087FF340C36D392ECF34C9333E47E54793DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876398   (1073249) от 
+
+Dark City 11: Florence / Мрачный город 11: Флоренция (2026) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективно-интригующей серии Dark City. Двух историков находят мертвыми после того, как они обнаружили утерянный проект да Винчи. Их коллега осознает, что это не случайность. Детектива Агату направляют во Флоренцию. Здесь за фасадом эпохи Возрождения скрываются тайные общества, забытая история и зловещая личность, готовая на все, чтобы не удалось раскрыть (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03BDD92242A115FF780A9C686E80774F87FAE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876126   (1073061) от 
+
+Lost Lands 11: Stories About the Sorceress, the Prince and the Minotaur (2026) [Multi] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Lost Lands. Сьюзан Шепард вновь открывает книгу историй! На этот раз вас ждут три новых персонажа и захватывающее путешествие в неизведанный уголок Затерянных земель. Этот район расположен между легендарной башней и древним городом. В переплетающихся историях герои должны решить, что для них важно: вопросы дружбы, справедливости, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83600AA91F6B264958BA8B50DD342519212875A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873646   (1071252) от 29.05.2026
 
 Hunter's Journey 2: Nightmare Hunting / Путь охотника 2: Охота на кошмары (2026) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -7,7 +85,7 @@ Hunter's Journey 2: Nightmare Hunting / Путь охотника 2: Охота 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071252.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Mystery Phantoms: Ghostly Secrets / Тайные Фантомы: Призрач�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070809.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Dark City 11: Florence (2026) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070466.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Mystery Phantoms: Ghostly Secrets (2026) [Multi] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065391.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Paranormal State: Poison Spring / Паранормальные явления: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064622.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Doctor Arcana and The Secret of Shadowspire (2024) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061400.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Mystic Diary 4: Wizard's Legacy (2026) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060661.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Grim Tales 27: The Cursed Bloodline / Страшные сказки 27: Родо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058813.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Bridge to Another World 13: Fate of the Seasons / Мост в другой ми�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058208.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Montgomery Fox 3 and the Revenge of Victor Draven / Монтгомери Фок�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057978.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Mystery of Myths 3: Whisper of Depth / Загадки мифов 3: Шепот �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057705.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Happy Holidays 6: Season of Love / Счастливые праздники 6: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056971.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Crosak (2025) [Ru/Multi] (1.04) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055840.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Midnight Girl (2023) [En] (1.6.1) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055805.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Grim Tales 27: The Cursed Bloodline (2026) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055660.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Halloween: Trick or Treat 3 / Хэллоуин: Кошелек или жизнь
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055520.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Hidden Portals 2: Chronicles of the Sunbound / Скрытые порталы 2: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055104.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Bridge to Another World 13: Fate of the Seasons (2026) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054670.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Antiques Hunt: Tales of Cobblestone Streets / Охота за антиквари
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054511.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Adventure Seekers: Lost to Sea / Искатели Приключений: Уне
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053283.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Adventure Seekers: Lost to Sea (2026) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051871.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ qomp (2021) [En] (1.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051276.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Whispered Secrets 17: Poisoner's Masquerade / Нашёптанные секре�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051062.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Whispered Secrets 17: Poisoner's Masquerade / Нашёптанные секре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF39A634415B94C1D1B722C90FB9286A24B4510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845000   (1050369) от 29.12.2025
-
-Happy Holidays 5: Christmas Never Ends / Счастливые праздники 5: Рождество никогда не заканчивается (2025) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение праздничной серии игр поиска предметов с мини-играми Happy Holidays. Вам предстоит путешествие по заснеженным городам и уютный отдых зимними вечерами. Познакомьтесь с праздничными сценами со всего мира - от сверкающих европейских рынков до теплых каминов в далеких странах. В каждом месте спрятаны сокровища, загадки и истории, которые передают радость (   Читать дальше...   )Тип издания: UnofficialРазработчик: GameOn ProductionЖанр: Я ищу, КазуальнаяЯзык субтитров: Русский, Французский, НемецкийЯзык интерфейса: Русский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03FE50642E470461F63DE130BF496FBF0DAE890E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844847   (1050175) от 28.12.2025
-
-Christmas Stories 14: By Candlelight / Рождественские истории 14: Свет свечи (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение рождественских историй Christmas Stories. Таинственный Снежный дух появляется в маленьком городке посреди холодной зимы. Похоже, Дух чем-то обеспокоен, но почему? Что случилось, что привело его к вашему дому? Запрягайте собак и отправляйтесь в путешествие по ледяной пустыне, чтобы узнать, какие тайны скрываются за появлением Духа. Свет свечи проявит тени (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6C7BC23EC1B71D0B667C68C2703D0ECF2A442B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844472   (1049926) от 26.12.2025
-
-Montgomery Fox 2 and the Case of the Missing Ballerinas / Монтгомери Фокс 2 и Дело о пропавших балеринах (2025) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение красочного поиска c мини-играми Montgomery Fox. Из театра бесследно пропали все балерины! Директор очень обеспокоен. Живы ли они ещё? Всё указывает на то, что злоумышленник - Ленивый Пёс. Но действовал ли он в одиночку, или кто-то другой дёргал за ниточки? Разобраться в этом нелёгком деле вновь сможет лишь Монтгомери Фокс, частный детектив!Тип издания: UnofficialРазработчик: Big Fish StudiosЖанр: Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79CE07A3DB657103CB4FDB3D2F382D7686C2CF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 762313   (373897) от 13.10.2020
-
-Революция в России / La revolution en Russie (1906) DVDRip [EN]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по горячим следам воссоздает события на броненосце "Потемкин", предваряя на 20 лет появление картины Эйзенштейна.Производство: Франция, Pathé FrèresЖанр: документальный, история, немое кино, короткометражкаРежиссер: Люсьен НонгеПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: ОтсутствуютПродолжительность: 00:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E471CA3C20581B76C5600C34376BD4157340B85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950271   (372588) от 25.10.2015
 
 Россия. Уроки японского (2014) DVB (серии 1-3 из 3)
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372588.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371294.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370052.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367900.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367491.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_363241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363241.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363091.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363007.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360221.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358282.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352192.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351218.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350949.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ NG: 1917: Один год - две революции / 1917: One Year, Two Revo
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349047.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346552.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342997.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342158.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341873.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338219.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337624.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332560.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327371.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326586.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324704.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319016.jpg" />
 </div>
 
 
@@ -676,6 +650,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51EFF6628BD8AFBF57B5941962AECBC781B90EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075739   (318548) от 23.11.2016
+
+Stalin's Wife / Жена Сталина. Надежда (2004) DVB (Серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портрет второй жены Иосифа Сталина Надежды Аллилуевой. Рассматривает возможность того, что ее суицид был на самом деле убийством. Фильм содержит архивные съемки и интервью с историками, учеными, и некоторыми из оставшихся в живых членов семьи Сталина.Телекомпания: США, Cinetron Productions, Myrabel StudiosЖанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональный (Слава Цукерман, Нина Керова)Продолжительность: ~00:52:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA9C7630B08726F0F5A96F252300DC264C9D8DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

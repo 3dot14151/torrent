@@ -6,7 +6,7 @@ Ginga Senpuu Braiger | Галактический Вихрь Брайгер [198
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212133.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211015.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Iwa Kakeru! Sport Climbing Girls | Держись крепче! Скалолаз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210957.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kaguya-sama wa Kokurasetai: First Kiss wa Owaranai | Kaguya-sama: Love is War - 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210590.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209953.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209767.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208147.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208104.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь сл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207237.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206231.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205873.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205782.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204642.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204615.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204584.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203940.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203877.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203870.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203866.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203865.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203859.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203554.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202097.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Gunslinger Girl: Il Teatrino / Школа убийц: Театр марионе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201826.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Gunslinger Girl / Школа убийц (ТВ-1) [2003, TV, 13] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201825.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201719.jpg" />
 </div>
 
 

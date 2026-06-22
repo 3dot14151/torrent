@@ -1,3 +1,112 @@
+###  Публикация: 964164   (283286) от 10.12.2015
+
+CrossOver 15.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283286.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrossOver - запуск любых Windows программ под Mac OS. CrossOver сфокусирован на производительности 3D графики в играх.
+Crossover, основан на коде Wine и предназначен для выполнения программ и игр, написанных для платформы Windows.
+
+CrossOver позволит вам запускать множество Windows приложений на вашем Mac. Приложения интегрируются в операционную систему: запускайте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2015Разработчик: CodeWeavers Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70488415017A67EE0B69C113326B48374C60BD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264126   (282953) от 22.11.2018
+
+TurboLayout 2.0.17 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте красивую графику с невероятной легкостью.
+Сделайте привлекательные графические объявления, изображения в блогах, брошюры, визитные карточки, календари, флаеры, купоны, инфографику, приглашения, бланки, открытки, плакаты, презентации, книги рецептов, изображения в социальных сетях и т. д.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4597E5689D5DFA48AB86237E6249536F03B7CBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264356   (281159) от 23.11.2018
+
+Canary Mail - Encrypted Email 2.15 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 22.11.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Французский, Итальянский, Финский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C476798C7566B768ECAC9A9AEF40D393DB48B885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264256   (281150) от 23.11.2018
+
+Blu-ray Player for Mac 1.1.6 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший проигрыватель для воспроизведения дисков Blu-ray, папки Blu-ray, DVD-диска / папки, файла ISO с высококачественными визуальными эффектами.
+Он также может работать в качестве мощного медиаплеера для воспроизведения HD-видео с разрешением 4K UHD / 1080p в форматах MP4, MOV, AVI, MKV и других форматах.Тип издания: macOS SoftwareРелиз состоялся: 21.11.2018Разработчик: Apeaksoft StudioПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99B3C53FC8D3819F1A45B47907B7423DC53D805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336308   (280950) от 06.11.2019
 
 Keep It 1.7.5 [Multi]
@@ -6,7 +115,7 @@ Keep It 1.7.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280950.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Cisdem PDFManagerUltimate 3.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280948.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ MailRaider 3.69 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280940.jpg" />
 </div>
 
 
@@ -84,7 +193,7 @@ RealDNS - Dynamic DNS update client 7.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280806.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ Music Converter Pro 1.5.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280804.jpg" />
 </div>
 
 
@@ -137,7 +246,7 @@ Image Viewer 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280600.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ Copied 2.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280448.jpg" />
 </div>
 
 
@@ -194,7 +303,7 @@ Photo Converter 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280434.jpg" />
 </div>
 
 
@@ -221,7 +330,7 @@ Bookends 13.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279572.jpg" />
 </div>
 
 
@@ -249,7 +358,7 @@ Barsoom 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279012.jpg" />
 </div>
 
 
@@ -276,7 +385,7 @@ Microsoft Office for Mac 2016 v15.28 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278060.jpg" />
 </div>
 
 
@@ -303,7 +412,7 @@ DxO PhotoLab Elite 1.2.3 (82) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277767.jpg" />
 </div>
 
 
@@ -331,7 +440,7 @@ Boinx mimoLive 4.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277763.jpg" />
 </div>
 
 
@@ -358,7 +467,7 @@ Wondershare Filmora 8.7.6 + Effect Pack [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277587.jpg" />
 </div>
 
 
@@ -384,7 +493,7 @@ Lingon X 5.2.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277286.jpg" />
 </div>
 
 
@@ -412,7 +521,7 @@ Paste 2.1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277259.jpg" />
 </div>
 
 
@@ -440,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277257.jpg" />
 </div>
 
 
@@ -467,7 +576,7 @@ Infographics for Pages 3.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277252.jpg" />
 </div>
 
 
@@ -494,7 +603,7 @@ PDFelement Express 1.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276582.jpg" />
 </div>
 
 
@@ -520,7 +629,7 @@ WiFi Explorer 2.5.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276406.jpg" />
 </div>
 
 
@@ -548,7 +657,7 @@ Tipard PDF Converter for Mac 3.1.30 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276326.jpg" />
 </div>
 
 
@@ -575,7 +684,7 @@ Infinity Dashboard 1.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276313.jpg" />
 </div>
 
 
@@ -586,117 +695,6 @@ Infinity Dashboard позволяет вам отслеживать что уг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D171CC45B4B570DD764CC4E8D120EB89CF25654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850697   (275850) от 16.12.2014
-
-Adobe Photoshop Lightroom 5.7.1 [Multi+Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Photoshop Lightroom предназначено для профессиональных фотографов и любителей и позволяющее быстро импортировать и обрабатывать изображения, а также управлять библиотекой фотографий.
-
-В пятой версии Lightroom компания разработала новые функции, такие как Smart Preview и Advanced Healing Brush, которые расширяют возможности полнофункциональной версии Photoshop (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 15 декабря 2014Разработчик: Adobe Systems IncПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Немецкий, Французский, Итальянский и др. (Русский - русификатор)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8291ED3979AFA70DBFD6696A325260C932FADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188060   (275747) от 01.12.2017
-
-Movavi Video Editor 5 Plus 5.1.0 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этой программе есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов.Тип издания: macOS SoftwareРелиз состоялся: 21.11.2107Разработчик: MovaviПоддерживаемая ОС: Mac OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B963223F9B9A69B042D8A56B9C2F061496911F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083305   (274973) от 15.12.2016
-
-MarkdownD 3.7.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274973.jpg" />
-</div>
-
-
-###  Подробнее
-
-MarkdownD - полнофункциональный редактор Markdown для OS X.
-Удобный редактор Markdown, что позволяет вставлять теги форматирования в свои документы с помощью легко доступных кнопок.
-
-MarkdownD предлагает возможность форматирования текстовых документов с помощью Markdown тегов без необходимости ручного ввода соответствующих тегов или беспокоиться о правильном синтаксисе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2016Разработчик: Romanysoft LABПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BECB39B0E6BDD23FA7D6E911FBEDFD79C78900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337348   (274895) от 10.11.2019
-
-VideoboxPro 1.5.4 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274895.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoboxPro позволяет Вам быстро и легко закачивать Flash-видео с большинства популярных видеосайтов в интернете. Так же программа позволяет конвертировать загруженные видео-ролики в родной формат Quicktime, тем самым позволяя просматривать их на Вашем Маке, iPod, iPhone или iTunes.
-
-Кроме QuickTime, VideoBox также поддерживает и другие форматы видео, в частности, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tasty appsПоддерживаемая ОС: macOS 10.9.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CDB1D82F3F7C153D1F336BAA29F595A76CDF38
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,32 @@
 https://t.me/izofen
+###  Публикация: 1876896   (1073538) от 17.06.2026
+
+Whonix LXQt 18.1.4.2 (образ для VirtualBox) [x64]
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whonix — это дистрибутив Linux на основе Debian, который разработан для обеспечения повышенной безопасности и конфиденциальности. Высокая анонимность достигается средствами VirtualBox и Tor. Whonix снижает угрозу от распространенных векторов атак, сохраняя при этом удобство использования.
+
+Сильно перенастроенная база Debian запускается на нескольких виртуальных машинах, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309AED29743478BFE71C8BE651555CCCC9E51B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872081   (1070220) от 20.05.2026
 
 Red Hat Enterprise Linux 10.2 [x86_64, aarch64] 4xDVD 1xWSL
@@ -7,7 +35,7 @@ Red Hat Enterprise Linux 10.2 [x86_64, aarch64] 4xDVD 1xWSL
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070220.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Ubuntu 26.04 Resolute Raccoon LTS [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066950.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Zorin OS 18.1 Pro & Pro Lite 18.1 [X86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066206.jpg" />
 </div>
 
 
@@ -92,7 +120,7 @@ Zorin OS 18.1 Pro [X86, amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065867.jpg" />
 </div>
 
 
@@ -120,7 +148,7 @@ Uncom 2.5 LTS [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060789.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ GreenLinux 22.3.0 Kursk [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060753.jpg" />
 </div>
 
 
@@ -174,7 +202,7 @@ Kali Linux 2025.4 [amd64, arm64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058107.jpg" />
 </div>
 
 
@@ -200,7 +228,7 @@ ALT Linux 10.2.1 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055098.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ Astra Linux Special Edition 1.6.16 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053828.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ EN-OS 1.0 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051008.jpg" />
 </div>
 
 
@@ -282,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049589.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032951.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032942.jpg" />
 </div>
 
 
@@ -360,7 +388,7 @@ Debian Edu - Skolelinux 10.8.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032919.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ WifiSlax 3.3 [Аудит безопасности, хакинг] [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031529.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Mageia 8 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028870.jpg" />
 </div>
 
 
@@ -438,7 +466,7 @@ Mageia 8 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028816.jpg" />
 </div>
 
 
@@ -464,7 +492,7 @@ Mathlinux 2011 alpha (Дистрибутив для математиков, фи
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024795.jpg" />
 </div>
 
 
@@ -493,7 +521,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024003.jpg" />
 </div>
 
 
@@ -519,7 +547,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023757.jpg" />
 </div>
 
 
@@ -545,7 +573,7 @@ Parrot OS Security 4.11 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020750.jpg" />
 </div>
 
 
@@ -574,7 +602,7 @@ Calculate Linux 21 [x86_64] 8xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017485.jpg" />
 </div>
 
 
@@ -600,7 +628,7 @@ Debian Edu - Skolelinux 10.9.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012356.jpg" />
 </div>
 
 
@@ -626,7 +654,7 @@ antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011032.jpg" />
 </div>
 
 
@@ -653,7 +681,7 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010103.jpg" />
 </div>
 
 
@@ -666,34 +694,6 @@ Debian GNU/Linux 10.10.0 + nonfree Buster [i386] 4xDVD+1xCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C27059ED0631A5AC2191553CADD275C2F7F27071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478661   (1010102) от 20.06.2021
-
-Debian GNU/Linux 10.10.0 + nonfree Buster [amd64] 4xDVD+1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано десятое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 81 обновление с устранением проблем со стабильностью и 55 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 10.10 выделяется реализация поддержки механизма (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD172DDB3362684C8C1CF61B62671544BB79A217
 ```
 
 https://mybot314.ru/tekegram_catalog/

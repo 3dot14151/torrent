@@ -1,3 +1,55 @@
+###  Публикация: 1238723   (524158) от 12.08.2018
+
+This Is the Police 2 (2018) [Ru/Multi] (1.0.6.0) Repack Other s
+
+>>След.
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трактуйте законы как вам вздумается в This Is the Police 2, продолжении знаменитой нуар-драмы This Is the Police! Руководите департаментом шерифа, управляйте копами, расследуйте, допрашивайте, заключайте под стражу. Принимайте сложные решения – и постарайтесь сами не угодить за решетку! – в этом коктейле из приключенческой игры, стратегии и пошаговых тактических (   Читать дальше...   )Тип издания: RepackРазработчик: Weappy StudioЖанр: Adventure, Strategy, SimulationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1670F7F67BA64EB4D84DC2475D9A1533B2686AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927968   (523115) от 15.08.2015
+
+Attrition Nuclear Domination (2015) [En] (5.0.2.721524) License PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Особенности игры - коллекция ресурсов, ядерного оружия и устройств его подавления. Игрок может выбрать, из десяти доступных наций. Действия игры разворачивается приблизительно в XXV веке, где роботы-андроиды взяли власть  на некоторых частях мира. Некоторые районы стали непригодными для жилья из-за Третьей мировой войны и Четвёртая мировая только начинается...Тип издания: LicenseРазработчик: Micro Strategic Game DesignsЖанр: Action, Casual, Indie, Simulation, StrategyЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDFB3B406EB1904B08079B1EEA30D7562C61BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238707   (517822) от 19.08.2018
 
 This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) License CODEX
@@ -6,7 +58,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517822.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515814.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515761.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Ship Simulator Extremes [Eng] (L) 2010
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511648.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502920.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496173.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Streamer Life Simulator (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488968.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3406/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480578.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Mini Maker: Make A Thing (2022) [Multi] (1.0) License TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478332.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) License CODEX [Digital Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475444.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.00.3598/1/dlc) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475427.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Digital Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473662.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.953.7721/dlc) Repack Other s [Gold Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471125.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Giant Machines 2017 (2016) [Ru/Multi] (1.1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470098.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Cry of War (2018) [Ru/Multi] (1.1/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466648.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Lossless Repack/1.0.u.1) 2012 | R.G. Reve
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459659.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Tony Hawk’s American Wasteland [Eng] (L) 2006
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455620.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (1.0.0.51) License SKIDROW [Pocket
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454302.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (1.0.0.51) Repack Other s [Pocket 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454293.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Tony Hawk's Pro Skater HD (2012) [Ru/En] (1.0.8788.0) Repack Audioslave
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452894.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452412.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452195.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Telling Lies (2019) [Ru/Multi] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452190.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Cold Waters (2017) [En] (1.07b) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452051.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Cold Waters (2017) [En] (1.07b) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEE5510D22F1194A5712EFCB362DEC40BDD0DBD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053376   (449905) от 05.09.2017
-
-Farm Expert 2017 (2016) [En] (1.124) Repack R.G. Механики
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Farm Expert 2017 - это комплексный симулятор фермерского хозяйства с расширенной физикой почв и реалистичной моделью управления машинами. Играть придется в огромном открытом мире, ремонтировать технику в мастерской, выращивать животных, возделывать поля, собирать урожай в садах и ухаживать за растениями в теплицах.Тип издания: RepackРазработчик: SildenЖанр: Инди, СимуляторыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7678687381A0A704358930B39520BB05E5709C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061452   (447832) от 10.10.2016
-
-Thrills & Chills - Roller Coasters (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thrills & Chills - Roller Coasters — увлекательная игра, в которой Вам предложат прокатиться на американских горках!Тип издания: RepackРазработчик: VRischЖанр: SimulatorЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F144594168CC69C473F8FEFCEEF8127A87A3F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

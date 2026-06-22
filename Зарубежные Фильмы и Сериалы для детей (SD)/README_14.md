@@ -1,3 +1,55 @@
+###  Публикация: 1415479   (357811) от 20.10.2020
+
+Пришельцы на чердаке / Aliens in the Attic (2009) BDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько подростков приезжают на каникулы в загородный дом и, к своему ужасу и удивлению, обнаруживают на верхнем этаже группу инопланетян. Ребята, защищая свой дом, вступают с ними в бой.Производство: США, Канада / Twentieth Century Fox, New Regency Productions, Josephson EntertainmentЖанр: фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Джон ШульцАктеры: Картер Дженкинс, Остин Роберт Батлер, Эшли Боетчер, Эшли Тисдэйл, Генри Янг, Ригэн Янг, Дорис Робертс, Роберт Хоффман, Кевин Нилон, Джиллиан ВигманПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C13608F960B6B04E93840E689649D382990127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530249   (353954) от 04.10.2019
+
+Как исправить папу / Jak dostat tatinka do polepsovny (1978) DVD5
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фильма «Как вырвать зуб у кита». Вашек с родителями едет на каникулы в деревню к дедушке - отцу Любоша. Мама и папа постоянно ссорятся из-за того, что дух альпиниста не даёт отважному спасателю покоя. А тут еще приходится доказывать дедушке, что Вашек не просто сын чужой женщины, которого надо усыновить, а его родной внук...Производство: Чехословакия / Czechoslovak TelevisionЖанр: Комедия, семейныйРежиссер: Мария ПоледняковаАктеры: Яна Прейссова, Томаш Холы, Франтишек Немец, Властимил Харапес, Яна Дитетова, Бланка Валеска, Габриэла Вранова, Петр Костка, Стелла ЗазворковаПеревод: Дублированный (советский дубляж)Субтитры: Русские, чешские (вшитые отключаемые)Продолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CFE04CBD4F39D1D82C1A745E21F4BFC73F2762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513388   (353807) от 04.10.2019
 
 Как вырвать зуб у кита / Jak vytrhnout velrybe stolicku (1977) DVD5
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353807.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348815.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347718.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345689.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342418.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340247.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340008.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339577.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338545.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336484.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335238.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333773.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330877.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_330688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330688.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328983.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328810.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328049.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327133.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326040.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324930.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324484.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324412.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323813.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316301.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7F395AFAF680EDB4AC5EF5BC2022AC0B68555D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421918   (315213) от 06.11.2020
-
-Чудо-детки: Непутевые волшебники / Die Wolf-Gang (2020) BDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315213.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета картины история 13-летнего мальчика вампира Влада, который попадает в одну из самых престижных школ волшебства мира. Городок Краильсфельден и школа оказываются пристанищем самых разнообразных сказочных существ. С появлением Влада и его отца там теперь есть и вампиры. Всё выглядит чудесно, но у маленького Влада есть одна большая проблема. Вампир совершенно (   Читать дальше...   )Производство: Германия / Rat Pack Filmproduktion, Deutsche Columbia Pictures Film ProduktionЖанр: Фэнтези, приключения, семейныйРежиссер: Тим ТрагезерАктеры: Кристиан Беркель, Арсений Бультман, Буц Бузе, Ширли Феринг, Арвед Фризе, Соня Герхардт, Николь Хеестерс, Грета Хуберт, Рик Каваниан, Торстен КавурПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3606038E9FD78712704A748A83B39ABCDC16860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329160   (313505) от 20.10.2019
-
-Перстень княгини Анны / Pierscien krolowej Anny (1971) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое мальчишек-фантазеров, увлеченные романом Сенкевича «Крестоносцы» во время летних каникул решили обследовать развалины старого замка. О приключениях, произошедших с ними в замке тевтонских рыцарей, в усадьбе Мазовецкого князя, и рассказывает фильм.Производство: ПольшаЖанр: фантастика, семейный, историяРежиссер: Мария КаневскаАктеры: Ежи Маталовский, Кшиштоф Строиньский, Вьеслава Квасневска, Ежи Блок, Ежи Брашка и др.Перевод: Дублированный (СССР)Субтитры: отсутствуютПродолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA46D2EF8A20D82FB8C8B15B43018EF44DD1A40
 ```
 
 https://mybot314.ru/tekegram_catalog/

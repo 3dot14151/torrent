@@ -1,3 +1,55 @@
+###  Публикация: 1381263   (704886) от 12.08.2020
+
+Discovery. Взрывая историю / Blowing up History (2019) HDTV [H.264/1080p-LQ] [50 fps] (сезон 4, серии 1-13 из 13)
+
+>>След.
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как построили известнейшие здания древности? Последние археологические открытия, рентгеновские снимки и данные лидаров помогут разгадать секреты древних цивилизаций и их невероятных сооружений. Загадочные линии Наски были высечены в пустыне Атакама больше тысячи лет назад — как и с какой целью их создали? Почему было невозможно сбежать из Алькатраса? Какие тайны (   Читать дальше...   )Производство: США, Windfall Films, Discovery ChannelЖанр: Документальный, наука, история, археологияРежиссер: Мартин Горст, Джеймс ФранклинПеревод: Двуголосый закадровый, профессиональный (Мобильное Телевидение)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84066DDBD26AC0C076C5C69757549C69C39CBD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397950   (703134) от 13.08.2020
+
+Discovery. Легендарные места / Legendary Locations (2019) HDTVRip (сезон 2, серии 1-4 из 13) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одолевает жажда приключений? Присоединяйтесь к Джошу Гейтсу, который исследует легенды и истории, связанные с самыми разными местами по всему миру. Он отправляется в проклятую крепость в индийских горах Аравали, обнаруживает каменные лабиринты (включая древний город в каньоне иорданской пустыни) и путешествует по опасной Дороге смерти в Боливии в компании других (   Читать дальше...   )Производство: США, Ping Pong Productions, Discovery Channel HDЖанр: Документальный, путешествии, историяПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE8CB0BA2E31B7AE5C7D4F9EE6B310F92370F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023982   (700080) от 17.06.2016
 
 Discovery: Поездка налегке / Free Ride (2016) HDTV [H.264/1080p-LQ] (серии 1-6 из 6)
@@ -6,7 +58,7 @@ Discovery: Поездка налегке / Free Ride (2016) HDTV [H.264/1080p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700080.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700069.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery: Смертельный улов / Deadliest Catch (2017) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698405.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Discovery: Смертельное собеседование / Deadliest Job Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698117.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Discovery. Техногеника. Центр подготовки космон�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696530.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Discovery. Техногеника. Реактор ВВЭР - 1200. Самый м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696278.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696095.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Discovery. Техногеника. Самосвал БЕЛАЗ 75710 Больш�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694299.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690666.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690657.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Discovery. World's TOP 5. Super Trains / Пятёрка лучших. Супер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690547.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Discovery. World's TOP 5. Super Planes / Пятёрка лучших. Супер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688500.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Discovery: Встреча с инопланетянами / Alien Encounters (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688217.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Discovery. Тело человека: Грани возможного / Human Bo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686895.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Discovery: Техногеника. БТА. Телескоп-гигант (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682815.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Discovery: Техногеника. Рекордные локомотивы (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682809.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Discovery: Техногеника. Луноходы и марсоходы (2017)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682808.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681799.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680247.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680140.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680077.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Discovery: Спортивные арены Чемпионата Европы 201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679627.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Discovery: Золотой путь Паркера Шнабеля / Gold rush Par
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674221.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Discovery: Смертельный улов / Deadliest Catch (2010) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667249.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Discovery: Смертельный улов / Deadliest Catch (2010) TVRip (Се�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9A9C83493117C562D139EA747D30F2A1F7CE8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339773   (664445) от 22.05.2011
-
-Discovery:  Через Червоточину [Сквозь кроличью нору с Морганом Фрименом] / Through the Wormhole (2010) HDTVRip [H.264/720p] (сезон 1 серии 1-8 из 8)
-
->>След.
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_664445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал «Через Червоточину» с ведущим — Морганом Фримэном исследует самые глубокие тайны существования — вопросы, которые всегда озадачивали человечество. Из чего мы сделаны? Что было перед началом всего? Действительно ли мы одиноки во вселенной? Есть ли создатель? Эти вопросы были обдуманы самыми изящными умами человеческого рода. Теперь, наука приблизилась к сути, (   Читать дальше...   )Телекомпания: DiscoveryЖанр: документальный, научно-популярныйУчастники: Морган Фриман, Пол Дейвис, Дэвид Сперджил, Уилл Райт, Гаррет Лиси, Леонард Сусскинд, Шон Кэрролл, Ричард Готт, СергейПеревод: Одноголосый профессиональныйСубтитры: русские (только в 1-ой части 8-ой серии)Продолжительность: 8
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460396C4EFBCCDF019FEF7E5D741D007E1989264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514232   (658922) от 23.06.2012
-
-Discovery. Апокалипсис 2012: Откровения / Maya 2012 Prophecy (2007) [H.264/720p-LQ] HDTVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658922.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 декабря 2012 г - последний день календаря Майя, начатого 5000 лет назад. Многие считают, что наступает конец света. А что думали по этому поводу Майя и что это означает для нас?Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B73E3A1B5C595D0B307AE403C6A6C19D096672
 ```
 
 https://mybot314.ru/tekegram_catalog/

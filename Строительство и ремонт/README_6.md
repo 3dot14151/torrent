@@ -1,3 +1,81 @@
+###  Публикация: 560554   (406935) от 14.10.2012
+
+Ю.Умельцев | Как класть ламинат, паркет и стелить линолеум [2012] [Pdf]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406935.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы найдете готовые ответы на все вопросы, какие только могут возникнуть у мастера при работе с ламинатом, линолеумом и паркетными напольными покрытиями.Жанр: Ремонт, «сделай сам», домоводствоФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F759183E77CF4D8408086C453FBC6C74211E31DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560556   (406922) от 14.10.2012
+
+Ю.Умельцев | Отделка стен плиткой, обоями, декоративной штукатуркой [2012] [Pdf]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406922.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы найдете готовые ответы на все вопросы, какие только могут возникнуть у мастера при работе с керамической плиткой, бумажными, виниловыми, текстильными, деревянными обоями, а также декоративной штукатуркой.Жанр: Домоводство, ремонт, «сделай сам»Формат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29764141D1DE893590D8F51B2E9A1D97D2E15F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564623   (401722) от 24.10.2012
+
+А.М.Шепелев | Кладка печей своими руками. 2-е изд. [1987] [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги в популярной форме рассказывает о материалах, используемых для печных работ, приготовления растворов, об инструментах и приспособлениях. Приводит различные вилы печей и дает порядовку их кладки, что позволяет сложить печи своими руками. Уделяет внимание размещению отопительных печей в помещении, их наружной отделке. Во втором издании книги (первое вышло в 1983 г.) даны конструкции новых печей, расширено понятие о приготовлении глиняных растворов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A92C51F49F1AF372E5E08D1517BD16BB190AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567346   (396698) от 29.10.2012
 
 К.Я. Буслаев | Как самому сложить бытовую печь [1963] [PDF]
@@ -6,7 +84,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396698.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394796.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394684.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394629.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_393446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393446.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392626.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389557.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389049.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388953.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387211.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387207.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386428.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382588.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379010.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376735.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376712.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374760.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374637.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374532.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372053.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372051.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367316.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365063.jpg" />
 </div>
 
 
@@ -603,87 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60DFF69AF83CA61B6CD9EE52A8078A70A0A88AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416887   (364590) от 17.10.2020
-
-Виталий Злобин | Дом, который построишь ты. Как создать современный проект загородного дома (2020) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прежде чем вложить в строительство загородного дома крупную сумму, необходимо четко понимать, каким должен быть дом, в котором будет комфортно жить всей семье. Эта книга поможет вам последовательно изучить основные этапы проектирования загородного дома: от появления идеи до внедрения ее в строительный процесс.
-
-Она включает в себя основы архитектурного проектирования (   Читать дальше...   )Жанр: Отдельные виды строительства, Проектирование, РуководстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AC689D10957C396C4353F524BB8A4DE4CA0A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407346   (362915) от 06.11.2011
-
-Евгений Симонов | Стелем пол сами. Ламинат, линолеум, плитка [2009] [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы собрались стелить новые полы в квартире? При этом не хотите тратить лишние деньги и нанимать специалистов, однако не имеете достаточных знаний для того, чтобы сделать работу самостоятельно? В таком случае эта книга станет для вас настоящей находкой! В ней вы не только прочитаете о том, как правильно выбрать и уложить ламинат, паркет, линолеум, ковролин и напольную плитку.2009Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AD1A3586F6B9974E05715419E2C90A29138971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177349   (362569) от 25.10.2017
-
-О.К. Костко | Строительство частного дома с расчетом необходимых материалов (2007) [DJVU]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как гласит поговорка, каждый мужчина должен посадить дерево, построить дом и родить сына. Первое - самое простое, последнее не всегда зависит от самого мужчины, но построить дом может каждый. Не верите? Напрасно. Существуют люди, для которых строительство - это профессия, способ заработать на жизнь.
-Эта книга не для них. Вернее, не совсем для них. Конечно, информация (   Читать дальше...   )Жанр: СтроительствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C735636F7BE09FD23D365053927ABFE9F09BBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739134.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DearMob iPhone Manager 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739108.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WinX HD Video Converter for Mac 6.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739105.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AnyMP4 Android Data Recovery for Mac 2.0.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739074.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ AnyMP4 Mac Video Converter Ultimate 9.2.8 [Rus/Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739042.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Dato 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738837.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mirror for Hitachi TV 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738836.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ LaunchControl 1.52.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738835.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Dropzone 4 Pro v4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738834.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ AnyMP4 iOS Toolkit for Mac 9.0.66 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738829.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ iCompta 6 v6.0.53 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738828.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cisdem Video Converter 7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738827.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ EdgeView 3 v3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738826.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mirror for Hisense TV 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738822.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Image Exif Editor 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738794.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ PhotoSweeper X 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738790.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Caato Time Tracker Pro 1.1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738774.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ AYBO 1.21.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738518.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Omni Recover 3 v3.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738517.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ GoodTask 6.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738512.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Money Pro - Personal Finance 2.7.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738507.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ SyncBird Pro 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738505.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Valentina Studio Pro 11.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738503.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Viper FTP 6.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738501.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Omni Toolbox 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738500.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Battery Indicator for Mac 2.12.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738499.jpg" />
 </div>
 
 

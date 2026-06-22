@@ -1,3 +1,133 @@
+###  Публикация: 1165122   (435017) от 12.09.2017
+
+Stand Up (2017.08.20) WEB-DL [H.264/720p-LQ] (дайджест, выпуск 4)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7964157907A53302E61763EFC81131E921167783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165123   (435015) от 12.09.2017
+
+Stand Up (2017.08.27) WEB-DL [H.264/720p-LQ] (дайджест, выпуск 5)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891B735A5D9E01FF10806CF4140BF8EF0A843A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165120   (435004) от 12.09.2017
+
+Stand Up (2017.08.06) WEB-DL [H.264/720p-LQ] (дайджест, выпуск 2)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2BC024765E2EAE428781179D5DA97B8DF8FFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165125   (434865) от 12.09.2017
+
+Stand Up (2017.09.03) WEB-DL [H.264/720p-LQ] (дайджест, выпуск 6)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6BA32D628A38330FE38C5AE40B151A5F9D923F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165126   (434651) от 12.09.2017
+
+Stand Up (2017.09.10) WEB-DL [H.264/720p-LQ] (дайджест, выпуск 7)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F54C89BBECE9EB1FA27FB5DE667EB5672048DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165865   (430467) от 14.09.2017
 
 Студия Союз (2017.09.14) SATRip (выпуск 6: Дайджест)
@@ -6,7 +136,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430467.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Stand Up. Сезон 3. Выпуск №5 (2015.10.11) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429169.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429055.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428345.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427883.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424307.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Stand Up (2017.09.17) SATRip (сезон 7, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423746.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422601.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422420.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422285.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421786.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Stand Up (2017.09.17) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421594.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Stand Up (27.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 5)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420220.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420111.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420079.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Stand Up (2018.09.30) SATRip (сезон 6, выпуск 7)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419956.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418800.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417800.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Stand Up (2018.09.30) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 7)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417768.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415919.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415113.jpg" />
 </div>
 
 
@@ -537,139 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF58FF4A03BFB8561454C5D76240C73ECE31584C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167779   (414865) от 21.09.2017
-
-Студия Союз (2017.09.21) SATRip (выпуск 7)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:09Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A23144FB49ABDEF5672396BC3213DF5313465A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412946   (413459) от 01.10.2020
-
-Это было смешно (2020) WEBRip (Сентябрь, выпуски 1-16)
-
->>Юмор (ТВ)
->>нет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413459.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ЭТО БЫЛО СМЕШНО» - цикл документальных фильмов о юморе и сатире на советском телевидении. Александр Иванов, Аркадий Райкин, Роман Карцев и Виктор Ильченко, Михаил Жванецкий, Аркадий Арканов, Михаил Задорнов, Евгений Петросян, Клара Новикова и другие. Центральная тема каждого выпуска - судьба сатирика, история одного эстрадного номера, история создания телевизионного (   Читать дальше...   )Производство: Россия, "Москва медиа"Жанр: Документальный, биография, юморЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: серии x ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8596E72B8E6489BE0780BD8893182AAD4AFDA21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948159   (413349) от 19.10.2015
-
-Stand Up. Сезон 3. Выпуск №6 (2015.10.18) WEB-DL [H.264/720p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинПродолжительность: ~ 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE6109A6194098C47E9C85B92CB7996BDEF622A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523980   (412932) от 03.10.2018
-
-Роман Карцев. Бенефис (1999) DVD5
-
->>Юмор (ТВ)
->>Сатирики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется моноспектакль в 2 - х отделениях:
-1. Моя Одесса
-2. Хорошо забытое старое
-(   Читать дальше...   )Производство: РоссияЖанр: Сатира, ЮморРежиссер: Роман Виктюк, Евгений ЛанскойПродолжительность: 01:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3ADD936BB7491155496EA1858E6053DEC08E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167966   (412592) от 22.09.2017
-
-Студия Союз (2017.09.21) WEB-DL [H.264/720p-LQ] (выпуск 7)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBF0E1A2AACC82ED9C80DAB7ED3C02917CBDDFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 947248   (420256) от 16.10.2015
+
+Noiseless CK (Pro) 1.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое простое и продвинутое программное обеспечение шумоподавления. Получите яркие, естественно выглядящие изображения без шума, сохраняя детали и цвет Ваших фотографий.
+Noiseless CK (Pro) вдыхает новую жизнь в каждую фотографию! Делая фотографии при слабом освещении, каждый смартфон, компактная камера или DSLR создают "шум", маленькие цветные или легкие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 октября 2015Разработчик: MacPhun LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73059E8E361795E3287A0416BBE4DBDA89C54197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251115   (420197) от 30.09.2018
+
+CodeRunner 3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420197.jpg" />
+</div>
+
+
+###  Подробнее
+
+CodeRunner - универсальный редактор для программиста
+CodeRunner - отличный редактор для программиста с возможностью тестирования и запуска приложений написанных на любом из 22 языков программирования: AppleScript, C, C++, С#, Objective-C/Objective-C++, Java, Javascript (Node.js), jQuery, LaTeX, Lua, Perl, PHP, Python/Python 3, Ruby, Shell script или Swif.Тип издания: macOS SoftwareРелиз состоялся: 25.09. 2018Разработчик: Nikolai KrillПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52E8AF68D5C12D25F247F599645B131BB081140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251175   (420193) от 30.09.2018
 
 ProPresenter 6 v6.3.6 [En]
@@ -6,7 +60,7 @@ ProPresenter 6 v6.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420193.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Snapheal CK (Pro) 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420174.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ SMART Utility 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420173.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420132.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ ExpanDrive 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420092.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ AnyTrans for iOS 7.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420042.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ Polarr Photo Editor Pro 5.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420029.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ HyperDock 1.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420026.jpg" />
 </div>
 
 
@@ -227,7 +281,7 @@ Adobe Acrobat Pro DC 20.012.20048 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420016.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ Adobe InDesign 2020 15.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420013.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ Apple iWork: Keynote 6.6, Numbers 3.6 & Pages 5.6 (upd 15.10.2015) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419999.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419865.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Paragon NTFS for Mac 14.0.483 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419622.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ Camtasia 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419590.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ SSH Config Editor 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419520.jpg" />
 </div>
 
 
@@ -415,7 +469,7 @@ iThoughtsX 4.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419453.jpg" />
 </div>
 
 
@@ -441,7 +495,7 @@ Yep 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419382.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ Vitamin-R 2 v2.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419339.jpg" />
 </div>
 
 
@@ -497,7 +551,7 @@ VueScan Pro 9.5.59 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419079.jpg" />
 </div>
 
 
@@ -523,7 +577,7 @@ Cisdem ContactsMate 5 v5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418464.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ Multitouch 1.18.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418463.jpg" />
 </div>
 
 
@@ -577,7 +631,7 @@ MediaHuman Youtube Downloader 3.9.9.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418461.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ IconJar 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418366.jpg" />
 </div>
 
 
@@ -635,7 +689,7 @@ Memory Clean 3 v1.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418204.jpg" />
 </div>
 
 
@@ -648,60 +702,6 @@ Memory Clean - приложение для оптимизации памяти �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4407A1592DFB419716CD3778EF967E77D6709EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412528   (418052) от 29.09.2020
-
-QuarkXPress 2020 16.1 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощная издательская система QuarkXPress обладает широким набором инструментов для обработки текста, создания web-страниц, управления графическими элементами и цветом, а также имеет интуитивный интерфейс. В настоящее время QuarkXPress очень широко используется в типографиях, журнальных, газетных и книжных издательствах, маркетинговых и рекламных агентствах, дизайнерских (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Quark Software Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FD1C2E40132FFF87F2654723F0FF973F0CB04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412437   (418050) от 29.09.2020
-
-Elmedia Player Pro 7.14 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A260FE212F2FF2638A384A52AA4B69E7ED46C1AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

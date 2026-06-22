@@ -6,7 +6,7 @@ Apple Service Diagnostics (2005-2013) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_188.jpg" />
 </div>
 
 

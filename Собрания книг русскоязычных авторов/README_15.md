@@ -1,3 +1,55 @@
+###  Публикация: 1405400   (483102) от 30.08.2020
+
+Александр Короленко | Сборник произведений [4 книги] (2014-2015) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие книги «Друзья контролёра» описывается в недалёком будущем. Поначалу события происходят в Зоне отчуждения ЧАЭС, но потом переносятся в схожий с нашим, параллельный мир. Произведение рассказывает о том, как главный герой Алексей Воропаев, по прозвищу Мясо, скрывающийся в Зоне от своих прежних бизнес – компаньонов, попадает в бандитское сообщество, а затем (   Читать дальше...   )Жанр: Альтернативная история, Попаданство, Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C1AC42A6E854A21FC09AF03FDEDF90042E9827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674201   (481119) от 18.09.2015
+
+Татьяна Устинова | Собрание сочинений [Обновляемая] [51 книга] (2002-2015) [FB2, RTF, MOBI]
+
+>>След.
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Татьяна Витальевна Устинова (род. 21 апреля 1968 года, Москва) — российская писательница, работающая в детективном жанре. Родилась в семье инженеров, училась в английской спецшколе. Окончила факультет аэромеханики и летательной техники Московского физико-технического института. Получив диплом, стала работать на телевидении. Позже была приглашена в пресс-службу Президента (   Читать дальше...   )Жанр: ДетективФормат: FB2, RTF, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1DDDC8D36A6396C16C97A182779F4B0468D287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405757   (481094) от 31.08.2020
 
 Тайрен (Tairen) | Сборник произведений [9 книг] (2018-2020) [FB2]
@@ -6,7 +58,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481094.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479665.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478826.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478668.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470592.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470359.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469478.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468890.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468864.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468005.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467538.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465109.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463988.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462497.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462193.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461905.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461847.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459038.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457152.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456699.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454775.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454656.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449280.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447227.jpg" />
 </div>
 
 
@@ -636,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1395C93726A025F092732F355EB6753DB0BB6F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405857   (447037) от 16.09.2020
-
-Денис Агеев | Сборник произведений [6 книг] (2013-2020) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447037.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе конец второго тысячелетия. У всех куча проблем. И у меня тоже. На работе не лады, девушка бросила, денег нет. И вдобавок напало существо из параллельного мира, едва не убив. Но последнее событие в корне изменило мою жизнь. Теперь у меня появился шанс стать тем, кто полновесно отвечает не только за себя, но и за весь мир.Жанр: Фэнтези, Боевая фантастика, Эпическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC83DB750FB7595A311DD4EA50F76447204F8754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409561   (442549) от 18.09.2020
-
-Василий Панфилов | Сборник произведений [28 книг] (2014-2020) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш человек на службе Российской Империи. Заброшенный в XVIII век, наш современник становится не только лучшим фехтовальщиком русской армии, но и принцем Севера. И впереди у «попаданца» – война с извечным врагом России, хищной Турцией.Жанр: Альтернативная история, Фантастика, ПопаданствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3E9B86622BD9884E52B68F90161933F59708FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

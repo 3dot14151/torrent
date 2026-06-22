@@ -1,3 +1,107 @@
+###  Публикация: 1584227   (212042) от 18.10.2022
+
+О. Корытко | Религии мира. История духовных поисков человечества (2022) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Религия – это попытки человека «достучаться до небес». Человечество искало Бога на протяжении всей своей истории, и эти поиски были небесплодны: пришествие Христа в мир произошло в ответ на духовную жажду. Чтобы не оказаться чуждым сокровищу духовной культуры и не быть выброшенным на обочину духовной жизни, важно уметь разбираться в основных религиозных идеях, истории (   Читать дальше...   )Жанр: РелигиоведениеЯзык: РусскийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941A660939CF223A782F20318F04A294F0E698ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638410   (211961) от 08.06.2023
+
+Новая мысль | Доказательства существования жизни после смерти (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какими бы удивительными ни показались читателю рассуждения и невероятными факты, изложенные в данной книге, мы надеемся, что именно их соединение в единое целое приведет всякого непредубежденного человека к внутреннему сознанию существования духовного мира, поможет ощутить реальность бессмертия души и задуматься о земной жизни, смыслом которой является переход души (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E6521B76B7408DFDD26D7AAB20DDE37CFEC292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638970   (211752) от 11.06.2023
+
+Святитель Филарет Московский | Катехизис (2013) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211752.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пространный христианский катехизис Православной Кафолической Восточной Церкви», составленный святителем Филаретом Московским, был рассмотрен и одобрен Святейшим Синодом и неоднократно переиздавался в качестве учебного пособия для преподавания в училищах и для употребления всех православных христиан». Святитель Филарет в своем «Катехизисе» в доступной форме разъясняет (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C649FC847BD323AAAD6408BF51BDF70F1649520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638969   (211706) от 11.06.2023
+
+Архимандрит Кирилл (Павлов) | О поминовении усопших, памяти смертной и общем воскресении (2018) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211706.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны проповеди недавно почившего всенародно любимого старца архимандрита Кирилла (Павлова) на тему, которая не может не интересовать любого человека – о поминовении наших дорогих усопших, о том, что со смертью наше общение с ними не прекращается, о необходимости за них молиться и творить милостыню. Но книга не только об этом, в ней батюшка говорит с нами (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27F91425BD27E02DA89AA5198D4650CAB8F07FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638964   (211696) от 11.06.2023
 
 Новая мысль | Невидимый мир ангелов (2006) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211696.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210955.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209799.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209752.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208624.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208595.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207422.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207418.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207405.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207385.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207258.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205562.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205558.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205549.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205445.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205444.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205432.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205239.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204950.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204949.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204939.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204657.jpg" />
 </div>
 
 
@@ -578,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:591B1E344F2DC2612A907A7F07E2ADD8FECCF104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655089   (204649) от 24.08.2023
-
-Авва Дорофей | Душеполезные поучения и послания с присовокуплением вопросов его и ответов на оные Варсануфия Великого и Иоанна Пророка (2015) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авва Дорофей в своих творениях очень доступно и просто говорит о том, что необходимо для каждого человека: о хранении совести, о том, как переносить искушения, как проходить путь Божий разумно и внимательно, о созидании душевного дома добродетелей. Читая эту книгу, мы можем от самого святого аввы Дорофея получить ответы на множество вопросов духовной жизни, с которыми (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA3FB19A873A2262F1D61BFE4E5E0A9692C132D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655092   (204632) от 24.08.2023
-
-Благовест | Акафисты (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204632.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны акафисты святым угодникам Божиим, которые согласно традициям Православной Церкви имеют от Бога особую благодать помогать верующим в житейских нуждах и болезнях.Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A624552A93F6CF84616EEEC2CEF4C99BD921532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655863   (203975) от 28.08.2023
-
-Благовест | Святые отцы об Иисусовой молитве (2020) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный сборник посвящен учению святых отцов Церкви Христовой об Иисусовой молитве, ее великой значимости и благотворном воздействии на душу христианина. В то же время в книге большое место уделено правилам и условиям творения Иисусовой молитвы во избежание духовно опасных для молящегося человека последствий, на которые указывают и о которых рассказывают богоносные (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EFDF17C560EBB3DBA1E152DA2CE2E533DBC657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655879   (203777) от 28.08.2023
-
-Благовест | Лечение души постом. По творениям преподобного Макария Великого (2020) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа представляет собой сборник изречений и советов преподобного Макария Великого, касающихся сути и значения христианского поста. В своих творениях преподобный Макарий учит нас тому, какие должны быть цели при совершении христианами постного подвига, на каких основах он должен совершаться и к каким духовным результатам, плодам приводить. Те советы, поучения, (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4BFDF48B388B4D693D36497E5F98C5E6F9329A
 ```
 
 https://mybot314.ru/tekegram_catalog/

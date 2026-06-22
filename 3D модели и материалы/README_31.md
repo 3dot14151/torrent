@@ -1,3 +1,58 @@
+###  Публикация: 1599107   (160053) от 22.12.2022
+
+3D print - Gol D Roger [STL, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гол Д. Роджер, более известный как Золотой Роджер, был легендарным пиратом, который, будучи капитаном пиратов Роджера, носил титул Короля пиратов и владел легендарным сокровищем, известным как One Piece.
+В раздаче предоставлен по частям для более простого отлива и дальнейшего соединения.Формат: STL, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF491FD95C468A4B3F4E8EC52043237F2B5FCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599102   (160048) от 22.12.2022
+
+3D print - HellBat Helmet [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хеллбат - это броня, созданная Лигой Справедливости и разработанная и созданная Бэтменом, чтобы помочь ему сражаться в битвах, превышающих его уровень силы.
+Оригинальный размер 155.7х199.1 h:260.1mm
+Так же поставляется в "разрезанном" варианте для возможности отливки на маленького размера столах.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9427EE3346CA3401E722A3B87D43634A53ADBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599377   (159749) от 23.12.2022
 
 3D print - Star-Lord Chibi [STL]
@@ -6,7 +61,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159749.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159744.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159736.jpg" />
 </div>
 
 
@@ -92,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159571.jpg" />
 </div>
 
 
@@ -121,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159559.jpg" />
 </div>
 
 
@@ -150,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159556.jpg" />
 </div>
 
 
@@ -176,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159555.jpg" />
 </div>
 
 
@@ -205,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159545.jpg" />
 </div>
 
 
@@ -232,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159540.jpg" />
 </div>
 
 
@@ -260,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159269.jpg" />
 </div>
 
 
@@ -288,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159249.jpg" />
 </div>
 
 
@@ -316,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159242.jpg" />
 </div>
 
 
@@ -343,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159230.jpg" />
 </div>
 
 
@@ -371,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159224.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158904.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158883.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157170.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157134.jpg" />
 </div>
 
 
@@ -512,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156923.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156812.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156708.jpg" />
 </div>
 
 
@@ -593,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156701.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156654.jpg" />
 </div>
 
 
@@ -646,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155121.jpg" />
 </div>
 
 
@@ -660,62 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BEBBF2B7505288FB299A18B587568544DDA2D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270693   (155089) от 20.12.2018
-
-3D материалы - VRscans - fabric (part 2) [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155089.jpg" />
-</div>
-
-
-###  Подробнее
-
-VRscans - это новая запатентованная технология создания 3d материалов от ChaosGroup.
-В данный релиз вошли 41 из 128 материалов текстиля.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2593D0DA3B86B04B784057B8FBCDB8907FB7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600624   (155053) от 28.12.2022
-
-3D print - Printed Obsession - Pikachu 2 - Embarrised [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пикачу считается одним из самых узнаваемых и популярных покемонов, так как является официальным талисманом франшизы, и в последние годы он стал иконой японской поп-культуры
-
-Модель предоставлена в собранном виде
-Размер: 138.7x138.0 h:183.3mmФормат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9259550EF3D6FBD25242B69A7C6F1D4BB326C45E
 ```
 
 https://mybot314.ru/tekegram_catalog/

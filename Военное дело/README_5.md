@@ -1,3 +1,29 @@
+###  Публикация: 1219162   (715510) от 13.04.2018
+
+Арсенал России (2010) SATRip (4 серии из 4)
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал о советском и российском стрелковом оружии. В каждом выпуске рассказана история создания того или иного образца оружия и приведены любопытные факты. «Арсенал России» – это интересная и познавательная программа, проиллюстрированная кадрами исторической хроники и рассказами экспертов.Производство: Россия, ООО «Феникс-Тверь»Жанр: Документальный, оружие, историяРежиссер: Сергей КравчукПродолжительность: 4 х ~ 00:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0571745867DD84BF95021FDEF8B8C8E11CDD7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286172   (714722) от 01.03.2019
 
 Непобедимая и легендарная (2018) WEB-DL [H.264/720p-LQ] (8 серий из 8)
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714722.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Discovery Channel. Военный архив: под грифом «Топ-10» 
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714712.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713982.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713703.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713582.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712359.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712358.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712355.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711726.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711472.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710820.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710598.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708952.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707018.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706621.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703693.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703580.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702559.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701169.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700452.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698514.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698428.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680817.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661106.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660417.jpg" />
 </div>
 
 
@@ -645,34 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E26101BC97998EC043DC37EB57B685B3B9F7557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513976   (660058) от 22.06.2012
-
-Война от первого лица. Афганистан (2011) TVRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660058.jpg" />
-</div>
-
-
-###  Подробнее
-
-К Дню памяти воинов-интернационалистов пресс-центр Госпогранкомитета подготовил документальный фильм «Война от первого лица».
-Фильм рассказывает о задачах, которые решали подразделения пограничных войск на территории Афганистана.
-Главными и единственными рассказчиками являются непосредственные участники тех событий. Пограничная деятельность в Афганистане была долгое время под запретом и умышленно уводилась от внимания общественности. Сегодня в открытом формате прозвучала информация о том, что подразделения пограничных войск первыми вошли в Афганистан и последними его покинули…Жанр: ДокументальныйПродолжительность: 00:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F1E312FA8D357C3549F516BD3F84E7497943AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

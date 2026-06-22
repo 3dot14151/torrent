@@ -1,3 +1,29 @@
+###  Публикация: 942648   (453102) от 01.10.2015
+
+BBC Horizon: В какой Вселенной мы находимся? / Which Universe are We in? (2015) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе мир, где динозавры до сих пор ходят по Земле. Мир, в котором немцы выиграли Вторую мировую войну, и вы президент Соединенных Штатов. Представьте себе мир, где больше неприменимы законы физики и где бесконечные копии вас играют каждую возможную сюжетную линию вашей жизни. Это звучит, как сценарий голливудского фильма, но это далеко не так. Это мультивселенная. (   Читать дальше...   )Телекомпания: BBC Science Production LondonЖанр: Документальный,  научно-познавательныйРежиссер: Naomi AustinПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5417BF223C2B1FE0576B99E422BA26455DD8CDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551465   (452350) от 24.09.2012
 
 BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
@@ -6,7 +32,7 @@ BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452350.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Каковы размеры Вселенной? / How Big is the Universe? 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448199.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Самые опасные дороги мира / World's Most Dangerous Ro
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446937.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Двадцатка самых опасных наркотиков /BBC: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446832.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444486.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443989.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC: Ада Лавлейс: первая леди программировани
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441597.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. Тайные агенты Елизаветы I / Elizabeth I's Secret Agent
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439625.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC. История Христианства / A History of Christianity (2009) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434606.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC: История хирургии.  Кровавое начало [5 из 5] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433148.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ BBC Horizon: Человек на Марсе. Экспедиция на крас�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431279.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429345.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ BBC: Супервулкан / BBC: Supervolcano (2005) HDTV [1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428639.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427047.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_426662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426662.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424823.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ BBC. Дикая природа: шпион среди антилоп гну / Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422583.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421036.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ BBC: Horizon. Как победить хакеров / Defeating the Hackers (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413920.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408530.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ BBC: Джек Потрошитель: следствие возобновляе�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407891.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ BBC: Тайная жизнь близнецов / The Secret Life of Twins (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403054.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ BBC: Уникальные способности животных / Animal Super
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401225.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393831.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ BBC: Коронация (Коронация с ее Величеством Ко�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387600.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ BBC: Коронация (Коронация с ее Величеством Ко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D52987DF58D1D7BF3B4DD183A60FDA2DB3105D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414298   (386973) от 07.10.2020
-
-BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB (Серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взросление – это самая удивительная трансформация. Вот мы милые и симпатичные пучки радости, и все нас любят. И вот нас уже распирает от эмоций так, что мы покрываемся пятнами, и все нас ненавидят. Ну, нам так кажется. Ученые только сейчас обнаруживают массу удивительных вещей, которые происходят с нами по мере того, как растут наши тела и формируются наши личности… (   Читать дальше...   )Производство: Великобритания, Oxford Scientific Films, BBC WorldwideЖанр: Документальный, научно-популярныйРежиссер: Люк УайлсПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: НетПродолжительность: 2х ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081AA7C85B0D909B06B63112D341CF0BBD797A99
 ```
 
 https://mybot314.ru/tekegram_catalog/

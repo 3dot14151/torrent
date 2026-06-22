@@ -1,3 +1,148 @@
+###  Публикация: 1761631   (36595) от 21.11.2024
+
+Игорь Некрасов - Одноклассники (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Одноклассники [00:04:36]
+02 - Небеса [00:04:30]
+03 - Не спорь со мной [00:03:43]
+04 - Весна пришла [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C4B298BBC01EEF59D188362B5F3D0A87E1B21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761740   (36511) от 22.11.2024
+
+Клава Кока - Депрессаунд (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Убегай
+2. Ты грустишь
+3. Пьяный вокзал
+4. Стерва(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2208532D6B20828C10B02A43CDE8D0C64F89D6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761741   (36490) от 22.11.2024
+
+ЕГОР КРИД - Меньше чем три (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36490.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выше облаков
+2. Время
+3. <3 / Забудь меня
+4. Pusto.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0E32A59238993A094A7AA62E6BBEE4F5D15751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763041   (35775) от 29.11.2024
+
+VA - Союз 19 Альбомов (1998-2007) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Верка Сердючка - Dancing Lasha Tumbai
+02. Фабрика - Зажигают огоньки
+03. Сергей Трофимов - Город Сочи
+04. DJ Clon & Ангел-А - А ты меня любишь ага!(   Читать дальше...   )Жанр: PopПродолжительность: 24:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631E2D89283AC8029B869F0444739BE34BBC2AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763070   (35734) от 29.11.2024
+
+Тимур Родригез - Настроение Родригез (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35734.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Никому никогда
+3. Брюс Всемогущий
+4. Чао, бамбино!(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD0F0D7F2D857E604EE7D19AA45EA805F7BA375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763066   (35719) от 29.11.2024
 
 VA - трибьют арбенина (2024) [MP3|320 Kbps] <Pop>
@@ -6,7 +151,7 @@ VA - трибьют арбенина (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35719.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ GAYAZOV$ BROTHER$ - Ночная жизнь (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34998.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34502.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33561.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Союз 19 Альбомов-Полные версии (1995-2003) 38CD [MP
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32138.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ REFLEX - Больше чем жизнь (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29113.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29111.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27616.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Любэ 35. Всё опять начинается. Трибьют (час
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26915.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ NЮ - Когда мы были львами (2025) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26876.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24778.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Glukoza - HARMONY (2025) [MP3|320 Kbps] <Pop, Electronic>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21783.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21755.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21739.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19855.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19439.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19162.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18203.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17796.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Любэ 35. Всё опять начинается. Трибьют (час
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17277.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17243.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DCC1291BAD10E8887C7BB3C40F43885CFD3ABDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798659   (17240) от 23.05.2025
-
-Леонид Агутин - Н.В.Л. (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пойдём домой
-2. Н.В.Л. (Из сериала "Разочарованные")
-3. Золото
-4. Добрый вечер(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F893D28DC9252AE46740A15D58DE32E2FA4DEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799248   (16855) от 26.05.2025
-
-Леонид Агутин - Н.В.Л. (2025) Deluxe Version [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:00:50]
-02 - Пойдём домой (Intro) [00:00:35]
-03 - Пойдём домой [00:03:28]
-04 - Н.В.Л. (Intro) [00:00:27](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E4FF68068156D6D777139044078CB3624C2ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800801   (15485) от 06.06.2025
-
-ANNA ASTI - Высшие силы (2025) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Преданный бывший (Intro)
-3. Преданный бывший
-4. Залечи (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF39526C72150A449CD768E79C643B6A3F3ABC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801452   (14929) от 11.06.2025
-
-Катерина Голицына - 19 Albums (1998-2020) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1998 - Екатерина Яковлева - Уходя-уходи
-2002 - Нефраерский романс
-2003 - Любовь заочная(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 19 CD, 21:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4A17CE559B382DA8A6E1ECD2A3843721B3FFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801855   (14768) от 13.06.2025
-
-VA - Потанцуй со мной (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дуэт «Не уходи» - Я буду ждать [00:03:37]
-02 - Виктор Королёв - Ты очень красива [00:04:00]
-03 - Владимир Ждамиров - А ты прости меня [00:04:13]
-04 - Илья Яббаров - Я смотрю в твои глаза [00:03:31](   Читать дальше...   )Жанр: PopПродолжительность: 01:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1332CF7616CBFD8D066413076AD38A06B617ACAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

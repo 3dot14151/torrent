@@ -6,7 +6,7 @@ Niccolo PAGANINI - Complete Chamber Music (2007) [MP3|320 кб/с] <Classical, I
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878581.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brahms - The Piano Concertos - Daniel Barenboim, Staatskapelle Berlin and Gustav
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878423.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Telemann - A Fagotto Solo (2010) [FLAC|Lossless|tracks] <Classical, Chamber Musi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877420.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rudolf Innig - Nowowiejski - Complete Organ Symphonies (1998) 3CD [FLAC|Lossless
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877412.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ivan Moravec - Plays Chopin (2001) [FLAC|Lossless|tracks] <Classical, Keyboard>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877199.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Favourite Classics (1999) S&V #12/1999 [FLAC|Lossless|tracks + .cue] <Baroq
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877193.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Золотое Барокко (2001) S&V #02/2001 [FLAC|Lossless|tracks + .
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876944.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Tina Guo - The Journey (2011) [FLAC|Lossless|tracks + .cue] <Classical Contempor
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876401.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kalman - Die Csardasfurstin (Сильва) (1968) 1994 Hungaroton Classic Kft [A
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876352.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Korngold, Rosza, Waxman, Heifetz - Concertos - Tema Con Variazioni - "Carmen" Fa
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875340.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Epoca Barocca - Christoph Schaffrath - 2 альбома (2006, 2010) [FLAC|Lossl
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873844.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hermitage String Trio - Mozart - Divertimento in E flat major, KV 563 - Preludes
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873770.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Marin Marais - Jordi Savall - Le Concert Des Nations – Alcione, Suite Des Airs
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873566.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Beethoven - The Complete Symphonies (2003) 5CD [FLAC|Lossless|image + .cue] <Cla
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873562.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sarah Brightman - New Collection (2008) [FLAC|Lossless|image + .cue] <Classical 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873427.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872277.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ J.S.Bach - Motets - Bach Collegium Japan • Masaaki Susuki (2009) [APE|Lossless
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871873.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Paul Mauriat - Emotion (1993) [FLAC|Lossless|image + .cue] <Classical Music, Ins
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871758.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Favourite Classics (1999) S&V #12 (1999) [MP3|320 кб/с] <Romantic, Class
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871477.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Chopin - Etudes opus 10 et opus 25 - Samson Francois (1966) [FLAC 2.0|96/24|Loss
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871467.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The London Orion Orchestra - Pink Floyd's Wish You Were Here Symphonic (2016) [M
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871463.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871339.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870489.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Joseph Lin, Benjamin Loeb - Korngold - Music for Violin and Piano (2003) [FLAC|L
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870362.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Rudolf Kempe - Kempe Conducts Tchaikovsky, Debussy, Janacek (2002) [FLAC|Lossles
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870303.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Mozart - Symphonien №. 25, 29, 35 «Haffner» (1972) Reissue, 2008, Decca [FLA
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870271.jpg" />
 </div>
 
 

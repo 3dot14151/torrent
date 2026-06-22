@@ -6,7 +6,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341794.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ixion Saga: Dimension Transfer | ИКСИОН САГА: Пространстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341432.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lost Song | Потерянная песня [2018, ONA, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341074.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место за п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Guskou Budori no Denki (2012) / The Life of Guskou Budori / Житие Гуск�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_340429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340429.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339848.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339716.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339360.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338971.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338885.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Kimagure Orange Road | Capricious Orange Road | Капризы Апельсин�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338866.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kimagure Orange Road: Ano Hi ni Kaeritai | Capricious Orange Road: I Want to Ret
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338865.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12 серий] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338856.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Tenjoubito to Akutobito Saigo no Tatakai | Мунто (фильм) | После�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338745.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338744.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338737.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Nekopara: Koneko no Hi no Yakusoku | Кошачий рай: Обещания к�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336317.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335187.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ikoku Meiro no Croisee The Animation | Croisee in a Foreign Labyrinth: The Anima
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334446.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Gekijouban Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334099.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333217.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Ява�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332272.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332263.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Yawara! Special: Zutto Kimi no Koto ga... | Yawara! Atlanta Special | Явара
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332259.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Saiki Kusuo no Sainan S1+S2 | The Disastrous Life of Saiki K. | Ох уж это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332021.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329838.jpg" />
 </div>
 
 

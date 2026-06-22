@@ -6,7 +6,7 @@
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952253.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - 100 Greatest Covers (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950820.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Salsoul Orchestra - 8 Albums (1975-1982) Reissue [MP3|320 Kbps] <Funk-Soul, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950536.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dido - Girl Who Got Away (Deluxe Edition) (2013) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950519.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Francesca Belmonte - Anima (2015) Deluxe Edition [MP3|320 кб/с] <Alternative 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949808.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Great Songs (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949492.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Танцевальная зима 2017 (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947232.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Love to Love Compilation (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946574.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Beach House - Teen Dream (2010) [MP3|320 кб/с] <Dream Pop, Indie Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945545.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adele - When We Were Young (2016) Single [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945221.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rumer - The Magic of Sarah Joyce (2017) [MP3|320 Kbps] <Female vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944558.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Charlie Puth - Nine Track Mind (2016) Deluxe [MP3|320 Kbps] <Pop, R&B, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944398.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Zayn - Pillowtalk (2016) Single [MP3|320 кб/с] <Pop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943784.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Joyce Jonathan - Une Place Pour Moi (2016) [MP3|320 кб/с] <French Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942120.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Radio 538 Hitzone 76 (2016) [MP3|320 кб/с] <Pop, Dance, Top40>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941965.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - NRJ Winter Hits (2017) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939863.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Monica Naranjo - 4.0 (2014) [MP3|~245 кб/с (V0)] <Latin, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935548.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ronan Keating - Time of My Life (2016) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935543.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Corona X - And Me U (2000) [MP3|256 Kbps] <Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935321.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - GRAMMY 2015 Nominees Album (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933046.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Linda Jo Rizzo - Fly Me High (The Album) (2015) [MP3|320 Kbps] <Italo-Disco, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930619.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Animal Collective - Painting With (2016) [MP3|320 кб/с] <Psychedelic pop, Ind
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927805.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - I Love German Pop (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925742.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Brazilian Lifestyle (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922800.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ The Spotnicks - The Premium Best Collection (2006) Compilation, 2CD [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922689.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918996.jpg" />
 </div>
 
 

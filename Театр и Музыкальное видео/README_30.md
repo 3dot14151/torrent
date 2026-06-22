@@ -1,3 +1,172 @@
+###  Публикация: 1102003   (892181) от 08.02.2017
+
+Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая группа Accept выпустила свой новый концертный альбом "Restless And Live" 13 января на лейбле Nuclear Blast. Релиз включает полное выступление команды на фестивале "Bang Your Head!!!", состоявшееся в 2015 году в Германии.1. Stampede
+2. Stalingrad
+3. London Leatherboys
+4. Restless and Wild(   Читать дальше...   )Производство: Германия, Nuclear BlastЖанр: Rock, Heavy MetalПеревод: ОтсутствуетПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5797DB9F4BA2F610A465B244AD601CB9EFD9E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638908   (892066) от 04.04.2013
+
+Lana Del Rey - The Video Collection 2011-2012 [1080] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Born To Die (2011), 00:04:46
+2. Video Games (2011), 00:04:45
+3. Blue Jeans (2012), 00:04:20
+4. Ride (2012), 00:10:08
+5. National Anthem (2012), 00:07:48
+6. Summertime Sadness (2012), 00:04:39
+7. Blue Velvet (2012), 00:02:13Жанр: Indie Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8BDF7D4636A6E25A90617CA45E0402F4BAD9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493903   (891997) от 05.09.2021
+
+Квартирник НТВ у Маргулиса. 40 лет Ленинградскому рок-клубу (04.09.2021) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный 7 марта 1981 года, Ленинградский рок-клуб был первым и главным в СССР местом, где власти официально позволяли молодежи исполнять «идеологически чуждую» рок-музыку. Спустя 40 лет на исторической сцене рок-клуба в компании Евгения Маргулиса свои первые песни и то, как в этих стенах зарождалась история, вспомнили: Борис Гребенщиков и «Аквариум», Константин (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F589E50543517F55BA8733B5641E2978F94CDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371307   (891528) от 30.03.2020
+
+Сборник клипов - Music 80s от ALEXnROCK часть 2 (2020) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891528.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Music 80s 2 — Intro
+01. Tina Turner — Simply The Best
+02. Sandra — Maria Magdalena
+03. Ray Parker JNR — Ghostbusters(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D8B79DC1A88EA8F8F4F43A7FC76A3005556907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371285   (890090) от 31.03.2020
+
+Vermicide Violence - Coronaviscerated (feat. Jared Dines) COVID-19 (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vermicide Violence - Coronaviscerated (feat. Jared Dines) (Chodezilla Records) COVID-19 2020
+CDA Vermicide Violence - The Praxis of ProphylaxisПроизводство: Chodezilla RecordsЖанр: Death CoreПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A71A28FAE2320E8A8251047F4126F2F5AF317D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371231   (889948) от 31.03.2020
+
+Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) (2020) WEBRip [H.264/2160p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889948.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 Юлия Чичерина - Воздушная гавань (OST Позывной Донецк) [2160p]Жанр: Альтернативный РокПродолжительность: 00:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786DBAB82AE68873EDA60CF87772AF2BC50C5A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370708   (889900) от 31.03.2020
 
 Пневмослон - Катастрофический пипец (COVID-19) (2020) WEBRip [H.264/1080p-LQ] <Post-Punk>
@@ -6,7 +175,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889900.jpg" />
 </div>
 
 
@@ -33,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889533.jpg" />
 </div>
 
 
@@ -59,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889519.jpg" />
 </div>
 
 
@@ -85,7 +254,7 @@ Timeflies - I Choose U (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889506.jpg" />
 </div>
 
 
@@ -111,7 +280,7 @@ Metallica - The Night Before Concert at San Francisco’s AT&T Park (2016) WEBRi
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889400.jpg" />
 </div>
 
 
@@ -140,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889395.jpg" />
 </div>
 
 
@@ -169,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889092.jpg" />
 </div>
 
 
@@ -202,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888957.jpg" />
 </div>
 
 
@@ -228,7 +397,7 @@ Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888941.jpg" />
 </div>
 
 
@@ -254,7 +423,7 @@ Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887230.jpg" />
 </div>
 
 
@@ -280,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887110.jpg" />
 </div>
 
 
@@ -306,7 +475,7 @@ Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industri
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886991.jpg" />
 </div>
 
 
@@ -334,7 +503,7 @@ Malevolence (UK) 7 Music Videos (2015-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886980.jpg" />
 </div>
 
 
@@ -363,7 +532,7 @@ NikitA - Игра (2013) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886814.jpg" />
 </div>
 
 
@@ -389,7 +558,7 @@ NikitA - Avocado (2012) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_886643.jpg" />
 </div>
 
 
@@ -415,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886392.jpg" />
 </div>
 
 
@@ -441,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885733.jpg" />
 </div>
 
 
@@ -470,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885421.jpg" />
 </div>
 
 
@@ -496,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885256.jpg" />
 </div>
 
 
@@ -522,7 +691,7 @@ Echoes - Barefoot To The Moon – An Acoustic Tribute To Pink Floyd (2015) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885242.jpg" />
 </div>
 
 
@@ -536,170 +705,6 @@ Echoes - Barefoot To The Moon – An Acoustic Tribute To Pink Floyd (2015) Blu-r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B736B084E0FFEB46D52B30B16FBB7A17BAF78808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103600   (885232) от 12.02.2017
-
-Стас Михайлов. Концерт в Олимпийском (12.02.2017) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера на Первом! Грандиозный концерт Стаса Михайлова. Поклонники Стаса Михайлова услышат свои самые любимые песни, а также станут свидетелями нескольких премьер. Новых песен артист готовится исполнить немало: так, например, обязательно прозвучит свежая композиция "Ты все", которую самые преданные поклонники Стаса уже слышали на его концертах, а все остальные (   Читать дальше...   )Телекомпания: Первый каналЖанр: КонцертПродолжительность: 01:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1822578835EA468AD98B009D9DCC18DB4A21CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239786   (885111) от 19.02.2011
-
-Елена Ваенга - Желаю солнца (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная программа "Желаю солнца" Елены Ваенги была записана 29 сентября 2009 г. в концертном зале "МИР" на Цветном бульваре г.Москва
-Живой звук, живые эмоции и энергетика... Концерты Ваенги сильно отличаются от камерных аудио-записей и тв-выступлений, здесь она не стесняется своих чувств, слёз и искренности, не "стесняется" своего (   Читать дальше...   )01. Вступление
-02. Аргентина
-03. Оловянное сердце
-04. Калина(   Читать дальше...   )Жанр: Концерт, шансонПродолжительность: 02:50:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995213   (884290) от 11.03.2016
-
-History of Rock (2016) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884290.jpg" />
-</div>
-
-
-###  Подробнее
-
-A History of Rock за 15 минут. 348 рок звёзд, 84 гитариста, 64 песни, 44 ударника, в одном клипе!Производство: 00:49:25Жанр: RockРежиссер: Ithaca AudioПродолжительность: 00:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43FC0F1B877CAC8CB25B3951883AFCF24DB5708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495130   (884230) от 10.09.2021
-
-The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014) BDRip [H.264/720p] [hand made colored]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884230.jpg" />
-</div>
-
-
-###  Подробнее
-
-1964 год. Начало Битломании. "БИТЛЗ" дебютируют на американской сцене в шоу Эда Салливана. Режиссер Ричард Лестер делает первый фильм о группе, сняв его в жанре музыкальной комедии. "Вечер трудного дня" рассказывает фэнам группы об одном дне в жизни ВЕЛИКОЙ ЧЕТВЕРКИ...
-A Hard Day's Night - первый битловский фильм, снятый Ричардом Лестером, появился (   Читать дальше...   )Производство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: мюзикл, комедияРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Одноголосый профессиональныйЯзык озвучки: Английский, РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6E6E9B0D50F417600111F151B28EB3A094E03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995422   (884207) от 11.03.2016
-
-Coldplay: Призрачные истории / Coldplay: Ghost Stories (2014) HDTV [H.264/1080i] [En]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghost Stories (в пер. с англ. Призрачные истории) — шестой студийный альбом британской группы Coldplay, вышедший 16 мая 2014 года в Европе (на лейбле Parlophone) и 19 мая в Северной Америке (на лейбле Atlantic Records). Альбом записывался в период с 2013 по 2014 год на домашних студиях в Лондоне и Лос-Анджелесе. В продюсировании альбома принимали участие Авичи, Тимбалэнд, (   Читать дальше...   )1.	«Always in My Head»	Coldplay, Пол Эпворт, Дэниел Грин, Рик Симпсон	3:36
-2.	«Magic»	Coldplay, Эпворт, Грин, Симпсон	4:45
-3.	«Ink»	Coldplay, Эпворт, Грин, Симпсон	3:48
-4.	«True Love»	Coldplay, Эпворт, Грин, Симпсон	4:05(   Читать дальше...   )Производство: Великобритания, JA DigitalЖанр: КонцертРежиссер: Пол ДагдейлАктеры: Гай Берриман, Тодд Блад, Джон Баклэнд, Уилл Чемпион, Chris MartinПеревод: ОтсутствуетПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C25C94CBECEE1DB4C0A41B788AD5421B49E642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372669   (883628) от 04.04.2020
-
-Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Heavy Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Testament - Children Of The Next Level (2160) PCMПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8265FC9DCCB4E9CA444D1A61FDABD9EC1CFF02CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

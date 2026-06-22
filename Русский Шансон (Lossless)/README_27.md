@@ -1,3 +1,61 @@
+###  Публикация: 1773800   (71676) от 17.01.2025
+
+Владимир Асмолов - Вторая заповедь (2025) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Двенадцать песен [00:03:39]
+02. Вторая заповедь [00:02:47]
+03. Случайное создание [00:02:53]
+04. Выбираю небо [00:03:26](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62445794230D624FBAB3AF10D15B90551ABD1F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773888   (71632) от 18.01.2025
+
+Сергей Трофимов - Аллея шансона vol.2 (2011) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		Остров По Имени "Счастье"
+02		Не Рассказывай
+03		Московская
+04		Все Не Важно(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245517C6E633255ABC3DC171213F6A9BFCB5771D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773887   (71626) от 18.01.2025
 
 Сергей Трофимов - Аллея шансона vol.1 (2011) [FLAC|Lossless|image + .cue] <Chanson>
@@ -6,7 +64,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71626.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70831.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Шансон премьера 2025 февраль (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70472.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Самые новые песни 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69726.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Шансон для мужчин (2025) [FLAC|Lossless|WEB-DL|tracks] <Ша
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69704.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Шансон о любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69289.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Русский шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69270.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Авторский сборник Шансона otKOSTETa (2025) [FLAC|Los
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69260.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Плакала весна (Красивые весенние песни) (2
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68190.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Новые хитовые песни 2025, Часть 4 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68180.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Шансон премьера 2025 апрель (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67406.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66563.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Новые хитовые песни 2025, Часть 5 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66312.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Русская 30-ка хитов 14 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66307.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VA - Душевный шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66304.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66279.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Навстречу любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ch
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66171.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66165.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Шансон премьера 2025 июнь (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65893.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Новые хитовые песни 2025, Часть 6 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65884.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Курортный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65881.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Самые новые песни о любви 9 (2025) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65871.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65371.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65083.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7384C5C156B8FEE2D249347BABB71756513C0E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808296   (65003) от 24.07.2025
-
-Сергей Одинцов - Золотые хиты (2025) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зацепила [00:03:10]
-02. Ромашки [00:03:54]
-03. Хочу [00:04:33]
-04. Не плачь [00:04:45](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E8AA800279934E0F763C37BA55A36ECEC842A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808437   (64969) от 25.07.2025
-
-Ильдар Южный - Золотой фонд Гостелерадио СССР (Шансон ретро) (2012) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спят курганы тёмные [00:03:25]
-02. Каким меня ты ядом напоила [00:03:53]
-03. У Чёрного моря [00:03:02]
-04. Осенняя роса [00:04:44](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82021747CFCFCE81E103917D1585740465291511
 ```
 
 https://mybot314.ru/tekegram_catalog/

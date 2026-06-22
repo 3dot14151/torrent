@@ -1,3 +1,32 @@
+###  Публикация: 1029060   (684047) от 25.06.2016
+
+Blink-182 - California (2016) [MP3|320 кб/с] <Pop Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cynical
+02. Bored To Death
+03. She's Out Of Her Mind
+04. Los Angeles(   Читать дальше...   )Жанр: Pop Punk, Alternative RockПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:516044E12C3CFC4B6D4F0BED2748F55F5B34EE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135121   (682905) от 18.05.2017
 
 Gideon - 4 альбома (2011-2017) [MP3|320 Kbps] <Metalcore, Hardcore>
@@ -6,7 +35,7 @@ Gideon - 4 альбома (2011-2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682905.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Soulsavers (feat. Dave Gahan) - The Light The Dead See (2012) [MP3|320 кб/с]<
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682875.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Papa Roach - Crooked Teet (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682402.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Papa Roach - Crooked Teeth (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682397.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Shellshock - Born from Decline (2012) [MP3|256 кб/с]<E-Metal (Industrial Meta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677477.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ No One Is Innocent - Frankenstein (2018) [MP3|320 kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677287.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Shinedown - Attention Attention (2018) [MP3|320 Kbps] <Alternative Metal, Hard R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677124.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Cowboy Junkies - Long Journey Home (Live) (2006) [MP3|320 кб/с]<Alternative, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_677051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677051.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ Dead Native - Keep It Strange (2013) [MP3|320 кб/с]<Psychedelic/Heavy Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676494.jpg" />
 </div>
 
 
@@ -285,7 +314,7 @@ Zebrahead - Brain Invaders (2019) Japanese Edition [MP3|320 kbps] <Punk Rock, Po
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676313.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ The Smashing Pumpkins - Oceania (2012) [MP3|320 кб/с (WEBRip)]<Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674885.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Arctic Monkeys - Tranquility Base Hotel & Casino (2018) Vinyl Rip [MP3|320 Kbps]
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669531.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Wolves At The Gate - Eulogies (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669248.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Smash Hit Combo - L33T (Deluxe Edition) (2017) [MP3|320 Kbps] <Progressive Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666713.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ The The  / TheThe (Matt Johnson) - 13 альбомов (1981-2002) [MP3|160-320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663139.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ Arctic Monkeys - Tranquility Base Hotel & Casino (2018) [MP3|320 Kbps] CD <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662703.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ Millencolin - True Brew (2015) [MP3|320 кб/с]<Skate Punk / Pop Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662358.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Garbage - Best Of Garbage (3CD) [BOOTLEG] (2007) [MP3|320 кб/с]<Alternative R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660316.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ Anti-Flag - PUNK-PRAYER “Virgin Mary, Redeem Us Of Putin” (Pussy Riot Cover)
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660311.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Florence + The Machine - How Big, How Blue, How Beautiful (2015) Limited Deluxe 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659916.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ F5 - OrganiK (2015) [MP3|~245 кб/с (V0)]<Alternative, Pop, Funk, Reggae, Soul
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659218.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Halestorm - 2 Альбома 4 ЕР (2001-2012) [MP3|320 кб/с]<Hard rock, Alt
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658618.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ The Birthday Massacre - Under Your Spell (2017) [MP3|320 Kbps] <Gothic Rock, Ind
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657700.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Obey The Brave - Mad Season (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656759.jpg" />
 </div>
 
 
@@ -732,7 +761,7 @@ ALTERNA - Правда (2012) [MP3|320 кб/с]<Alternative Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653918.jpg" />
 </div>
 
 
@@ -744,35 +773,6 @@ ALTERNA - Правда (2012) [MP3|320 кб/с]<Alternative Rapcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A0E8FEF877FE24BD3A751502054D4CD1EE756CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140839   (653845) от 08.06.2017
-
-Volumes - Different Animals (2017) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves Control
-02. Finite
-03. Feels Good
-04. Disaster Vehicle(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C33CD8C28E5054972668F2AC31EED0CFB243750
 ```
 
 https://mybot314.ru/tekegram_catalog/

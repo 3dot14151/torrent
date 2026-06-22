@@ -1,3 +1,29 @@
+###  Публикация: 1432615   (162984) от 18.12.2020
+
+Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком Западе [1972, Movie] BDRip 804p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всеми любимый Кот в Сапогах попадает на Дикий Запад. В этих неизведанных краях романтика освоения новых земель уживается с неисчислимыми опасностями, а смелость и благородство настоящих героев противостоят коварству подлых бандитов. Конечно, справедливость и порядок восторжествуют в затерянном среди прерий городке - но только после череды увлекательных перестрелок (   Читать дальше...   )Производство: Toei Animation / 東映アニメーションЖанр: приключения, комедия, фэнтезиРежиссер: Кацумата ТомохаруПеревод: неизвестно (предположительно по озвучке MC Ent.)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADB48C9EBC339E11EAE5611352E36DB31812D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432600   (162949) от 18.12.2020
 
 Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гостиницы Юраги [2018, TV, 12 + 3 из 4 OVA] BDRip 720p raw
@@ -6,7 +32,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162949.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162902.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162877.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Nagagutsu o Haita Neko: 80 Nichikan Sekai Isshuu | Puss 'n Boots: Travels Around
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162819.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162549.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162186.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161953.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Shinobi no Ittoki | Время ниндзя [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161648.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Shiroi Suna no Aquatope / Auatrope of White Sand / Акватоп белого �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161244.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161176.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Nanamaru Sanbatsu | Fastest Finger First | Семь – верно, три – �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161146.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Yuuki Yuuna wa Yuusha de Aru: Washio Sumi no Shou | Yuki Yuna Is a Hero: The Was
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161096.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161085.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161074.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161067.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Air Master | Воздушный мастер [2003, TV, 27] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161049.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Mob Psycho 100 III | Моб Психо 100 [ТВ-3] [2022, TV, 12 эп.] WEB-DL 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161015.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Pocket Monsters Sword & Shield | Покемон: Меч и Щит [2019, TV, 136
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160950.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Koukyuu no Karasu | Raven of the Inner Palace | Ворона в гареме [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159525.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Shinmai Renkinjutsushi no Tenpo Keiei | Магазинчик начинающе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159524.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Берсерк: Золотой в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159522.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Hoshi no Samidare | Lucifer and the Biscuit Hammer | Люцифер и биск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159512.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159205.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159170.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Bocchi the Rock! / Одинокий рокер! [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159166.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Bocchi the Rock! / Одинокий рокер! [2022, TV, 12] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA0D4030D214B52927FECEA0AF88F29E36B5B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582545   (158789) от 26.12.2022
-
-Futoku no Guild / Immoral Guild / Развращённая гильдия [2022, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кикуру Мадан — молодой охотник на монстров, который решает покинуть гильдию из-за страха, что радости юности проходят мимо. Особенно когда один из его близких друзей объявляет о женитьбе. Однако он меняет своё решение после предложения сотрудницы гильдии отправиться на квест вместе с новобранцем, молодой зверо-девушкой и мастером боевых искусств по имени Хитаму Кян.Жанр: приключения, комедия, этти.Режиссер: Асаока ТакуяЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105A9318EA34657F5BA014D2B6460A870B0709F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12502.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Sentai Dai Shikkaku 2 | Go! Go! Loser Ranger! 2 | Боевой отряд «По
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12375.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11806.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11634.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11323.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11098.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11097.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11065.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10376.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9989.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9888.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9827.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд В�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9022.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7955.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7756.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5285.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4839.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ One Piece | Ван-Пис [1999, TV, 207-1122 эп.] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4754.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4680.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4556.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3808.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2456.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут ц�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1815.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут ц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1814.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1299.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1716772   (110639) от 28.04.2024
+
+4K Video Downloader + 1.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF04A1EA86C6127507502E83AC0312598E38628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738365   (106338) от 22.07.2024
+
+4K Video Downloader + 1.8.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2024Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9478BA81F9B1C1E4CDB6893F8E04A82B2F5412DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739333   (106142) от 27.07.2024
 
 4K Video Downloader + 1.8.1 [Multi/Ru]
@@ -6,7 +58,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106142.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105764.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ MARVEL VS. CAPCOM 2 [5.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102124.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Bumpy Road v2.1 [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101864.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ LEGO Indiana Jones [Native] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90510.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Mac Blu-ray Player 2.1.0 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90352.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ GarageBand [5.0+Jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89340.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ Prince of Persia® Classic [4.3+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89293.jpg" />
 </div>
 
 
@@ -229,7 +281,7 @@ Race Of Champions - The Official Game [3.2+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89276.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ Aztec Magic Ball [5.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_89251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_89251.jpg" />
 </div>
 
 
@@ -289,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88936.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Guitar Pro [3.0+Jailbreake]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88909.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Rayman Origins [WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87258.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84634.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83571.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Tap The Frog 2 [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80268.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Alien Skin Blow Up 3.0.0.628 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80101.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ TechTool Pro 6.0.4 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79224.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Euro Truck Simulator [Wineskin] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77638.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ Terraria [Native] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76398.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71897.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70314.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65301.jpg" />
 </div>
 
 
@@ -650,7 +702,7 @@ Ableton Live Suite 12 v.12 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63805.jpg" />
 </div>
 
 
@@ -661,58 +713,6 @@ Live - это быстрое и гибкое программное обеспе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3DB6F08F6C5B97832E7C3A443A259E2B3FE6F44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705314   (63589) от 08.03.2024
-
-macOS 14 Sonoma 14.4 (Installer) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63589.jpg" />
-</div>
-
-
-###  Подробнее
-
-macOS Sonoma открывает новые возможности для работы и творчества. Выбирайте великолепные заставки и добавляйте виджеты прямо на Рабочий стол. Демонстрируйте свою работу, оставаясь на переднем плане во время видеовызова. Организуйте просмотр сайтов, используя профили Safari и веб‑приложения. Повышайте производительность игр в игровом режиме. Обновление также (   Читать дальше...   )Тип издания: InstallerРелиз состоялся: 07ю03.2024Разработчик: © 2022 Apple, Inc.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92528164EA83A7BD272C07C6E2E7B773BC214E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706199   (63367) от 11.03.2024
-
-Adobe Illustrator for Mac 2024 v.28.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте векторную графику в программе, которую используют профессионалы. Оцените все возможности: от веб- и мобильной графики до логотипов, значков, иллюстраций, дизайна упаковки и рекламных щитов. Наслаждайтесь свободой творчества с Illustrator.Тип издания: macOS SoftwareРелиз состоялся: февраль 2024Разработчик: © 1987 - 2023 AdobeПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D987A5F2FB949B9787DF2BFAF5E4CA8AB9D9EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

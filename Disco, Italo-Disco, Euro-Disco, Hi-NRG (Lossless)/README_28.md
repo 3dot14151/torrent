@@ -1,3 +1,119 @@
+###  Публикация: 1761878   (36476) от 22.11.2024
+
+Android (Marc Hartman and Imro van Hetten) - Spaceman's Return (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space X (5:07)
+02. Moon Base (5:49)
+03. Magic Wand (4:46)
+04. Space Age (4:53)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E2B942F279AF691276800D46D84FF6FC4454D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763477   (35518) от 01.12.2024
+
+Patrick Cowley - From Behind (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iko Iko
+02. 20th Century Fox (feat. Paul Parker)
+03. Ride My See-Saw
+04. Shakin’ All Over(   Читать дальше...   )Жанр: Disco, Hi NRGПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9065B19AF722F1F27DD11014F6C3A11A67ED16B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763691   (35307) от 03.12.2024
+
+Mflex Sounds - Flashback Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock My Heart (7:06)
+02. Dance to Infinity & The Power of Pleasure (8:55)
+03. Hot Mirrors (6:50)
+04. Darkside (7:47)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 03:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D3F5E39D9B6337639B8C3FCE5B90995D5B4500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763689   (35302) от 03.12.2024
+
+Mflex Sounds - Flashback Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Rider (7:00)
+02. In The Sand (Redesigned) (5:56)
+03. Strangers in the Night (Shiny Edit) (8:05)
+04. No Escape (7:43)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 03:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A8FD364675F4A5FC38376710DD6C57342395AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763695   (35300) от 03.12.2024
 
 Mflex Sounds - Flashback Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Space-Disco>
@@ -6,7 +122,7 @@ Mflex Sounds - Flashback Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35300.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ AlimkhanOV A. - Black (The 4th Album) (2024) [FLAC|Lossless|tracks + .cue] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33789.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Ken Laszlo - Hey Hey Guy Don't Cry Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32610.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mflex Sounds - Misleading Truth (Volumes) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29591.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [FLAC|Lossless|WEB-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29589.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Mflex Sounds - Bad Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29584.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Daro-X - After The Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29130.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Village People - Gold (2019) 3 x CD [FLAC|Lossless|image + .cue] <Disco, Pop, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27822.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ Dschinghis Khan - Mexico , Maxi And Singles Collection (2025) [FLAC|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25929.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Maxi Talo - Emotions (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24888.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ VA - 80's Dance Rarities (1989) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi-NRG, Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23965.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ VA - The Modern Mix, Vol. 1 - 80's Dance Rarities (mixed by Steve Masters) (2000
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23946.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ VA - 80s Best Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, R&B, Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22504.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Don Amore - I Look in Your Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21325.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ VA - The Finest 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20279.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ Mirko Hirsch - Night Drive (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Sp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19348.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17058.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ Mflex Sounds - Robot Eléctrico (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16085.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Joe Yellow - Greatest Hits & Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16080.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ V.A. - ZYX Italo Disco Spacesynth Collection 11 (2025) [FLAC|Lossless|WEB-DL|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14008.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ VA - Italo Disco Dance Party Collection Part 3 (2024) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12562.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ VA - Italo Disco Dance Party Collection Part 2 (2024) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12552.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ VA - Italo Disco Dance Party Collection Part 2 (2024) CDr, Compilation [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57EBF49A875CC1625D945C22C06D8DEB1FE3C9FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808131   (10575) от 23.07.2025
-
-Satin Jackets - Cruise Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere In Paradise [00:03:44]
-02. On My Own [00:04:30]
-03. Avalanche [00:03:50]
-04. Bring On Up Our Love [00:03:49](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED743CC1E36ED939A3DB1262589CC3EB9C5B327B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808818   (10284) от 26.07.2025
-
-C.C. Catch - Classics (1989) 1st German Press [APE|Lossless|image + .cue] <EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Seat Of You Cadillac (5:22)
-02. Are You Man Enougth (6:07)
-03. Good Guys Only Win In Movies (5:45)
-04. MidNight Gambler (3:34)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4F77E52713B6695D7EB6F1A02873F70BDF5F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808797   (10186) от 27.07.2025
-
-Blue System - Album Collection 13CDs (1987-1997) 1st German Press [APE|Lossless|image + .cue] <EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1987 - Walking On A Rainbow
-1988 - Body Heat
-1989 - Twilight(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 08:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD58BE9A844D9C3F3FEC8242C8D7FBC60EA81A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812585   (7715) от 15.08.2025
-
-Saragossa Band - Original Hits & Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agadou
-02. Zabadak
-03. Big Bamboo
-04. Se Me Quieres(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A03DE2644758FBF9E8AB765B200C5BCC3AAFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

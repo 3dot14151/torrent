@@ -1,3 +1,29 @@
+###  Публикация: 1640834   (215870) от 13.08.2023
+
+Звездный путь: Странные новые миры / Star Trek: Strange New Worlds (2023) WEB-DL [H.265/2160p] [4K, HDR10+, DV, Profile 8, 10-bit] (сезон 2, серии 1-10 из 10) LostFilm, HDRezka, TVShows
+
+>>Зарубежные сериалы
+>>Звездный путь / Star Trek; Орвилл / The Orville
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал продолжает события второго сезона «Звездный путь: Дискавери», где капитан Звездного флота Кристофер Пайк, все еще преследуемый видениями собственной трагической смерти, соглашается возглавить легендарный звездолет класса «Конституция» USS Энтерпрайз. Среди его подчиненных: старший офицер по науке Спок, глава службы безопасности Ла'ан Нуньен-Синг, специализирующаяся (   Читать дальше...   )Производство: США / CBS Television Studios, Roddenberry Entertainment, Secret HideoutЖанр: фантастика, боевик, приключенияРежиссер: Крис Фишер, Дэн Лью, Аманда РоуАктеры: Мелисса Навия, Энсон Маунт, Итан Пек, Джесс Буш, Кристина Чонг, Ребекка Ромейн, Celia Rose Gooding, Бабс Олусанмокун, Андре Ким, Брюс ГоракПеревод: Многоголосый профессиональный (LostFilm, HDRezka, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7069945240940BB61556155FA12CF9325A6364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458384   (194789) от 03.08.2023
 
 Звездный путь: Следующее поколение / Star Trek: The Next Generation (1991-1992) BDRemux [H.264/1080p] (сезон 5, серии 1-26 из 26) AXN Sci-fi
@@ -6,7 +32,7 @@
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194789.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194406.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194342.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194303.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188332.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188326.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155912.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155777.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149148.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147144.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54406.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2285.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2278.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2251.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1375.jpg" />
 </div>
 
 

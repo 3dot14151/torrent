@@ -1,3 +1,87 @@
+###  Публикация: 1152739   (563155) от 24.07.2017
+
+Джеймс Лусено | Таркин (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман из межавторского цикла «Звёздные войны».
+
+Отгремели жестокие Войны клонов, Дарт Сидиус провозгласил себя Императором Галактики, а его ученик, темный повелитель Дарт Вейдер, выследил и уничтожил практически всех джедаев, переживших страшный Приказ 66. Сенат на Корусанте подобострастно аплодирует каждому слову Императора, а население планет Ядра наслаждается (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7F2F12180A5E1E474D59D62EBB01F82E92F700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152830   (563003) от 24.07.2017
+
+Андрей Нечаев | Первый Игрок (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «AlterGame».
+
+В опасных Пустошах бродяга Джек находит брошенный грузовик, где спрятана древняя игровая консоль. С этого момента и начинается путь Джека к затерянному континенту, скрытому в виртуальных глубинах великой Альтеры. Он еще не знает, какие враги встанут на этом пути. Ему противостоит не только клан Могильщиков и зловещий некромант из (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBB9F1B1F5C51125FC0339106DE479076CC809B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923807   (562624) от 01.08.2015
+
+Нора Робертс | Орудие ведьмы – любовь (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Кузины О'Двайр».
+
+У потомственной ведьмы Брэнны О’Двайер есть все: любящие брат и сестра, собственный магазин, верные друзья. Но есть одно недостающее звено в ее жизненной цепи: любовь… Короткая интрижка с Фином, потомком их злейшего врага, обернулась мучительной болью и разбитым сердцем. Чтобы заполнить пропасть, оставленную после расставания, (   Читать дальше...   )Жанр: Любовно-фантастические романы, Магия и колдовство, МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71042C9A61C584C55287457B84DB6BC695BC09C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530331   (562597) от 02.08.2012
 
 Юрий Пашковский, Алина Лис | Птенцы Виндерхейма [2012] [FB2]
@@ -6,7 +90,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562597.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562577.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562523.jpg" />
 </div>
 
 
@@ -89,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562370.jpg" />
 </div>
 
 
@@ -118,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562033.jpg" />
 </div>
 
 
@@ -146,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561919.jpg" />
 </div>
 
 
@@ -174,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561870.jpg" />
 </div>
 
 
@@ -203,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561372.jpg" />
 </div>
 
 
@@ -232,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561244.jpg" />
 </div>
 
 
@@ -265,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560861.jpg" />
 </div>
 
 
@@ -291,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560806.jpg" />
 </div>
 
 
@@ -317,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560718.jpg" />
 </div>
 
 
@@ -343,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560713.jpg" />
 </div>
 
 
@@ -371,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560702.jpg" />
 </div>
 
 
@@ -399,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560664.jpg" />
 </div>
 
 
@@ -428,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560621.jpg" />
 </div>
 
 
@@ -459,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560355.jpg" />
 </div>
 
 
@@ -487,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560349.jpg" />
 </div>
 
 
@@ -513,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560259.jpg" />
 </div>
 
 
@@ -541,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560243.jpg" />
 </div>
 
 
@@ -569,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560233.jpg" />
 </div>
 
 
@@ -595,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559915.jpg" />
 </div>
 
 
@@ -623,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559786.jpg" />
 </div>
 
 
@@ -634,91 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:947C57D707A70EEE1AA350A26B4AEE1F1F156B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304973   (559654) от 28.05.2019
-
-Айзек Азимов | Лаки Старр и спутники Юпитера (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать в тысяче миль над Юпитером-9? Строить аграв-корабль и планировать путешествие к смертоносному Юпитеру.
-
-Дэвид «Лакки» Старр, благородный находчивый космический рейнджер, и его друг-марсианин Джон «Верзила» Джонс продолжают сражение с врагами Земли на просторах Солнечной системы.Жанр: Боевая фантастика, Зарубежная фантастика, Классика фантастики, Космическая фантастикаПеревод: Дмитрий АрсеньевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A304FDA8ACDD9D6E850FFE1455E5CAA9FADBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556145   (559344) от 09.06.2022
-
-Брендон Сандерсон | Архив Буресвета [5 книг] (2016-2021) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559344.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далёком прошлом, как рассказывают церковные историки, от Несущих Пустоту людей защищал орден Сияющих Рыцарей, но в монстров никто уже не верит, а Сияющие предали людей и ушли. Артефакты той эпохи сейчас ценятся, как небольшое королевство, а их владельцы, которые в бою стоят армии, сражаются друг с другом за власть.
-
-Все люди — и простые темноглазые работяги, и (   Читать дальше...   )Жанр: ФэнтезиПеревод: Наталия ОсоянуФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4234D05BAC47B87D5D5879A65C4A8ABB32871D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304979   (559249) от 28.05.2019
-
-Айзек Азимов | Лакки Старр и кольца Сатурна (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестой (заключительный) роман цикла «Лакки Старр»
-
-Защита Земли дала трещину. Сатурн означает опасность.
-В окрестностях второй по величине планеты Солнечной системы Дэвид «Лакки» Старр и его друг-марсианин Джон «Верзила» Джонс получают новое пугающее задание.(   Читать дальше...   )Жанр: Боевая фантастика, Зарубежная фантастика, Космическая фантастикаПеревод: Дмитрий АрсеньевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D44EA006F6800DEE27445732D86D6E509283CD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

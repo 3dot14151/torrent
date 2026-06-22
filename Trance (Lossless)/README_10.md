@@ -6,7 +6,7 @@ Armin van Buuren - Feel Again (2023) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199241.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Black Hole Trance Music 06-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194767.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Outburst Records Presents Prism Volume 4 (2023) [FLAC|Lossless|tracks] <Har
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191897.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Exploring Trance (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progress
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191879.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Best Of Vocal Trance 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189653.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Ibiza Closing Party 2023 Trance [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188239.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ V.A. - A State of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) 3CD [FLA
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188013.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Black Hole Trance Music 07-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187740.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Kryder Presents Metaverse Volume 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184814.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Club Trance 4 (1997) Exclusive Edition [FLAC|Lossless|tracks] <Trance, Hard
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184652.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Giuseppe Ottaviani - Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183940.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Trance 2021 (2020) [FLAC|Lossless|tracks] <Trance, Uplifting Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183085.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - M.I.K.E. Presents Club Elite Vol 1 (2007) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180775.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Lost Language Exhibition (Mixed By Solar Stone And Ben Lost) (2003) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179566.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Mr Sam Opus Quinto (2022) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressiv
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172827.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cosmic Gate - Mosaiik Chapter One and Two (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172284.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Trance: The Vocal Session 2024 Playlist by ZYX Music! (2023) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171697.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ P.H.A.T.T. - P.H.A.T.T. (2011) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171401.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Andrew Bayer Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169694.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Super8 & Tab Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169612.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Cocooma - The Best Of Cocooma (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169226.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Cocooma - The Best Of Cocooma Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167158.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Grum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166691.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Alter Ego Records - Best of 2022 [FLAC|Lossless|WEB-DL|tracks] <Uplifting T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166675.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Solarstone - . . . - - (2019) [FLAC|Lossless|CD|tracks + .cue] <Trance, Progress
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166503.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Aly & Fila - It's All About The Melody (2019) [FLAC|Lossless|CD|tracks + .cue] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166461.jpg" />
 </div>
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 913162   (599388) от 01.07.2015
+
+Rayfire 1.65.01 for 3ds Max 2014-2015 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный в своем роде плагин для 3DS Max, позволяющий симулировать разрушение объектов от столкновений и выстрелов.
+Вот его краткое описание:
+RayFire дает вам возможность стрелять, уничтожать, разрушать, ломать, взрывать, и делать другие подобные вещи, которые вы всегда мечтали делать в Максе.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3721CCBCECDD2FD2DCDB525A8F38E7B3983DAEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357236   (587741) от 30.06.2011
+
+Раскрой (Raskroy) 4.06.34 от 21.06.1999 [Русский]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа раскроя позволяет производить построение карты оптимизированного раскроя промышленных материалов, например, ДСП (при изготовлении мебели), стекла или любых других листовых или рулонных материалов.Очень оптимальный раскрой.Минимум отходов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043326   (574093) от 15.08.2016
 
 Anima 2.0.2 [En]
@@ -6,7 +60,7 @@ Anima 2.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574093.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Itoo RailClone Pro 3.3.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537559.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Artlantis Studio 4.1.7 x64 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511998.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ V-ray 3.10.01 for Maya 2015-2016 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510608.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ FloorPlan 3D Design Suite 11.2.60 [Русский]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_507846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_507846.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Reallusion iClone Pro 6.2.2102.1 Retail + Resource Pack [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501909.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ RayFire 1.81 for 3ds Max 2017-2018 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493535.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ Trypogen 1.5 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487737.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ MoFractal v.1 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486901.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ Pixologic Sculptris [Eng] Alpha 6
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462181.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ Manga Studio EX 5.0.6 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457075.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Influence Point v1.5.2 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409464.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Depliage V1.3.2 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409461.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Alveole v1.0.3 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409337.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ Topoformer 1.1 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385212.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ Quixel Megascans + Studio + Bridge 0.922 beta [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385096.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ GreyscaleGorilla - Light Kit Pro v3 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383314.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ AwesomeBump V5.1 Portable 5.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372642.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ Phoenix FD 3.04.00 for 3ds max 2013-2018 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357503.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ NVIDIA Mental Ray v.3.14.3.31 for Maya 2017 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355262.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ Substance Alchemist 2020.3.0 (2.3.0) Build 70 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339460.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ CrazyBump 1.22 RePack by Serka [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309061.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Next Limit RealFlow 10.5.3.0189 + Plugins [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308917.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ MAGIX 3D Maker 7.0.0.482 RePack by 78Sergey [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289642.jpg" />
 </div>
 
 
@@ -632,60 +686,6 @@ MAGIX 3D Maker — программа для создания высококач
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E771FA3BBA503A2A1A7C58B57C3F5C342F26C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263558   (287110) от 19.11.2018
-
-GSG HDRI Studio  for Cinema4d 2.148 (Обновление от 2018-05-09) [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287110.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDRI Studio Rig - это плагин GSG, разработанный для упрощения и ускорения вашего рабочего процесса Physical and Standard Render. С помощью этого инструмента вы можете просматривать различные настройки освещения, бесшовные фоны и отражения на ваших 3D-моделях.  Это обновление для HDRI Studio Rig делает плагин более быстрым и легким.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E57207497E818E02D72951BC5A1A01735CA8BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337229   (275552) от 09.11.2019
-
-Marvelous Designer 9 Enterprise 5.1.311.44087 Portable by Deodatto [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marvelous Designer - это программа для создания моделей одежды, обеспечивающая реалистичную симуляцию ткани и поддерживающая экспорт и импорт 3D-моделей в большинство популярных форматов.
-Она включает в себя довольно удобные инструменты трехмерного проектирования, с помощью которых можно точно "подгонять" одежду под модели.
-В процессе работы над проектом (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493B7AABA14D848E5019DF7041C725795E02A852
 ```
 
 https://mybot314.ru/tekegram_catalog/

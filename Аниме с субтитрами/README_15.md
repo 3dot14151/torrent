@@ -1,3 +1,29 @@
+###  Публикация: 1468871   (1016891) от 09.05.2021
+
+Boku no Hero Academia (2019) | My Hero Academia Season 4 | Моя геройская академия [ТВ-4] [2019, TV, 25 эп.] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир злодеев балансирует на грани войны, когда «Все за одного» больше не работает. Сигараки из Лиги Злодеев вступает в борьбу с Капитальным ремонтом якудза, борясь за полный контроль над тенями. Тем временем Деку оказывается вовлеченным в другую опасную стажировку, поскольку он изо всех сил пытается не отставать от своего старшеклассника - Мирио.Производство: Студия Bones / ボンズЖанр: приключения, комедияРежиссер: Нагасаки КэндзиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F50332A852C1AC8326D39B7831E85BEA0BE6C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468838   (1016887) от 09.05.2021
 
 Boku no Hero Academia (2016) | Моя геройская академия OVA [2016, OVA, 2 эп.] DVDRip 480p raw
@@ -6,7 +32,7 @@ Boku no Hero Academia (2016) | Моя геройская академия OVA [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016887.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Anime San Jushi / The Three Musketeers Anime / Три мушкетёра [1987, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016504.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Ai Yori Aoshi | Bluer Than Indigo | Все оттенки синевы | Тем�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015619.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Ai Yori Aoshi ~Enishi~ | Bluer Than Indigo ~Fate~ | Все оттенки син
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015611.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Mushikago no Cagaster | Cagaster of an Insect Cage | Убийца насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014504.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Anime Sanjuushi: Aramis no Bouken | Три мушкетёра (фильм) [1989
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014470.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014145.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Tenchi Muyou! Ryououki Dai Go-ki | Тэнти - лишний! Рё-о-ки 5 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013778.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Natsume Yuujinchou Go | Тетрадь дружбы Нацумэ (ТВ-5) [2016,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013707.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Gekijouban Natsume Yuujinchou: Utsusemi ni Musubu | Тетрадь дружбы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013695.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013657.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Soukou Musume Senki | LBX Girls | Девушки в доспехах [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012705.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012600.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Maburaho | Мабурахо [2003, TV, 24 из 24] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012547.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Amanchu! Advance | Аманчу! [ТВ-2] [2018, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012445.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012103.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Princess Lover! | Любимчик принцесс [2009, TV, 12 эп. + 18 SP]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012100.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Легенда о Бело
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012094.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Kiddy Grade / Детское подразделение [ТВ-1] [2002, TV, 24 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012071.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Bungaku Shoujo Memoire / Записки литературной девушки 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012057.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ BALDR FORCE EXE Resolution / Виртуальный спецназ [2006, OAV, 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012056.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Saishuu Shiken Kujira / Final Examination Kujira / Кудзира: послед�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011920.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ A Journey Through Fairyland | Yousei Florence | Фея Флоренция [1985,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011911.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Dear Boys | Hoop Days | Дорогие парни [2003, TV, 26 эп.] DVDrip 48
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011905.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Rekka no Honoo | Flame of Recca | Пламя Рэкки [1997, TV, 42 эп.] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011892.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Rekka no Honoo | Flame of Recca | Пламя Рэкки [1997, TV, 42 эп.] DVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F1BEBF93C39A0ADD4F74F2E2AE2B7A3E1EBE5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110631   (1011889) от 09.06.2021
-
-Akikan! | Пустая банка [2009, TV, 12 эп.] DVDrip 400p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несчастный японский школьник Дайти Какэру 16 лет не знал девичьей любви, компенсируя это богатым воображением и коллекционированием редких банок из-под сока. Так что когда банка с дынным лимонадом превратилась в его руках в прекрасную девушку, Дайти не удивился, решив, что попал в заветную мечту, где, как известно, твори, что пожелаешь! Лишь несколько болезненное (   Читать дальше...   )Производство: студия Brains Base / ブレインズ・ベースЖанр: комедия, романтика, эттиРежиссер: Химаки ЮдзиПеревод: Gotrics, dr.kannibal, IshtvanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4BA118F223CA6FE6899B19DFCA7B87F80944F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

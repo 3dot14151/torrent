@@ -1,3 +1,32 @@
+###  Публикация: 905893   (646898) от 07.06.2015
+
+Драйверы для ноутбука Asus X553MA Windows 8.1 6.00 Lite [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драйверы для ноутбука Asus X553MA for Windows 8.1 (x64) 6.0 Lite.iso
+Образ диска с штатным программным обеспечением и драйверами Asus,
+прилагавшийся в комплекте с ноутбуком ASUS X553MA.
+Имеет автозапуск и определение оборудования для установки.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F670B93E552074CDB4DC162F39B01365CF95E415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936681   (493449) от 12.09.2015
 
 Logitech SetPoint 6.67.83 [Multi/Ru]
@@ -6,7 +35,7 @@ Logitech SetPoint 6.67.83 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493449.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ SamDrivers 22.7 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457056.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Easy DriverPack 6.5.2015.0915 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441811.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_405383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405383.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ Oscar Mouse Editor A4Tech V12.08V17   Update Date:2012-09-17 [multilanguage]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_389661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389661.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ Oscar Mouse Editor A4Tech V12.03V20 Update Date:2012-03-21 [multilanguage]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_386644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386644.jpg" />
 </div>
 
 
@@ -164,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336888.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ DriverPack Solution 17.10.14 Полная версия (DP 20104) [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321400.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304955.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ Broadcomm Bluetooth Driver X86/X64 (2012) [Мульти/Русский]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257364.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ NVIDIA GeForce Desktop Studio 581.57 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128922.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Radeon Software Slimmer 1.11.0 Portable [En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124595.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ SamDrivers 24.0 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122450.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ Creative Sound Blaster Command 3.5.10.0 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118478.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89537.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ Drivers BackUp Solution 3.4.10 Final [Multi/Rus]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87707.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79901.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ Realtek Ethernet Driver 1168.018 | 10.71 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54935.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ SamDrivers 24.7 Expert [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51370.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ SamDrivers 24.7 LAN [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51333.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ NVIDIA GeForce Desktop Game Ready 475.06 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51104.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ MCS Drivers Disk 24.5.13.2157 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49967.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ AMD Radeon Software Adrenalin Edition 24.9.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41525.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ ASUS N53SV Driver&Utility ver 5.0 for Windows 7 (оригинальный дис
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_28950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_28950.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ ASIO4ALL 2.16 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27260.jpg" />
 </div>
 
 
@@ -650,32 +679,6 @@ Asio4all представляет собой универсальный ауди
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AB5BA38C77F97048135759C1444EB0E0C98E957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803529   (13649) от 24.06.2025
-
-Snappy Driver Installer Origin R816 | Драйверпаки 25.06.2 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Snappy Driver Installer Origin (SDI Origin) - главная ветвь портативной программы SDI для установки и обновления драйверов, не требующей подключения к интернету. SDIO является лидером среди программ этого класса по точности подбора драйверов и скорости работы. При ранжировании драйверов отдает приоритет более подходящим драйверам (невзирая на наличие более новых (   Читать дальше...   )Язык интерфейса: Русский, Английский, и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D512BDC53907E67F64C65319770D3AAF32030A98
 ```
 
 https://mybot314.ru/tekegram_catalog/

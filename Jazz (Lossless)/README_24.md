@@ -6,7 +6,7 @@ Bruce Ackley Trio - The Hearing (1998) Avant [FLAC|Lossless|tracks + .cue] <Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981213.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Leon Thomas With Oliver Nelson - In Berlin 1970 (2002) BMG [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981157.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Louis Armstrong - African Dreams 1960 - 1962 (2000) 2CD, Milan [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981154.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Billie Holiday - The Essential Collection, 2CD (2007)  [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981110.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Brian Culbertson - Colors of Love Tour (Live in Las Vegas) (2019) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981107.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Talisha Karrer - Jazz Covers Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981098.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Masabumi Kikuchi, Masahiko Togashi, Gary Peacock - Poesy: The Man Who Keeps Wash
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980839.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Coleman Hawkins - Night Hawk (1960) Remaster, 2003, Original Jazz Classics[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980838.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Chico Hamilton - Peregrinations (1975) Remaster, 2013, EMI Music[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980773.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Jazz Masterpieces Remixed (2015) [FLAC|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980704.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dave's True Story - 4 albums (1993-2005) [APE|Lossless|image + .cue] <Jazz, Fema
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980671.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Benny Goodman - At The Tivoli 1981 (1996) MasterTone [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980569.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ John Coltrane - A John Coltrane Retrospective: The Impulse! Years 1961 - 1967 (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980554.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jazzamor - Things We Do For Love (Instrumentals) (2013) [FLAC|Lossless|WEB-DL]<A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980375.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ J. J. Johnson - Blue Trombone (1957) Remaster, 2014, Sony Music[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980333.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Coleman Hawkins - Sirius (1966) 2003, Planet[FLAC|tracks+.cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980332.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Art Blakey And The Jazz Messengers - Buhaina (1973) Remaster, 2014, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980331.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Howard Alden, Lloyd Ellis, Cal Collins - Famous Door: Ace Guitarists (1976/1978/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980321.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Johnny Griffin & Art Taylor Quartet - The Jamfs Are Coming! (1975/1977) Remaster
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980319.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Jack Wilson - Something Personal (1966) Remaster, 2015, Universal[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979323.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Bobby Timmons - Soul Time (1960) 2004, Planet[FLAC|tracks+.cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979320.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Miles Davis - Water Babies (1967-1968) 2002, Columbia[FLAC|tracks+.cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979314.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Paquito D'Rivera & The United Nation Orchestra - Live at Manchester Craftsmen's 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979196.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Benny Goodman - The Best of Benny Goodman And His Orchestra 1956 - 1957 (1990) C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979191.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Brian Culbertson - Winter Stories (2019) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979126.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Spyro Gyra - Vinyl Tap (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979023.jpg" />
 </div>
 
 

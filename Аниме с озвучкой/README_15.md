@@ -1,3 +1,81 @@
+###  Публикация: 664236   (845531) от 13.03.2015
+
+Aoi Bungaku Series / Blue Literature Series / Классические истории [2009, TV, 12 ep] BDRip 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классические произведения отличаются тем, что исследуют стороны человеческой жизни, которые мало зависят от места и времени действия. Предлагаемая серия, поставленная по романам и рассказам четырех японских писателей первой половины XX века – не исключение. В каждой сюжетной арке через различные образы восточной и западной культуры автор и читатели (зрители) ищут ответы на исконные вопросы бытия. В чем смысл жизни, что делает человека человеком? Можно ли безнаказанно презреть законы и обычаи общества? Что есть (   Читать дальше...   )Жанр: драма, историяРежиссер: Асака МориоПеревод: Dreamers TeamФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC46A9072B4FB1D491E40DA290BD4DFFFB0E36B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974258   (844667) от 02.04.2016
+
+Durarara!!x2 Ketsu / Дюрарара!! 2 (сезон третий) [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Икэбукуро - не просто район в центре Большого Токио, это живое людское море со своими приливами и отливами, тихими заводями и коварными водоворотами. Пока что море лишь волнуется, но для опытного глаза ясно - собирается буря столетия, ибо слишком много сил столкнулось в темной глубине. Старые банды и новые союзы, древние демоны и сумасшедшие ученые, супермены и самозванцы, (   Читать дальше...   )Жанр: приключения, мистика, повседневностьРежиссер: Омори ТакахироПеревод: LeDi-MaHo TeamСубтитры: ASS, Встроенные, Полные | Надписи «LeDi-MaHo Team»Формат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C08E0177319794DA01676173B9939B4DAD8B5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378795   (844001) от 26.04.2020
+
+Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! | Я Сказала, Усредни Мои Способности! [2019, TV, 12 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844001.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день, когда Адель фон Аскам исполнилось 10 лет, она вспомнила всё о своей прошлой жизни в качестве Мисато Курихары. Она была японской девушкой с выдающимися способностями, которой её таланты только мешали. Возвращаясь с выпускного, Мисато погибла, спасая маленькую девочку. На небесах она встретила Бога, который предложил ей прожить ещё одну жизнь, но в параллельном (   Читать дальше...   )Производство: Project No.9, ЯпонияЖанр: Приключения, Комедия, фэнтезиРежиссер: Ота МасахикоОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39A3898CE283E25E48098ECD22597956F0E28E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378840   (844000) от 26.04.2020
 
 Гордость убийцы | Assassins Pride [2019, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
@@ -6,7 +84,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844000.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dumbbell Nan Kilo Moteru? | Насколько Тяжёлые Гантели т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843999.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Wolf's Rain | Волчий Дождь [2003, TV, 30 ep] BDRip 10-bit 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843998.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Monster Musume no Iru Nichijou | Повседневная Жизнь с Деву
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843994.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Kiseijuu: Sei no Kakuritsu / Parasyte: The Maxim / Паразит: Жизнен�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840820.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839595.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Gintama / Гинтама [ТВ-4] [2015, TV, 1-51 из 51 эп.] HDTV 720p raw+r
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839433.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Haikyuu!! Second Season / Волейбол!! [ТВ-2] [2015, TV, 25 ep] HDTV 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839160.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Shiki | Усопшие [2010, TV, 22 ep + 2 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839060.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Kekkai Sensen & Beyond | Фронт Кровавой Блокады [TV-2] [2017
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837438.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Toaru Majutsu no Index III | Некий Магический Индекс [TV-3]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837232.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837231.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837229.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ Kami-sama Hajimemashita / Kamisama Hajimemashita / Очень приятно, Б
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836803.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835858.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ Miss Monochrome 3 / Мисс Монохром 3 [2015, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835769.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835756.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ Heavy Object / Тяжёлый объект [2015, TV, 24 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835751.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835520.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834965.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 из 12] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834801.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834464.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Full Metal Panic? Fumoffu | Full Metal Panic Fumoffu | Fullmetal Panic Fumoffu |
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833688.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ Full Metal Panic? Fumoffu | Full Metal Panic Fumoffu | Fullmetal Panic Fumoffu |
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45728393DED58F3C7E279F8CC34250E03A9D87C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005080   (833687) от 08.04.2016
-
-Full Metal Panic! The Second Raid | Full Metal Panic! Owaru Day By Day | Стальная тревога! Новый рейд [2005, TV, 13 эп.] BDrip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон продолжает основную сюжетную линию фильма. «Мифрил» делает своё обычное дело, противодействует террору и экстремизму, помогает гасить локальные конфликты. Похоже, Тидори Канаме уже ничего не угрожает, и командование чем дальше, тем больше задаётся вопросом: какой смысл держать возле девушки Сагару, который нужен для боевой работы и испытаний «Арбалеста»? (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: приключения, комедия, фантастика, мехаРежиссер: Такэмото ЯсухироПеревод: Alex/AT | MerlinЯзык субтитров: #1: Russian; #2: English;Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2184348FF7C02B03BAC4F0ACF0ECDDCDDCAC749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005044   (833686) от 08.04.2016
-
-Full Metal Panic! | Стальная тревога! [2002, TV, 24 эп.] BDrip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассница Канамэ Тидори оказывается в эпицентре невероятных приключений! За девушкой ведет охоту террористическая организация, чьи руководители убеждены, что Тидори обладает уникальными сверхъестественными способностями. На защиту школьницы встает секретная военизированная организация МИФРИЛ и ее агент Сосукэ Сагара. Сможет ли он защищать Тидори так, чтобы (   Читать дальше...   )Производство: студия Gonzo Digimation / ゴンゾЖанр: приключения, комедия, романтика, мехаРежиссер: Тигира КойтиПеревод: WitwoodЯзык субтитров: РусскийПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB72AD95783E44416924D8EF1F63C327A8D5F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572719   (831946) от 09.04.2016
-
-Pokemon: Battle Frontier (9 Season) / Покемон: Боевой Рубеж (9 сезон) [2006, TV, 47 ep] DVDRip 480p Rus+Eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Территория, может, и знакомая, но даже Эш и Брок находят немало сюрпризов в родном регионе Канто, как, например Рейнджер покемонов, которому поручено задание, связанное с двумя легендарными покемонами! Мэй возвращается к конкурсам, прорываясь к Большому Фестивалю в Канто, а Эш ищет скрытые сооружения Боевого Рубежа. Даже если бы поиски не были столь сложными, ему (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиФормат: MKVПродолжительность: 47 эпизодов по 21 минуте
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE58B344941479B6C81C571687430C8B83461D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

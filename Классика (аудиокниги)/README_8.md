@@ -1,3 +1,29 @@
+###  Публикация: 989881   (915824) от 23.02.2016
+
+Борис  Пастернак | Переписка с Евгенией Пастернак (2014) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переписка Бориса Пастернака с его первой женой составлена его старшим сыном и сопровождается его воспоминаниями об обстановке, в которой протекала семейная жизнь его родителей. Лирическая высота любовной трагедии не снижена переданными в письмах тяжестью нищенского быта коммунальной квартиры 1920-х годов и трудностями свободной творческой работы писателя и художницы, (   Читать дальше...   )Жанр: Биографии. МемуарыИздательство: Нигде не купишьПродолжительность: 08:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C37D77DE129F770E07EAE0136C2A1F267F96A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367537   (915688) от 16.03.2020
 
 Ги де Мопассан Анри Рене Альбер | Доктор Ираклий Глосс (2018) [MP3]
@@ -6,7 +32,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915688.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915542.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915010.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914935.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914286.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912224.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911135.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910757.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910107.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909847.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908651.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908640.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908022.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908007.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906550.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906188.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905492.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905142.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904246.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902605.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901476.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901466.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900920.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900912.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900451.jpg" />
 </div>
 
 
@@ -651,34 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992834   (899281) от 03.03.2016
-
-Николай Карамзин | Письма русского путешественника (2016) [MP3, Виктор Татарский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Литературная композиция Виктора Татарского.
-К 250-летию историка и писателя Николая Михайловича Карамзина.
-В 1789—1790 годы Карамзин предпринял поездку в Европу, в ходе которой посетил Иммануила Канта в Кёнигсберге, был в Париже во время великой французской революции. В результате этой поездки были написаны знаменитые «Письма русского путешественника», публикация (   Читать дальше...   )Жанр: Классическая и современная прозаИздательство: Радио РоссииПродолжительность: 02:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBCDA64778F6DDDC9D4A2A03F514ACEB731DEDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

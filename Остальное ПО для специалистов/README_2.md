@@ -1,3 +1,240 @@
+###  Публикация: 1490355   (918654) от 20.08.2021
+
+ChemDraw Ultra 12.0.2 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918654.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChemDraw — профессиональный редактор химической графики. Входит в пакет ChemOffice, от CambridgeSoft.
+
+Возможности:
+-Создание и редактирование химических структур и оборудования.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FA577572EC1FB42D971AD3CC74A3668117AFFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097782   (911508) от 28.01.2017
+
+WinTariff 2.9.9 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911508.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinTariff - это программа для учета телефонных разговоров. Программа получает из станции данные о каждом звонке (набранный номер, длительность, время т.д.) и по ним определяет направление (для межгорода) и стоимость разговора. Пользователями программы стали тысячи государственных и коммерческих организации, как в России, так и в СНГ и дальнем зарубежье.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBA95079E4BC58B1F876DBC408E9381D4ED45ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990658   (907301) от 27.02.2016
+
+Veeam Backup & Replication 9.0.0.902 [En]
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Veeam® Backup & Replication™ — комплексное решение, разработанное специально для бэкапа виртуальных машин (ВМ) и обеспечения доступности данных. Veeam Backup & Replication™ гарантирует быстрое, эффективное и надежное восстановление виртуализованных приложений и данных. Решение объединяет возможности бэкапа и репликации для VMware vSphere и Microsoft Hyper-V.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88765373ED1F54CC45CEDFBDCBDCF6527FB8FE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100873   (897234) от 05.02.2017
+
+Logiware go1984 Ultimate 6.3.0.1 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Go1984 - полнофункциональный программный комплекс видеонаблюдения производства немецкой компании Logiware, ориентированный в первую очередь на работу с ip-видеокамерами. Позволяет делать захват с огромного количества устройств, включая IP камеры. Встроенный детектор движения. Запись по времени, детектору движения. Трансляция на все популярные мобильные устройства. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D295101EA214ACB183718A1ABE129B3C86FEBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495153   (884136) от 10.09.2021
+
+Acme CAD Converter 2021 8.10.1.1530 (DC 10.09.2021) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acme CAD Converter — новая версия популярной и достаточно востребованной программы, которая позволят просмотреть файлы в формате DXF, DWF, DWG и конвертировать их в BMP, WMF, GIF, JPEG, PCX, TIFF, PNG, TGA, DXF, DWG, SVG, SVGZ, CGM, EPS, PDF, HPGL( PLT, HGL) и многие другие форматы, а также позволяет конвертировать версии DXF и DWG файлов ( R2.5-R2013). Преимущества (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDB4BE00343B6A59C04ACEAC6FB2B75276C2416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997628   (872788) от 17.03.2016
+
+Бутлер 2.5.10.0 Final [Ru]
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бутлер – Современная программа для создания мультизагрузочных USB-накопителей с загрузчиком Grub4DOS, с красивым русским меню; содержащих несколько операционных систем и служебных загрузочных программ. Утилита Бутлер 2.5 может создавать файлы на USB-Flash из загрузочного образа, а так же из папки с дистрибутивом операционной системы . Возможно добавить загрузочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529489E79A12D3DF866E347F7D42124C19D697C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 156970   (865907) от 21.09.2021
+
+Windows USB-DVD Download Tool 1.0.30 (Portable) [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows USB/DVD Download Tool - инструмент от компании Microsoft, переназначенный для быстрого и простого создания загрузочных USB-флешек или DVD-дисков и образами операционной системы Windows. Она позволяет записать образ системы на флешку или DVD-диск, чтобы затем использовать его для установки на компьютер или ноутбук. При этом, программа очень проста в использовании (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B41C243F3F3AB9B3C5B49CAB2FE3CCC858B3EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375680   (861611) от 16.04.2020
+
+Bootstrap Studio 5.0.3 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - программа для создания красивых веб-сайтов с использованием структуры Bootstrap. Работа в данном редакторе происходит максимально удобно и продуктивно, так как здесь имеются сотни разнообразных вариаций дизайнов, которые подойдут под самые различные сервисы. Дополнительно их можно отредактировать, максимально тонко проводя работу. Этим приложением (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D547900DE77FC589F9A440A6FE925F464C5A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376026   (861534) от 16.04.2020
+
+Axure RP Pro, Team, Enterprise 9.0.0.3693 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Axure RP- быстрое макетирование для приложений веб-сайта, ориентированное под каркасные прототипы веб-сайтов. Продукт предназначен для снижения издержек проектирования веб-сайтов. Это решение поможет быстро в визуальном режиме создать рабочий прототип будущего сайта, затем выгрузить прототип в html и просмотреть его через браузер. Качество вполне приемлемо для дальнейшей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBEF2925977CE855DA2FBD47235A9F9927D0487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108816   (860197) от 26.02.2017
 
 Enterprise Architect 12.1.1229 Corporate Edition [En]
@@ -6,7 +243,7 @@ Enterprise Architect 12.1.1229 Corporate Edition [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860197.jpg" />
 </div>
 
 
@@ -32,7 +269,7 @@ SQLite Expert Professional 5.3.5.475 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860173.jpg" />
 </div>
 
 
@@ -58,7 +295,7 @@ BOOTICE 1.3.3.2 Portable [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859128.jpg" />
 </div>
 
 
@@ -84,7 +321,7 @@ Security Eye 3.5 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854968.jpg" />
 </div>
 
 
@@ -110,7 +347,7 @@ Win Toolkit 1.5.4.4 Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846211.jpg" />
 </div>
 
 
@@ -136,7 +373,7 @@ PWBoot 3.0.2 [английский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835469.jpg" />
 </div>
 
 
@@ -162,7 +399,7 @@ Geany 1.38.0 + Plugins [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820967.jpg" />
 </div>
 
 
@@ -188,7 +425,7 @@ Veeam Backup & Replication 10.0.0.4461 P1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818473.jpg" />
 </div>
 
 
@@ -214,7 +451,7 @@ HxD Hex Editor 2.5.0.0 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799335.jpg" />
 </div>
 
 
@@ -241,7 +478,7 @@ USB Drive Factory Reset Tool 3.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797175.jpg" />
 </div>
 
 
@@ -267,7 +504,7 @@ WinSetupFromUSB 1.10 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797174.jpg" />
 </div>
 
 
@@ -294,7 +531,7 @@ ChemOffice Professional 18.0.0.231 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791547.jpg" />
 </div>
 
 
@@ -320,7 +557,7 @@ KDevelop 5.5.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783037.jpg" />
 </div>
 
 
@@ -348,7 +585,7 @@ AMIDuOS 2.0.9.10342 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763860.jpg" />
 </div>
 
 
@@ -374,7 +611,7 @@ Safe Mode Launcher 1.1 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763220.jpg" />
 </div>
 
 
@@ -400,7 +637,7 @@ WinHex 19.6 SR-6 PortableAppC by Joo Seng's [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760054.jpg" />
 </div>
 
 
@@ -426,7 +663,7 @@ SystemTools Hyena 12.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751497.jpg" />
 </div>
 
 
@@ -437,240 +674,6 @@ SystemTools Hyena 12.0.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D38A3C295487D33F20AC2D31C84613C99B4A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217744   (740568) от 06.04.2018
-
-SQLyog 12.5.1 Pro/Enterprise/Ultimate [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740568.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLyog Ultimate являет собой расширенной версией одной из наиболее мощных программ для управления и администрирования серверами баз данных MySQL. Она объединяет в себе лучшие черты MySQL Query Browser, Administrator, phpMyAdmin, других Front-End и GUI инструментов для работы с MySQL, в едином интуитивно-понятном интерфейсе.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C6AB318433373FEBD933EBF811685E15DC0D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130656   (714051) от 02.05.2017
-
-Novicorp WinToFlash Professional 1.8.0000 Final + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714051.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToFlash — это приложение, позволяющее полностью перенести программу установки Windows XP, Windows 2003, Windows Vista, Windows 2008, Windows 7, Windows 8, Windows 10 на USB накопитель за несколько кликов мышки. Это означает, что вы можете установить Windows с флэш карты, HDD или другого накопителя на ваш компьютер или нэтбук. И это не все, что она может делать. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF2113C8C0C326CEAEA6CE1F0E6238110701789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219323   (713132) от 14.04.2018
-
-QR-Code Studio 1.0.2.20600 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для быстрого и легкого создания QR-кодов. Очень простая в использовании и не требует никаких специальных знаний. Помощник ввода данных упрощает создание штрихкодов QR-Code для мобильной маркировки и маркетинга: всего за несколько секунд можно создать штрихкоды QR-Code для веб-сайтов, скачивания файлов, для ссылок на приложения, Facebook, Twitter и LinkedIn (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1A03D90461EE7BC66FAEA246A6F604AFBA886D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221093   (696485) от 23.04.2018
-
-IDM UltraCompare Pro 18.00.0.62 Repack by Alex Zaguzin [Ru/En]
-
->>След.
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696485.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraCompare - это текстовый редактор, оптимизированный для работы одновременно с несколькими файлами, с целью нахождения отличий в этих файлах. Поддерживает построчное сравнение (Binary Compare) отдельных файлов. В строке состояния отображается количество различных блоков, также предусмотрена возможность поиска различий в папках путём рекурсивного сравнения директории (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D95CD697B4021E0219387304AC82642948E2C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133760   (690798) от 14.05.2017
-
-MTS CNC-System 8.0 Demo [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690798.jpg" />
-</div>
-
-
-###  Подробнее
-
-MTS CNC-System - это моделирование с ЧПУ, программа CAM Milling and Turning с поддержкой виртуальной 3D-реальности. Программа предоставляет в любом диалоговом окне управления ЧПУ, вычисления шероховатости для фрезерования и поворота, проверки коллизий во время обработки и анализа программы nC с вычислением объема стружки и времени.Язык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD02DA8CA39CCC3BE062C5E0992D8A286C9BF6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134874   (686659) от 16.05.2017
-
-ISS SecurOS Lite 9.2 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686659.jpg" />
-</div>
-
-
-###  Подробнее
-
-SecurOS™ Lite - бесплатная полнофункциональная редакция системы видеонаблюдения на 32 IP-камеры с неограниченной глубиной архива. Данная редакция дает возможность построить полноценную систему с расширенным функционалом, позволяющую обеспечить решение широкого круга задач в области безопасности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1AB42A2FDF00D08E915F1FF6107F47833871FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540790   (650467) от 31.03.2022
-
-SAPIEN PrimalScript 2022 v8.0.161 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650467.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrimalScript - это следующее поколение нашей отраслевой среды Universal Script Environment. Как система, администратор базы данных или сетевой администратор, веб-разработчик или разработчик конечного пользователя, необходимо одновременно работать с несколькими технологиями, языками и форматами файлов. Интерфейс ленты PrimalScript был тщательно разработан для того, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC5E9B4E25BBE5135736334F06FAED613F04F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292666   (642553) от 31.03.2019
-
-Ghidra 9.0.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghidra - это среда реверс-инжиниринга программного обеспечения (SRE), разработанная Исследовательским управлением АНБ. Эта структура включает в себя набор полнофункциональных инструментов анализа программного обеспечения высокого класса, которые позволяют пользователям анализировать скомпилированный код на различных платформах, включая Windows, Mac OS и Linux. Возможности (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51BECAEA1D66203D897790F1E4FE026C6DF0C2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144550   (626923) от 22.06.2017
-
-Novicorp WinToFlash Professional 1.11.0000 Final RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>След.
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Novicorp WinToFlash – знаменитое приложение для создания мультизагрузочных USB флэшек и жестких дисков через удобное меню с неограниченным количеством установок Windows, оффлайн антивирусов, LiveDVD, реаниматоров и других мини-ос или тестов. Программа может самостоятельно скачать из интернета образы выбранных вами дисков и создать кэш этих образов на вашем компьютере, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44B9E4330F16E22CBC2FC2C089B7B2DCFCAA2C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

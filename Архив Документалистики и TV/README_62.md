@@ -1,3 +1,29 @@
+###  Публикация: 1003531   (843423) от 03.04.2016
+
+Вести недели (03.04.2016) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843423.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».В этом выпуске: Конфликт в Карабахе, уничтожение памятников Советским солдатам в Польше, герой Пальмиры 25 летний спец.назовец Александр Прохоренко и 82 летний музейный хранитель Халлед Аль Асад, интервью Башара Ассда, Украинский дессант в Голландии на деньги Сороса, Элла Панфилова новый глава ЦИК и другие новости недели.Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2337C066DFB44012A5DB1C22C7F09985228AA37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003349   (843326) от 03.04.2016
 
 Футбол. Чемпионат Испании 2015-2016. 31 тур. Барселона - Реал. (02.04.2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843326.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842761.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ NG:Взгляд изнутри. Одиночное заключение / NG:Ins
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842661.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842365.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841954.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841953.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841912.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841911.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841910.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841900.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841867.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841859.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841737.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841736.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841735.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841732.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Этап 1 - Clipsal 5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841636.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841529.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_841152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_841152.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840904.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ NG: Инженерные идеи с Ричардом Хаммондом. Ара
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840899.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840393.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840392.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840324.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840322.jpg" />
 </div>
 
 
@@ -676,35 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A61FE9C2A63FE466B059BB8CBDEBCFC13335443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002939   (840321) от 05.04.2016
-
-Футбол. Чемпионат Германии 2015-2016. 28 тур. Байер - Вольфсбург. (01.04.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 апреля 2016, пятница. 21:30 МСК
-28-й тур
-
-Стадион: Бай-Арена (Леверкузен, Германия) , 29 239 зрителей (97 % при вместимости 30 210)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E11905A98CB383E2F6FE021C6D2F5F75C72476
 ```
 
 https://mybot314.ru/tekegram_catalog/

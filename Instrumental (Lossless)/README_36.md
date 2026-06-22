@@ -6,7 +6,7 @@ C.W. Stoneking - Gon' Boogaloo (2014) [FLAC|Lossless|tracks + .cue] <Acoustic Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841627.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chris Rea - Blue Guitars VI - Chicago Blues (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841076.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joe Bonamassa - Dust Bowl (2011) [FLAC|Lossless]<Blues, Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840796.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Danny Del Toro - Bad Beat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840104.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Chris Rea - Blues Guitars VIII - Gospel Soul Blues & Motown (2020) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839826.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Chris Rea - Blue Guitars VII - Blues Ballads (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839581.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ John Lee Hooker - The Classic Early Years 1948-1951 (JSP box 4CD) (2002) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839025.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Chris Rea - Blue Guitars X - Latin Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837874.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Chris Rea - Blue Guitars IX - Celtic & Irish Blues (2020) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837864.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Chris Rea - Blue Guitars XI - 60S & 70s (2020) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837862.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ray Charles - Standards (1998) [APE|Lossless]<Blues, R&B, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837351.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The Jeff Healey Band - Live At Grossman's (1994) Live, 2011, Eagle Records [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836613.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Lane Mack - Lane Mack (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835340.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Jeff Healey - Mess Of Blues (2008) Compilation [FLAC|Lossless|tracks + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835305.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Jeff Healey - Heal My Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_835295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835295.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Lazer Lloyd - Lazer Lloyd (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835292.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Brad Curtis & The SOME x 6 Band - Like A Sonic Gypsy (2017) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835286.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Chicken Shack - The Very Best Of Chicken Shack (1990) [FLAC|Lossless|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835255.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ The Jeff Healey Band - The Very Best Of (1998) Compilation [FLAC|Lossless|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835243.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Izzo Blues Coalition - Take It or Leave It (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835030.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Layla Zoe - The Lily (2013) [FLAC|Lossless|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834459.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Coen Wolters Band - As The Crow Flies (2006) [FLAC|Lossless|tracks + .cue] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833736.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Big Mama Montse Band - Seed Of Love (2017) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833613.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ David Gogo - Silver Cup (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833533.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Kt Conlon Alive in Blue - Twelve (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833531.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833468.jpg" />
 </div>
 
 

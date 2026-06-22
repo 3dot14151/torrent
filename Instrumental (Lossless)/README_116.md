@@ -6,7 +6,7 @@ Koko Taylor - What It Takes: The Chess Years (1977) Expanded Edition, 2009, Geff
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112366.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112161.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ramblin' Preachers - Sins & Virtues (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112027.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paul Butterfield - North South (1980) Reissue, 2006, Wounded Bird Records [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111796.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Electric Blues - Time Passed Me By (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111631.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Session Americana - The Rattle and The Clatter  Twenty Years (so far) of Session
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111620.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Copenhagen Blues Band - I'm Not in a Hurry - Copenhagen Blues Band - I'm Not in 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111587.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Leif De Leeuw Band - Mighty Fine (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111584.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jimi Fiano - Sweat and Pray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111582.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Catfish John Tisdell - Don't Look Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111581.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Harry Orlove - Mildly Popular (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111518.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Big Chico - 30 Anos De Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmon
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111516.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Marvin Scondo - Road Trip Session Vol. I  (Deluxe Edition) (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111514.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cassie Rose & The Sol Garden - On The Wind (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111512.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Blues, Swagger & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111510.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Blues Celebration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111467.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - 100 Soul Train Hits (2010) Re-Recorded/Remastered versions [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111457.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111445.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Country Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111443.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Oktay Kocamaz - No Money, no Honey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111423.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Electro Blues - In House Selection (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111389.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - The Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111387.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dempsey Crenshaw & Danny Banda - The Blues Brought Me Through (2024) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111353.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Kevin & JD - 10 From 5 - The Best Of Kevin & JD (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111350.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Engel Mayr - Heavy Metal Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111292.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Tedd Graves - The Day My World Turned Blue (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111291.jpg" />
 </div>
 
 

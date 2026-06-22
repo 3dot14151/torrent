@@ -1,3 +1,134 @@
+###  Публикация: 1453073   (1027123) от 09.03.2021
+
+Трафик / Crisis (2021) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наркоторговец организует операцию по контрабанде фентанила между Канадой и США, архитектор, выздоравливающий от оксиконтиновой зависимости, ищет правду о причастности своего сына к наркомиру, а университетский профессор сражается с неожиданными откровениями о своем работодателе — влиятельной фармацевтической компании, выводящей на рынок новое «не вызывающее привыкания» (   Читать дальше...   )Производство: Канада, Бельгия / Les Productions LOD, Bideford Productions, Burn Later ProductionsЖанр: Триллер, драмаРежиссер: Николас ДжарекиАктеры: Гари Олдман, Арми Хаммер, Эванджелин Лилли, Грег Кинниэр, Мишель Родригес, Люк Эванс, Лили-Роуз Депп, Ги Надон, Вероника Феррес, Скотт МескадиПеревод: Авторский (А. Дольский)Субтитры: ОтсутствуютПродолжительность: 01:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950DED8D538C6FBAEAB55E33AFD4666E871BFD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453457   (1026896) от 11.03.2021
+
+Приемлемая потеря / The Pages / An Acceptable Loss (2018) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элизабет Лэмм в прошлом была высокопоставленным правительственным чиновником, в чьи задачи входило консультирование по вопросам национальной безопасности. Из-за тяжелого решения, которое ей пришлось принять четыре года назад, она ушла с работы и теперь вынуждена жить в вечном страхе: она спит с пистолетом под подушкой, не пользуется смартфоном и электронной почтой. (   Читать дальше...   )Производство: США / CorradoMooncoin, Particular CrowdЖанр: Триллер, драмаРежиссер: Джо ЧаппелльАктеры: Джейми Ли Кёртис, Тика Самптер, Бен Тавассоли, Джефф Хефнер, Дианна Данаган, Алекс Уайзман, Ali Burch, Кларк Питерс, Дэвид Эйгенберг, Алисия РайнерПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced), английские - отдельными файламиПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097E62FB2E0D4CAFEF9951AD22B582AC95DCB774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453224   (1026865) от 11.03.2021
+
+Человек на Луне / First Man (2018) BDRip [IMAX Edition]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба любит смельчаков, а Нил Армстронг однозначно принадлежит к их числу. Весь мир знает его имя, но мало кому известно, какой ценой астронавту дался маленький шаг, ставший огромным скачком для всего человечества.Производство: США, Япония / Universal Pictures, Dreamworks Pictures, Perfect World PicturesЖанр: Драма, Биография, ИсторияРежиссер: Дэмьен ШазеллАктеры: Райан Гослинг, Клер Фой, Джейсон Кларк, Кайл Чандлер, Кори Столл, Патрик Фьюджит, Кристофер Эбботт, Киран Хайндс, Оливия Хэмилтон, Пабло ШрайберПеревод: Дублированный (BD CEE)Субтитры: ОтсутствуютПродолжительность: 02:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4405F9FB8CCABCE11D80F9C8D9F8C288E4061A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214237   (1026834) от 11.03.2021
+
+Дорога на Арлингтон / Arlington Road (1999) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллигентный профессор Майкл Фарадей, в одиночку воспитывающий своего сына после трагической гибели жены во время рейда ФБР, и не представляет, какой крутой поворот вскоре совершит его судьба. Знакомство с милой соседской семьей помогает Майклу оправиться от потрясения и вернуться к нормальной жизни.
+Однако чем дольше Майкл общается с новыми друзьями, тем больше (   Читать дальше...   )Производство: США / Arlington Road Productions Corporation, Gorai/Samuelson, Lakeshore Entertainment, Screen GemsЖанр: Триллер, ДрамаРежиссер: Марк ПеллингтонАктеры: Джефф Бриджес, Тим Роббинс, Джоан Кьюсак, Хоуп Дэвис, Роберт Госсетт, Мейсон Гэмбл, Спенсер Трит Кларк, Стенли Андерсон, Вивиан Вайвз, Ли СтрингерПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BCC9C74926D1296C265423DC4E01BF7A6026EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453284   (1026826) от 11.03.2021
+
+Карта совершенных мгновений / The Map of Tiny Perfect Things (2021) WEBRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марк безмятежно живёт, бесконечно переживая один и тот же день. Всё меняется, когда он встречает Маргарет, которая также находится в петле. Они решают провести бесконечность вместе, стремясь найти все мелочи, которые сделают этот вечный день идеальным. Но в какой-то момент герои начинают задумываться над будущим.Производство: США / FilmNation Entertainment, Weed Road PicturesЖанр: мелодрама, комедия, фэнтезиРежиссер: Йен СэмюэлсАктеры: Кайл Аллен, Кэтрин Ньютон, Jermaine Harris, Анна Миками, Джош Хэмилтон, Клео Фрайзер, Аль Адригал, Джоржа Фокс, Teance Blackburn, Миа Ловелл и д.р.Перевод: Профессиональный (двуголосый закадровый) (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские (отдельно)Продолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16318528360331179D94C3D7BFE7658F8872DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453687   (1026728) от 12.03.2021
 
 Напиши, когда найдёшь работу / Write When You Get Work (2018) WEB-DLRip [MVO]
@@ -6,7 +137,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026728.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026708.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026673.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026667.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026664.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026496.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026488.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026484.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026482.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026459.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026358.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026298.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026294.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026285.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026164.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026065.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026059.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026048.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026041.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025890.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025869.jpg" />
 </div>
 
 
@@ -539,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A8ABA2E4427D29D84A435B173CAB46B2FA987A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455157   (1025709) от 18.03.2021
-
-Соседи сверху / Sentimental (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хулио и Ана больше 15 лет вместе. Между ними давно нет огня, только ежедневная перестрелка колкостями. Почти единственное, что их ещё сближает — обсуждение Сальвы и Лауры из квартиры этажом выше: что ни ночь, оттуда доносятся возмутительно страстные стоны. А однажды они заходят в гости с невероятным предложением. И жизнь всех четверых получает неожиданную встряску.Производство: Испания / Impossible Films, Institut Català de les Empreses Culturals (ICEC), Movistar+Жанр: КомедияРежиссер: Сеск ГайАктеры: Белен Куэста, Хавьер Камара, Альберто Сан Хуан, Гризельда СицилианиПеревод: Дублированный (iTunes)Язык озвучки: Русский, испанскийСубтитры: ОтсутствуютПродолжительность: 01:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF1051B1AD93E6E16B37ED2BF1C68BEF122C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455705   (1025419) от 20.03.2021
-
-Спиной к стене / Against the Wall (1994) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025419.jpg" />
-</div>
-
-
-###  Подробнее
-
-1971 год. В печально знаменитой нью-йоркской тюрьме Аттика вспыхивает восстание заключенных, беспощадно подавленное властями и приведшее к многочисленным жертвам среди заключенных и персонала.
-Эта суровая, правдивая история рассказана от лица одного из охранников Майкла Смита, взятого восставшими в числе других служащих тюрьмы в заложники. Молодой парень противопоставляет (   Читать дальше...   )Производство: США / HBO FilmsЖанр: Боевик, Триллер, Драма, ИсторияРежиссер: Джон ФранкенхаймерАктеры: Кайл МакЛоклен, Сэмюэл Л. Джексон, Кларенс Уильямс III, Фредерик Форрест, Гарри Дин Стэнтон, Филип Боско, Том Бауэр, Энн Хеч, Кармен Ардженциано, Питер Мёрник, Стив Харрис, Дэвид Экройд, Дэнни ТрехоПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883D947B6B51030E0D767862D64DE37045D63D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455733   (1025360) от 20.03.2021
-
-Цикада 3301: Квест для хакера / Dark Web: Cicada 3301 (2021) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот квест «взорвал» даркнет в 2012 году. Пройти его могут лишь избранные — те, кто разгадают загадки, разбросанные по всему миру. Цель теста — найти людей с поистине высоким интеллектом. Авторы — анонимы под ником Цикада 3301 — могут быть кем угодно: от кибер-гиков до представителей спецслужб. Что ждет игроков в финале? Гениальный хакер Коннор и его друзья пускаются (   Читать дальше...   )Производство: США / AllyCat EntertainmentЖанр: Боевик, триллер, комедияРежиссер: Алан РичсонАктеры: Алан Ричсон, Кристен Холден-Рид, Конор Лесли, Джесс Салгейру, Джек Кеси, Рон Фанчес, Ава Блэкуэлл, Хеннеки Талбот, Андреас Апергис, Бенжамин СазерлендПеревод: Дублированный (iTunes)Субтитры: РусскиеПродолжительность: 01:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA685E85575B4B41AACA714473561DF147505C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455776   (1025352) от 20.03.2021
-
-Воздушный бой / Shadow in the Cloud (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025352.jpg" />
-</div>
-
-
-###  Подробнее
-
-В разгар Второй мировой войны бомбардировщик B-17 «Летающая крепость» сопровождает груз под грифом «секретно». Команду возглавила молодая женщина – капитан Мод Гарднер, что вызвало скепсис у суровых бойцов. Едва поднявшись в воздух, экипаж вступает в бой с японскими истребителями, а на борту вынужден отражать внезапное нападение зловещего существа. Капитан Мод должна (   Читать дальше...   )Производство: Новая Зеландия, США / Four Knights Film, Rhea Films (II)Жанр: Ужасы, боевик, военныйРежиссер: Розанна ЛянАктеры: Хлоя Грейс Морец, Ник Робинсон, Бела Коале, Тейлор Джон Смит, Каллэн Мулвей, Бенедикт Уолл, Байрон Колл, Джо Уитковски, Liam Legge, Asher BridleПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced), Английские (SDH)Продолжительность: 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B61BB06482BD64BE31B4A4E72FCD2E4CE6077E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455807   (1025339) от 20.03.2021
-
-Цикада 3301: Квест для хакера / Dark Web: Cicada 3301 (2021) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот квест «взорвал» даркнет в 2012 году. Пройти его могут лишь избранные — те, кто разгадают загадки, разбросанные по всему миру. Цель теста — найти людей с поистине высоким интеллектом. Авторы — анонимы под ником Цикада 3301 — могут быть кем угодно: от кибер-гиков до представителей спецслужб. Что ждет игроков в финале? Гениальный хакер Коннор и его друзья пускаются (   Читать дальше...   )Производство: США / AllyCat EntertainmentЖанр: Боевик, триллер, комедияРежиссер: Алан РичсонАктеры: Алан Ричсон, Кристен Холден-Рид, Конор Лесли, Джесс Салгейру, Джек Кеси, Рон Фанчес, Ава Блэкуэлл, Хеннеки Талбот, Андреас Апергис, Бенжамин СазерлендПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C64051D157DA4C10B463AA00771FBC96814587C
 ```
 
 https://mybot314.ru/tekegram_catalog/

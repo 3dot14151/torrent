@@ -1,3 +1,31 @@
+###  Публикация: 1564534   (499747) от 19.07.2022
+
+Music Tag Editor Pro 7.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
+Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
+Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2013-2021 yumysoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5385BDDFD533CAB433FE95E1995DD2436C02CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564664   (499746) от 19.07.2022
 
 DVD-Cloner 2022 v9.30.730 [En]
@@ -6,7 +34,7 @@ DVD-Cloner 2022 v9.30.730 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499746.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ SILKYPIX Developer Studio Pro 11 11.0.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499743.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Things 3 v3.15.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499718.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ Web Dumper for Mac 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499717.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ Task Office 7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499714.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ zGallery – Image Viewer 4.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499704.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ Adobe Substance 3D Designer 12.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499507.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ PopClip 1.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499345.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ iMazing 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499234.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ Capture One Pro 8.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499074.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ TextMan 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498635.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ EdgeView 3 v3.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498634.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ Keep It 2.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498632.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498631.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ ApolloOne - Photo Video Viewer 3.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498592.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ Dropzone 4 Pro v4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498591.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ SyncTime 4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498589.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ Nevercenter CameraBag Photo 2022.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498588.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ Grids for Instagram 8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498587.jpg" />
 </div>
 
 
@@ -509,7 +537,7 @@ Retrobatch Pro 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498585.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ FSNotes 5.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498582.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ Nova 9.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498576.jpg" />
 </div>
 
 
@@ -590,7 +618,7 @@ Pro Microphone: Audio Recorder 1.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498575.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ PDF Reader Pro Edition 2.8.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498574.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ OnyX 4.2.1 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498531.jpg" />
 </div>
 
 
@@ -654,34 +682,6 @@ OnyX 4.2.1 for macOS Monterey 12 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:916C3C14225A9F750BBAFB6A04492624E9F407DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564847   (498528) от 20.07.2022
-
-Kaleidoscope 3.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaleidoscope — приложение, предназначенное для сравнения текстовых или графических файлов и быстрого поиска различий в них.
-Область применения программы предельно ясна.
-Если вы программист, то с помощью Kaleidoscope всегда будете видеть различия в коде двух версий файлов. При этом зелёным цветом будут подсвечиваться добавленные строки, красным — удалённые, а синим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2010-2022 Letter Opener GmbHПоддерживаемая ОС: OS X 11.1 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6182B14B0CE46EA7CBB012E1B2D1EB1B358C97E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

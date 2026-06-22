@@ -1,3 +1,32 @@
+###  Публикация: 1679916   (134803) от 27.11.2023
+
+Анна Эрман | Цвет в современном интерьере (2023) WEB-DL [AD] [EN]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходилось ли вам чувствовать сомнения, когда вы видели внушительный по размеру веер с цветами для стен? А выбирать между светлым и таинственным темным? Или, может, ну его, и сделать нейтральный бежевый, чтобы точно не ошибиться?!
+
+А как выбрать цвет мебели? Наверное, это возможно, если изучить правила сочетаний оттенков?!
+(   Читать дальше...   )Жанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 02:26:47Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6821634ADC645DBABDB43DF98D2476E1117BCAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592765   (134306) от 24.12.2012
 
 Камасутра - позиции цветущего сада / Kama Sutra - positions of a blossoming garden (2005) DVDRip
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134306.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130771.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130687.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130157.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130113.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130109.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Diodov.net, Дмитрий Забарило | Теоретические осн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129675.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129439.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128783.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128462.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128450.jpg" />
 </div>
 
 
@@ -310,7 +339,7 @@ CG Education, Максим Шаров,  Алиса Арифи | Геймифик
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128289.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127479.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ Focus Film International Ltd., Кеннет Кнолл | Камасутра - п
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126570.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125477.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125360.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125072.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122112.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120593.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120588.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117521.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Udemy, Meritshot Academy | Statistics and Hypothesis Testing for Data science (2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115586.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114067.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Freevods. Всё покерное видео. Обновления за март
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86219.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83083.jpg" />
 </div>
 
 
@@ -680,40 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABA0521259C37A2F3E3DE9C8B86DE0E8864AD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469622   (82779) от 17.03.2012
-
-[Специалист] Microsoft Excel 2010/ 2007. Уровень 4. Макросы на VBA [2012] PCRec
-
->>След.
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: По окончании курса Вы будете уметь:
-Записывать макросы и усовершенствовать автоматически сгенерированный программный код
-Работать с редактором Visual Basic, создавать процедуры на VBA
-Программно обращаться к рабочим книгам, листам и диапазонам ячеек, изменять их свойства
-Программировать многократно повторяющиеся операции с помощью циклов
-Создавать и применять пользовательские функции
-Использовать пользовательские кнопки и события рабочих книг и листов для запуска макросов
-Выполнять программную обработку ошибок. Отлаживать и тестировать программы
-Устанавливать защиту проекта VBAЖанр: ITПродолжительность: 11:24 примерно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64F30391071B0199AF7BD7FC1E5D6FF82DBDDBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

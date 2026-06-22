@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1876555   (1073477) от 
+
+Формула 1. Сезон 2026. Этап 7. Гран-при Барселоны-Каталуньи. Гонка (14.06.2026) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073477.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 июня 2026 воскресенье 16:00 МСК этап 7. Арена: Автодром Барселона-Каталунья. Гран-при Барселоны-Каталуньи. Гонка (66 кругов).Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B62BEBD85E8185903D0A4B71287CAD05BA8191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876394   (1073253) от 
+
+Формула 1. Сезон 2026. Этап 7. Гран-при Барселоны-Каталонии. Квалификация (13.06.2026) WEBRip [H.264/1080p] [60 fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073253.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 мая 2026 17:00. Этап 7 Формула 1. Гран-при Барселоны-Каталонии. Квалификация.Телекомпания: F1TVЖанр: автоспортЯзык озвучки: Русский (Глеб Косарев, Кирилл Сагач)Продолжительность: 01:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F26319EF8405CDD1CE634C5FF5824972AC8A285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876401   (1073252) от 
+
+Формула 1. Сезон 2026. Этап 7. Гран-при Барселоны-Каталуньи. Квалификация (13.06.2026) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073252.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 июня 2026 суббота 17:00 МСК этап 7 Испания. Гран-при Барселоны-Каталуньи. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F5F400BB02B465B6C9271383FEB38A75A749B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876396   (1073213) от 
+
+Формула 1. Сезон 2026. Этап 7. Гран-при Барселоны. Квалификация (13.06.2026) WEB-DL [H.265/1080p]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формула 1. Сезон 2026. Этап 7. Гран-при Барселоны. Квалификация (13.06.2026)Телекомпания: F1TVЖанр: формула 1Язык озвучки: русский, английский и др.Продолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6E4EA58A0BAB2F5748A9B383A0DDBAF6EA425C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875447   (1072583) от 
 
 Формула 1. Сезон 2026. Этап 6. Гран-при Монако. Гонка (07.06.2026) WEBRip [H.264/720p] [50fps] F1TV
@@ -7,7 +111,7 @@ https://t.me/izofen
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072583.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072561.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072527.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072487.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072419.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070906.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070891.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070770.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070769.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070768.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070637.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070636.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068626.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068625.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068624.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068623.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067872.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067827.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067791.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067672.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064251.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064199.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D3AFAE257B82EC57F4A6F1E5D9D3429E47407E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863163   (1063515) от 04.04.2026
-
-Формула 1. Сезон 2026. Этап 3. Гран-при Японии. Квалификация (28.03.2026) WEBRip [H.264/1080p] [60 fps]  F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063515.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 марта 2026 09:00. Этап 3 Формула 1. Гран-при Японии. Квалификация. Автодром Сузука.Телекомпания: F1TVЖанр: автоспортЯзык озвучки: Русский (Никита Быховец, Илья Васильев)Продолжительность: 01:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575F693320122E6F3C2C53CD26C0953CD1641A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863187   (1063496) от 04.04.2026
-
-Формула 1. Сезон 2026. Этап 3. Гран-при Японии. Гонка (29.03.2026) WEBRip [H.264/1080p] [60 fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063496.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 марта 2026 08:00. Этап 3 Формула 1. Гран-при Японии. Гонка. Автодром Сузука.Телекомпания: F1TVЖанр: автоспортЯзык озвучки: Русский (Никита Быховец, Кирилл Сагач)Продолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929A26F0015E3A90FA2FA2162325E9E83DFFD9AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859573   (1061324) от 16.03.2026
-
-Формула 1. Сезон 2026. Этап 2. Гран-при Китая. Гонка (15.03.2026) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061324.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 марта 2026 воскресенье 10:00 МСК. Гран-при Китая, этап 2 Шанхай, Китай. Арена: Международный автодром Шанхая. Гонка (56 кругов).Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F805D736A79CD90C7FEA6EAA6F09AD764A3746E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859335   (1061097) от 15.03.2026
-
-Формула 1. Сезон 2026. Этап 2. Гран-при Китая. Спринт-квалификация (13.03.2026) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061097.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 марта 2026 пятница 10:30 МСК. Гран-при Китая. Спринт-квалификация, этап 02 Шанхай, Китай. Арена: Международный автодром Шанхая.Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557CF3F111D9AE793FE174EB66EC3C43BDD480A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

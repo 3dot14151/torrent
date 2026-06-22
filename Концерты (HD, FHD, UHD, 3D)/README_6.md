@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931651.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930427.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927012.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926989.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925674.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925657.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Schiller: Zeitreise Live (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923977.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920566.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Beth Hart -  Live in Brezoi HIGH FIVE ROMANIA (2021) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918931.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918847.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918770.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mylene Farmer/Милен Фармер – Live 2019 - Le Film (2019) UHD BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918498.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916610.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915564.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915428.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913245.jpg" />
 </div>
 
 
@@ -452,6 +452,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757926   (911782) от 19.02.2014
+
+The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_911782.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Freddie Mercury Tribute Concert for AIDS Awareness (Концерт памяти Фредди Меркьюри для информирования о СПИДе) - концерт состоялся под открытым небом в пасхальный понедельник, 20 Апреля 1992 года, на стадионе «Уэмбли» в Лондоне, с аудиторией в 72 000 человек.01.Intro
+02. Brian May, Roger Taylor, John Deacon — Introduction
+03. Metallica — Enter Sandman
+04. Metallica — Sad But True(   Читать дальше...   )Жанр: RockРежиссер: David MalletЯзык субтитров: English, German, Spanish, French, ItalianПродолжительность: 03:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC12293967EDE7E0619E33FA2DB94D2D33CDEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368089   (910778) от 19.03.2020
 
 Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p]
@@ -460,7 +489,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910778.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ Lindemann - Live at Moscow (VTB Arena) (15.03.2020) WEB-DLRip [VP9/2160p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910520.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ The Rolling Stones: Havana Moon (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_910124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910124.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) 30th Anniversary S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909861.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907183.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906490.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906167.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901318.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900155.jpg" />
 </div>
 
 
@@ -700,35 +729,6 @@ Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE09F282090543BDE0710B8A7034B90CF914798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760676   (899531) от 26.02.2014
-
-Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert - Daniel Barenboim & Wiener Philharmoniker (2014) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.Eduard Strauss; Helenen Quadrillen; op.14
-Josef Strauss; Friedenspalmen; Walzer op.207
-Johann Strauss Vater; Carolinen Galopp; op.21a
-Johann Strauss Jun; Ägyptischer Marsch; op.335(   Читать дальше...   )Жанр: Классика, концерт Большого Симфонического оркестраПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80994B22D9AA91FB1EAB6B26A9A7F211731C6668
 ```
 
 https://mybot314.ru/tekegram_catalog/

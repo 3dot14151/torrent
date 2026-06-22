@@ -1,3 +1,61 @@
+###  Публикация: 1784543   (25001) от 11.03.2025
+
+Иван Тургенев | Гамлет и Дон Кихот (2018) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
+Студия «МедиаКнига» представляет аудиокнигу знаменитого русского писателя Ивана Сергеевича Тургенева «Гамлет и Дон Кихот».
+«Мы сказали, что одновременное появление «Дон (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: МедиаКнигаПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD32788610DD52BC1F0D61B67856508D39F59E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784547   (24999) от 11.03.2025
+
+Иван Тургенев | Где тонко, там и рвётся (Радиоспектакль) (2024) [MP3, Андрей Лёвин, Наталья Мартынова и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
+«Где тонко, там и рвётся» – комедия в одном действии Ивана Сергеевича Тургенева, написанная в 1848 году.
+(   Читать дальше...   )Жанр: Русская литература, классика, комедия, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E333420E4C82248454BCF4524074CA4BB8B16401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784537   (24997) от 11.03.2025
 
 Александр Пушкин | Цыганы (Радиоспектакль) (2024) [MP3, Алла Еминцева, Юрий Елагин и др.]
@@ -6,7 +64,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24997.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24996.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24975.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24329.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24136.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22517.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22249.jpg" />
 </div>
 
 
@@ -204,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21014.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21010.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21008.jpg" />
 </div>
 
 
@@ -289,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20800.jpg" />
 </div>
 
 
@@ -315,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20695.jpg" />
 </div>
 
 
@@ -342,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20650.jpg" />
 </div>
 
 
@@ -369,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20649.jpg" />
 </div>
 
 
@@ -396,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20646.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20645.jpg" />
 </div>
 
 
@@ -449,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20642.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20176.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19776.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19773.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19768.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19753.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19245.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19144.jpg" />
 </div>
 
 
@@ -659,62 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:369934CC3270FC280B6FE9550B365CB4FAE94B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796018   (19033) от 07.05.2025
-
-Александр Твардовский | Василий Тёркин. Главы поэмы (2023) [MP3, Александр Лыков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Александр Трифонович Твардовский (1910–1971) – советский писатель и поэт. Главный редактор журнала «Новый мир» (1950–1954; 1958–1970).
-Поэма «Василий Тёркин» одно из главных произведений в творчестве поэта, получившая всенародное признание. Поэма посвящена вымышленному герою – Василию Тёркину, солдату Великой Отечественной войны. (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10DDFD101EBD38F101F26DF5D525FB19F284B62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796019   (19024) от 07.05.2025
-
-Александр Твардовский | Василий Тёркин. Книга про бойца (2007) [MP3, Виктор Татарский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Военная поэзия.
-Александр Трифонович Твардовский (1910–1971) – советский писатель и поэт.
-Поэма «Василий Тёркин», весёлая и печальная, проникновенно-лирическая и в то же время насыщенная «фронтовой хроникой», – одно из самых ярких произведений советской поэзии военного времени. Собирательный образ русского солдата, находящего выход из самых трудных положений, (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: 1С-Паблишинг, VOX recordsПродолжительность: 03:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CEFFDA7AC7B0371763C63E8DB0A1A36288882A
 ```
 
 https://mybot314.ru/tekegram_catalog/

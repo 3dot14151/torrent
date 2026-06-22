@@ -1,3 +1,29 @@
+###  Публикация: 1648183   (195301) от 22.07.2023
+
+Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит играть за молодую девушку по имени Сейда, у которой монстры похищают ребенка. Ситуация на планете ужасает: мир умирает из-за неизвестной чумы, люди в панике и полностью пали духом. Живёт только одно поселение на всей Земле. Название говорящее – Последний город (Last City). И в таком депрессивном окружении ещё и дочку утащили адские существа.Тип издания: SceneРазработчик: Duality GamesЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E804F2C4C1D98A78651DC991B314F51D2E060D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648663   (195241) от 24.07.2023
 
 Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
@@ -6,7 +32,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195241.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195204.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Demonic Supremacy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194693.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ World War Z (2019) [Ru/Multi] (27.06.2023/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194603.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194193.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194029.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193988.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193767.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193563.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193466.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Metal Eden (2025) [Ru/Multi] (85667) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193461.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wante
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193385.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192430.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Remoteness (2022) [Ru/Multi] (1.80) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191874.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191049.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191043.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Scene Rune [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191030.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack dixen18 [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190715.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Ghostbusters: Spirits Unleashed (2022) [Ru/Multi] (1.2.3.13348) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190446.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Lempo (2023) [Multi] (0.111) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189514.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187225.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Quake II RTX (2019) [En] (1.7.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184990.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184749.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183309.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181896.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B04F59F562FF501466CA2E0E0C32689C5003C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665732   (181078) от 01.10.2023
-
-AMID EVIL (2019) [En] (2614/dlc) Scene Skidrow
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181078.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMID EVIL выполнена в духе прародителей жанра FPS. В основу игры легли стилистика, динамика и простота геймплея шутеров старой школы. Огромные нелинейные уровни с уникальным дизайном, полчища разнообразных врагов с уникальными атаками, способностями и поведением. Арсенал из 7 видов оружия предоставляет все средства для грамотного и эффективного ликвидирования каждого (   Читать дальше...   )Тип издания: SceneРазработчик: IndefatigableЖанр: Шутеры, Экшны, FPPЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F759E776541926C5868F61449F63E668294F6E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

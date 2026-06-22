@@ -1,3 +1,159 @@
+###  Публикация: 1602282   (1046009) от 06.01.2023
+
+Звёзды и розы / Ai ren tong zhi / Stars and Roses (1989) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гонконгский фотожурналист Лу получает задание от босса доставить в Вьетнам некие документы. На месте Лу влипает в неприятную историю, за которую оказывается на две недели в местной тюрьме – жутком месте, где права человека ни во что ни ставят. А когда выходит на свободу, заводит дружбу с переводчицей-вьетнамкой Юань Хонг, брат которой вроде бы должен сидеть в том (   Читать дальше...   )Производство: Гонконг, Chun Sing Film CompanyЖанр: драма, военный, историяРежиссер: Тейлор ВонАктеры: Энди Лау, Чери Чун, Шейла Чан, Джеймс Ха, Хо Дун, Сан Нэм Хунг, Лам Вай, Чун Фай Лау, Минг Люн, Sap-Yat LeungПеревод: Авторский (Акира)Язык озвучки: русский, китайскийСубтитры: английские (PGS), китайские (PGS)Продолжительность: 01:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B60D1BAAB73162BFF178B38CF5E9575CE8B608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602974   (1045837) от 08.01.2023
+
+Гангстерские войны / Xin Shang Hai tan / Shanghai Grand (1996) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два главы бандитских группировок решили взять под контроль весь многомиллионный Шанхай. Но чем выше они поднимаются по ступеням власти, ведущим к славе и огромным деньгам, тем больше льётся крови. И только смерть может поставить точку в этой безумной гонке.Производство: Гонконг, Film Workshop Ltd.Жанр: Боевик, триллер, криминалРежиссер: Мэн Кит ПунАктеры: Энди Лау, Лесли Чун, Нин Цзин, Чон У-сон, Лау Шунь, Син-куо Ву, Аманда Ли, Алмен Вонг Пуй-Ха, Ли Кин-Ян, Чан Кин-ЯтПеревод: Авторский (Александр Кашкин-Первомайский)Язык озвучки: русский, китайскийСубтитры: китайские (PGS), английские (PGS)Продолжительность: 01:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437459BB29FE44FC9DC0DCD933C4ACAB42D528D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603269   (1045834) от 08.01.2023
+
+Совсем мало времени / Am zin / Running Out of Time (1999) BDRemux [H.264/1080p] (Remastered) [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чун умирает от рака — по словам врачей, ему осталось жить всего несколько недель. Вместо того чтобы проводить последние дни в постели, он затаривается мощными болеутоляющими и запускает в действие сложнейшую аферу, одним из главных действующих лиц в которой должен стать гениальный детектив Хо.Производство: Гонконг, China Star EntertainmentЖанр: боевик, триллер, драма, криминалРежиссер: Джонни ТоАктеры: Энди Лау, Шон Лау, Ёё Мун, Уайз Ли, Хуэй Сиу-Хун, Лам Сует, Руби Вонг, Ай Вэй, Лам Вай-Кин, Роберт СпарксПеревод: Авторский (Сергей Кузнецов)Язык озвучки: русский, китайский, английскийСубтитры: китайские (PGS), английские (PGS)Продолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F61B9ED737AB3C3B980F6BC1C8E7715F290D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603058   (1045809) от 08.01.2023
+
+Огненная буря / Fung bou / Firestorm (2013) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бронированный инкассаторский автомобиль средь бела дня подвергается атаке со стороны банды преступников. Расследованием преступления занимается инспектор Лю Мин-чит и его спецотряд. Однако не так-то просто схватить вооруженных до зубов головорезов, поэтому Лю решает пойти на сделку с Син Поном, обещая освободить его из тюрьмы, если он поможет схватить своих бывших (   Читать дальше...   )Производство: Гонконг, Китай, Edko Films, Focus Films Co. Ltd.Жанр: боевик, криминалРежиссер: Алан ЮэньАктеры: Энди Лау, Яо Чэнь, Гордон Лам, Ху Цзюнь, Рэй Лю, Жаклин Чан, Винсент Сзе, Ау Вэй Куэнь, Leung Ho Bon, Фат ЧанПеревод: Двуголосый любительский (GREEN TEA)Язык озвучки: русский, китайскийСубтитры: китайские (PGS), английские (PGS)Продолжительность: 01:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FB2905D2B82F5A445CBE37B03EBE7DF77DA9E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603152   (1045800) от 08.01.2023
+
+Боец в стиле обезьяны / Feng hou / Mad Monkey Kung Fu (1979) BDRemux [H.264/1080i] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Господин Чан был замечательным бойцом, но применял он своё искусство только ради заработка, давая вместе с сестрой госпожой Чан, представления в жанре китайской оперы. Однако, он становился совершенно невменяемым, если выпивал, и этим пользуется один из важных людей в городе, куда герои приехали с гастролями. Подлец Дуан упаивает Чана и подкладывает ему в постель (   Читать дальше...   )Производство: Гонконг, Shaw BrothersЖанр: боевик, комедияРежиссер: Лау Ка-ЛюнАктеры: Лау Ка-Люн, Сяо Хо, Кара Хуэй, Ло Ле, Чань Шао-Хун, Хеи Чан, Чан Вэй, Wing-Hon Cheung, Чэнь Чжигун, Тиен-Чу ЧинПеревод: Авторский (Александр Буданов)Язык озвучки: русский, немецкий, китайский, английскийСубтитры: французские (PGS), английские (PGS)Продолжительность: 01:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DB2EDA8299FB9C131E23625900BBC8CA9E6497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603674   (1045645) от 10.01.2023
+
+Клетка тигра / Dak ging to lung / Tiger Cage (1988) BDRemux [H.264/1080p] [Remastered] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный отдел полиции готовит разоблачение крупной банды, но каждый раз бандитам удается ускользнуть сквозь расставленные сети. Становится ясно, что происходит утечка информации внутри отдела, а вскоре известен и информатор. Это Майк – начальник отдела, а точнее тот, кто возглавляет банду. Пытаясь уйти от возмездия, Майк организует серию убийств, убирая свидетелей. (   Читать дальше...   )Производство: Гонконг, D & B Films Co. LtdЖанр: Боевик, триллер, драма, криминалРежиссер: Юэнь У-ПинАктеры: Джеки Чун, Кэрол Чэн, Саймон Ям, Нг Ман-Тат, Донни Йен, Люн Ка-Янь, Джонни Ван, Ирен Вань, Лин Персивал, Стивен БервикПеревод: Авторский (Вартан Дохалов)Язык озвучки: русский, китайский, английскийСубтитры: Английские (PGS)Продолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99CCCB73BB59D97A16AF7695FE8AC17F85AED269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603648   (1045632) от 10.01.2023
 
 Кулак дракона / Long quan / Dragon Fist (1979) BDRemux [H.264/1080p] [Remastered] [AVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045632.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045550.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045375.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045353.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045316.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045183.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045169.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045044.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045035.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044805.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044587.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044425.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044405.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044340.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044267.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044207.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044118.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044002.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043866.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043819.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D670FD73283423C4958B9421FEC424F6609FBB64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607770   (1043788) от 28.01.2023
-
-Первый удар / Ging chaat goo si 4: Ji gaan daan yam mo (1996) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агенту ЦРУ Джеки поручают следить за шпионкой Наташей, которая купила тур на Украину. Джеки надеется выследить, с кем будет контактировать девушка, но она скрывается. Джеки бросается в погоню. Он гонится за ней по Австралии и России. Главная его задача — остаться в живых и поймать Тсуи, сообщника Наташи, похитившего ядерную боеголовку. Тсуи оказывается ее любовником, (   Читать дальше...   )Производство: США, Австралия, Гонконг / Golden Harvest Company Ltd., New Line Cinema, Paragon Films Ltd., Raymond ChowЖанр: боевик, комедия, драма, криминалРежиссер: Стэнли ТунАктеры: Джеки Чан, Джексон Лоу, Энни У, Билл Тун, Юрий Петров, Нонна Гришаева, Джон Ивис, Терри Ву, Кристофер Казмарек, Эйлен СитПеревод: Многоголосый профессиональный (НТВ+)Язык озвучки: русский, английский, немецкий, испанский, тайский, китайскийСубтитры: Английские, французские, немецкие, испанские, китайские, корейские, тайскиеПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1052DEC8F855CFA4ABF518F22129863242AE8A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608161   (1043732) от 29.01.2023
-
-Все за победителя / Do sing / All for the Winner (1990) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деревенский паренек Синг приезжает в Гонконг к своему дяде, где обнаруживает свой уникальный талант — он умеет просматривать карты/кости, а также предсказывать исход лошадиных бегов и даже (в крайних случаях!) менять карты одним усилием мысли. В родной деревне Синга никто так и не смог придумать, как же использовать это умение, но его дядя — не будь дурак — это исправит. (   Читать дальше...   )Производство: Гонконг, Paragon Films Ltd., Wellstreet ProductionsЖанр: Боевик, комедияРежиссер: Джеффри Лау, Кори ЮэньАктеры: Стивен Чоу, Нг Ман-Тат, Шарла Чун, Сандра Нг, Пол Чунь, Анджелина Ло, Кори Юэнь, Джеффри Лау, Винсент Вань, Шейла ЧанПеревод: Авторский (Акира)Язык озвучки: Русский, китайскийСубтитры: Корейские (PGS), английские (PGS), китайские (PGS)Продолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D9F1A2E7C64F4B6861DAC1F36BE900E75AA488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608280   (1043726) от 29.01.2023
-
-13 убийц / Jusan-nin no shikaku / 13 Assassins (2010) BDRemux [H.264/1080p] [Extended Cut]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, 1844 год. Советник сёгуна поручает верному самураю Синдзаэмону убить лорда, позорящего самурайский кодекс чести. А тот набирает команду из 12 преданных воинов.Производство: Япония / Sedic International, Recorded Picture Company (RPC), Asahi Broadcasting Corporation (ABC)Жанр: боевик, драмаРежиссер: Такаси МиикеАктеры: Кодзи Якусё, Такаюки Ямада, Юсукэ Исэя, Горо Инагаки, Масатика Итимура, Микидзиро Хира, Хироки Мацуката, Цуёси Ихара, Арата Фурута, Икки СавамураПеревод: Двуголосый профессиональный (BBC Saint-Petersburg), Авторский (Ю. Сербин)Язык озвучки: Русский, ЯпонскийСубтитры: АнглийскиеПродолжительность: 02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75365AB7B25DB09AF0A5701A2E1E2B98EFA00E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608254   (1043722) от 29.01.2023
-
-13 убийц / Jusan-nin no shikaku / 13 Assassins (2010) BDRip [H.264/1080p] [Extended Cut]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, 1844 год. Советник сёгуна поручает верному самураю Синдзаэмону убить лорда, позорящего самурайский кодекс чести. А тот набирает команду из 12 преданных воинов.Производство: Япония / Sedic International, Recorded Picture Company (RPC), Asahi Broadcasting Corporation (ABC)Жанр: боевик, драмаРежиссер: Такаси МиикеАктеры: Кодзи Якусё, Такаюки Ямада, Юсукэ Исэя, Горо Инагаки, Масатика Итимура, Микидзиро Хира, Хироки Мацуката, Цуёси Ихара, Арата Фурута, Икки СавамураПеревод: Двуголосый профессиональный (BBC Saint-Petersburg), Авторский (Ю. Сербин)Язык озвучки: Русский, ЯпонскийСубтитры: АнглийскиеПродолжительность: 02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E839B56B8137F3EE5CEB0FAC30D11D9D1F14774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608279   (1043718) от 29.01.2023
-
-13 убийц / Jusan-nin no shikaku / 13 Assassins (2010) BDRip [H.264/720p] [Extended Cut]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, 1844 год. Советник сёгуна поручает верному самураю Синдзаэмону убить лорда, позорящего самурайский кодекс чести. А тот набирает команду из 12 преданных воинов.Производство: Япония / Sedic International, Recorded Picture Company (RPC), Asahi Broadcasting Corporation (ABC)Жанр: боевик, драмаРежиссер: Такаси МиикеАктеры: Кодзи Якусё, Такаюки Ямада, Юсукэ Исэя, Горо Инагаки, Масатика Итимура, Микидзиро Хира, Хироки Мацуката, Цуёси Ихара, Арата Фурута, Икки СавамураПеревод: Двуголосый профессиональный (BBC Saint-Petersburg), Авторский (Ю. Сербин)Язык озвучки: Русский, ЯпонскийСубтитры: АнглийскиеПродолжительность: 02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD227A5A0DD52F10755EE94A4C2A2EA49214DB7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608283   (1043708) от 29.01.2023
-
-Светлое будущее (Право на жизнь) / Ying hung boon sik / A Better Tomorrow (1986) UHD BDRemux [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще недавно близкие друзья Хо и Марк были авторитетами в триаде, жили по понятиям, с каким-никаким кодексом правил. Но первый попал на три года в тюрьму и, освободившись, решил завязать, а второй, покалеченный во время перестрелки, теперь побирается. Новый босс преступной группировки - беспредельщик, выбившийся из шестерок-лизоблюдов, с садистским удовольствием пытается (   Читать дальше...   )Производство: Гонконг / Cinema City, Film WorkshopЖанр: боевик, триллер, драма, криминалРежиссер: Джон ВуАктеры: Лун Ти, Чоу Юнь-Фат, Лесли Чун, Эмили Чу, Уайз Ли, Тень Фэн, Джон Ву, Ши Яньцзы, Кеннет Цан, Шин Фуй-ОньПеревод: Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, КитайскийСубтитры: Русские, АнглийскиеПродолжительность: 01:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D13326A374709DAFD55DCAE2160DCC50753192A
 ```
 
 https://mybot314.ru/tekegram_catalog/

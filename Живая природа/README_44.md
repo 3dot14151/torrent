@@ -1,3 +1,107 @@
+###  Публикация: 1699188   (117985) от 12.02.2024
+
+Эра больших кошек / Age of Big Cats (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой беспрецедентной серии фильмов недавние научные открытия проливают новый свет на чрезвычайную предысторию больших кошек.Производство: ВеликобританияЖанр: документальныйРежиссер: Мартин ДорнПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A51EAE0F60DA4A6EF00129ADA77501164C55C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706922   (113501) от 14.03.2024
+
+Длинноносые дельфины / Spinner Dolphins (2016) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Длинноносые дельфины — самые харизматичные и элегантные обитатели бразильского архипелага Фернандо-де-Норонья. Этих небольших тропических дельфинов также называют вертящимися за их выдающиеся способности в области воздушной акробатики — они могут в прыжке достигать высоты около трёх метров над поверхностью воды и делать при этом до семи вращений в воздухе.Производство: Бразилия / Scorpion TVЖанр: документальныйРежиссер: João Paulo KrajewskiУчастники: Rita de Cássia De Carli, Eduardo Cavalcante de Macedo, José Martins da Silva Júnior, Marina Consule TischerПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7458F2ECDBA3DB290FEC2FD39F18F246FD301319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735118   (107029) от 06.07.2024
+
+Симбиоз в дикой природе / Connection (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-2 из 2) CLS Media
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107029.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Закон джунглей» — самое распространенное и знакомое выражение, используемое при описании жестокого мира дикой природы. Однако это выражение частично верно, а частично неверно. Что позволило жизни процветать вместе с силой и конкуренцией, так это история связей. Наше тело рассматривается как единое целое, и даже самая маленькая единица клеток не рассматривается как (   Читать дальше...   )Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальный, природаРежиссер: Сон Сын-уПеревод: Одноголосый профессиональный (CLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74CE0C579E2BFE696ED2174F27E568D346EADC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475178   (98258) от 31.03.2012
+
+Дикий Юг. Тасмания - последнее убежище / Wild South. Tasmania the last refuge (1990-1999) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D868F864E822896CAB7362CE74DA8ED6B90995C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475209   (98104) от 30.03.2012
 
 Дикий Юг. Погибшие корабли / Wild South. Shipwrecks A Natural History (1990-1999) IPTVRip
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98104.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98100.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98095.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96384.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_95713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95713.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90443.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Омар-монстр / Monster lobster (2000) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90407.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89196.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88420.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88264.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87543.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87399.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87378.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87019.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84860.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80569.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74875.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65643.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64419.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63494.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63398.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62612.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09DEF906D5A5F90E09077CBDFB22C95A6D822B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640458   (60640) от 05.04.2024
-
-Основной инстинкт. Продолжение рода / Mating Machine 4K (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2) CLS Media
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему у мужчин внушительный внешний вид? Почему самки так разборчивы в выборе пары? Почему мы делаем то, что не имеет ничего общего с выживанием? Авторы ищут ответы, углубляясь в жизнь растений, насекомых, рыб, млекопитающих, птиц и приматов всего мира. Истинный победитель на поле битвы эволюции — это не тот, кто выживает, а тот, кто преуспевает в спаривании.Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальныйРежиссер: Сон Сын-уПеревод: Одноголосый профессиональный (CLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95331A1717749A29276A8A74D7F12F011DFEDD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515967   (53347) от 14.06.2024
-
-Заповедник Брянский лес. В поисках черного аиста (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заповедник «Брянский лес» — уголок нетронутой дикой природы России, где сохранились вековые деревья, где можно встретить редких животных. В непроходимых чащах брянского леса обитают птицы, которых считают почти мифическими. Черных аистов мало кто видел, а орнитологи считают за счастье встречу с этими пернатыми. Для гнездования черные аисты выбирают самые глухие непроходимые (   Читать дальше...   )Производство: Россия, RTG productionЖанр: документальный, познавательный, природа, путешествияРежиссер: Игорь ЧернышовЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0B9D2D8BD787FA68AB518B9DEB9C460F7C10C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660183   (52507) от 22.06.2024
-
-NG: В объективе: Необычное поведение животных / Caught in the Act (2007-2012) HDTVRip [H.264/720p-LQ] (серий 18)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52507.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дикой природе жизнь течет быстро. Чтобы запечатлеть диких животных на камеру, профессионалы подолгу выжидают в труднопроходимой местности. Наградой за их упорство, могут стать кадры, от которых захватывает дух. Но вовсе не обязательно проводить месяцы спрятавшись в укрытии, чтобы запечатлеть невероятное поведение животных. Целая армия отпускников и искателей приключений (   Читать дальше...   )Производство: СШАЖанр: документальный, природаРежиссер: Мартин Виллис, Бронвин ВоткинсПеревод: профессиональный одноголосый (Александр Гаврилин)Субтитры: отсутствуютПродолжительность: 18 серий по ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8255CC7C9B94443525CDED699DA6134970A3A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735120   (50871) от 06.07.2024
-
-Возвращение исчезнувших / The Return (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-3 из 3) CLS Media
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Природная экосистема чрезвычайно чувствительна и легко разрушается даже при незначительном воздействии извне. В частности, вмешательство человека оказывает фатальное влияние на судьбы разных видов. Биологические виды находятся под угрозой исчезновения из-за человеческих желаний и вмешательства, но, с другой стороны, они проявляют удивительную силу восстановления, (   Читать дальше...   )Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальный, природаРежиссер: Со ЧжунПеревод: Одноголосый профессиональный (CLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:49:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB708B34232678E72B01EED7B98A6AF19809B0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

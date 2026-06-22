@@ -6,7 +6,7 @@ Brenda Mitchell - Don't You Know (1978) [MP3|320 Kbps] <Electronic, Funk-Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470070.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nation In Blue - Discography (2016-2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469970.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468905.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ronnie Jones - Games (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467883.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Coffee - Slippin' And Dippin' (1980) Reissue CD, Big Break Records, 2016 [MP3|32
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467878.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hot Shot - 2 Albums (1981, 1983) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467458.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Grand Tour - On Such A Winter's Day (1977) LP [MP3|320 Kbps] <Electronic, Funk S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466560.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Modern Sound Quartet - Horoscope (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_466029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_466029.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Crazy Joe And The Variable Speed Band - Eugene (1981) LP [MP3|320 Kbps] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464104.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Galaxy - Galaxy (1981) LP [MP3|320 Kbps] <Funk Soul, Disco, Reggae, Boogie>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463380.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Ciao Italia: The ultimate Italian collection (2012) 4CD[MP3|320 кб/с]<Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462382.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Ciao Italia! 2 The ultimate Italian collection (2012) 4CD [MP3|320 кб/с]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462377.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Venus Gang - Galactic Soul (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461832.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - ZYX Italo Disco New Generation Vol. 13 (2018) 2CD, Compilation [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461324.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Isadora Juice - 2 Albums (1981, 1983) LP [MP3|320 Kbps] <Electronic, Disco, Synt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461087.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Bad Boys Blue - House Of Silence (1991) [OGG|485 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459759.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Herman's Rocket - Space Woman (1977) Reissue LP (2009) [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459517.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Fancy - Contact (1986) [OGG|485 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457802.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Bad Boys Blue - The Fifth (1989) [OGG|485 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457800.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - The Best Of Italo-Disco Vol. 9 (1987) [OGG|485 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457791.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Blue System - Walking On A Rainbow (1987) [OGG|485 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457785.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Various - The Best Of Italo-Disco Vol. 10 (1988) [OGG|485 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457779.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Bad Boys Blue - Love Is No Crime (1987) [OGG|485 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457773.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Modern Talking - Ready For Romance (1986) [OGG|485 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457614.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ The Chaplin Band - 2 Albums (1979, 1982) LP [MP3|320 Kbps] <Electronic, Funk Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455901.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Bad Boys Blue - Game Of Love (1990) [OGG|485 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455703.jpg" />
 </div>
 
 

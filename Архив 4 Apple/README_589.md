@@ -1,3 +1,58 @@
+###  Публикация: 1429807   (175864) от 07.12.2020
+
+FontLab 7 v7.2.0.7644 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175864.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
+
+По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: FontLab StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F87ED8191D71C945380D07726104051901F144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667992   (175493) от 10.10.2023
+
+Screen Wonders 2.1.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
+Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2023Разработчик: © 2022 3PlanesoftПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC10A4002B6FFB4C21BE8342562537190911BE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667955   (175491) от 10.10.2023
 
 Marked 2 - Markdown Preview 2.6.27 [En]
@@ -6,7 +61,7 @@ Marked 2 - Markdown Preview 2.6.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175491.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Texifier 1.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175486.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ BusyContacts 2023.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175483.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ MWeb Pro 4.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175478.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Araxis Merge Pro Edition 2023.5953 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175470.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ Dash 7.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175458.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ iNet Network Scanner 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175452.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ Valentina Studio Pro 13.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175443.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ n-Track Studio Suite 10.0..0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175435.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ MediaInfo for Mac 23.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175431.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ OmniReader Pro for Mac 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175402.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ BusyCal 2023.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175395.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ Allavsoft Video Downloader Converter 3.25.9.8679  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175390.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ Hazel 5.2.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175387.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ Bartender 5 v.5.0.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175364.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ Topaz Video AI for Mac 3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175333.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ Posterino 3 v3.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175324.jpg" />
 </div>
 
 
@@ -458,7 +513,7 @@ PhotoSweeper X 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175320.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ Valentina Studio Pro 10.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175312.jpg" />
 </div>
 
 
@@ -511,7 +566,7 @@ VideoDuke 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175308.jpg" />
 </div>
 
 
@@ -539,7 +594,7 @@ Rogue Amoeba Farrago 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175291.jpg" />
 </div>
 
 
@@ -565,7 +620,7 @@ Motion 5.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175284.jpg" />
 </div>
 
 
@@ -591,7 +646,7 @@ Xmas snow 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175263.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ Exposure Software Blow Up 3 v3.1.4.360 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175252.jpg" />
 </div>
 
 
@@ -631,60 +686,6 @@ Blow Up работает с Photoshop, Elements, (   Читать дальше.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1222EA3573091233A187F588108C4788511565A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429949   (175232) от 08.12.2020
-
-Bootstrap Studio 5.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Он поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD422772C151B3B7910334E3B1BF9AA16381624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429984   (175228) от 08.12.2020
-
-Fission 2.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соединить или разделить файлы или просто разделить большой файл на несколько частей для последующего редактирования - все это сделает с легкостью Fission, к тому же, без потери качества, в противоположность другим редакторам. Так, что вы можете получить идеальное качество звука даже при редактировании MP3 и AAC файлов. Вырезать одну часть из файл, а на ее место вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Rogue AmoebaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACE8DB860D692806D0DF2720C11988D468707A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

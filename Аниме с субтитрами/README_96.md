@@ -1,3 +1,29 @@
+###  Публикация: 1425912   (218656) от 22.11.2020
+
+Mahou Shoujo Ore | Magical Girl Ore | Как я стала мальчиком-волшебницей [2018, TV, 12] BDRip 1080 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218656.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Любовь делает девушек сильнее». Эту популярную фразу можно услышать где угодно, но именно она становится девизом девочек-волшебниц. Саки Уно усердно трудится в айдол-юните «Волшебные близняшки» вместе с Сакуё Микагэ, чьим братом, Мохиро Микагэ, она восхищается во всех смыслах. Брат этот, между прочим, является частью айдол-юнита СТАР☆ПРИНЦ. Ради него влюблённая (   Читать дальше...   )Производство: Студия Pierrot Plus / ぴえろプラスЖанр: приключения, комедияРежиссер: Кавасаки ИцуроПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C849AAB7C4539777D74D0D65D3F6745A47E82B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399839   (217899) от 22.11.2020
 
 Ninja Collection / Коллекция ниндзя [2020, TV, 13] WEBRip 720p raw
@@ -6,7 +32,7 @@ Ninja Collection / Коллекция ниндзя [2020, TV, 13] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217899.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Bungou Stray Dogs (2016) | Великий из бродячих псов [ТВ-2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217339.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Bloodivores | Кровопийцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217332.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ The Big O | Большой О [1999, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216566.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Yuukai Anna | Anna (Kidnapper) | Анна-похитительница [2018, Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216198.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Mirai Nikki (2011) | The Future Diary | Дневник будущего [ТВ] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215508.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Angel Densetsu | Angel Legend | Легенда об Ангеле [1996, OVA, 2 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215482.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Dragon Ball GT / Dragonball GT / Драгонболл ГТ [1996, TV, 64 + sp] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215152.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Dragon Ball / Dragonball / Драгонболл [1986, TV, 153] DVDRip 540p Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215059.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Dragon Ball Z / Dragonball Z / Драгонболл Зет [1989, TV, 291 + 2 SP
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214907.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ Gundam-san | Гандам-сан [2014, TV, 13 из 13] HDTV 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214903.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213882.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213867.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213863.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213797.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ Souten no Ken: Regenesis 2 | Кулак синих небес: Перерожд�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213784.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Yuu Yuu Hakusho (1993) | Yu Yu Hakusho: The Movie | Отчет о буйстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213684.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Yuu Yuu Hakusho: Meikai Shitou Hen - Honoo no Kizuna | Yu Yu Hakusho: The Movie 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213679.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Yuu Yuu Hakusho | Yu Yu Hakusho: Ghost Files | Отчет о буйстве ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213623.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Paripi Koumei | Ya Boy Kongming! | Тусовщик Кунмин [2022, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213227.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Healer Girl | Девушки-целительницы [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213209.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru / Величайший По
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213153.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Shachiku-san wa Youjo Yuurei ni Iyasaretai. | Корпоративная раб�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213134.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Стать наст�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213126.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Date a Live IV / Рандеву с Жизнью 4 [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213112.jpg" />
 </div>
 
 
@@ -657,35 +683,6 @@ Date a Live IV / Рандеву с Жизнью 4 [2022, TV, 12] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3E4ADDBE857626543EB748DE99C8C1BF3216986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543159   (213108) от 24.06.2022
-
-Kaguya-sama wa Kokurasetai: Ultra Romantic / Госпожа Кагуя: В любви как на войне [ТВ-3][2022, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон Kaguya-sama wa Kokurasetai.
-
-Описание на первый сезон:
-Высокое происхождение, привлекательная внешность, учёба в академии для будущей элиты страны… У Миюки и Кагуи было всё. Когда их избрали главой и заместителем главы ученического совета, только ленивый не говорил, что молодые люди будут чудесной парой. И хотя втайне герои считали так же, за целых полгода (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Омата СинъитиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 11 серий по 25 мин, 1 серия по 48 мин (объединённая).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC97A51EBB3E5BF76631C7576132E150A3876A3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

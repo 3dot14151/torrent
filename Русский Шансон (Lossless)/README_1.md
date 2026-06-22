@@ -1,3 +1,61 @@
+###  Публикация: 1840092   (1047014) от 02.12.2025
+
+VA - Шансон премьера 2025 октябрь (Новые песни. Новые хиты) (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Инна Вальтер - Верная (3:21)
+02.  Ислам Итляшев - Обманула (2:20)
+03.  Татьяна Буланова - Ровно год, как я люблю его (3:35)
+04.  Сергей Сухачёв - Красные розы (3:37)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B775BC2FBA1A36A1BF214AB921E669D70117812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840095   (1047011) от 02.12.2025
+
+VA - Шансон премьера 2025 ноябрь (Новые песни. Новые хиты) (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Александр Васин - Огурчики (3:13)
+02.  Евгений Григорьев - ЖЕКА - Плесни-ка, братик (3:53)
+03.  ВЕРСИЯ НАРОДНАЯ - За рюмочкой (3:08)
+04.  Игорь Кибирев - Было и прошло (3:17)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8F2E8DB9B13B083EBF68B2C7FB54F226454974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610908   (1041833) от 09.02.2023
 
 VA - На волне любимого радио шансон (2005) 2 CD [FLAC|Lossless|tracks + .cue] <Шансон>
@@ -6,7 +64,7 @@ VA - На волне любимого радио шансон (2005) 2 CD [FLAC|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041833.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037181.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036970.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Песни нашего времени 4 (2005) [FLAC|Lossless|tracks + .cu
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033281.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Шоферской 12 (2002) [FLAC|Lossless|tracks + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033279.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032746.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Шансонный хит 3 (2003) [FLAC|Lossless|tracks + .cue]<Шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031377.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Криминальная Россия 3 (2001) [FLAC|Lossless|tracks + .cue
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031373.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Новое поколение русского шансона (2003) [FLAC|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031371.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Шансонная осень (2002) [FLAC|Lossless|tracks + .cue]<Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031356.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030664.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029720.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029580.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029577.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028534.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027243.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027200.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027185.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026727.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Памяти Михаила Круга посвящается... (2002) [FL
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026551.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024924.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Москва Бандитская (Первое Издание) (1997) [FLA
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024921.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024918.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024724.jpg" />
 </div>
 
 
@@ -687,62 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE45E0B85A90B4529FB0E5AB378596D71DBC93BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457153   (1024639) от 25.03.2021
-
-Марина Соболева - Июльское варенье (2006) [FLAC|Lossless|image + .cue] <Шансон, поп>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Змея подколодная (П. Беккерман - Е. Минин)"
-02. "Секреты дамскиеЖанр: Шансон, попПродолжительность: 00:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5050078918DC97AAB531091173D3E3825AACAA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459799   (1022792) от 04.04.2021
-
-VA - То, что доктор прописал 1-2 (1996) FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В. Харламов - Колеса
-02. В. Гогин - Все не поровну
-03. С. Дикий - Таежная баллада
-04. Амнистия-II - Остров(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61ACF0BF7BD4545C384BF5CC639C5B8AC3362073
 ```
 
 https://mybot314.ru/tekegram_catalog/

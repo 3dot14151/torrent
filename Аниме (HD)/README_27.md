@@ -6,7 +6,7 @@ Chio-chan no Tsuugakuro | Chio's School Road | Тио: Дорога в школ�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434785.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Arslan Senki (2015) | The Heroic Legend of Arslan (2015) | Сказание об
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430661.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семь Чувств в Re
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430527.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Darker than Black: Gaiden / Darker than Black: Side story / Темнее Чер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_430088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430088.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429481.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Fruits Basket 2nd Season | Корзинка фруктов [ТВ-2, сезон I
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429066.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Phantom in the Twilight | Фантом в сумерках [2018, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428232.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Gundam Build Divers | Гандам: Сконструированные дайв�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428078.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Oda Nobuna no Yabou  / Великие помыслы Оды Нобуны  [2012,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425904.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424954.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка напрокат [2020
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424783.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Appare Ranman! | Аппарэ-Ранман | Небо в цвету! [2020, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424638.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Classroom Crisis / Кризис в классе [2015, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422931.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Houkago Teibou Nisshi / Дневник послешкольного пирса [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422431.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Uzaki-chan wa Asobitai! / Uzaki-chan Wants to Hang Out! / Узаки хочет 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422300.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Deca-Dence / Дека-Данс [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422294.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Toaru Kagaku no Railgun T / A Certain Scientific Railgun T / Некий науч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422281.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Lapis Re:Lights | Лазурные огни [2020, TV, 12 из 12 эп.] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420085.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420077.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420014.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Peter Grill to Kenja no Jikan  / Peter Grill and the Philosopher's Time / Пёт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420007.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Monster Musume no Oisha-san / Monster Girl Doctor / Доктор для деву
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420006.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Ongaku Shoujo (2018) / Музыкальные Девчонки [2018, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419701.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] WEB-DL 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419497.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418244.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Souten no Ken: Regenesis | Кулак синих небес: Перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415340.jpg" />
 </div>
 
 

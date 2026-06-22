@@ -1,3 +1,111 @@
+###  Публикация: 930676   (514746) от 23.08.2015
+
+Serious Sam 3: BFE / Крутой Сэм 3 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крутой Сэм возвращается, чтобы напомнить о золотом веке классических шутеров! О времени, когда мужчины были мужчинами, укрытия искали лишь слабаки и трусы, а нажатие спускового крючка вызывало взрыв, от которого закладывало уши! Действие игры «Крутой Сэм 3» разворачивается до событий первой части культовой серии. Человечеству угрожают легионы инопланетной нечисти (   Читать дальше...   )Тип издания: ЛицензияРазработчик: WayForward и Ubisoft San FranciscoЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB00B52E7D01D357DD896161953CC846B8ACBC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536022   (514229) от 18.08.2012
+
+Ninja Gaiden 3 [PS3] [RUS] [PAL] (2012)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ninja Gaiden 3 — это экшн от третьего лица. Игра разработана студией Team Ninja и издана компанией Tecmo Koei для PlayStation 3
+Экшен Ninja Gaiden 3 был анонсирован на прошлой выставке Tokyo Game Show и до сих пор остается самой настоящей загадкой. Журнал Official  PlayStation Magazine взял интервью у главы студии Team Ninja Ёсуке Хаяси, который рассказал пару подробностей. Отвечая на вопрос, в каком ключе создается игра, Хаяси ответил: «Я не могу выразить свою мысль ясно, но это будет скорее революция, чем эволюция. Мы собираемся представить вам совершенно иной подход к этой игре. Так что не ждите, что мы начнем рассказывать о том, что в Ninja Gaiden 3 появилось новое оружие и новые способы расчленять врагов на части. Это вы можете ожидать от других игр, а мы хотим предложить нечто большее».
+ В частности, разработчики решили сделать игру более реалистичной. «Мы решили полностью переделать дизайн. Ninja Gaiden всегда была очень яркой игрой. Но в Ninja Gaiden 3 мир будет куда более мрачным и реалистичным, чем ранее», (   Читать дальше...   )Жанр: Action Слэшер (Действие)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213CEF1C6E0F29AAFFEA0FF8DBAD45E67AE30BD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536236   (514224) от 18.08.2012
+
+DiRT Showdown [PS3] [ENG] [PAL] (2012)
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газуйте и проламывайте себе путь вокруг света в моторизованном хаосе DiRT Showdown! Атмосфера толчеи, социализированная игра и доступность — вот приметы этого гоночного турбобезумия. Вдавите педаль газа в пол и заслужите обожание неиствующих болельщиков на сверхэнергичных состязаниях в живописных местах. Хитрите, гоните, рвитесь к победе... а потом повторяйте это снова и снова.
+Проноситесь мимо соперников на форсаже, хулиганьте от души в огромных и диких парках для фристайла, разносите вдребезги препятствия и глядите на учиненные вами разрушения, на самом совершенном игровом движке. Помимо прочего, DiRT Showdown — самая «социализированная» игра компании Codemasters: многопользовательский режим с разделением экрана (Splitscreen), онлайн-гонка для 8 игроков, онлайновые и офлайновые быстрые командные игры, Showdown challenges (Система соревнований) и интеграция с YouTube — все это неотъемлемая часть игры. Спешите получить билет в ошеломляющий новый мир доступных всем экстремальных гонок, рожденный фантазией создателей (   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade / Racing (Cars) / 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D367C534ACE539D76F96A013E6F8BEF3650EA901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374927   (514131) от 13.08.2011
+
+Sonic The Hedgehog 4 Episode I [WiiWare] [PAL] [MULTI 6] (2010)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514131.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Sonic the Hedgehog 4 Episode I» возвращается к старому 2D игровому процессу бокового скроллинга, который так любят фанаты Соника. Боковой скроллинг вернул Сонику классическое управление и движения любимые всеми, среди них Скоростной Удар и Прокат, добавлена Наводящаяся Атака.
+Стадии в «Sonic the Hedgehog 4 Episode I» проведут игрока через различные зоны, созданные в стиле былой эпохи. И, конечно же, в конце каждой зоны нас будет поджидать босс, любимый злодей каждого – всегда злой и хитрый – доктор Эгмен!Жанр: ПлатформерЯзык интерфейса: MULTI 6 (EN FR DE ES IT NL )Формат: wad
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C705972407FD176F5F2D201EFD704046C71824B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242510   (513680) от 23.08.2018
 
 Ni no Kuni II: Revenant Kingdom (2018) [EUR] [PS4] 5.05 [HEN] [License] [Ru/En]
@@ -6,7 +114,7 @@ Ni no Kuni II: Revenant Kingdom (2018) [EUR] [PS4] 5.05 [HEN] [License] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513680.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Escape Dead Island (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513657.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Up: The Video Game / Вверх (2009) [Xbox360] [RegionFree] [FreeBoot] [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513645.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Kung Fu Panda / Кунг-фу Панда (2008) [Xbox360] [RegionFree] [FreeBoot
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513643.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ MX vs ATV Supercross (2014) [PS3] [USA] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513576.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ Pac-Man and the Ghostly Adventures 2 (2014) [Xbox360] [RegionFree] [FreeBoot] [L
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513574.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ Mortal Kombat: Komplete Edition / Смертельная Битва: Полно�
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513551.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513136.jpg" />
 </div>
 
 
@@ -215,7 +323,7 @@ Ferrari: The Race Experience (2010) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512621.jpg" />
 </div>
 
 
@@ -241,7 +349,7 @@ Xenogears (1998) [PS1] [USA] [License] [En]
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512604.jpg" />
 </div>
 
 
@@ -267,7 +375,7 @@ Facebreaker  (2008) [PS3] [EUR] 2.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512571.jpg" />
 </div>
 
 
@@ -293,7 +401,7 @@ Aliens vs. Predator (2010) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512568.jpg" />
 </div>
 
 
@@ -319,7 +427,7 @@ Final Fantasy IX (2000) [PS1] [USA] [License] [En]
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512558.jpg" />
 </div>
 
 
@@ -346,7 +454,7 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [PAL] [Unofficial] [Ru/Multi
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512496.jpg" />
 </div>
 
 
@@ -372,7 +480,7 @@ Ace Combat: Assault Horizon Limited Edition [PS3] [RUS] [PAL] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512012.jpg" />
 </div>
 
 
@@ -399,7 +507,7 @@ Phineas and Ferb: Quest for Cool Stuff (2013) [Xbox360] [RegionFree] [FreeBoot] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511685.jpg" />
 </div>
 
 
@@ -425,7 +533,7 @@ The Expendables 2 Video Game (2012) [Xbox360] [RegionFree] [FreeBoot] [License] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511628.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ Cars 2: The Video Game / Тачки 2 (2011) [Xbox360] [RegionFree] [FreeBoot] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511582.jpg" />
 </div>
 
 
@@ -477,7 +585,7 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [NTSC] [Unofficial] [Ru/Mult
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511574.jpg" />
 </div>
 
 
@@ -503,7 +611,7 @@ Doom 3 BFG Edition (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511550.jpg" />
 </div>
 
 
@@ -529,7 +637,7 @@ Tetris 99 (2019) [Switch] [EUR] 8.0.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510702.jpg" />
 </div>
 
 
@@ -556,7 +664,7 @@ SpongeBob HeroPants (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510636.jpg" />
 </div>
 
 
@@ -567,110 +675,6 @@ SpongeBob HeroPants – игра, основанная на полнометра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D14268A5BFF90A4202F1A6A396610B846FB25031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932091   (509861) от 28.08.2015
-
-Cars Race-O-Rama (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Честная борьба - вот главный принцип Молнии Макквина, знаменитого героя мультфильма «Тачки», который в корне изменил жизнь захолустного городка Радиатор Спрингс. Однако далеко не все готовы соблюдать правила! Грандиозный турнир Race-O-Rama собирает гонщиков со всей округи, но чтобы стать победителем, вам нужно быть готовым ко всему!Тип издания: ЛицензияРазработчик: Incinerator StudiosЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F3CB507EC2CF121899D4EA099E76EBBF782A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404200   (509488) от 23.08.2020
-
-Need for Speed Payback (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.08 ] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed, одна из ведущих игровых серий возвращается ради мести в новой Need for Speed Payback. Действие происходит в теневом мире Фортуна-Вэлли. Вы и ваша команда разделены предательством и объединены заново местью. Ваша цель - разрушить Дом, известный в криминальных кругах картель, управляющий игорными заведениями, преступниками и полицейскими этого города. (   Читать дальше...   )Тип издания: LicenseРазработчик: Ghost GamesЖанр: RacingЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDBE269FC972B4940E1EDCA070F98E8B5C35DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231469   (508996) от 31.08.2010
-
-[PS2] Burnout Dominator [NTSC][RUS/ENG] (2007)
-
->>Консольные Игры
->>PS2
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508996.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дорогах Burnout всегда было лишь одно правило — побеждает сильнейший! Burnout Dominator еще нагляднее демонстрирует превосходство силы и наглости над вежливой слабостью. Собрат-водитель не уступает дорогу? Так сбросьте его в кювет, вытолкните на встречную полосу, протараньте его драндулет, наконец! Новый эпизод Burnout — отличное средство для «выпуска пара». Выплесните (   Читать дальше...   )Разработчик: Criterion GamesЖанр: Driving > Racing > Arcade
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403043   (508767) от 09.07.2022
-
-Days Gone / Жизнь после (2019) [PS4] [EUR] 9.00 [HEN] [License / 1.80 / DLC] [Ru/En]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объездите мир, живущий по волчьим законам и опустошенный смертоносной пандемией, играя за байкера и охотника за головами Дикона Сент-Джона. Верхом на верном мотоцикле преодолевайте опасности на разбитой дороге, в числе которых толпы безумных фриков и ужасающих людей. Открытый мир игры представляет собой как заброшенные территории, населённые фриками, так и лагеря (   Читать дальше...   )Тип издания: LicenseРазработчик: Bend StudioЖанр: Action, Adventure, Survival, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAAF4733BE1047849D0990B5CBBB38E33F319FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

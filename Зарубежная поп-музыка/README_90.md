@@ -6,7 +6,7 @@ VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71374.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Dance Classics Vol. 5 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71371.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71225.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Italo Strikes Back (1997) [MP3|320 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71175.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Italo Strikes Back Vol. 2 (1998) 2 CD [MP3|320 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71164.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Billboard Top Hits 1977 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70567.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Billboard Top Hits 1978 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70540.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Modern 80's - The Best Of Discopop Vol.4 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70111.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Top Hits Only Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70033.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Hammer Hits (1991) 2 CD [OGG Vorbis|480 Kbps] <House, Soft Rock, Europop, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70031.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - 80! (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69998.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Neue Hits '90 - Die Internationalen Super-Hits (1990) 2 CD [OGG Vorbis|480 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69990.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Di
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69954.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - One Shot '80 Volume 3 (1999) [OGG Vorbis|480 Kbps] <Synth-pop, Disco, Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69924.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - One Shot '80 Volume 6 (1999) [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69892.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - One Shot '80 Volume 7 (1999) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69891.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - One Shot '80 Volume 5 (1999) 2 CD [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69888.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - One Shot '80 Volume 14 (2002) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69815.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - One Shot '80 Volume 13 (2002) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69811.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - One Shot '80 Volume 15 (2003) 2 CD [OGGVorbis|480 Kbps] <Electronic, Pop, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69808.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - One Shot '80 Volume 16 (2003) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69763.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - One Shot '80 Volume 17 (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69758.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - One Shot '80 Volume 18 (2006) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69634.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - One Shot '80 Volume 19 (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69633.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69370.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Brenda Lee - Best of Brenda Lee (2025) Remastered [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68988.jpg" />
 </div>
 
 

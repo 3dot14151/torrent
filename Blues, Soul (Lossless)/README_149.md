@@ -6,7 +6,7 @@ Andres Sanchez - Wish (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16690.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Between the Bricks - Quiet Highway (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16689.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bryan Lee - Homage to 4 Kings (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16688.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chris Vincent - Good Crook (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16686.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Christopher James - Psilocide blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16685.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Debbie Bond - Live at the Song Theater (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16682.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Felipe Renfro - Love, Hope and Misery (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16681.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Interstate Blues - Lone Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16680.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ John Christopher Morgan - Right On Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16654.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mick Clarke - Rust Busters (The Collection) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16645.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mickey Jupp - Dance with Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16644.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Misty Blues - Other Side of Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16643.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ron&Bjorn - Worlds Apart (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16642.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Canned Heat - 52 Albums (1967 - 2024) (68 CD) [FLAC|Lossless|image + .cue|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16051.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Keb' Mo' - 19 Albums, 1 EP (1980 - 2025) 22 CD [FLAC|Lossless|image + .cue|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15812.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Michael Bloomfield - The Best Of Michael Bloomfield (1997) Compilation [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15739.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Fantastic Negrito - 6 Albums, 2 EP (2014 - 2024) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15495.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Jennifer Lyn & The Groove Revival - Retrograde (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15449.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Hat Fitz & Cara - At The Couch Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15448.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Noir & Gerber - Partout Partout (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15447.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Jon Cleary - The Bywater Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, S
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15446.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Nancy Cassidy - The Devil Wins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15445.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Paul Cargnello - Combat Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15444.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Rick Tobey - Sippin It Slow Radio Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15443.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Pearl Alley - 'Bout Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15441.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Ina Forsman - After Dark Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15440.jpg" />
 </div>
 
 

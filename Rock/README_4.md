@@ -1,3 +1,90 @@
+###  Публикация: 1448748   (1030444) от 19.02.2021
+
+The New Madness - After Hours (2020) [MP3|320 Kbps] <Classic Rock, Garage Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovesick
+02. Night Watch
+03. Better Than That
+04. You'll Know My Name(   Читать дальше...   )Жанр: Classic Rock, Garage Rock, Blues RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3D18F149B8DCEEAF01DCD8E255F590EDE726CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449222   (1030244) от 20.02.2021
+
+Amrakus - A Space Rock Opera (1982) LP [MP3|320 Kbps] <Electronic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Hole (3:39)
+02. Spatial Cocoon (6:22)
+03. Greetings Earthlings (2:18)
+04. We Need Water (Part 1 & 2) (3:25)(   Читать дальше...   )Жанр: Electronic, Space RockПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFECFA9FC64920A0D1D4932A51975C66F0D8F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448847   (1030144) от 20.02.2021
+
+Whitesnake & Chris Collier - The BLUES Album (2020 Remix) (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030144.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Steal Your Heart Away (2020 Remix)
+2. Good To Be Bad (2020 Remix)
+3. Give Me All Your Love (2020 Remix)
+4. Take Me Back Again (2020 Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A38D1F087A63DE5C735CD49B571E0D3481652AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622636   (1030041) от 29.03.2023
 
 M-Opus - At The Mercy Of Manannan (2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
@@ -6,7 +93,7 @@ M-Opus - At The Mercy Of Manannan (2023) [MP3|320 Kbps] <Progressive Rock, Symph
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030041.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ The Who & Isobel Griffiths Orchestra - Live At Wembley (2023) 2CD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029809.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Ville Valo - Neon Noir (2023) [MP3|320 Kbps] <Gothic-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029785.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Die Vision - Torture (серия "Другие восьмидесятые") (199
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029731.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ New Candys - Vyvyd (2021) [MP3|320 Kbps] <Alternative Rock, Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029627.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Alice Cooper - Detroit Stories (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029315.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ SBB - Live Cuts: Enger 1977 (2022)[MP3|320 Kbps] <Rock, Prog Rock, Fusion, Jazz 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029231.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Santiano - Sea Shanty – Wellerman (2021) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027956.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Ken Hensley - My Book Of Answers (2021) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027939.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Marillion - With Friends At St.David's (2021) [MP3|320 Kbps] <Neo-Progressive Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027726.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027712.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Loot The Body - The Barrier Peaks Songbook (2020) [MP3|320 Kbps] <Psychedelic, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027399.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Utopia Press - Utopia Press (2021) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027250.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Van-Zant - Van-Zant (1985) Reissue, 1997, Unidisc [MP3|320 Kbps] <AOR, Melodic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027245.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Benjamin Orr - The Lace (1986) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027237.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Arc Angel - Arc Angel (1983) Reissue, 1990, Portrait [MP3|320 Kbps] <AOR, Melodi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027108.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Tane Cain - Tane Cain (1982) Reissue, 2015, Rock Candy [MP3|320 Kbps] <AOR, Melo
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027103.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Chez Kane - Chez Kane (2021) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026952.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Blackmore's Night - Nature's Light (2021) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026925.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Sea Mouse - Tropical Fish (2021) [MP3|320 Kbps] <Sea Mouse, Rock, Alternative Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026775.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Popa Chubby - Tinfoil Hat (2021) [MP3|320 Kbps] <Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026562.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Shawn Pittman - Stompin' Solo (2021) [MP3|320 Kbps] <Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026451.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Toby Jepson - Viewfinder (2021) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026438.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Toby Jepson - Viewfinder (2021) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69FB283D85370807E1BAA351941C9CDF3BBAFD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454513   (1026230) от 15.03.2021
-
-King Kong - King Kong (1981) LP [MP3|320 Kbps] <Electronic, Blues Rock, Krautrock, New Wave, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flyin' Through The Motions (2:52)
-02. School Is Out (2:43)
-03. King Kong's Bodyguard (9:25)
-04. Let Met Be At Home (3:54)(   Читать дальше...   )Жанр: Electronic, Blues Rock, Krautrock, New Wave, DiscoПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9923E2C143EE974C6FD080FD4BA2388010B0837A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455080   (1025839) от 18.03.2021
-
-Haxmastaren - Sol i Exil (2021) [MP3|320 Kbps] <Stoner Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blood Moon [00:04:25]
-02 - Millennium Phenomenon [00:05:47]
-03 - Wavelurker [00:03:40]
-04 - Dödskult Ritual [00:04:00](   Читать дальше...   )Жанр: Stoner Rock, MetalПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF2C87A85F940C75419200D8BD383B0210E9DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455214   (1025825) от 18.03.2021
-
-Pendragon - Masquerade 20 (2017) 2xCD, Live [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025825.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Masquerade Overture (Live) (03:05)
- 02. As Good As Gold (Live) (07:18)
- 03. Painbox (Live) (08:08)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC9E74D816A4C70A3B3782560E9F26BD8AB9D2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

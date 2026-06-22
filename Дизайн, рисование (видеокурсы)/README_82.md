@@ -6,7 +6,7 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164643.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164617.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164590.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164526.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FlippedNormals, Henning Sanden | Character Face Texturing in Substance Painter (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164514.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Udemy.com | Photoshop CC 2018 for Absolute Beginners (2018) PCRec [H.264/720p-LQ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164128.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164064.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Gumroad, Eugene Petrov | Handgun for Video games Tutorial (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164041.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Motionguru, Jafar Fazel | Motion Design Course (Motion Hero) (2021) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163965.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163747.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ CG Cookie, Jonathan Lampel | ASSEMBLE: Introduction to Procedural Modeling with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163732.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Domestika, Luis Alberto Gayoso Berrosp | Digital Sculpture of Fantastic Creature
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163637.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Guide to Unreal Engine 5 (2022) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163586.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163376.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Gumroad, Tim Bergholz | Blade Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163305.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Gumroad, Tim Bergholz | Blade Tutorial Extended Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163272.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Cubebrush, Marc Brunet | Drawing and Coloring Techniques (2014) WEB-DLRip [RU, E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163243.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Kalachevaschool, Ирина Артамонова | Цветущая пастел
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163161.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163090.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ CG Cookie, Kenan Proffitt | ASTRAY: Environment Building Workflow in Blender (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162951.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ CG Cookie, Kent Trammell | CUBICITY: Creating and Utilizing Asset Libraries with
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162924.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ CG Cookie, Paul Caggegi | PANELS: Create a Comic Book with Grease Pencil in Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162915.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ CG Cookie, Wayne Dixon | OFF-ROAD: Rig and Animate an RC Monster Truck in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162893.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ CG Cookie, Jonathan Lampel | POTHEAD: Create a Hard Surface Character in Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162840.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Skillshare, Neil Bettison | Дизайн и рендер стилизованн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162788.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Skillshare, John Knowles | Введение в анимацию: Основы Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162753.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1309012   (1019087) от 26.04.2021
+
+Dia no Ace OVA / Ace of Diamond OVA / Путь аса OVA [2014, OVA, 5 эп.] BDRip 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главного героя этой истории зовут Савамура Эйдзюн и он является питчером в школьной команде. Он честный, простодушный, но при этом наделен обостренным чувством справедливости. Он живет в небольшом городке и друзья его частенько зовут Эй-тян. Именно благодаря ему в школе была создана бейсбольная команда. И после некоторого времени он вместе со своими друзьями решают (   Читать дальше...   )Производство: Madhouse Studios и Production I.GЖанр: Спорт, сёнэнРежиссер: Хамана ТакаюкиСубтитры: РусскиеПродолжительность: 5 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE74A79403178DB4CE76B596CBF5281114D47EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466481   (1018404) от 30.04.2021
 
 Planetarian: Snow Globe | Планетарианка: Снежный шар [2021, OVA] BDRip 1080p raw
@@ -6,7 +32,7 @@ Planetarian: Snow Globe | Планетарианка: Снежный шар [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018404.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Assault Lily: Bouquet | Букет штурмовых лилий [2020, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018374.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? III / Danmachi III / М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018323.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Schoolgirl Strikers: Animation Channel / Штурмовые школьницы [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018313.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | DanMachi III | М�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018167.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018087.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Radiant | Радиан [ТВ-1] [2018, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018077.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Gekijouban Oushitsu Kyoushi Heine | The Royal Tutor Movie | Королевски
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018052.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Ultraman | Ультрамен [2019, Web, 13 из 13] WEBRip 1080p HEVC 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018044.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Code:Realize Sousei no Himegimi | Code:Realize - Guardian of Rebirth | Код: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018040.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Fushigi no Kuni no Miyuki-chan | Miyuki-chan in Wonderland | Миюки в ст�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017908.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Seishoujo Kantai Virgin Fleet | Virgin Fleet | Девственный флот [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017901.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017895.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017860.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Megami Kouhosei | The Candidate for Goddess | Кандидат для богин
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017709.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Yasuke | Ясукэ [2021, ONA, 6 из 6] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017367.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Yasuke | Ясукэ [2021, ONA, 6 из 6] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017365.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Ichiban Ushiro no Daimaou | Demon King Daimao | Князь тьмы с задн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017364.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Kono Minikuku mo Utsukushii Sekai | This Ugly yet Beautiful World | Этот у�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017357.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Ghost Hunt | Охота на привидений [2006, TV, 25 из 25] DVDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017352.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Saiyuuki Gaiden | Саюки: Истоки [2011, OVA, 3 + SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017266.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Patalliro Saiyuuki! | Паталиро Сайюки [2005, TV, 26 + SP] DVDRip 7
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017054.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Boku no Hero Academia: Ikinokore! Kesshi no Survival Kunren | Моя герой�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016910.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Yomigaeru Sora: Rescue Wings | Крылья спасения [2006, TV, 13 из 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016903.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Boku no Hero Academia (2017) | My Hero Academia Season 2 | Моя геройск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016893.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Boku no Hero Academia (2017) | My Hero Academia Season 2 | Моя геройск
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1CDC7DF84AA061251E74C8A863D132D72FD0B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468871   (1016891) от 09.05.2021
-
-Boku no Hero Academia (2019) | My Hero Academia Season 4 | Моя геройская академия [ТВ-4] [2019, TV, 25 эп.] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир злодеев балансирует на грани войны, когда «Все за одного» больше не работает. Сигараки из Лиги Злодеев вступает в борьбу с Капитальным ремонтом якудза, борясь за полный контроль над тенями. Тем временем Деку оказывается вовлеченным в другую опасную стажировку, поскольку он изо всех сил пытается не отставать от своего старшеклассника - Мирио.Производство: Студия Bones / ボンズЖанр: приключения, комедияРежиссер: Нагасаки КэндзиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F50332A852C1AC8326D39B7831E85BEA0BE6C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,86 @@
+###  Публикация: 1703127   (115208) от 28.02.2024
+
+Лагерь на свежем воздухе [ТВ-1] | Yuru Camp | Laid-Back Camp [2018, TV, 12 из 12 + 3 SP] BDRip 1080p 10bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите ли вы ходить в походы? Пленяет ли вас запах костра и еды, готовящейся на нём? Готовы ли вы часами слушать шорох листьев или шум реки? А спать в палатке или в спальном мешке под открытым небом? Если вам это по душе, и вы не боитесь трудностей, которые могут встретиться во время похода, то это аниме вам точно понравится! А может быть оно даже вдохновит вас повторить (   Читать дальше...   )Производство: Япония / Студия C-StationЖанр: Комедия, повседневностьРежиссер: Кёгоку ЁсиакиЯзык озвучки: Русский (Crunchyroll), (AniDUB); ЯпонскийСубтитры: Русские (софтсаб надписи/полные); Английские (софтсаб полные)
+Субтитры RUS (TV): ASS; (внешним файлом); перевод: Crunchyroll
+Субтитры RUS (SP): ASS; (внешним файлом); перевод: YakuSub Studio
+Субтитры ENG (TV+SP1): ASS; (внешним файлом); перевод: Asenshi(   Читать дальше...   )Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B9F656E784D782A251EFA3FFE235A2CEC205F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703145   (115206) от 28.02.2024
+
+Kakutou Bijin Wulong | Fighting Beauty Wulong | Боевая красавица Улун [2005, TV, 25 из 25] DVDRip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115206.jpg" />
+</div>
+
+
+###  Подробнее
+
+За всё время существования боевых искусств не нашёлся бы такой мастер, который смог позволить себе жить спокойной и размеренной жизнью. Настоящий воин обязан быть готов в любой момент отстоять честь своей школы, сразив противника, жаждущего опорочить его учение. В наши дни нелёгкое бремя защитницы доблестного имени своей семьи пало на плечи юной Мао Ран. Девушка (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: боевые искусства, комедияРежиссер: Судзуки ЁсиоПеревод: ANGREЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70933E974577C33C584FC2089B9C53D6544D2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703146   (115203) от 28.02.2024
+
+Kakutou Bijin Wulong Rebirth | Fighting Beauty Wulong Rebirth | Боевая красавица Улун: Возрождение [2006, TV, 25 из 25] DVDRip 480p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений Мао Ран - мастера боевых искусств и ее друзей. После чемпионата "Prime Mat" Мао принимает решение жить как обычная девушка. Однако не тут-то было...
+Слава, полученная на чемпионате, сводит ее с несколькими одноклассницами, мстящими мужскому роду . Так она обретает новых учеников.
+И вновь Мао предстоят новые встречи с мастерами боевых (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: боевые искусства, комедияРежиссер: Судзуки ЁсиоПеревод: DRAGJJ & mars 17Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A97E3F683DC0067755AB0AA890183BF7D166D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703494   (115090) от 29.02.2024
 
 Лагерь на свежем воздухе [ТВ-2] | Yuru Camp Season 2 | Laid-Back Camp Season 2 [2021, TV, 13 из 13] BDRip 1080p Raw+Rus
@@ -6,7 +89,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115090.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114866.jpg" />
 </div>
 
 
@@ -59,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114853.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ Akiba Meido Sensou | Akiba Maid War | Война горничных Акибы [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114714.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114688.jpg" />
 </div>
 
 
@@ -139,7 +222,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114374.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ Takt Op. Destiny | Такт. Опус Дестини | Такт. Опус Суд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114246.jpg" />
 </div>
 
 
@@ -191,7 +274,7 @@ Fate/Grand Order: First Order | Fate/Grand Order -First Order- | Судьба: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114170.jpg" />
 </div>
 
 
@@ -217,7 +300,7 @@ Misutenaide Daisy | Don't Leave Me Alone, Daisy | Не покидай меня, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114044.jpg" />
 </div>
 
 
@@ -244,7 +327,7 @@ Tekkamen o Oe "d'Artagnan Monogatari" yori | After the Man in the Iron Mask! (fr
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112759.jpg" />
 </div>
 
 
@@ -270,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109859.jpg" />
 </div>
 
 
@@ -296,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107356.jpg" />
 </div>
 
 
@@ -324,7 +407,7 @@ Buddy Daddies | Напарники-папаши | Папаши-дружбаны 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107132.jpg" />
 </div>
 
 
@@ -350,7 +433,7 @@ Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105470.jpg" />
 </div>
 
 
@@ -376,7 +459,7 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105116.jpg" />
 </div>
 
 
@@ -402,7 +485,7 @@ Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105089.jpg" />
 </div>
 
 
@@ -429,7 +512,7 @@ Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105061.jpg" />
 </div>
 
 
@@ -456,7 +539,7 @@ Ji Jia Shou Shen: Baolie Feiche 3 | Screechers Wild 3! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105008.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ Ji Jia Shou Shen: Baolie Feiche 2 | Screechers Wild 2! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104978.jpg" />
 </div>
 
 
@@ -510,7 +593,7 @@ Ji Jia Shou Shen: Baolie Feiche | Screechers Wild! | Дикие Cкричеры!
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104977.jpg" />
 </div>
 
 
@@ -536,7 +619,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Мистика, де�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104673.jpg" />
 </div>
 
 
@@ -562,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104514.jpg" />
 </div>
 
 
@@ -589,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104488.jpg" />
 </div>
 
 
@@ -600,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C48187F3CB7D359AB4709DEFE2A1F415A18789C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753381   (103862) от 04.10.2024
-
-Переродившись в аристократа, я стану успешным благодаря навыку оценки [ТВ-1] | Tensei Kizoku, Kantei Skill de Nariagaru [2024, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно попаданцам в другой мир достаётся огромное богатство, высокое положение в обществе или, на худой конец, какая-нибудь полезная способность.
-Однако переродившемуся Арсу Ловенту с этим не повезло: хоть он и стал дворянином, но не слишком родовитым, а искусного владения мечом или великого таланта к магии ему не подвезли. К тому же страна, в которую его забросило, (   Читать дальше...   )Производство: Япония / Студия Studio MotherЖанр: приключения, фэнтезиРежиссер: Като ТакаоЯзык озвучки: Русский (AniLibria), (Anything Group), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822822   (102697) от 08.10.2025
-
-Ванпанчмен [ТВ-3] | One Punch Man 3 [2025, TV, 1 SP] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102697.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом деле есть те, кто занимаются им просто ради удовольствия, а также те, кто делает это лучше всех других. Ну а Сайтама относится и к тем, и к другим. Он сильнейший герой, но при этом геройствует он просто веселья ради. Одна беда — Сайтама ну просто слишком силён и любого противника выносит с одного удара, отчего совершать подвиги становится до смерти скучно. (   Читать дальше...   )Производство: Япония / Студия J.C. StaffЖанр: Приключения, комедия, фэнтезиРежиссер: Нагай СимпэйЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490406   (102552) от 01.05.2012
-
-Naruto Shippuuden: Movie 8. Blood Prison / Наруто Ураганные хроники: Фильм 8. Тюрьма крови [2011] WEB-DLRip 480 raw rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102552.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном фильме Наруто объявляют виновным в убийстве джоунинов Скрытого Камня и Тумана, а так же в нападении на Четвёртого Райкаге. Далее он оказывается в тюрьме где ожидает исполнения приговора - лишения своих способностей шиноби.Жанр: Приключения, комедия, боевые искусства, сёнэнРежиссер: Датэ ХаятоОзвучка: Любительский (одноголосый)Продолжительность: 01:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F6A58E62021BC0DC67521574868C226DD833F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

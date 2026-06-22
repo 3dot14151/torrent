@@ -1,3 +1,31 @@
+###  Публикация: 1779114   (27948) от 11.02.2025
+
+Алена Спирина | Все о песочном тесте. Открытые пироги с ягодами (2017) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27948.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 видеоуроков от Алены Спириной в одном мастер-классе! Автор расскажет все о песочном тесте, выборе форм для различных пирогов, как приготовить идеальный патисьер (заварной крем).
+Вы узнаете, чем отличаются бризе, сабле и сюкре, как замесить эти виды теста разными способами и как их правильно хранить.
+Научитесь печь на его основе разнообразные пироги, такие как тарталетка (   Читать дальше...   )Жанр: КулинарияЯзык озвучки: РусскийПродолжительность: 01:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131D488AE6D9BCD4929A3CB59AF48B7E1E33EB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779307   (27868) от 12.02.2025
 
 Skillbox, Наталья Бондаренко, Юрий Новожилов | Ландшафтный дизайн с нуля (2020) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@ Skillbox, Наталья Бондаренко, Юрий Новожилов | Л�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27868.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27646.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27506.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27462.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27421.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27101.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27080.jpg" />
 </div>
 
 
@@ -198,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27027.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27008.jpg" />
 </div>
 
 
@@ -255,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26997.jpg" />
 </div>
 
 
@@ -281,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26980.jpg" />
 </div>
 
 
@@ -310,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26972.jpg" />
 </div>
 
 
@@ -339,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26914.jpg" />
 </div>
 
 
@@ -366,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26782.jpg" />
 </div>
 
 
@@ -395,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26774.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26698.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26690.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26688.jpg" />
 </div>
 
 
@@ -509,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26679.jpg" />
 </div>
 
 
@@ -538,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26674.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26665.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26623.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26480.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26290.jpg" />
 </div>
 
 
@@ -674,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26276.jpg" />
 </div>
 
 
@@ -688,35 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF74B786A0CCF9A629538BF98CC5A7DA5269B76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782105   (26264) от 27.02.2025
-
-Проектируем с удовольствием, Ирина Михалевская | Рассчитываем и конструируем монолитную лестницу с перекрытием (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выполним расчет, определим армирование и детально проработаем конструирование армирования каждого элемента, каждого сопряжения и каждого узла.
-
-Научиться проектировать с пониманием проще всего, наблюдая, как это делают другие. Я предлагаю вам понаблюдать за процессом — как я беру задачу и довожу ее до четких конкретных решений.
-Четкие последовательные понятные действия (   Читать дальше...   )Производство: Проектируем с удовольствиемЖанр: Мастер-классЯзык озвучки: РусскийПродолжительность: 02:58:52Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A20945B29E7DE2D40727B606109992C342C1BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

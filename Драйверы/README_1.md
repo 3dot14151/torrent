@@ -1,3 +1,29 @@
+###  Публикация: 1803529   (13649) от 24.06.2025
+
+Snappy Driver Installer Origin R816 | Драйверпаки 25.06.2 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snappy Driver Installer Origin (SDI Origin) - главная ветвь портативной программы SDI для установки и обновления драйверов, не требующей подключения к интернету. SDIO является лидером среди программ этого класса по точности подбора драйверов и скорости работы. При ранжировании драйверов отдает приоритет более подходящим драйверам (невзирая на наличие более новых (   Читать дальше...   )Язык интерфейса: Русский, Английский, и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D512BDC53907E67F64C65319770D3AAF32030A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812727   (7533) от 16.08.2025
 
 NVIDIA GeForce Desktop Game Ready 580.97 WHQL + DCH [Multi/Ru]
@@ -6,7 +32,7 @@ NVIDIA GeForce Desktop Game Ready 580.97 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7533.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Snappy Driver Installer Origin R817 | Драйверпаки 25.08.3 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5091.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NVIDIA GeForce Desktop Studio 581.29 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2826.jpg" />
 </div>
 
 

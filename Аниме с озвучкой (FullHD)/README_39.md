@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41308.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Girls Band Cry | Плач девичьей группы [2024, TV, 13] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41256.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41182.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40608.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40087.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Elf-san wa Yaserarenai | Plus-Sized Elf | Эльф не может похуде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39940.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39846.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39774.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39586.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39170.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Unnamed Memory | Безымянная память [ТВ-1] [2024, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38819.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38809.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38708.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37953.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37934.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37805.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37791.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37477.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37125.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37100.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37030.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36540.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36158.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36074.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35973.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35964.jpg" />
 </div>
 
 

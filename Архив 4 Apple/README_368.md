@@ -1,3 +1,30 @@
+###  Публикация: 1567492   (472384) от 03.08.2022
+
+Athentech Perfectly Clear WorkBench for Mac 4 v4.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB869E63AB2113816B378277327453B7C8FAF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567526   (472367) от 03.08.2022
 
 Permute 3 v3.9.7 U2B[Multi/Ru]
@@ -6,7 +33,7 @@ Permute 3 v3.9.7 U2B[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472367.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Allavsoft Video Downloader Converter 3.24.9.8248 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472347.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Dash 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472247.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Easy Data Transform 1.32.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472242.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ PDF Reader Pro Edition 2.8.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472238.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Vellum 3.3.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472121.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Rhinoceros 7 v7.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472107.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ SSH Shell 17.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471899.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ VueScan Pro 9.5.83 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471892.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Sound Studio 4.8.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471747.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471493.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Templates for Pages 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471438.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470983.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ BetterTouchTool 1.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470957.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ Folx Pro 5.10 (13853) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470913.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ CleanMyMac X 4.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470785.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ MacBooster 4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470718.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ Aurora HDR 2017 v1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470701.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ EdgeView 3 v3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470320.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ TS Calc 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470317.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ DB-Text 1.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470316.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ Folder Tidy 2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470315.jpg" />
 </div>
 
 
@@ -596,7 +623,7 @@ Soulver 3 v3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470310.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ Zoc Terminal 7.09.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470226.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ Sketch 91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470190.jpg" />
 </div>
 
 
@@ -660,32 +687,6 @@ Sketch 91 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D068F50A4D103E15DCECF4F5A5D540F4652C9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160856   (469796) от 27.08.2017
-
-Wondershare Data Recovery 6.0.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление утерянных фотографий, видео, документов, электронных писем и архивных файлов с любого жесткого диска Mac или внешнего жесткого диска, IPod, USB диска, SD карты, цифрового фотоаппарата, мобильного телефона и MP3/MP4-плеера в результате случайного удаления, форматирования, вирусной инфекции, неправильной эксплуатации, неожиданного отключения питания (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.08.2017Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: OS X 10.6.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336447838CDBC90D5956E3708F4F993A26708CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

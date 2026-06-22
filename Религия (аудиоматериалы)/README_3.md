@@ -1,3 +1,31 @@
+###  Публикация: 1571508   (239459) от 24.08.2022
+
+Студия "Свет на Востоке" | Библия, Ветхий Завет (2018) [MP3, Владимир Виноградов]
+
+>>Обучающие аудиоматериалы
+>>Религия (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239459.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издание включены все канонические книги Ветхого Завета Священного Писания в синодальном переводе.
+Первая часть Библии — Ветхий Завет состоит из 39 книг, которые дошли до нашего времени благодаря тщательной работе книжников, которые поколение за поколением сохраняли и переписывали текст оригинала. К VI веку по Р.Х.
+Эстафету в сохранении и передаче Писания приняли (   Читать дальше...   )Жанр: ПовествовательныйЯзык озвучки: РусскийПродолжительность: 82:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA258265E5D6E7D40DEA9DD3446CB3F56086914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631727   (235623) от 07.05.2023
 
 Алан Уотс | Книга о табу на знание о том, кто ты (2020) [MP3, Пётр Маркин]
@@ -6,7 +34,7 @@
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235623.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219642.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212688.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212155.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207464.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204153.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173187.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167832.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157533.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151054.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150683.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150039.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138668.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126492.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126259.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105196.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104285.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104238.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104139.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103985.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103824.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103568.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84547.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62751.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44838.jpg" />
 </div>
 
 
@@ -647,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3ED6388CC03AB23069936E82D32A0F261F59042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748675   (43866) от 11.09.2024
-
-Димитрий Ростовский | Жития святых. Месяц февраль (2023) [MP3, Л. Лепшина]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жития святых издавна были основным содержанием Миней-Четьих - произведений русской церковно-исторической и духовно-учительной литературы. Повествования о жизни святых Православной Церкви излагаются в Минеях-Четьих по порядку месяцев и дней каждого месяца. Из четырех известных сочинений такого рода Минеи-Четьи Св. Димитрия Ростовского, написанные на церковно-славянском (   Читать дальше...   )Жанр: ПравославиеИздательство: Неофициальное изданиеПродолжительность: 16:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7109B5ED72EA0CC0658F084629B77346A1EA22
 ```
 
 https://mybot314.ru/tekegram_catalog/

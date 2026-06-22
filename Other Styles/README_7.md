@@ -1,3 +1,264 @@
+###  Публикация: 1461023   (1021783) от 10.04.2021
+
+Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanova>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Com Que Voz
+02. Barco Negro
+03. Lagrima
+04. Formiga Bossa Nova(   Читать дальше...   )Жанр: Fado, BossanovaПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034118732F10F3C347899346F9CE0DB802FFDD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461086   (1021759) от 10.04.2021
+
+VA - Best Of Green Hill Music: The Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Whitmire - Bella's Lullaby - Solo Piano Theme From Twilight (3:50)
+02. Jim Brickman - Valentine (3:33)
+03. David Hamilton - 'S Wonderful (4:04)
+04. Beegie Adair - I Get Along Without You Very Well (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E083FCBA33CF6D901F5960ED7A0AFA2591742F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461444   (1021609) от 11.04.2021
+
+Robbie Robertson - Collection (1994-1998) 2 альбома [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coyote Dance
+02. Mahk Jchi (Heartbeat Drum Song)
+03. Ghost Dance
+04. The Vanishing Breed(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CA63657DC91890BB748F824EACF02B8AEE1123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457216   (1020925) от 15.04.2021
+
+Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Ringtones, Pop, Sexy>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot & Sexy Ringtone #1
+02. Hot & Sexy Ringtone #2
+03. Hot & Sexy Ringtone #3
+04. Hot & Sexy Ringtone #4(   Читать дальше...   )Жанр: Ringtones, Pop, SexyПродолжительность: 00:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A71A29777F620914EF9836D7BCCBCC032DB134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463275   (1020612) от 17.04.2021
+
+Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020612.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
+[07:15] 02. Hanzo Hasashi
+[02:25] 03. Lord Raiden
+[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791E872225D831DF5A60916000F34612AC79609B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463276   (1020456) от 18.04.2021
+
+Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020456.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
+[07:15] 02. Hanzo Hasashi
+[02:25] 03. Lord Raiden
+[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5CE5812DE05A3B3385EACF32E8D250A0041403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463278   (1020444) от 18.04.2021
+
+Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020444.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
+[07:15] 02. Hanzo Hasashi
+[02:25] 03. Lord Raiden
+[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865EDDCAC71B4E34824CB4E4467D16D1517B24E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463534   (1020308) от 19.04.2021
+
+Bryan Lubeck, Johannes Linstead & Tomas Michaud - We Three Strings (2006) [FLAC|Lossless|tracks + .cue] <Flamenco, Latin, Folk>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johannes Linstead - What Child Is This? (3:26)
+02. Bryan Lubeck - The First Noel (4:15)
+03. Tomas Michaud - Christmas Journey (5:16)
+04. Johannes Linstead - God Rest Ye Merry, Gentlemen (2:41)(   Читать дальше...   )Жанр: Flamenco, Latin, FolkПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3726B62918410254B2322118AF9EE1BF5EB3F7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463530   (1020295) от 19.04.2021
+
+Behzad (Behzad Aghabeigi) - 5 альбомов (1997-2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapture of Massy (5:20)
+02. Your Tranquillity Matilda (4:51)
+03. Simmering Souls (6:01)
+04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 04:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C97D8AEB95819004DD1C683171C349B9AC1137C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464295   (1019975) от 21.04.2021
 
 Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
@@ -6,7 +267,7 @@ Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019975.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Nativ
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019973.jpg" />
 </div>
 
 
@@ -64,7 +325,7 @@ OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саун
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019728.jpg" />
 </div>
 
 
@@ -93,7 +354,7 @@ Johannes Linstead - Discography (1999-2017) [MP3|320 Kbps] <Flamenco, Guitar, La
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019632.jpg" />
 </div>
 
 
@@ -122,7 +383,7 @@ Shanti People - Krishna is Love (2013) [MP3|320 Kbps] <New age, Folk, Meditative
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019312.jpg" />
 </div>
 
 
@@ -151,7 +412,7 @@ Tierra Negra - Discography (1997-2020) [MP3|320 Kbps] <Flamenco, Acoustic Guitar
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019297.jpg" />
 </div>
 
 
@@ -180,7 +441,7 @@ Johannes Linstead - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Flame
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019285.jpg" />
 </div>
 
 
@@ -209,7 +470,7 @@ Shanti People - Urban Mantras (2015) [MP3|320 Kbps] <New age, Folk, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019280.jpg" />
 </div>
 
 
@@ -238,7 +499,7 @@ Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018931.jpg" />
 </div>
 
 
@@ -267,7 +528,7 @@ Tierra Negra - Discography (1997-2020) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018772.jpg" />
 </div>
 
 
@@ -298,7 +559,7 @@ Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016395.jpg" />
 </div>
 
 
@@ -327,7 +588,7 @@ Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016129.jpg" />
 </div>
 
 
@@ -356,7 +617,7 @@ Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016099.jpg" />
 </div>
 
 
@@ -385,7 +646,7 @@ Era - 7 Albums (1996 - 2010) [FLAC|Lossless|tracks + .cue]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015873.jpg" />
 </div>
 
 
@@ -414,7 +675,7 @@ Maneesh de Moor - Songs from the Tree of Light (2017) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015770.jpg" />
 </div>
 
 
@@ -443,7 +704,7 @@ VA - Pilates and Yoga Music 2021 [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015492.jpg" />
 </div>
 
 
@@ -472,7 +733,7 @@ VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015479.jpg" />
 </div>
 
 
@@ -486,267 +747,6 @@ VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC050CAB0E9FDF44D01F55705DA54ED92A654351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470761   (1015292) от 19.05.2021
-
-Shamanic Channel - Collection (2021) 4альбома [MP3|320 Kbps] <Native American, New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yellow Shamanism
-02. Sacred Ritual
-03. Into the Woods, Rain Sounds
-04. Native Relaxation(   Читать дальше...   )Жанр: Native American, New age, MeditativeПродолжительность: 03:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3E11EB79B32BC1F4972E852F88A4AD1F7578C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320176   (1014887) от 21.05.2021
-
-Mirage - Classic Guitar Mood (1995) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Theme from Romeo & Juliet 	(03:23)
-02. Your Song 				(04:07)
-03. Bamboleo 				(03:34)
-04. Rodrigo's Guitar Concerto 		(03:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50338FF96845D3F5A638B2715F559766F08973A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583407   (1014260) от 25.05.2021
-
-Nightwish - Imaginaerum (The Score) (2012) Unofficial Release [APE|Lossless|image + .cue] <Neo - Classic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Find Your Story (2:31)
-02. Orphanage Airlines (4:34)
-03. Undertow (5:18)
-04. Spying In The Doorway (3:04)(   Читать дальше...   )Жанр: Neo - ClassicПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A263F51950024A4BA3CB42083A1F2F562AECB39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472983   (1014026) от 27.05.2021
-
-Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014026.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Nirvana 4:51
-2 A Kind Of Birds 4:18
-3 Nebo 4:43
-4 Spend A Happy Day 4:39(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26D2CDB7DDB8FD0C4B359DD1F1B4A3D8FB827B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472923   (1014013) от 27.05.2021
-
-Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] <Celtic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Northern Star 4:03
-2 Come And Lay Down 6:10
-3 At Home 4:36
-4 Fare Thee Well 6:21(   Читать дальше...   )Жанр: Celtic, New AgeПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F87231602CCD8D93E93485D1A6070A09821C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473053   (1013858) от 28.05.2021
-
-Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celtic, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Into Blue 3:44
-2 The Mountain Side 3:52
-3 Dungannon Dew 2:56
-4 The Green Side 4:24(   Читать дальше...   )Жанр: New Age, Celtic, FolkПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7EB2BE080624102D16580F977FFA51019B40876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473523   (1013522) от 30.05.2021
-
-Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Mind (3:15)
- 02. f l o w e r (3:54)
- 03. Walking In The Forest (3:07)
- 04. f r a m e d (Piano Version) (3:53)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D778C15F0D4207555809DB220AAB4E1AB3C425BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474406   (1012935) от 02.06.2021
-
-Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khumjung
-02. Horizon of Gold
-03. Mother's Wingspan
-04. The HierophantЖанр: New Age, MeditativeПродолжительность: 00:62:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD609BC08945B113F46394837744389B0892641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 169972   (1012498) от 05.06.2021
-
-Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Rock, Neo-Folk, Psychedelic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sickness That Never Sleeps - 3:25
-02. Runaway - 2:10
-03. Cauterize November - 2:00
-04. Fourth Horseman - 2:42(   Читать дальше...   )Жанр: Folk Rock, Neo-Folk, PsychedelicПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1A6CF360DBA71150556CD85C8842DBF09C3AB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

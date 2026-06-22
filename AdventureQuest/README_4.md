@@ -1,3 +1,81 @@
+###  Публикация: 1843618   (1049274) от 21.12.2025
+
+Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправься в бескрайний мир, где ты можешь изменить каждую планету, каждую систему и каждый миг. Исследуй вселенную, полную жизни, древних тайн и нетронутых красот. Дай отпор Красной тьме, собирая ресурсы и создавая инструменты, оружие и транспорт, без которых не обойтись в этой одиссее. Объединись с друзьями и сразись с гигантскими противниками, чтобы подарить надежду (   Читать дальше...   )Тип издания: LicenseРазработчик: Atypical GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626D3AB1D8D8CD6DE6D3B473DDC98479CB5D1CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843309   (1049230) от 19.12.2025
+
+The Berlin Apartment (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малик получает заказ на ремонт старой берлинской квартиры. Но есть загвоздка: с собой приходится взять любознательную дочку, которая никак не может усидеть на одном месте. Диляра исследует квартиру и узнаёт о её предыдущих жильцах, время от времени натыкаясь на принадлежавшие им вещи. С каждой находкой Малик рассказывает дочке новую историю - со своими героями, сюжетом (   Читать дальше...   )Тип издания: RepackРазработчик: btfЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239A44704CBD2E646FE465BE8B6D3CCCA198DCEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843300   (1049228) от 19.12.2025
+
+Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack HardwareMining
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: SceneРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5926B127C1649B4F5922B59C13376A57DBC7F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842275   (1048643) от 15.12.2025
 
 Cybernetic Fault (2020) [Ru/Multi] (1.1) License GOG
@@ -6,7 +84,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048643.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.12.0/dlc) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048584.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Foolish Mortals (2025) [Multi] (0.7.5.1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1048570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1048570.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Hoomanz! (2025) [Ru/Multi] (0.3.26) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048541.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Sanatorium: A Mental Asylum Simulator (2025) [Ru/Multi] (0.99) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047670.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.2.381918 build 20599177/dlc) Repack HardwareM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047632.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Art of Reflection (2025) [Ru/Multi] (2465) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047481.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.2.11062025.41663/dlc) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047467.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Midnight Scenes: A Safe Place (2024) [En] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047325.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Midnight Scenes: From the Woods (2023) [En] (1.1a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047324.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Uninvited / Unwelcome (2022) [En] (1.14a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047323.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Midnight Scenes: The Nanny (2021) [En] (1.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047322.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Midnight Scenes Episode 2 (2020) [Ru/Multi] (1.19a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047321.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Librarian (2020) [Ru/Multi] (1.03a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047320.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047305.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Disney Dreamlight Valley (2023) [Ru/Multi] (1.20.2.42/dlc) Repack Other s [Ultim
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047300.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047065.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (739124) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046972.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Please Be Happy (2022) [En ] (2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046863.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Ghost Town (2025) [Multi] (19226835) Scene Rune [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046860.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046734.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046712.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ MiSide (2024) [Ru/Multi] (0.93L) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046675.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Miside - это игра в жанре приключения от первог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B1B6475DBC38E4E456515C31372FF792B6487CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839523   (1046639) от 29.11.2025
-
-Myst (2021) [Ru/Multi] (3.0.9) Repack Necros [VR]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на Мист – поразительно красивый остров, поросший зловещими тайнами и окутанный интригами. Отправляйтесь на остров Мист и в другие потрясающие, длительно бездействующие места, называемые "Эпохами", и начните разгадывать тайну, в которую Вас втянули. Постепенно узнавая, что же произошло на острове, Вы обнаружите, что играете ключевую роль (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan WorldsЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C669449F0B2E6A09E5DA2458B48CFE6B4A8025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839530   (1046627) от 29.11.2025
-
-Disney Villains Cursed Cafe (2025) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загляните в Проклятое кафе. Окунитесь в мир, где каждая чашка хранит тайну, а каждый глоток может изменить судьбу! В качестве нового зельевара в Проклятом кафе Disney Villains вы будете создавать волшебные смеси для легендарных персонажей - Круэллы де Виль, Злой Королевы, Гастона, Капитана Крюка, Джафара, Малефисенты и Урсулы - все они переосмыслены в современном (   Читать дальше...   )Тип издания: LicenseРазработчик: Bloom Digital MediaЖанр: Казуальные игры, Приключение, КвестыЯзык интерфейса: Английский, Французский, Испанский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3521EC1F2F659B99CDE5DA13DBC078AB0071E169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839435   (1046556) от 28.11.2025
-
-Fran Bow (2015) [Ru/Multi] (11189293) Repack Necros
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fran Bow — приключенческая игра, рассказывающая историю девочки Фрэн, которая борется с психическим расстройством и несправедливой судьбой. После ужасной и загадочной смерти своих родителей, найденных расчленёнными в их доме, Фрэн оказывается в приюте Освальда, психиатрической больнице для детей. Увидев во сне любимого кота, Фрэн решает сбежать из психиатрической (   Читать дальше...   )Тип издания: RepackРазработчик: Killmonday Games ABЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4421AF89DEF6A7CABAA671AC603F769F3F14F32F
 ```
 
 https://mybot314.ru/tekegram_catalog/

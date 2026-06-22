@@ -1,3 +1,133 @@
+###  Публикация: 1760077   (37542) от 12.11.2024
+
+Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в межпространственное путешествие со старыми знакомыми Рэтчетом и Кланком – теперь на ПК! Помогите им одолеть злого императора из параллельной реальности, перемещаясь по удивительным мирам и даже за их пределами на бешеной скорости! На очереди измерение Рэтчета и Кланка, поэтому стряхните пыль со старого верного оружия и остановите мультивселенскую (   Читать дальше...   )Тип издания: RepackРазработчик: Insomniac Games, Nixxes SoftwareЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0624C62873D10A7565E13FA43DD3E9932B2BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760079   (37511) от 12.11.2024
+
+Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hello Neighbor 2 создана в мультяшном стиле, а вы исследуете открытый мир в поисках пропавшего Мистера Питерсона, являющегося соседом главного героя. Во время путешествия, персонаж замечает, что его самого проследует странное существо, желающее что-то плохое протагонисту. Антагонист, идущий по стопам все прохождение, постоянно улучшает свои способности в слежке и (   Читать дальше...   )Тип издания: LicenseРазработчик: Eerie Guest, tinyBuildЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9652C0B124A59ABCCD1826D85E3F18A997CC8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760148   (37488) от 12.11.2024
+
+Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lunacy: Saint Rhodes - хоррор на выживание от первого лица, в котором вам предстоит выяснить правду о чудовищном убийстве вашей семьи. Исследуйте историю своего родового поместья и деревни Сент-Родс и попытайтесь противостоять грозящей ему опасности. Раскройте мрачные тайны своей семьи, пока вас не поглотило безумие. В Lunacy: Saint Rhodes вам предстоит отправиться (   Читать дальше...   )Тип издания: LicenseРазработчик: Stormling StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C871C243F5B9908D03497257C8A0190F609BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760348   (37416) от 13.11.2024
+
+Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэйдзи снова «связан судьбой», на этот раз с волшебной девушкой на год старше его! Во второй части этой шумной романтической комедии VN-сериала странное столкновение приводит к тому, что Сэйдзи становится фамильяром Майи - и связан зачарованной связью, чтобы выжить. Приведет ли близость к любви, или он обречен служить до конца (своих) дней?Тип издания: LicenseРазработчик: miraiЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEC986FCD4B13DE5EFA7F0AD34D06B6F2CC8416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760345   (37390) от 13.11.2024
+
+Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неожиданная суматоха с обезумевшими космическими демонами приводит к тому, что никто из кампуса Сейджи «связывается судьбой» с Юри, тайной девочкой-волшебницей, которая также является его тайной школьной любовью! Раскрыв оба секрета, сможет ли Сейджи все еще выстрелить? Или же приспешники злого Маджина первыми вторгнутся на Землю?Тип издания: LicenseРазработчик: miraiЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAD6106D2180D2B2835BC76299297EF0A7B9049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760437   (37326) от 14.11.2024
 
 Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack Wanterlude
@@ -6,7 +136,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37326.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37322.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37245.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Tavern Talk (2024) [Multi] (20241111/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37240.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Gori: Cuddly Carnage (2024) [Multi] (1.0.187/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37162.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.4b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37153.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37133.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37120.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37098.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37092.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37090.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.3.1535/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37073.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37044.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37042.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37002.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36981.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ VED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36915.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.33/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36911.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36655.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Disney Dreamlight Valley (2023) [Multi] (1.14.1.990/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36619.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36599.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BEFEFD76DEE459A97B06556DE9A8A6A97CE011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761756   (36525) от 22.11.2024
-
-Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36525.jpg" />
-</div>
-
-
-###  Подробнее
-
-История, управляемая приключенческая игра от первого лица с кинематографическим опытом. Отправьтесь в путешествие в HaustVille, заброшенное поселение в постапокалиптическом мире. Исследуйте окружающую среду и раскройте тайну исчезновения последних выживших.Тип издания: RepackРазработчик: Cem Boray YıldırımЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7041E0BFF2BD1B96FA5E768E063AB561CF3CFA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762015   (36374) от 23.11.2024
-
-A Quiet Place: The Road Ahead (2024) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36374.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Quiet Place: The Road Ahead — это однопользовательская приключенческая игра в жанре хоррор, вдохновленная получившей признание критиков франшизой и рассказывающая историю выживания после нашествия смертоносных существ. В этом эксклюзивном спин-оффе вы пройдете путь молодой женщины, для которой ужасный апокалипсис совпал с разгаром семейного конфликта, и она пытается (   Читать дальше...   )Тип издания: RepackРазработчик: Stormind GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D95063116FB4E9238545F78205290BCCCB7EFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521030   (36230) от 25.11.2024
-
-Sam & Max: Save the World (2020) [Ru/Multi] (2.0.0) License GOG [Remastered]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sam and Max Save the World – первый сезон в серии игр, а главная тема данного эпизода – гипноз. Все начинается с главы "Культурный шок", в котором Брэйди Культура оказывает влияние на сознание Трех Шипучек. После чего игрок переносится в "Комедийную ситуацию". В этой главе телеведущая Майра была подвержена гипнозу злодеев, а о них становится лучше (   Читать дальше...   )Тип издания: LicenseРазработчик: Skunkape GamesЖанр: Приключение, Квест, ДетективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6CBE5F0C88C7F69243EDEE62E82326248018E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762332   (36227) от 25.11.2024
-
-Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детройт, 2038 год. Технологии развились до такой степени, что человекообразные андроиды встречаются на каждом шагу. Они говорят, двигаются, ведут себя словно человеческие существа, но они — лишь машины в на службе у людей. Играйте за трех разных андроидов и наблюдайте мир на грани хаоса — наше возможное будущее их глазами. Каждое ваше решение приведет к драматическим (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46813C37357D3599A2B32A0A8E363FA981B647C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728650   (36224) от 25.11.2024
-
-The Journey of AutUmn (2024) [Multi] (1.12) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36224.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Journey of AutUmn – перед вами традиционное приключение «наведи и кликни» с прорисовкой вручную. Где в качестве главного героя выступает андроид, который потерпел неудачу во время выполнения миссии. Начинать миссию вам предстоит в качестве безымянного работника на дистанционном управлении. Он выполняет сбор информации о планете, чтобы затем предоставить ее строителям (   Читать дальше...   )Тип издания: LicenseРазработчик: Artfactory JalokiviЖанр: Приключенческие игры, ИндиЯзык озвучки: НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7CCB6E7B9A9C2D603BE3A068C5142484B505C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

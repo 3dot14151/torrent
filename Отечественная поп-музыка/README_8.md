@@ -1,3 +1,90 @@
+###  Публикация: 1504664   (810472) от 24.10.2021
+
+Аркадиас - Чувства-цунами (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чувства-цунами (4:54)
+02. Оригами (3:05)
+03. Солёный дождь (4:01)
+04. Влюблены (Элла) (5:27)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BCDEEE03B7717E2323944B7CD8124F238B52D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504665   (810355) от 24.10.2021
+
+Аркадиас - Танцор диско (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танцор диско (4:03)
+02. Ах, эта женщина (5:05)
+03. Только ты необходима мне (3:24)
+04. Аккуратно (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA38A56DFB53E31EF32B735D904BCCDEE59A6FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505989   (801519) от 29.10.2021
+
+Олег Газманов - Юбилейный альбом (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801519.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. А я девушек люблю
+2. Дождись
+3. Единственная
+4. Есаул(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98202D066250D24ECD79BE8891FEF266628F7BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384850   (800849) от 22.05.2020
 
 Ёлка - Past Perfect (2020) [MP3|320 Kbps] <Pop>
@@ -6,7 +93,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800849.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800338.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Айсберг (1999-2001) 6CD [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799204.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798651.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Трибьют t.A.T.u. "200 по встречной" (2021) [MP3|320 Kbps]
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798244.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - 13 друзей Билана (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794887.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794829.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793947.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Айсберг. Каникулы с Андреем Губиным (2001) [M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793432.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793398.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Айсберг. Дискотека 1-2 (2001) 2CD [MP3|image + .cue|320 Kbp
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793314.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793004.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792373.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792335.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792101.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791365.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790493.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Burito - Небесный ампир (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789737.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Hi-Fi - Лучшее (2015) LP [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787560.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786825.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786691.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783458.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781845.jpg" />
 </div>
 
 
@@ -655,89 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C273D9D352536B6A43CAEC3579561DE47C063577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207695   (780397) от 19.02.2018
-
-На-На - По накатанной (2018) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780397.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тук-тук
-2. По накатанной
-3. 10 днейЖанр: PopПродолжительность: 00:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3A6E9AA3A7AA892F875F0410E14E61C8674850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208323   (780039) от 21.02.2018
-
-Григорий Лепс - Зае...вшие рожи (2018) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780039.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Зае...вшие рожиЖанр: PopПродолжительность: 00:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163C37050EDF5FC8737B2BDAFD2FD0AD8BF7C1DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208756   (779742) от 23.02.2018
-
-Юрий Шатунов - Не молчи... (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С Днём Рождения
-02. Одноклассники
-03. И я под гитару
-04. Не молчи(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAD4AC422649C16379F50A808029E79A5C23327
 ```
 
 https://mybot314.ru/tekegram_catalog/

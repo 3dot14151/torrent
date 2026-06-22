@@ -1,3 +1,29 @@
+###  Публикация: 602635   (997358) от 13.01.2013
+
+Closure [En] (RePack) 2012 | R.G. Механики
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Closure – логический платформер, использующий концепцию света и тени. Главная особенность игры заключается в том, что только то, что видно в данный момент на экране, на самом деле существует. Так, например, если какой-то предмет или поверхность освещаются светом, то значит с ним можно взаимодействовать, а если на них находит тень – они перестают существовать.(   Читать дальше...   )Тип издания: RepackЖанр: Arcade (Platform) / LogicЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D21D9D9FD71438C7348BBA2170BDA4C813D2045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603853   (996573) от 16.01.2013
 
 Primal Fears [En/Ru/Multi4] (L) 2013 | TiNYiSO
@@ -6,7 +32,7 @@ Primal Fears [En/Ru/Multi4] (L) 2013 | TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996573.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Symphony [Ru/En] (Steam-Rip/1.3) 2012 | R.G. GameWorks
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991613.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd5) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986728.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ The Bug Butcher (2016) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961871.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Zombie Night Terror (2016) [Ru/Multi] (1.4.4) License GOG [Special Edition] (о�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960277.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ BADLAND (2015) [Ru/Multi] (Build 27.01.2016) SteamRip Let'sРlay [Game of the Ye
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958096.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Chariot (2014) [Ru/Multi] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950134.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ La-Mulana 2 (2018) [Multi] (1.7.7.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949111.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Runner2: Future Legend of Rhythm Alien [En] (L) 2013 | FANiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948690.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Nuclear Throne (2015) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946442.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Don't Chat With Strangers (2017) [En] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936875.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Rise & Shine (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934543.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Rise & Shine (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933007.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Cathedral (2019) [En] (1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930025.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord (2013) [Ru/Multi] (1.1.2)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923998.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Shantae: Half-Genie Hero (2016) [Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923847.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923306.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_94) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919942.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Just Shapes & Beats (2018) [Ru/Multi] (1.3.19) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915091.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Perfect Universe - Play with Gravity (2016) [Multi] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913690.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Double Cubes (2017) [Ru/Multi] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913636.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Neon Chrome (2016) [En] (1.0.0.14) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913566.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.3.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913425.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Rocketbirds 2 Evolution (2017) [Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913409.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Rocketbirds 2: Evolution (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909672.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Rocketbirds 2: Evolution (2017) [Multi] (1.0) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE582DF8AD8958FB4CB42AF3DD34F28DB887293D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991594   (905564) от 28.02.2016
-
-Dungelot: Shattered Lands (2016) [Ru/En] (1.34) Unofficial ALiAS
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: За основу взята первая часть игры Dungelot, но с добавлением сюжета и глобальной карты и повышенной реиграбельностью : многие вещи и рецепты можно только найти переигрывая пройденные подземелья разными героями. Добавлена небольшая свобода для игрока : уровни следуют нелинейно и чтобы добраться до главной башни с боссом необязательно проходить все подземелья. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Red Winter SoftwareЖанр: RPG (Rogue, Action), Top-downЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFFBA2BB506D9019B20802E691E25FEDA915E95
 ```
 
 https://mybot314.ru/tekegram_catalog/

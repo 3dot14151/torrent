@@ -1,3 +1,57 @@
+###  Публикация: 1339377   (266162) от 19.11.2019
+
+Polarr Photo Editor Pro 5.10.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_266162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Polarr - единственный редактор фотографий, который вам нужен.
+
+Неважно, если вы новичок в области фотографии или профессионала, у Polarr есть все. Новички оценят, что Polarr предлагает расширенные средства автоматического улучшения и сложные фильтры для редактирования всех деталей вашей фотографии. Профессиональные фотографы с нетерпением ждут нашей поддержки слоев, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2019Разработчик: Polarr Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF880834140A6606468C282A303C6FF80ACF0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339332   (266158) от 19.11.2019
+
+PowerPhotos 1.7.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266158.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerPhotos работает со встроенным приложением «Фото» на вашем Mac, предоставляя множество инструментов, которые помогут вам привести вашу коллекцию фотографий в порядок.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2019Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0167FA73BCC92E8A05CAA473B3BD7DCCB63FE7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339400   (266156) от 19.11.2019
 
 Wifiner 1.3.189 [Multi]
@@ -6,7 +60,7 @@ Wifiner 1.3.189 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266156.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ Pixelmator 3.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266155.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Adguard 2.2.3 660 nightly (CL - 1.5.127) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266154.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Luminar 4  v4.0.0 (5380) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266065.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Downie 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266036.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ KeyKey 2.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265987.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ DCommander 3.1.4a [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265919.jpg" />
 </div>
 
 
@@ -201,7 +255,7 @@ TechTool Pro 9.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_265854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_265854.jpg" />
 </div>
 
 
@@ -228,7 +282,7 @@ Ummy Video Downloader 1.60 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265761.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ MiniTube 2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265758.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ Apple MainStage 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265575.jpg" />
 </div>
 
 
@@ -310,7 +364,7 @@ Hands Off! 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265456.jpg" />
 </div>
 
 
@@ -337,7 +391,7 @@ A Better Finder Rename 11 v11.05 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265374.jpg" />
 </div>
 
 
@@ -364,7 +418,7 @@ IconJar 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265373.jpg" />
 </div>
 
 
@@ -393,7 +447,7 @@ SpamSieve 2.9.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265372.jpg" />
 </div>
 
 
@@ -421,7 +475,7 @@ Soulver 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265371.jpg" />
 </div>
 
 
@@ -447,7 +501,7 @@ ScreenFlow 9 v9.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265366.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.15.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265364.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ Audirvana 3.5.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265363.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ Fantastical 2 v2.5.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265361.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ Path Finder 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265356.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ TouchCopy 16.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265355.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ MacCleaner PRO 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265354.jpg" />
 </div>
 
 
@@ -639,7 +693,7 @@ Typeface 2 v2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265350.jpg" />
 </div>
 
 
@@ -653,61 +707,6 @@ Typeface 2 поможет вам выбрать идеальный шрифт и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47207DD0E9E48B819996C3F445E72773EECA226A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339611   (265348) от 20.11.2019
-
-Blocs 3.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
-
-Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2019Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBCD8CBC2E9F252B16B28F5F500A4B22AFC71BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339682   (265322) от 20.11.2019
-
-Sketch 60.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AC5B6486B8FED79F34E701322A7F77D62DA95D
 ```
 
 https://mybot314.ru/tekegram_catalog/

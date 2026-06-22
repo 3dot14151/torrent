@@ -6,7 +6,7 @@ Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052088.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hikuidori: Ushuu Boro Tobi-gumi | Oedo Fire Slayer: The Legend of Phoenix | Ог
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052067.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ You and I Are Polar Opposites | Seihantai na Kimi to Boku | Ты и я полн�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052066.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052061.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Jingai Kyoushitsu no Ningengirai Kyoushi / A Misanthrope Teaches a Class for Dem
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051961.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Yuusha no Kuzu / Scum of the Brave / Герой-мерзавец [2026, TV, 1 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051942.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Kuro no Tsuki: Tsuki no Saidan | Dark Moon: The Blood Altar Animation | Тёмн
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051938.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Dead Account | Мёртвый аккаунт [2026, TV, 1 из 12 эп.] WEBRip 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051937.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кая не боится [2026,
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051850.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Champignon no Majo | Champignon Witch | Шампиньонная ведьма [2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051788.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Enen no Shouboutai San no Shou (2026) | Fire Force (2026) | Пламенная �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051753.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Douse, Koishite Shimaunda. 2 | Anyway, I`m Falling in Love with You. (2026) | В
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051752.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen | Jujutsu Kaisen: The Culling Game Part
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051749.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Eris no Seihai / The Holy Grail of Eris / Святой Грааль Эрис [20
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051692.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Toumei Otoko to Ningen Onna: Sonouchi Fuufu ni Naru Futari / The Invisible Man a
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051689.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na to Yuusha Party o Tsuihou Sareta node, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051684.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Champignon no Majo / Champignon Witch / Грибная ведьма [2026, TV, 2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051677.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Shibou Yuugi de Meshi o Kuu. | Playing Death Games to Put Food on the Table | С
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051670.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Shibou Yuugi de Meshi o Kuu. / Playing Death Games to Put Food on the Table / И
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051535.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Arne no Jikenbo | The Case Book of Arne | Дело Арне [2026, TV, 1 из 12
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051355.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Okiraku Ryoushu no Tanoshii Ryouchi Bouei |  Весёлая защита вла�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051337.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051322.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Isekai no Sata wa Shachiku Shidai | Isekai Office Worker: The Other World's Book
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051315.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Maou no Musume wa Yasashi Sugiru!! / The Daughter of the Demon Lord is Too Kind!
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051311.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Mayonaka Heart Tune / Tune In to the Midnight Heart / Полуночный мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051308.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Yuusha Party ni Kawaii Ko ga Ita no de, Kokuhaku Shite Mita. / There Was a Cute 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051307.jpg" />
 </div>
 
 

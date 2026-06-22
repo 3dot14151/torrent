@@ -1,3 +1,55 @@
+###  Публикация: 1283048   (614715) от 15.04.2019
+
+Victory At Sea Pacific (2018) [Ru/Multi] (1.4.0) License PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Victory at Sea Pacific - игра про морские сражения в сеттинге Второй мировой войны, где игрок может управлять как всем Тихоокеанским театром, так и отдельными кораблями и самолётами. Топите вражеские корабли торпедами своей “волчьей стаи” подлодок или встаньте во главе капитанского мостика, чтобы отдавать приказы своим флотам и изменить ход войны.Тип издания: LicenseРазработчик: Evil Twin ArtworksЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3598FF6327BFDF2103B8F6140D347F6E21867A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522021   (614470) от 17.07.2012
+
+Armageddon Riders (RePack) [Ru] 2009 | R.G. Games Warrior
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты за рулем машины смерти. Твои враги – зомби. Их очень много в этом мёртвом городе, ставшим опасным после загадочной катастрофы на Большом Адронном Коллайдере. Кстати, он расположен совсем недалеко от города; ты можешь запросто погонять внутри БАКа как по обычным гоночным трассам. Но твоя главная задача – стереть с лица земли этих проклятых зомби и докопаться до первопричины катастрофы…  Armageddon Riders – кровавый автомобильный экшен для любителей быстрой безнравственной езды без правил и без тормозов!Тип издания: RePackЖанр: Vehicular / Action / RacingЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4381C49E500427D80E4E9F0B6707BF666A2B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146806   (612536) от 30.06.2017
 
 RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
@@ -6,7 +58,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612536.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dead in Vinland (2018) [En/Ge/Fr] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606523.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Railway Empire (2018) [Ru/Multi] (1.4.0.20902/dlc) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603655.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603631.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.6.0/dlc) Repack R.G. Механ
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601791.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.4.1/dlc) License PLAZA [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600700.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Farm Expert 2016 (2015) [Ru] (2.18) Repack xGhost
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599247.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cold Waters (2017) [En] (1.15c) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597612.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Dead In Vinland (2018) [Ru/Multi] (1.4/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594525.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dead In Vinland (2018) [Ru/Multi] (1.4/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594300.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592402.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) License GOG [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591950.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Frostpunk (2018) [Ru/Multi] (1.3.3) Repack R.G. Catalyst
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582009.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Farm Expert 2016 (2015) [Ru/Multi] (2.26/dlc) License POSTMORTEM [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577703.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.7/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577682.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Constructor Plus (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561276.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Mars or Die! (2018) [Ru/Multi] (1.1.1) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556484.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Constructor Plus (2019) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556314.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Farm Expert 2017 (2016) [En/Multi] (1.105) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546205.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Rat Simulator (2017) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534744.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ ZUSI 3 - Aerosoft Edition (2019) [En/De] (3.3.0.1) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532091.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Survive on Raft (2019) [Ru/En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527876.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Deltaplan Simulator (2017) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525125.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525109.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB6114E622058B11D7E73F24C94A5329538D0639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238723   (524158) от 12.08.2018
-
-This Is the Police 2 (2018) [Ru/Multi] (1.0.6.0) Repack Other s
-
->>След.
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трактуйте законы как вам вздумается в This Is the Police 2, продолжении знаменитой нуар-драмы This Is the Police! Руководите департаментом шерифа, управляйте копами, расследуйте, допрашивайте, заключайте под стражу. Принимайте сложные решения – и постарайтесь сами не угодить за решетку! – в этом коктейле из приключенческой игры, стратегии и пошаговых тактических (   Читать дальше...   )Тип издания: RepackРазработчик: Weappy StudioЖанр: Adventure, Strategy, SimulationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1670F7F67BA64EB4D84DC2475D9A1533B2686AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927968   (523115) от 15.08.2015
-
-Attrition Nuclear Domination (2015) [En] (5.0.2.721524) License PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Особенности игры - коллекция ресурсов, ядерного оружия и устройств его подавления. Игрок может выбрать, из десяти доступных наций. Действия игры разворачивается приблизительно в XXV веке, где роботы-андроиды взяли власть  на некоторых частях мира. Некоторые районы стали непригодными для жилья из-за Третьей мировой войны и Четвёртая мировая только начинается...Тип издания: LicenseРазработчик: Micro Strategic Game DesignsЖанр: Action, Casual, Indie, Simulation, StrategyЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDFB3B406EB1904B08079B1EEA30D7562C61BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

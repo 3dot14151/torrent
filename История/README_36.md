@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20971.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19998.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19745.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19111.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10633.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4356.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3413.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2699.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_329.jpg" />
 </div>
 
 

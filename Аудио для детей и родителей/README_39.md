@@ -1,3 +1,56 @@
+###  Публикация: 1137124   (669066) от 25.05.2017
+
+Шарль Перро | Кот в сапогах (1971) [MP3, Николай Литвинов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиоспектакль Шарля Перро "Кот в сапогах" - это одна из наиболее известных сказок знаменитого французского писателя о приключениях кота. Это история о том как после кончины одного старца младшему сыну в наследство от отца достался кот. Было младшему от чего расстроиться, но только кот оказался не простым, а на редкость предприимчивым и смышленым. И благодаря (   Читать дальше...   )Жанр: Пьеса, сказкаИздательство: Сказки со старых грампластинокПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA70B97EB83A1507E7015ABF879DB12CC1ACB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137535   (667809) от 26.05.2017
+
+Братья Гримм | Бабушка-метелица (1978) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667809.jpg" />
+</div>
+
+
+###  Подробнее
+
+И вот мы повзрослели... Где оно, беззаботное детство?.. Ушло? Да нет же, оно рядом, путается у вас под ногами, задает глупые вопросы и стремится завладеть вашим вниманием... Да и сами-то вы - так ли далеко от них, как порой кажется?.. А как часто случайно услышанный мотив уносит нас туда - на десять... пятнадцать... двадцать лет назад... В детство...
+СКАЗКИ - сказки (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F8A8ABDF5E324843B27F08E10968CB1C37B4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137548   (667765) от 26.05.2017
 
 В. Жуковский | Иван царевич и серый волк (1979) [MP3]
@@ -6,7 +59,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667765.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666765.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665873.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665843.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664829.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663536.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663093.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ VA - Ultimate Disney [3 Альбома] (2004) [MP3|320 kbps]<Детская м�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662501.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662307.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Raimond Lap - Muzyka bobasa 2 (2003) [MP3|320 кб/с]<Детская музык
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661558.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ Raimond Lap – Muzyka bobasa 1 (2002) [MP3|320 кб/с]<Детская музы
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661552.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ Raimond Lap - Muzyka bobasa 3 (2003) [MP3|320 кб/с]<Детская музык
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661547.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661417.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661096.jpg" />
 </div>
 
 
@@ -387,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659241.jpg" />
 </div>
 
 
@@ -413,7 +466,7 @@ Raimond Lap - Usypianki bobasa (2005) [MP3|320 кб/с]<Детская музы�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658054.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ Raimond Lap - Madry bobas (2008) [MP3|320 kbps]<Детская музыка>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658048.jpg" />
 </div>
 
 
@@ -471,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657919.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657907.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ Raimond Lap - Klasyka Bobasa (2005) [MP3|320 кб/с]<Классическая �
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657743.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657277.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656916.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656445.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ VA - Super Hit. Летняя дискотека. Часть 1 (2012) [MP3|224 к
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656405.jpg" />
 </div>
 
 
@@ -642,62 +695,6 @@ VA - Super Hit. Летняя дискотека. Часть 1 (2012) [MP3|224 к
 002 Песенка Львенка и Черепахи (Г. Гладков - С. Козлов)
 003 Чунга-Чанга (В. Шаинский - Ю. Энтин)
 004 Кто ходит в гости по утрам (М. Вайнберг - Б. Заходер)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 06:57:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620197   (656199) от 01.06.2015
-
-Н.Н. Носов | Незнайка в Солнечном городе (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Николая Носова «Незнайка в Солнечном городе» является продолжением «Приключений Незнайки и его друзей». В книге рассказывается об удивительной стране, населенной коротышками. Незнайкой и его друзьями: Знайкой, Торопыжкой, Растеряйкой, механиками Винтиком и Шпунтиком, доктором Пилюлькиным и другими. На этот раз Незнайка и его друзья отправляются в путешествие (   Читать дальше...   )Содержание:
-1. Незнайка мечтает (10:13)
- 2. Как Незнайка совершал хорошие поступки (13:00)
- 3. Незнайкина мечта исполняется (16:36)(   Читать дальше...   )Жанр: СказкаПродолжительность: 08:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495741055730FA0D65CF975DEA89856711FA0936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 58562   (656190) от 01.06.2015
-
-«Аудиокнига» | Русские народные сказки [Николай Федорцов] [2006] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_656190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всем мире нет ни одного малыша, который не любил бы сказки! Особенно сказки народные, передающиеся из поколения в поколение. Мудрый русский  народ сочинил множество сказок: веселых и грустных, волшебных и бытовых, длинных  и коротких, сказок для самых маленьких детей и ребят постарше.
-Большинство этих сказок собрано в Аудиокниге, которую выдержите в руках.  Подарите (   Читать дальше...   )Жанр: СказкиПродолжительность: 03:14:00
 
 ## Скачать торент
 ```bash

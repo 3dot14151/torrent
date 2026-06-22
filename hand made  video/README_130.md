@@ -1,3 +1,29 @@
+###  Публикация: 1733413   (51691) от 28.06.2024
+
+Змеелов (1985) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший директор крупного московского гастронома после отбытия наказания в колонии строгого режима решает не только вернуться к честной жизни, но и начать борьбу с преступниками...Производство: СССР / МосфильмЖанр: драма, криминалРежиссер: Вадим ДербенёвАктеры: Александр Михайлов, Наталья Белохвостикова, Леонид Марков, Донатас Банионис, Любовь Полищук, Светлана Крючкова, Леонид Куравлёв, Галина Польских, Валентина Титова, Виктор Шульгин и др.Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B15A4508D5B140D85BF1AAD4812F9FC598C8377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733215   (51687) от 28.06.2024
 
 Водитель для Веры (2004) DVDRip [H.265/1080p] [handmade upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51687.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51679.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51665.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51658.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51642.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51340.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51320.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51319.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51315.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51294.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51239.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51203.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51135.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50878.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50873.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50849.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50796.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50788.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50716.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50693.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50576.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50570.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50508.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50461.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50439.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F41789328EC1FF2333B41E5C254DA3417D98C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730569   (50371) от 11.07.2024
-
-Большая семья (1954) DVDRip [H.264/1080p] [handmade upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50371.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме рассказывается о большой семье Журбиных — потомственных рабочих-судостроителей. Вместе живут три поколения: дед Матвей, его сын Илья Матвеевич, четверо сыновей Ильи Матвеевича (Виктор, Константин, Антон и Алексей) и младшая дочь Антонина. Второй сын Антон приезжает из Ленинграда внедрять новый метод сборки кораблей. Старший сын Виктор, мастер по изготовлению (   Читать дальше...   )Производство: СССР, к/с ЛенфильмЖанр: драмаРежиссер: Иосиф ХейфицАктеры: Сергей Лукьянов, Борис Андреев, Вера Кузнецова, Алексей Баталов, Сергей Курилов, Вадим Медведев, Борис Битюков, Ия Арепина, Клара Лучко, Екатерина СавиноваПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623839E367B1DB5A3C8AF80A71236294E6FD606C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1606613   (1044394) от 22.01.2023
+
+Евгения Чернышова | Первоклассники и ж-ж-ж (2022) [MP3, Александра Максимова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044394.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о первых днях в школе, тундровике Шушане, четырех грачах и одном барсуке. «Первоклассники и ж-ж-ж» – это четыре необычные истории которые принесут вам много положительных эмоций. Что обсуждают на заснеженном льду Фонтанки четыре приятеля-­грача? Почему степенный и рассудительный Барсук потерял покой и разлюбил свою уютную нору? Кто такой тундровик и как мальчик (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 01:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBCEEC059D7CC7C3CA2178DBCCEE587EC33A514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607237   (1044169) от 25.01.2023
 
 Энн Файн | Как курица лапой (2022) [MP3, Глеб Ноговицын]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044169.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043326.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043172.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042564.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041739.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040952.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040931.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040929.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040922.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040919.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040833.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040820.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040644.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040641.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040639.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040618.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039951.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039177.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039166.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039163.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039161.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039118.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038881.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038600.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038053.jpg" />
 </div>
 
 
@@ -659,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2403C5D03527896F5DC347D7208E26CE5296EAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442869   (1036350) от 26.01.2021
-
-Михаил Каришнев-Лубоцкий | Волшебные каникулы Уморушки. Тайна Муромской Чащи. Книга 1 (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036350.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы встретитесь с маленькой волшебницей Уморушкой и ее друзьями… Вместе с ним вы совершите необыкновенные путешествия, станете участником многих превращений и удивительных встреч.
-Цикл сказочных повестей «Волшебные каникулы Уморушки» награжден в 2008 году премией имени П. П. Ершова в номинации «Лучшая сказка России».Жанр: Детская литература. СказкаПродолжительность: 04:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914411366F06CB291A3B68681D2E8C0903D96291
 ```
 
 https://mybot314.ru/tekegram_catalog/

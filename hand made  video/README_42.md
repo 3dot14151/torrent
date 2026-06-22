@@ -1,3 +1,29 @@
+###  Публикация: 1201094   (793900) от 23.01.2018
+
+Лезвия славы: Звездуны на льду / Blades of Glory (2007) HDRip [H.264] [Hand Made Extended Cut]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый раз, когда самовлюбленный Чазз Майкл Майклс выходит на каток, он сразу показывает, что он — рок-звезда арены, окруженный вихрем ледяной крошки и толпой поклонниц. Его единственный соперник на льду — бывший вундеркинд Джимми МакЭлрой. Воспитанник детдома, он был замечен тренером фигурного катания на льду местного пруда. Дальше — годы тренировок, и вот МакЭлрой (   Читать дальше...   )Производство: США / DreamWorks SKG, Eyetronics, First Entertainment, MTV Films, Paramount PicturesЖанр: КомедияРежиссер: Джош Гордон, Уилл СпекАктеры: Уилл Феррелл, Джон Хидер, Уилл Арнетт, Эми Полер, Дженна Фишер, Уильям Фихтнер, Крэйг Т. Нельсон, Романи Малко, Ник Свардсон, Скотт ХэмилтонПеревод: Дублированный с вставками любительского псевдо-дубляжа ''Dars Group''Субтитры: ОтсутствуютПродолжительность: 01:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4B65ACE038A83FDB873A13CE04367EEB6DCD06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274158   (793871) от 06.01.2019
 
 Веном / Venom (2018) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара] [handmade 16:9]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793871.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793834.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793592.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793590.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793490.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792793.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792057.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792014.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791486.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791404.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791181.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791179.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789620.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789222.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789219.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788601.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788570.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788347.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788029.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787819.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787299.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Metallica - История легенды (2017) WEB-DLRip [H.264/1080p-LQ] [han
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787179.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786676.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785711.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784844.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE329E681643463B61F6E122A63366DBEA48ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204968   (783990) от 08.02.2018
-
-Мушкетёры / The Three Musketeers (2011) HDRip [H.264] [Hand Made Extended Cut]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой д’Артаньян покинул родной дом и отправился в Париж, надеясь на место в полку мушкетёров. По случайности в один день он обидел сразу троих мушкетёров — Атоса, Портоса и Арамиса — и получил от всех троих вызовы на дуэль. Но дуэль была прервана появлением гвардейцев кардинала, которые хотели арестовать их за нарушение указа о запрете дуэлей. Д’Артаньян и три (   Читать дальше...   )Производство: Германия, Франция, Великобритания / Constantin Film Produktion GmbH, Impact Pictures, New Legacy, Nouvelles Éditions de FilmsЖанр: Боевик, ПриключенияРежиссер: Пол У. С. АндерсонАктеры: Логан Лерман, Милла Йовович, Мэттью Макфэдиен, Рэй Стивенсон, Люк Эванс, Мадс Миккельсен, Габриэлла Уайлд, Джеймс Корден, Орландо Блум, Кристоф ВальцПеревод: Дублированный с вставками любительского псевдо-дубляжа ''Dars Group''Субтитры: ОтсутствуютПродолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3998773BA5BE2E1FDF047EF65DB5CD6F1781A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

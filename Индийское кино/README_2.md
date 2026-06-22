@@ -1,3 +1,29 @@
+###  Публикация: 1496843   (859518) от 25.09.2021
+
+Ураган / Toofaan (2021) WEB-DLRip [AD]
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет фильма вращается вокруг начинающего боксера, которому предстоит преодолеть долгий и трудный путь к вершине. На ринге ему придется столкнуться с хитростью и изощренной тактикой. Некоторые соперники будут заметно сильнее его. Сможет ли главный герой достичь своей цели и выиграть чемпионский пояс?Производство: Индия, Excel Entertainment и ROMPЖанр: спорт, драма, боевикРежиссер: Ракеш Омпракаш МехраАктеры: Фархан Ахтар, Пареш Раваль, Мрунал Тхакур, Виджай Рааз, Даршан Кумар, Суприя Патхак, Мохан Агаше, Гаган Шарма, Хуссейн ДалалПеревод: Многоголосый профессиональный (Синема УС)Субтитры: отсутствуютПродолжительность: 02:41:24Реклама: присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D6C5F41264D9DC8B4A1D7A84E37BF7BE662061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999650   (859075) от 25.03.2016
 
 Пусть сердце бьётся / Dil Dhadakne Do (2015) HDRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859075.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858661.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858543.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857348.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853466.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850782.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850690.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850100.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849350.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842943.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842735.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842605.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842485.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838197.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837149.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836285.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833290.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829045.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828874.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827885.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825783.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816763.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811450.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795889.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795493.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD6927495C949A2E328C1606C14B7A6315C26CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276378   (787541) от 17.01.2019
-
-Авторитет / Sarkar (2018) WEBRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма Сундар Рамасвами — очень успешный индийский бизнесмен, живущий в Соединенных Штатах Америки. Сундара также называют «корпоративным монстром» из-за его безжалостных деловых отношений. Он прибывает в Ченнаи, чтобы отдать свой голос на выборах в Законодательное собрание Тамилнада. Однако он узнает, что кто-то еще, уже проголосовал от его имени. (   Читать дальше...   )Производство: Индия / Sun PicturesЖанр: Боевик, ДрамаРежиссер: А.Р. МуругадоссАктеры: Виджай, Варалаксми Сараткумар, Кирти Суреш, Йоги Бабу, Рада Рави, Elyssa Erhardt, Джой Бадлани, Pala Karuppaiah, Роджер Кросс, Papri GhoshПеревод: Двуголосый любителскийСубтитры: вшитые английские,неотключаемыеПродолжительность: 02:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189613371FB964E3DAECA7BC14DF55C260B2950D
 ```
 
 https://mybot314.ru/tekegram_catalog/

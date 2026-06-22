@@ -1,3 +1,56 @@
+###  Публикация: 1540739   (242956) от 31.03.2022
+
+EazyDraw 10.8.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242956.jpg" />
+</div>
+
+
+###  Подробнее
+
+EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 30.03.2022Разработчик: © 2022 Dekorra Optics, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98E5EA78A92375C03D0046AA61A60E8CDAE36B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358885   (242951) от 09.02.2020
+
+BusyCal 3 v3.8.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242951.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
+BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2020Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42BFABDE072090C2D9C6C28FD30A88FF732C6D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540683   (242943) от 31.03.2022
 
 Cardhop 2.0.10 [Multi]
@@ -6,7 +59,7 @@ Cardhop 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242943.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Art Text 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242925.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ App Tamer 2 v2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242895.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Path Finder 10 v10.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242894.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ SimpleMind Pro 1.28.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242879.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Export for iTunes 1.9.74 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242874.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Fireplace Live HD + Screensaver 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242865.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ MediaInfo 22.03 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242724.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ TunesKit AceMovi Video Editor 3.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242723.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ TG Pro (Temperature Gauge Pro) 2.80 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242708.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Chaotica 2.2.2 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242680.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Bootstrap Studio 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242631.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ FileAssistant 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242624.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ Audio Hijack 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242617.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ Duplicate File Finder Pro 7.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242574.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ DoYourData Start Menu Professional 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242559.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ Integrity Plus 12.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242554.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242547.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ Renamer 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242532.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ Omni Recover 3 v3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242527.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ Framer Studio v82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242523.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ Omni Toolbox 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242518.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ SyncBird Pro 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242509.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ Integrity Pro 12.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242501.jpg" />
 </div>
 
 
@@ -630,58 +683,6 @@ Integrity Pro 12.2.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBEE0EF0FF6B68FC119967E8C1037C62323C9117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624209   (242487) от 04.04.2023
-
-TechSmith Camtasia 2022 Studio 2022.6.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2023Разработчик: © 1995 - 2021 TechSmith CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F299A86FEE67C559061C9338C061F117FC0FC5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542040   (242486) от 05.04.2022
-
-FSNotes 5.3.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242486.jpg" />
-</div>
-
-
-###  Подробнее
-
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.04.2022Разработчик: © 2022 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Украинский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05AF21F041D05480219422445793ED28318792B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1061239   (448345) от 10.10.2016
+
+Точь-в-точь. Суперсезон (2016.10.09) SATRip (сезон 4, выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сезон одного из самых популярных в стране музыкально развлекательных телепроектов порадует поклонников невероятными сценическими перевоплощениями и самыми известными хитами! В этот раз за звание победителя поспорят те, кому однажды уже приходилось подниматься на сцену «Точь в Точь».
+Новый сезон «Точь в Точь», пожалуй, самый разноплановый – участники проекта (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-шоуПродолжительность: 02:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5700887EEB4A201E70D8DD43A1F4B1F26BA2AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060965   (448094) от 10.10.2016
+
+Танцы (2016.10.08) SATRip (сезон 3, выпуск 8)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448094.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3F7B2A5996791879EB4CA1AAA6D73AD4EDF452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164291   (443669) от 08.09.2017
+
+Голос (2017.09.08) HDTVRip (сезон 6, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443669.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD872CE684FAE54ADE8475E6D2149925EF085C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164204   (443638) от 08.09.2017
+
+Голос (2017.09.08) SATRip (сезон 6, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443638.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF74691740D0829798523ADC2AC5A44650CE50A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322880   (442003) от 01.09.2019
 
 Танцы (31.08.2019) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 2)
@@ -6,7 +111,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442003.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439504.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438929.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438864.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438077.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437911.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437465.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437090.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437077.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437060.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435138.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435068.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434962.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434672.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434488.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434050.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433970.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433711.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433428.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433273.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433107.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431664.jpg" />
 </div>
 
 
@@ -569,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6486B6C0D099A336FCED7790F6AE0A8C1632EEBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945957   (431443) от 11.10.2015
-
-Танцы. Сезон №2. Выпуск №8 (2015.10.10) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431443.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 августа на ТНТ стартует новый сезон самого масштабного танцевального шоу страны. Создатели обещают, что он будет еще круче, ярче и мощнее: больше городов, больше претендентов, больше чем просто танцы! Заявки на участие в предварительных кастингах прислали более 10 000 человек! Отсев в этот раз был гораздо жестче, однако на телевизионных кастингах будет представлено (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D3347B7402D4D2B3F89A2737977A50950AA5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166165   (428026) от 15.09.2017
-
-Голос (2017.09.15) HDTVRip (сезон 6, выпуск 3)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428026.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BD707C338B58201E812D7B5E217B88EACAA7E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166100   (428014) от 15.09.2017
-
-Голос (2017.09.15) SATRip (сезон 6, выпуск 3)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428014.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D59FC0829249EA533FAD3AB1306AAB18D9D832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166388   (426800) от 16.09.2017
-
-Ты супер! Танцы (2017.09.16) SATRip (выпуск 3)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426800.jpg" />
-</div>
-
-
-###  Подробнее
-
-НТВ представляет проект «Ты супер! Танцы», который, мы надеемся, поможет изменить к лучшему жизнь детей, оставшихся без попечения родителей. Детей, которые увлекаются танцами. Участие в проекте — это шанс заявить о себе на широкую аудиторию, возможность поработать с лучшими педагогами страны, получить незабываемые впечатления, завести новых друзей и познакомиться (   Читать дальше...   )Производство: НТВЖанр: ТВ-шоу, МузыкальныйСубтитры: ОтсутствуютПродолжительность: 02:10:54Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EA1C5A12DD209C93DEF606F3BDCE81AB8A91AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1729011   (108192) от 09.06.2024
+
+Сто к одному (09.06.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108192.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" – невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Полиграф" против команды "Киномафия"Язык озвучки: РусскийПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AC4F2C6CF0B7588AA075A1FE5EABAB859874F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728859   (108191) от 09.06.2024
+
+Сто к одному (08.06.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108191.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" – невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Астероид 65637" против команды "Знак качества"Язык озвучки: РусскийПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24A6D3A690B4EE7AB2840B30044C8530FEFA5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729043   (108182) от 09.06.2024
 
 Своя игра (09.06.2024) WEBRip [H.264/1080p]
@@ -6,7 +64,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108182.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108176.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107927.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107910.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107907.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107900.jpg" />
 </div>
 
 
@@ -174,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107859.jpg" />
 </div>
 
 
@@ -202,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107841.jpg" />
 </div>
 
 
@@ -231,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107608.jpg" />
 </div>
 
 
@@ -257,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107604.jpg" />
 </div>
 
 
@@ -285,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107582.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107558.jpg" />
 </div>
 
 
@@ -342,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107506.jpg" />
 </div>
 
 
@@ -371,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107284.jpg" />
 </div>
 
 
@@ -397,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107197.jpg" />
 </div>
 
 
@@ -426,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107194.jpg" />
 </div>
 
 
@@ -455,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104904.jpg" />
 </div>
 
 
@@ -483,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104890.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104849.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104636.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104620.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104603.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104343.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104318.jpg" />
 </div>
 
 
@@ -655,58 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3591136FDE574C4AFDDC41C2AE3955C47F21DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750677   (104154) от 21.09.2024
-
-Пятеро на одного (21.09.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B866CAE5396AA7AB4FD97D8894BF53CFCF8B429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750785   (104117) от 22.09.2024
-
-Своя игра (21.09.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104117.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486D287E94ED0DF26B59467A4C60E59A435DA372
 ```
 
 https://mybot314.ru/tekegram_catalog/

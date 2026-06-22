@@ -1,3 +1,114 @@
+###  Публикация: 360684   (1030322) от 19.02.2021
+
+Е.В. Языканова | "Развивающие задания: тесты, игры, упражнения" 2 класс (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс развивающих занятий для младших школьников представляет собой комплекс специально разработанных тестов, игр и упражнений, направленных на развитие памяти, внимания, наблюдательности, логического мышления; способствует развитию пространственного восприятия и сенсомоторной координации.
+
+Работать с предложенными заданиями можно на факультативах, в группах продленного (   Читать дальше...   )Жанр: Учебно-методический комплект (курс развивающих занятий)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A66E160C5D527844C6208256E0FB306D626B5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360666   (1030319) от 19.02.2021
+
+Е.В. Языканова | "Развивающие задания: тесты, игры, упражнения" 1 класс (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс развивающих занятий для младших школьников представляет собой комплекс специально разработанных тестов, игр и упражнений, направленных на развитие памяти, внимания, наблюдательности, логического мышления; способствует развитию пространственного восприятия и сенсомоторной координации.
+
+Работать с предложенными заданиями можно на факультативах, в группах продленного (   Читать дальше...   )Жанр: Учебно-методический комплект (курс развивающих занятий)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A872AE6E76C6394ACF964321F95BDF881DFD10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449214   (1030145) от 20.02.2021
+
+О.В. Узорова, Е.А. Нефёдова | 3000 примеров по математике + бонус. 2 класс. Счёт в пределах 100. Часть 2 (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит 3000 математических примеров по теме «Счёт в пределах 100». Оригинальное построение материала позволяет обеспечить более глубокое его усвоение.
+Как показывает практика, ученик полностью освоил программу, если решает и записывает ответ по истечении 4-7 секунд. В этом случае можно говорить, что навык счёта доведён до автоматизма.
+На каждой странице (   Читать дальше...   )Жанр: Обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42088A4AC5789320BB30BD14FCB4F23B84386CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362152   (1030131) от 20.02.2021
+
+В.В. Гербова | Приобщение детей к художественной литературе (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030131.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии содержится программа и методические рекомендации по приобщению детей 2-7 лет к художественной литературе.
+ В книге представлен перечень произведений художественной литературы для чтения детям. Литературный материал подобран таким образом, чтобы обеспечить развитие художественно-творческих способностей дошкольников, их эстетического вкуса, культуры восприятия (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A809AB8CA463A45A8024BD30C2559E469C1DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 347239   (1030113) от 20.02.2021
 
 Елена Пьянкова, Елена Родионова | Ломоносовская школа. Читаю легко и правильно: Для детей 6-7 лет (2009) [PDF]
@@ -6,7 +117,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030113.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029917.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029892.jpg" />
 </div>
 
 
@@ -84,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029688.jpg" />
 </div>
 
 
@@ -110,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029687.jpg" />
 </div>
 
 
@@ -136,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029673.jpg" />
 </div>
 
 
@@ -162,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029668.jpg" />
 </div>
 
 
@@ -188,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029658.jpg" />
 </div>
 
 
@@ -215,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029645.jpg" />
 </div>
 
 
@@ -241,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029487.jpg" />
 </div>
 
 
@@ -268,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029467.jpg" />
 </div>
 
 
@@ -294,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029308.jpg" />
 </div>
 
 
@@ -320,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029153.jpg" />
 </div>
 
 
@@ -348,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028986.jpg" />
 </div>
 
 
@@ -375,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028973.jpg" />
 </div>
 
 
@@ -401,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028967.jpg" />
 </div>
 
 
@@ -428,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028963.jpg" />
 </div>
 
 
@@ -454,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028950.jpg" />
 </div>
 
 
@@ -480,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028919.jpg" />
 </div>
 
 
@@ -506,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028912.jpg" />
 </div>
 
 
@@ -534,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028911.jpg" />
 </div>
 
 
@@ -560,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028880.jpg" />
 </div>
 
 
@@ -571,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4F9EBEC1DD87D204AC39959C81D3195C7564593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450768   (1028878) от 27.02.2021
-
-Сергей Матвеев | Мой первый словарь английского языка с произношением для детей (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой первый словарь английского языка с произношением для детей содержит более 180 английских слов с переводом. К каждому слову дана транскрипция двух видов: международными фонетическими знаками и буквами русского алфавита. Слова сгруппированы по темам: Животные, Растения, Дом, Люди, Еда и т.п. Таким образом, представленная лексика охватывает практически все сферы (   Читать дальше...   )Жанр: Иностранные языки/СловарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537C1C5E084099FDCA0ED5CD257B7895AFE6E156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371790   (1028834) от 27.02.2021
-
-О.Д. Ушакова | Как писать? С большой буквы или с маленькой? Словарик школьника (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В словаре приведены наиболее известные и часто встречающиеся названия, которые вызывают трудность в написании. Многие слова, словосочетания и аббревиатуры даются с пояснениями.Жанр: Обучение, справочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CAC6EF37D6AE0F14838F8DFD6002E964858F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372066   (1028824) от 27.02.2021
-
-О.Д. Ушакова | Пословицы, поговорки и стихи о любви и дружбе. Справочник школьника (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028824.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены пословицы и поговорки, а также лучшие стихи о любви и дружбе, которые будут полезны учащимся 3-6-х классов общеобразовательной школы.Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7CDD6133991DFA2D89AB56F6C9BC1A4959C1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372038   (1028815) от 27.02.2021
-
-О.Д. Ушакова | Считай без ошибок: Справочник школьника по математике (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умение считать, думать, рассуждать, решать задачи вырабатывается с самых первых классов. Нужно быть внимательным, настойчивым и очень аккуратным. цифры должны быть написаны четко и понятно. При счете столбиком их надо писать точно друг под другом стоит написать цифру левее или правее - и ошибка, сделанная в начале примера или задачи, приведет к тому, что вся работа (   Читать дальше...   )Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9288307B2EF161C428B1F985DB41837476943B3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1010087   (805851) от 23.04.2016
+
+Ин Тим - Стриптиз (2016) [MP3|320 кб/с] <Rockabilly, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стриптиз (03:50)
+02. Дубровский (03:13)
+03. Насос (03:43)
+04. В роли невесты (03:59)(   Читать дальше...   )Жанр: Rockabilly, Blues RockПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6440E36AA2839C023807C60D87F66023D19108E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119776   (805377) от 29.03.2017
+
+VA - Rock And Roll Music! The Songs Of Chuck Berry (2017) [MP3|320 Kbps] <Rock-n-Roll, Classic Rock, British Beat>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Helene Dixon - Roll Over Beethoven  2:39
+02.  The Swinging Blue Jeans - Around And Around  2:11
+03.  Ken Colyer's Skiffle Group - Down Bound Train  2:42
+04.  Marty Robbins - Maybelline  2:31(   Читать дальше...   )Жанр: Rock-n-Roll, Classic Rock, British BeatПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86142F36EB9644F7F67F7A3BBB90FA04736AFED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199613   (805046) от 09.05.2010
+
+VA - The Best Air Guitar  Vol.1-3+The Best Of The Best Air Guitar (2001-2005) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 11:04:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198729   (804413) от 13.01.2018
+
+VA - Awesome 80's Volumes One, Two & Three (2004) 3CD, Compilation [MP3|320 Kbps] <Pop Rock, Soul, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culture Club - Do You Really Want to Hurt Me (4:25)
+02. Bros - Drop the Boy (3:42)
+03. Spandau Ballet - Through the Barricades (5:48)
+04. Deniece Williams - Let’s Hear It for the Boy (4:20)(   Читать дальше...   )Жанр: Pop Rock, Soul, Synth-popПродолжительность: 03:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CE8D3CE1B2CD813D5D7AF8579FC1D569DEAC8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120140   (803565) от 30.03.2017
 
 OCN (Ocean) - Wojna Swin (2011) [MP3|320 Kbps] <Rock>
@@ -6,7 +119,7 @@ OCN (Ocean) - Wojna Swin (2011) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803565.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ The Go Getters - Love & Hate (2017) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802941.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ William T. & The Black 50's - Rock'n'Roll... Baby!!! (2018) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802935.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ Bobby Solo - Rock'n'Roll (1979) LP [MP3|320 Kbps] <Rock & Roll, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802934.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Pink Fairies - What A Bunch OF Sweeties (1972) Reissue, 2002, Polydor [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802933.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ OCN (Ocean) - Waterfall (2013) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802117.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Brit Floyd - Live At Red Rocks (2014) 2CD [MP3|320 кб/с] <Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802074.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801837.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ The Beatles - Abbey Road And Beyond (2016) 6CD Box Set [MP3|320 Kbps] <Pop, Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801798.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ The Motors - 3 Albums (1977 - 1980) [MP3|320 Kbps] <Pub Rock, Power Pop, New Wav
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801734.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ BrainStorm - Год без календаря (2021) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801654.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ Whitesnake - Restless Heart (1997) 25th Anniversary, Super Deluxe Edition, 4CD, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801395.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Stories - Stories / About Us (2007) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801257.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ Electric Light Orchestra - Ballads (2021) [MP3|320 Kbps] <Progressive-Rock, Art-
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800897.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800851.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ Panhandle - Panhandle (1972) Reissue, 2016, Prog Temple [MP3|320 Kbps] <Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800608.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ Stone The Crows - Ode To John Law (1970) Reissue, 1996, Repertoire Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800445.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ The Doors - The Doors (1967) Remastered, 2017, 50th Anniversary Deluxe Edition [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800428.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ Night - 2 Albums (1979, 1980) Reissue CD, 2012,Gonzo Multimedia [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800422.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ Per Frost - The Calling (2018) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800362.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Spider - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799842.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ Sweet - The Lost Singles (2017) [MP3|320 Kbps] <Classic Rock, Glam Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799735.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ Sweet - The Lost Singles (2017) [MP3|320 Kbps] <Classic Rock, Glam Rock, Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AA99A27D093D2526996B7625B27F8C84A52465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121772   (799629) от 03.04.2017
-
-Bob Dylan - Triplicate (2017) 3CD [MP3|320 Kbps] <Folk Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Guess I'll Have to Change My Plans (2:27)
-02. September of My Years (3:26)
-03. I Could Have Told You (3:40)
-04. Once Upon a Time (3:38)(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 01:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F841A856F0FAE50DA7D139288CB09E3E772E2A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506700   (799494) от 01.11.2021
-
-Jonathan - Jonathan (1978) Reissue CD, 1993, L+R Records [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Song (5:51)
-02. Living Desert (3:50)
-03. Spirit Train (4:15)
-04. Rivering (2:54)(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog Rock, AmbientПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEF2BCA534F41D06FE42E6201D5EF4FF9997C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122282   (799223) от 04.04.2017
-
-Faces - The First Step (1970) Reissue, 1990, Warner Bros. Records [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799223.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wicked Messenger
-2. Devotion
-3. Shake, Shudder Shiver
-4. Stone(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC3A28EA9336ED9E4A7EFEFA19B923206CB0078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122474   (798831) от 05.04.2017
-
-Faces - A Nod Is As Good As A Wink...To A Blind Horse (1971) Reissue, 1990, Warner Bros. Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798831.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Miss Judy's Farm
-2. You're So Rude
-3. Love Lives Here
-4. Last Orders Please(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAECE1BFED6A683D3F144FDB728947B61BDD6BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1190146   (267494) от 09.12.2017
+
+Windows Style Builder (aka Vista Win7 Style Builder) 1.5.6.3 Beta Portable by XpucT [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Style Builder — единственная в своём роде программа, которая умеет создавать и изменять темы Windows. В возможностях программы заложена замена изображений с помощью Drag & Drop, быстрая замена цвета по заданной маске, быстрое внутреннее и внешнее редактирование объектов, а также возможность конвертирования тем Windows XP в темы для Windows Vista / 7 / (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0007E92380D86AF980D94543BA82F28BE67708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340957   (262515) от 27.11.2019
+
+Все официальные темы Windows с сайта Microsoft 25.11.2019 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная коллекция тем с сайта Microsoft, включая недоступные на нём! Включает в себя 573 тем высшего качества + 20 MCT!
+Все эти темы были собраны по 25.11.2019.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BD3C6747FC9852E89ECBBAF2C7BDA33FD2B008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629122   (254656) от 30.04.2023
+
+AIO Runtimes 2023 v.1.1 ( MS Visual C++ MS DirectX + DLL/OCX + Trusted Root CA PC ) by ivandubskoj [Ru]
+
+>>След.
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка, включающая в себя набор необходимых компонентов и DLL/OCX-библиотек, которая избавит вас от ошибок при запуске игр и программ, связанных с их отсутствием. А также установит, проверит или обновит все существующие версии пакетов Microsoft Visual C++ Redistributable, DirectX, а также Корневые сертификаты (Trusted Root CA) для корректного отображения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B98ED0633730E458517322DA128848533C11C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836353   (252575) от 10.11.2025
 
 EarthView 7.13.14 RePack (& Portable) by elchupacabra [Ru/En]
@@ -6,7 +85,7 @@ EarthView 7.13.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252575.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ AltSnap 1.66 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250625.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ AMP Font Viewer 3.86 + Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244050.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ PeStudio 9.43 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232967.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ GameMaker 2022.8.1.37 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232958.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Stardock DeskScapes 8.51 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217279.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ Atmosphere Deluxe 7.1 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208715.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ Digimizer 6.3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205999.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ Windows DesktopPack 22.10 [Multi/Ru]  (Авторская раздача)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204733.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ EarthView 7.7.1 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199143.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ Fujikura Data connection 12 series 1.0.3.0 + Manual [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198308.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ X-Mouse Button Control 2.20.5 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196548.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ Aura (Аура леса) 2.8.10m.216 RePack (& Portable) by elchupacabra + MP3 �
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174258.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ ADB AppControl 1.8.2 Extended portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172171.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Tenorshare 4uKey for Android 2.2.2.4 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163099.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ Multi Image Kitchen 3.8.0 |DC 29.11.2021| [Multi/Ru] (Обновляемая а�
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148941.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139391.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ f.lux v4.134 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114559.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ Find Same Images OK 5.41 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110879.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86646.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ Microsoft Windows Dancer + Windows XP Media Center Edition 2005 Screensavers [En
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83164.jpg" />
 </div>
 
 
@@ -569,7 +648,7 @@ Text Editor Pro 32.1.1 + Portable + Bonus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67359.jpg" />
 </div>
 
 
@@ -595,7 +674,7 @@ VapeCalc+ Reborn 3.1.3000 + Portable [Ru/En/De/Bel] (Авторская обно
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63559.jpg" />
 </div>
 
 
@@ -608,87 +687,6 @@ VapeCalc+ не просто калькулятор расчета самозам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25C51CE198F627209D8B4CDC2A454BA04015AA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717054   (59373) от 18.04.2024
-
-FPS Monitor 5472 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59373.jpg" />
-</div>
-
-
-###  Подробнее
-
-FPS Monitor отслеживает состояние компонентов вашего компьютера и показывает эту информацию прямо поверх экрана игры.
-Вам больше не потребуется переключаться из игры на десктоп или подключать второй монитор для контроля состояния железа. Все необходимые цифры вам покажет FPS Monitor в игровом оверлее.
-В активированной версии отсутствуют нижний баннер и периодическая (   Читать дальше...   )Язык интерфейса: Русский, английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4338C606C9C95648A5A2686CDA30AC18DF87F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721480   (57311) от 07.05.2024
-
-NonCompressibleFiles 4.71 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочу познакомить вас с маленькой бесплатной программой, которая к тому же не требует установки, а нужна она для генерации одного или сразу нескольких максимально сжимаемых или наоборот несжимаемых файлов.
-После этого, данные файлы можно использовать для тестов различных программ, например если вам хочется выявить скорость работы архиваторов. Перед тем как создать (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4154157405069E8A14D20DB219BC44090BB5A259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724561   (55916) от 20.05.2024
-
-Freeplane 1.11.14 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freeplane – создание ментальных карт в настоящее время становится хорошим помощником или средством при планировании работы. Программа позволит пользователю создавать логические диаграммы, самые запутанные схемы своих идей или мыслей. Несмотря на свою бесплатность, программ является достаточно серьёзным приложением, позволяющим удовлетворить практически любые требования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8946C4FE16E926AE3F509FDC1C223AC6BB21B5E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

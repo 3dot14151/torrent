@@ -1,3 +1,55 @@
+###  Публикация: 1345949   (165163) от 17.12.2019
+
+One Chat Pro - All In One Messenger 4.9.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165163.jpg" />
+</div>
+
+
+###  Подробнее
+
+One Chat объединяет чаты и службы обмена сообщениями в одно простое приложение для Mac. WhatsApp, Facebook Messenger, Hangouts, Telegram, Skype, Slack, WeChat, Twitter, YahooChat, ICQ-чат, HipChat, Discord, GroupMe, QQ, Facebook, VKChat и др. Одно приложение для всех служб обмена сообщениями.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBA393F7C5544EDD92892CE02DD3C6740F50AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673423   (165157) от 01.11.2023
+
+JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165157.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это IDE от JetBrains, нацеленная на создание эргономичной среды для разработки Go. IDE расширяет платформу IntelliJ с помощью кодирования и интеграции инструментов, специфичных для языка Go. IDE анализирует ваш код, ищет соединения между символами, обеспечивает завершение кода, быструю навигацию, умный анализ ошибок, форматирование и рефакторинг.Тип издания: macOS SoftwareРелиз состоялся: 14.09.2023Разработчик: © 2000-2023 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5E01EE9C291727C7890E88936A6BE79EE88C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346032   (165114) от 17.12.2019
 
 VideoDuke 1.5 (build 257) [En]
@@ -6,7 +58,7 @@ VideoDuke 1.5 (build 257) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165114.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Easy Data Transform 1.38.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165110.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Rhinoceros 7 v.7.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165095.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Wondershare PDFelement Pro OCR 9.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165087.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Nova 10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165079.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Movavi Video Suite for Mac 2021 v21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165066.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Luminar AI 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165058.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Luminar Neo 1.6.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165050.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ VideoProc (former MacX Video Converter Pro) 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164993.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ DxO FilmPack 5 ELITE Edition v5.5.26 (build 602) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164965.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Movavi Video Converter 21 Premium 21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164912.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Logic Pro X 10.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164902.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Native Instruments Kontakt 7 v.7.1.3 STANDALONE, VSTi, AU [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164871.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ DaVinci Resolve Studio 16 v16.1.2.026 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164863.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Ableton Live Suite 11 v11.2.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164796.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Adobe Illustrator for Mac 2024 v.28.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164741.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Davinci Resolve Studio 17 v17b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164723.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Adobe Photoshop for Mac 2024 v.25.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164701.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ EverWeb 3 v3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164635.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Folder Tidy 2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164634.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Viper FTP 5.5 (build 55012) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164629.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ AnyMP4 DVD Creator for Mac 6.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164628.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164625.jpg" />
 </div>
 
 
@@ -623,7 +675,7 @@ DiskCatalogMaker 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164621.jpg" />
 </div>
 
 
@@ -635,59 +687,6 @@ DiskCatalogMaker  - Простая утилита для управления и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:434E5F4A1F2EAB26EACC8E85DBDB06E75188DD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673547   (164620) от 02.11.2023
-
-EdgeView 4.3.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164620.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179D90C810039F9C921CBF753092BDFDA3EF0408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516961   (164619) от 13.12.2021
-
-Jettison 1.8.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jettison - размонтирование внешних дисков перед сном Mac. macOS X имеет свою философию и некоторые вещи в системе происходят несколько иначе, чем в других ОС. К этому можно просто привыкнуть, но можно и упростить себе жизнь используя простые утилиты или приложения.
-«Думаю, всем знакомы надоедливые системные баннеры с уведомлением о том, что один из ваших дисков был (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 St. Clair SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D4F3D7638388BCA3EBA8A9872CF8B386B3F704
 ```
 
 https://mybot314.ru/tekegram_catalog/

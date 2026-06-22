@@ -1,3 +1,83 @@
+###  Публикация: 1098647   (908138) от 30.01.2017
+
+Взрывая историю. Пирамиды майя / Secrets of The Maya Pyramid (2016) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исчезнувший город Чичен-Ица в Мексике хранит древние тайны загадочной цивилизации. Как его построили и как человеческие жертвоприношения повлияли на его облик?
+
+Глядя на дошедшие до нас памятники древних цивилизаций, трудно поверить, что задолго до появления современных технологий и мощной строительной техники удавалось возводить столь величественные сооружения. (   Читать дальше...   )Телекомпания: Windfall Films Ltd. (США)Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE2231316CD550D53D27528C4CF95663AADE172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186157   (907767) от 27.02.2016
+
+Discovery: Понимание: Убийства / Understanding: Murder (2004) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная наука пытается ответить на вопросы: что заставляет человека совершать самое тяжкое преступление и можно ли его предотвратить?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186441   (907748) от 27.02.2016
+
+Discovery: Понимание: Сила генов / Understanding: The Power ofgenes (1999) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее и будущее генной инженерии на примерах мировых достижений в этой области.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991240   (907740) от 27.02.2016
 
 Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 04) [IdeaFilm]
@@ -6,7 +86,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907740.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ Discovery: Понимание: Огонь / Understanding: Fire (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907732.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ Discovery: Понимание: Искатели острых ощущений / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907728.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907721.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907719.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ Discovery: Понимание: Хитрости и секреты промышл
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907685.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ Discovery: Понимание: Ожирение / Understanding: Fat (2004) TVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907673.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ Discovery. Первое лунное поселение / Base Camp Moon (2008) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907607.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ Discovery: Понимание: Эволюция / Understanding: Evolution (2004
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907602.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ Discovery: Понимание: Сон / Understanding: Sleep (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907595.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ Discovery: 10 возможных концов света / 10 Ways The World Wil
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907514.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907506.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905930.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905923.jpg" />
 </div>
 
 
@@ -377,7 +457,7 @@ Discovery: Понимание: Пещеры / Understanding: Caves (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905897.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ Discovery: В мире машин: Трансатлантические испы
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905756.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ Discovery: Поля сражений. Борьба с немецкими суб�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905728.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905080.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905025.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904909.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ NG: Осушить океан. Бермудский треугольник / Dra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904602.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ NG: Чудеса инженерии: Панамский канал / Big Bigger 
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904417.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904356.jpg" />
 </div>
 
 
@@ -597,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72AF9DD3790052F098E8E826B4369508D43345BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636691   (904340) от 29.03.2013
-
-Пищевая фабрика. Выпуск №19. Вкус тропиков / Food Factory. Totally Tropical (2012) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое поучительное и завораживающее шоу проводит нас за кулисы удивительных производственных линий, чтобы показать, как в действительности делается еда.
-** Чем-то похоже на How It's Made, но в данном случае рассматривается процесс производства только продуктов питания.Жанр: Документальный, научно-познавательный, история, технологии, промышленность, техникаПродолжительность: ~ 00:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1A7A07226D0F081182F08E928F191746147156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852112   (903855) от 29.02.2016
-
-PBS. Снежные макаки Японии / Snow Monkeys (2014) BDRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иерархия в жизни японских макак холодных гор Японии - это краеугольный камень взаимоотношений. Здесь с детства приучают знать своё место, но это не мешает ещё совсем молодой обезьянке растопить суровое сердце вожака стаи. В обществе, где ради выживания нужно держаться вместе, и последний может стать первым.Жанр: Документальный, природаПеревод: Одноголосый закадровый (профессиональный, Ю. Онищенко)Язык субтитров: русские, английскиеПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDFF48CBC203036533A66E5EFB479464EDDE71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099326   (903224) от 02.02.2017
-
-Природная инженерия: Выживание в джунглях / Animal Impact: Jungle (2009) HDTVRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903224.jpg" />
-</div>
-
-
-###  Подробнее
-
-B джунглях сюрпризы ожидают вас буквально повсюду: рептилии летают, птицы плавают, муравьи кусаются. Выживание зависит от размера, формы и даже сверхъестественных сил. Вдоль экватора Земли растянулись тропики - жаркий край с проливными дождями и густыми лесами. В болотах и джунглях представлено более половины всех видов животных и растений планеты. При столкновении (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, живая природа, Флора и фаунаПеревод: Одноголосый закадровый, профессиональный, студия "АРК ТВ", текст читал Александр ГаврилинПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD0C92242693B113FF2BDED39C5EBA8879A9DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

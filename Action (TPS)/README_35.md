@@ -1,3 +1,159 @@
+###  Публикация: 1337114   (275621) от 09.11.2019
+
+JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Butter_
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тебя ждет убойное путешествие! Jumanji примет всех, кто готов дерзнуть найти в другой мир скрытый путь! Играй по сети, на одном экране с друзьями или с компьютером! Только объединив усилия под твоим чутким руководством, доктор Брэйвстоун, Руби, Мось и профессор Оберон смогут разделаться с противниками и спасти этот райский уголок!Тип издания: RepackРазработчик: Funsolve LTDЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67D0E7C775C32E675D540F9D82EAD8EB263A10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337178   (275555) от 09.11.2019
+
+JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тебя ждет убойное путешествие! Jumanji примет всех, кто готов дерзнуть найти в другой мир скрытый путь! Играй по сети, на одном экране с друзьями или с компьютером! Только объединив усилия под твоим чутким руководством, доктор Брэйвстоун, Руби, Мось и профессор Оберон смогут разделаться с противниками и спасти этот райский уголок!Тип издания: RepackРазработчик: Funsolve LTDЖанр: Adventure, Action, 3DЯзык озвучки: Английский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5440DB65280C7F3A131E18E70391BC9836CE1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187856   (275433) от 01.12.2017
+
+Bombshell (2016) [En] (1.2.10466) License GOG [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bombshell – шутер, сделанный с применением технологии Unreal Engine. Вы познакомитесь с бывшим взрывотехником, а ныне наемницей Шелли Харрисон по кличке «Бомба». Ей предстоит преодолеть череду препятствий на 4 планетах, чтобы спасти президента (а заодно и человечество) от смертельной инопланетной угрозы. Враги из других миров, невиданный арсенал смертоносного вооружения (   Читать дальше...   )Тип издания: LicenseРазработчик: Interceptor EntertainmentЖанр: Шутер, От третьего лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E58CCE60EA5459D5CB4F527F4D6EDB66108F286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098834   (275375) от 01.12.2017
+
+Resident Evil: Revelations (2013) [Ru/Multi] (1.0/upd4/dlc) Repack Other s [Complete Pack]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil® Revelations — популярная игра в жанре "ужас выживания" погружает игроков в события, происходящие в период между Resident Evil®4 и Resident Evil®5 и раскрывающие правду о вирусе T-Abyss. В Resident Evil Revelations присутствуют звезды серии – Джилл Валентайн и Крис Редфилд, а также их партнеры по АПБТ – Паркер Лучиани и Джессика Шерават. Действие (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8A276193173AE2049CF8D25025EA506EEB97BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607451   (274965) от 27.11.2018
+
+Lost: Via Domus / Lost. Остаться в живых (2008) [Ru/En] (1.0) License
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый герой со своей собственной историей, которая постепенно раскрывается на протяжении игры. Вы открываете глаза и видите перед собой догорающие обломки самолета, следовавшего рейсом 815. Со всех сторон слышни крики и стоны уцелевших пассажиров. Вы пытаетесь мысленно воспроизвести последние события, но понимаете, что ничего не помните. Вам предстоит увидеть остров (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Ubisoft MontrealЖанр: Adventure, Arcade, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BE060FACD395F7D0268C02471A9ABADB95FB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083380   (274301) от 15.12.2016
+
+Watchmen: The End is Nigh / Хранители (2009) [Ru/En] (1.0) Repack Seraph1 [Complete Pack]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда миру грозит опасность, на его защиту встают настоящие герои. Они действуют по-разному – кто-то предпочитает честную схватку со злом, иные бьют в спину. Зато такая команда не по зубам даже бандитам, кишащим под покровом ночи в переулках мегаполиса. Ночная Сова и Роршах отправляются на охоту. И ни одному злодею не под силу остановить их крестовый поход против (   Читать дальше...   )Тип издания: RepackРазработчик: Deadline GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A931AC870B429B20A8D2F2366466F42D6FEA2F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337772   (272200) от 12.11.2019
 
 Batman: Arkham Knight (2015) [Ru/Multi] (1.7/dlc) Repack Other s [Game of the Year Edition]
@@ -6,7 +162,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.7/dlc) Repack Other s [Game of the Ye
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272200.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Daemonica / Daemonica: Зов Смерти (2006) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271639.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Iron Man [Ru/En] (RePack) 2008
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269285.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Resident Evil: Operation Raccoon City (2012) [Ru/En] (1.2.1803.136/dlc) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269199.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268498.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ Resident Evil 0 / Resident Evil 0 HD Remaster (2016) [Ru] (1.0/dlc) Repack Other
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265609.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru/En] (1.04/dlc) Repack Seraph1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264935.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.767.2/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264915.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ The Surge (2017) [Ru/En] (42876/dlc) Repack R.G. Механики [Complete Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264762.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Phoning Home (2017) [Ru/Multi] (1.3) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263691.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ Tom Clancy's Splinter Cell (2003) [Ru/En] (1.3) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263656.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow (2004) [Ru/En] (1.0) Repack R.G. Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263654.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ Teenage Mutant Ninja Turtles: Portal Power (2017) [Ru/Multi] (2.0.224) License H
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263645.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ Tom Clancy's Splinter Cell: Chaos Theory (2005) [Ru/En] (1.05.157) Rip R.G. Reve
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263641.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack R.G. Reve
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263322.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ Tom Clancy's Splinter Cell: Conviction (2010) [Ru/En] (1.04) Rip R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263315.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ Star Wars™: The Force Unleashed II (2010) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262970.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ Star Wars™: Jedi Knight™ - Jedi Academy™ (2003) [Multi] (1.01A) License GO
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262967.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) License GOG [Ultimate 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262962.jpg" />
 </div>
 
 
@@ -502,7 +658,7 @@ Stranglehold (2007) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262539.jpg" />
 </div>
 
 
@@ -513,175 +669,6 @@ Stranglehold - высокотехнологичный компьютерный �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA52758F9FF11D5A426DC950215AC7BA67D51C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193494   (262024) от 21.12.2017
-
-Friday the 13th: The Game (2017) [Ru/Multi] (B9162/dlc) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Friday the 13th: The Game – игра (с одиночным и кооперативным режимами), созданная по мотивам знаменитой серии фильмов «Пятница, 13-е». Главная особенность кинокартин – маньяк-убийца по имени Джейсон Вурхиз, отличающийся своими кровавыми способами расправ над жертвами. Его главное оружие – мачете, а лицо злодея скрывает хоккейная маска. Игровой процесс Friday the (   Читать дальше...   )Тип издания: RepackРазработчик: IllFonicЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FE679DB228565DA0768A7B9CE74C323188445C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505418   (261372) от 04.06.2012
-
-Resident Evil: Operation Raccoon City + 6 DLC (Rip/1.2.1803.132u2] [Ru/En] 2012 | Audioslave
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil: Operation Raccoon City — классический шутер от третьего лица, рассчитанный на совместное прохождение. Действие игры разворачивается в хорошо знакомой — темной и жестокой — вселенной Resident Evil. Игроки станут участниками событий Resident Evil 2 и Resident Evil 3, однако на этот раз они освещаются с нового ракурса. Сражения будут происходить в разнообразных декорациях, противостоять придется не только вражеским отрядам, но также зомби и биоорганическому оружию (Bio-Organic Weapons — B.O.W’s). Это привнесет в игру элемент неожиданности, а также потребует быстро анализировать ситуацию и искать подход к каждому врагу.
-Сентябрь 1998 года. Злополучный город Раккун-Сити переживает страшные последствия заражения смертельно опасным Т-вирусом, который был создан в лаборатории корпорации Umbrella и выпущен в городскую систему водоснабжения. Чтобы скрыть преступление, Umbrella посылает элитный отряд наемников уничтожить улики, доказывающие ее причастность к происходящему и, конечно, всех очевидцев. Узнав об этом плане, правительство США, в свою очередь, командирует в Раккун-Сити подразделение спецназа с целью раздобыть доказательства распространения вирусной инфекции и виновности в этом Umbrella…(   Читать дальше...   )Тип издания: RipЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45AAE8918DFE7E874CACF5565FAC7AEA4DEB188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503078   (261063) от 03.06.2012
-
-Sniper Elite Дилогия [Ru/En]  (RePack) 2005-2012 | R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача. Дано: один снайпер. Одна снайперская винтовка. Много умных врагов.
-Требуется: ликвидировать дозорного. Остаться незамеченным. Не спугнуть основные силы противника.
-Решение: терпение. Именно в нем кроется успех. На рожон лезть не стоит ни в коем случае — завалят.
-Терпеливо выбрали позицию. Терпеливо определили цель, сделали поправки на ветер и расстояние. Терпеливо дождались залпа артиллерии. Задержали дыхание. Взрыв. Приглушенный хлопок.
-Цель поражена. Все. Задача выполнена.
-Можно спокойно уходить — взрыв заглушил выстрел, и противник вряд ли быстро определит нашу позицию.
-
-Понравилась задачка? Что ж, тогда обратите внимание на Sniper Elite — самый настоящий “снайперский” экшен.(   Читать дальше...   )Тип издания: RePackРазработчик: RebellionЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61177F423BE7FA95D678519D1F81EC1EC8616670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505213   (261034) от 03.06.2012
-
-Tomb Raider Трилогия [En] (L) 1996-1998 | GOG {Tomb Raider + Tomb Raider 2 + Tomb Raider 3}
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomb Raider является игрой, которая не нуждается в представлении, но если Вы по каким-то причинам не знакомы с ней, то знайте, что это игра про приключения красивой, умной, и спортивной Лары Крофт - британского археолога.
-
-Вы смогли бы поверить, что её работа - это раскопки захоронений и поиски старых костей? Как вообще может быть эта игра интересной? Но - Лара является не совсем обычным археологом, и ее жизнь далеко не скучна. Лара Крофт - расхитительница гробниц: она - охотник за старинными реликвиями!
-
-Когда Лара вторгается в могилы и склепы в поисках старинных экспонатов, реликтов и прочих старинных вещей она должна помнить, что их всегда охраняют какие-то силы, будь-то духи или живые мертвецы. Могилы заполнены смертельными ловушками, причудливыми монстрами и хитрыми загадками. Лара не является поклонником таких взглядов, но тем не менее она готова к опасностям. В ее распоряжении арсенал оружия: двойные пистолеты, все виды пулеметов и автоматов, гранатометы и базуки.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3186114B036AAC1A4D4C23BFB8A159B47544687D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838375   (260063) от 22.11.2025
-
-Onimusha 2 (2025) [Ru/Multi] (1.0.0.0/dlc) Repack Let'sРlay
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Onimusha 2 разворачивается в эпоху Сэнгоку, и в ней рассказывается о Джубэе Ягю, мастере меча, чья деревня была уничтожена демоническим полководцем Нобунагой Одой. Отправляясь на поиски мести, Джубей встречает множество союзников и открывает свое скрытое наследие Они, чтобы сразиться с силами Генмы.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2F9157E43B0F8501A90BE2DAA58C7242EE5805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502696   (259228) от 28.05.2012
-
-Collapse Дилогия [Ru] (Lossless RePack/1.1/1.0) 2008-2010 | R.G. Catalyst
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история Родана, история нашего мира, история судьбы человечества. Когда Родан применил ключи и вошел в центр аномалии, он выполнил только часть своей миссии....
-Герой не спас человечество.... Аномалия разорвалась на множество мелких кусков, из которых стали появляться все новые и новые монстры. Но и Родан не умер - вслед за монстрами появившись из частицы аномалии, он оказался между трех огней: монстров, бандитских группировок и военных. Осталась лишь одна задача - вырваться из этого ада.Тип издания: RePackРазработчик: CreoteamЖанр: Action / 3D / 3st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20E7ED16C1D48833F1E647F7C9A92A93B424CB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

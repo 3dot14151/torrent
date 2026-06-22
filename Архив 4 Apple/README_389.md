@@ -1,3 +1,31 @@
+###  Публикация: 1250580   (424867) от 28.09.2018
+
+Downcast 2.9.36 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downcast , популярное приложение подкаста iOS теперь доступно для OS X! Загрузка, проигрывание и синхронизация ** Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
+
+Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2018Разработчик: Enterprises LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108E14DC4B10A66D18EB368A0759784A4FEC412C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250620   (424865) от 28.09.2018
 
 UctoX 2 v2.6.3 [Multi]
@@ -6,7 +34,7 @@ UctoX 2 v2.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424865.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ iA Writer 5 v5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424861.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Adobe Premiere Pro 2020 14.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424797.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Adobe Photoshop 2020 21.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424781.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ Tri-BACKUP Pro 9 v9.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424762.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ MediaHuman YouTube Downloader 3.9.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424760.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ PDF Squeezer 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424759.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ GIF'ted 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424750.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ WiFiSpoof 3 v3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424745.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ BBEdit 11.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424729.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ Anamorphic Pro 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424615.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ Apple MainStage 3.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424609.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ Logic Pro X 10.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424471.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ Microsoft Office Standard 2016 v15.15 (with License Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424248.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ FilePane 1.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424225.jpg" />
 </div>
 
 
@@ -409,7 +437,7 @@ iFinance 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424059.jpg" />
 </div>
 
 
@@ -435,7 +463,7 @@ Keka 1.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423754.jpg" />
 </div>
 
 
@@ -462,7 +490,7 @@ DaVinci Resolve Studio 14.0 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423460.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ Acorn 6 v6.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423319.jpg" />
 </div>
 
 
@@ -519,7 +547,7 @@ Dropshare 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423168.jpg" />
 </div>
 
 
@@ -547,7 +575,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423154.jpg" />
 </div>
 
 
@@ -573,7 +601,7 @@ SoundSource 5.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423071.jpg" />
 </div>
 
 
@@ -601,7 +629,7 @@ Sublime Text 4.0 Dev build 4087 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422966.jpg" />
 </div>
 
 
@@ -628,7 +656,7 @@ Magnet Pro 2.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422843.jpg" />
 </div>
 
 
@@ -654,7 +682,7 @@ Feeder 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422775.jpg" />
 </div>
 
 
@@ -667,33 +695,6 @@ Feeder - это полнофункциональное приложение дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAF51C5B030E0B6E04C523E0962D5E8F080DF070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250802   (422769) от 29.09.2018
-
-PrefEdit 4.0 (Build 180917) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422769.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrefEdit - утилита для изменения настроек программ, путем редактирования их plist-файлов.
-PrefEdit - уникальное приложение для просмотра и редактирования скрытых настроек системы и приложений Mac OS X, в том числе и в файлах plist. Для облегчения задач редактирования, в приложении доступен полнотекстовый поиск по любым критериям. Встроенный браузер обеспечивает удобную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCF2828628AC6DC9513FFF9ECCF8CBF81B7BB56
 ```
 
 https://mybot314.ru/tekegram_catalog/

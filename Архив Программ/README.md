@@ -7,7 +7,7 @@ optimizerDuck 2.14.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072058.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Telegram Desktop 6.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070536.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Minimal Firewall 2.7.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070535.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Minimal Image Viewer 1.9.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070534.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Syncovery Premium 11.15.5.205 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070533.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ MAX Desktop 26.15.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068068.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ qBittorrent 5.2.0 Portable by stalkerok [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068051.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Minimal Firewall 2.7.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068049.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Music Collection 3.9.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068037.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ reaConverter Pro 8.0.219 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068033.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ High-Logic FontCreator 16.0.0.3061 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068017.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ X Radio Stream Finder 2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068010.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067274.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ YT Downloader 10.3.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067271.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ KiCad 10.0.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067248.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Revo Registry Cleaner Pro 2.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067245.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Notepad++ 8.9.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067243.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ WinScript 2.5.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067236.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ LeafView 4.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067233.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Monkey's Audio 12.75 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067164.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ PotPlayer 260422 (1.7.22859) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067157.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Zen Browser 1.19.10 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067156.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kudu 1.37.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067151.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067147.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067146.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ DesktopOK 12.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067139.jpg" />
 </div>
 
 

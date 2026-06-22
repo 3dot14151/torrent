@@ -1,3 +1,57 @@
+###  Публикация: 1193926   (213841) от 23.12.2017
+
+VMware Fusion Pro 10.1.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213841.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Fusion: удобная и мощная виртуальная машина для Mac, с помощью которой, пользователи Mac могут запускать ОС Windows и десятки других операционных систем одновременно с приложениями Mac без перезагрузки. Решение Fusion сочетает в себе удобство работы для домашних пользователей и широкие возможности для ИТ-специалистов, разработчиков и организаций.
+
+Выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2017Разработчик: VMware, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E117442CB4E11C422A01CDC62FE4CCA4841F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344125   (213839) от 09.12.2019
+
+Understand 5.1 (build 1009) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Understand - это инструмент статического анализа для поддержки, измерения и анализа критических или больших баз кода. От метрик и графиков до анализа зависимостей - освойте свой исходный код с помощью Understand.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2019Разработчик: Scientific Toolworks, Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D25EFFC0B69D9254C65873BBC5E1C82D6E92E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654024   (213836) от 18.08.2023
 
 Magic Disk Cleaner 2.3.2 [En]
@@ -6,7 +60,7 @@ Magic Disk Cleaner 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213836.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Native SQLite Manager 1.25.2[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213827.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ OmniFocus Pro 3.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213816.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ App Tamer 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213811.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Valentina Studio Pro 9.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213810.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Smultron 12.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213787.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ Smooze 1.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213786.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ DVD-Cloner 2023 for Mac 7.0  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213779.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ WiFiSpoof 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213775.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ Colibri 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213771.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Duplicate File Finder Pro 7 v.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213766.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ Sync Folders Pro 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213763.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ DupeZap 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213762.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ EdgeView 2 v2.900 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213757.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ Scherlokk - Files finder 4 v4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213753.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ TextSoap 8 v8.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213745.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ Mirror for Roku TV 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213743.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ UniConverter 11.6.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213741.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ A Better Finder Attributes 7 v7.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213738.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ Blocs 3.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213736.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ Grid 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213728.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ Disk Xray 2.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213725.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ PullTube 1.8.5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213720.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213718.jpg" />
 </div>
 
 
@@ -634,58 +688,6 @@ Adobe Zii - это небольшая и замечательная утилит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:983FE774758CC69EF891E41006D80806946A4A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426717   (213716) от 25.11.2020
-
-Dark Mode for Safari 2.9.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темный режим делает ваш браузер более комфортным, приятным и крутым, изменяя цветовую схему, чтобы облегчить чтение веб-страниц. Особенно хорошо работает для людей, работающих ночью или в условиях низкой освещенности, или когда вы хотите, чтобы ваш браузер соответствовал новому внешнему виду в темном режиме macOS.Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Denk AlexandruПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1123B6D1779F7D932CEB8A0711B7266CE7ED28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426617   (213715) от 25.11.2020
-
-PaintCode 3 v3.4.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как связующий мост между разработчиками и дизайнерами, PaintCode является приложением для векторной графики, которое мгновенно генерирует Objective-C или C # код для изображений. Преимущество приложения PaintCode заключается в том, что оно не только превращает векторный рисунок в код, но и само является полнофункциональным приложением для создания векторных изображений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: PixelCut s.r.oПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3477F735AB3A00827476201489CC40A1413F3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

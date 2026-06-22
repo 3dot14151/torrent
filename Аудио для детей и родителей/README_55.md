@@ -1,3 +1,58 @@
+###  Публикация: 1410213   (438635) от 20.09.2020
+
+Кэтрин Ранделл | Покорители крыш (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все думают, что Софи сирота. Совсем малышкой ее спас эксцентричный ученый Чарльз – девочка плавала по Ла-Маншу в футляре для виолончели, завернутая в партитуру Бетховена. Жизнь в доме Чарльза оказалась по душе Софи, но строгий опекунский совет решил, что холостяцкая квартира не самое лучшее место для юной леди. Софи и Чарльз уезжают в Париж: возможно, там получится (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Заур МамедьяровПродолжительность: 06:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BBFDA7221D89E77F3788FA05F6ED561508E29C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410240   (438554) от 20.09.2020
+
+Елена Кучерова, Полина Ледова, Виктория Татур, Наталья Голышкина, Анна Хотеева, Ольга Коханенко,  Елена Чипакова, Оксана Иванова, Светлана Кривошлыкова | Таинственная планета (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необыкновенно захватывающие путешествие Немо и девочки Луны к таинственной Планете сокровищ.
+
+В день своего пятнадцатилетия Немо узнаёт, что его родители пропали на пути к таинственной Планете сокровищ. Немо – гениальный механик и суперпилот – чинит семейный корабль «Наутилус» и отправляется на поиски неведомой планеты, чтобы спасти родителей.
+(   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 06:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484773A8D0FD3E18B855CEFA24537B04F1A81D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410289   (438541) от 20.09.2020
 
 Владислав Крапивин | Брат, которому семь (2019) [MP3]
@@ -6,7 +61,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438541.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438471.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438467.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438278.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ VA - Лучшие песни из детского кино (2012) [MP3|320 кб
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438277.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ VA - Хиты планеты. Любимые песни из мультфиль�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438139.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434038.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ VA - Волшебные голоса природы: Малыш на лугу (2
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433296.jpg" />
 </div>
 
 
@@ -231,7 +286,7 @@ VA - Волшебные голоса природы: Малыш и птички 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433292.jpg" />
 </div>
 
 
@@ -260,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432342.jpg" />
 </div>
 
 
@@ -286,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431560.jpg" />
 </div>
 
 
@@ -304,6 +359,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145283   (430726) от 11.10.2009
+
+VA - Музыкальная шкатулка. Мои цветные сны (2008) [MP3|320 кб/c]<Детская, Классика>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_430726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детская, Классика
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064040   (430012) от 18.10.2016
 
 Дмитрий Емец | Таня Гроттер и исчезающий этаж (2016) [MP3]
@@ -312,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430012.jpg" />
 </div>
 
 
@@ -339,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429660.jpg" />
 </div>
 
 
@@ -367,7 +448,7 @@ VA - Babies Go (23 CD) (2003 - 2008) [MP3|192-320 kbps]<Детская музы�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427206.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425858.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425078.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423936.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423792.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423625.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423323.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423308.jpg" />
 </div>
 
 
@@ -586,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423169.jpg" />
 </div>
 
 
@@ -614,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_422492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422492.jpg" />
 </div>
 
 
@@ -626,86 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166882   (421788) от 18.09.2017
-
-Эдуард Гранстрем | Приключения Лиса Патрикеевича (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421788.jpg" />
-</div>
-
-
-###  Подробнее
-
-В аудиокнигу «Приключения Лиса Патрикеевича», изданную студией АРДИС для детей, включено произведение с очень интересной и необычной историей. Герой книги появился на свет во Франции в Средние века, и звали его Ренар или Рейнеке, а само произведение известно как «Роман о Лисе». И сюжет его совсем не детский. Но в 1906 году француженка Розе-Жанна-Матильда Лерой-Алле (   Читать дальше...   )Жанр: СказкиПродолжительность: 03:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4955405F798991FFAF651AAFA4E70DC8871105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395579   (420537) от 03.10.2011
-
-Эдуард Успенский | Новые порядки в деревне Простоквашино (Простоквашино 7) [2003] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для современных детей и родителей. С главами: финансовой, политической, газетной, налоговой, уголовной, гуманно-воспитательной, военной и т.п. И все они - про старое доброе Простоквашино...
-Дорогие ребята! Эту книгу лучше читать вместе с родителями, потому что в ней встречается много непривычных ситуаций из современной жизни. Если вам будет что-то непонятно, (   Читать дальше...   )Жанр: Повесть - сказка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED9D13069BBCF75593431E0C821754845A2D734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395916   (420375) от 03.10.2011
-
-Марк Твен | Приключения Тома Сойера (2007) [MP3, Валерий Захарьев]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная библиотека.
-«Школьная библиотека» приглашает своих слушателей в удивительный мир героев Марка Твена (1835–1910), замечательного американского писателя, классика мировой литературы. Что может быть увлекательней, чем заблудиться в пещере вместе с обожаемой девочкой или отправиться ночью на кладбище в компании верного друга и дохлой кошки? Или вступить (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, повестьПеревод: Нина ДарузесИздательство: Аудиокнига (АСТ)Продолжительность: 08:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0FF0705DEB7F5A34A0F41A0646D47E3745854D
 ```
 
 https://mybot314.ru/tekegram_catalog/

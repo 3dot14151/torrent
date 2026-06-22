@@ -1,3 +1,61 @@
+###  Публикация: 1856488   (1058821) от 28.02.2026
+
+VA - The Orient Collective: Ancient Legends (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Down Tempo Vibes (4:46)
+02. Tibetania - Exodus (5:12)
+03. Tibetania - Albaraan (4:26)
+04. Divenitto - Goa (6:43)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191E81DB8FEC4130637A004D2EEDEBBD9BF40A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855935   (1058336) от 25.02.2026
+
+VA - Daydream Chillout Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Crispy Galaxy - At This Stage (03:43)
+ 02 - Matozinhos - Playa Flow (04:24)
+ 03 - Breviarium Musicae - Aubade (04:10)
+ 04 - Klasse XXI - Wood Notes (03:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57740D06D16226BF5C8740A4F7078102467457DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855939   (1058333) от 25.02.2026
 
 VA - After Hours Chill & Unwind (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -6,7 +64,7 @@ VA - After Hours Chill & Unwind (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058333.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Soft Horizons: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057879.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The Orient Collective: Whispers of the Ancients (2026) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057844.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Orient Collective: Sand Temple Stories (2026) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056993.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Coastal Vibrations: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056432.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Chillout & Lofi Vibes 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056137.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Noir Desire - Intimate Chillout Beats (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056118.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Orient Collective: Desert Moon (2026) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055865.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Amanati - Omen (2025) [FLAC|Lossless|tracks] <Downtempo, Electronic,>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055836.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Desert Souls, Vol.1 (Micro Sound Records) (2026) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055536.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Orient Collective: Celestial Dunes (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054912.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ GARRISON (Игорь Савосин) - Best Relax Music (2023) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054707.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ GARRISON (Игорь Савосин) - Atmospheric (2026) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054706.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ GARRISON (Игорь Савосин) - Sounds and Images (2024) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054691.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ GARRISON (Игорь Савосин) - Sound Vibrations (2023) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054690.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ GARRISON (Игорь Савосин) - The Best (2025) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054689.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Orient Collective: Golden Horizon (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054381.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Island Grooves: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054236.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Breeze & Echoes: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054014.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Best Chillout Music - Fashion Forward Edition (2025) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053959.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - The Orient Collective: Oasis Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053213.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052855.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Chillout Reflections: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051862.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Metropolitan Chillhouse: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051316.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Metropolitan Chillhouse: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9207138B62AD0F3A5E02CC7522E464C14E02C420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846167   (1051142) от 05.01.2026
-
-VA - Velvet Lounge Bar: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Della Sol Quintet - Blu Jazz (Original Mix) (3:29)
-02. Digby Jones - Ashes (Original Mix) (3:50)
-03. Della Sol Quintet - Easy Rider (Original Mix) (4:29)
-04. Gaur - Indigo (Original Mix) (4:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B64FEDDA003946BE1E50A21287D8A777C705EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843741   (1049516) от 21.12.2025
-
-VA - The Orient Collective: Sand & Silence (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Lockwood, Tibetania - Morning Clouds (Original Mix) (5:38)
-02. Marga Sol, Tibetania - Memoria (Original Mix) (4:45)
-03. DIVENITTO, Tibetania, Mr.Elijah. DUP - Goa (Original Mix) (6:43)
-04. Tibetania, Afromath - Sentimente (Original Mix) (5:07)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC9D01139608D2FFD2AA4E35FE319A192A65C2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

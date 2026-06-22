@@ -1,3 +1,58 @@
+###  Публикация: 1841811   (1048328) от 13.12.2025
+
+Andrea Bocelli: The Celebration 30th Anniversary (2025) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съёмки проходили в театре «Театр тишины» в Лаятико в течение трёх вечеров в 2024 году и приурочены к 30-летию его творческой деятельности. Это уникальное событие, которое случается раз в жизни, представит звезду классической музыки Андреа Бочелли в его родной Тоскане вместе со звёздным составом специальных гостей, исполняющих песни, ставшие основополагающими в его (   Читать дальше...   )Производство: Германия / Mercury Studios, Impact Productions, Almud, CitySound & EventsЖанр: Rock, Pop, Classical, Stage & ScreenРежиссер: Sam WrenchАктеры: Andrea Bocelli, Jon Batiste, Veronica Berti, José Carreras, Sofia Carson, Russell CroweПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 02:30:52 + 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49108A3854507A6A3412CD9FC7F5E9C76D4761BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840776   (1047448) от 07.12.2025
+
+Квартирник у Маргулиса. Андрей Державин. 40 лет вдохновения (06.12.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с друзьями в 1985 году Андрей Державин основал музыкальную группу «Сталкер». Уже в 1986-м они выпустили дебютный магнитоальбом «Звёзды», после чего коллектив был принят в штат республиканской филармонии и отправился на гастроли по всей стране. Музыка группы — узнаваемый сплав мелодичного поп-рока и синтезаторной поп-музыки конца 80–90-х. В 1990-м композиция (   Читать дальше...   )00:00:01 Та, которая уходит в дождь
+00:09:15 Я хочу не помнить зла
+00:16:00 Журавли
+00:23:48 Когда ты уйдешь(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: рок, попЯзык: РусскийПродолжительность: 01:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12079B64CD6FEAC42EB49CC4446BDAC98E74D034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839683   (1046868) от 30.11.2025
 
 Квартирник у Маргулиса. Группа Три дня дождя (29.11.2025) WEBRip [H.264/1080p]
@@ -6,7 +61,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046868.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046376.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045626.jpg" />
 </div>
 
 
@@ -92,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045390.jpg" />
 </div>
 
 
@@ -121,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045034.jpg" />
 </div>
 
 
@@ -148,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045031.jpg" />
 </div>
 
 
@@ -175,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044844.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044630.jpg" />
 </div>
 
 
@@ -228,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044608.jpg" />
 </div>
 
 
@@ -254,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044386.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ Trident — Blue Field, Finale Concert (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043948.jpg" />
 </div>
 
 
@@ -312,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043931.jpg" />
 </div>
 
 
@@ -339,7 +394,7 @@ Trident — Blue Snow, 1st Live Concert (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043925.jpg" />
 </div>
 
 
@@ -368,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043919.jpg" />
 </div>
 
 
@@ -397,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043714.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043288.jpg" />
 </div>
 
 
@@ -452,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043008.jpg" />
 </div>
 
 
@@ -479,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043002.jpg" />
 </div>
 
 
@@ -505,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042936.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042476.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042430.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042184.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042151.jpg" />
 </div>
 
 
@@ -643,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041893.jpg" />
 </div>
 
 
@@ -658,62 +713,6 @@ Justin Bieber – Yummy(   Читать дальше...   )Жанр: Pop, Club, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3139EC9DC6B0B9BBE4BC46793BABF145B7BA7F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405788   (1041268) от 07.01.2021
-
-Linkin Park - Концерт в Техасе / Linkin Park - Live in Texas (2003) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live in Texas — первый концертный альбом американской нью-метал группы Linkin Park и третий DVD , впервые изданный 18 ноября 2003. Все песни были записаны 2 и 3 августа во время концертов тура Summer Sanitarium Tour 2003 на стадионе Релиант в Хьюстоне, Техас и стадион Техас в Ирвинге, Техас.
-Видеоконцерт создан из аудиодорожки с концерта в Ирвинге и видео с обоих (   Читать дальше...   )Жанр: Концерт, Alternative RockРежиссер: Kimo ProudfootАктеры: Честер Беннингтон, Роб Бурдон, Брэд Дэлсон, Феникс Фаррелл, Джозеф Хан, Майк Шинода, Ларс УльрихПеревод: ОтсутствуетПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221E91ECA1733364F286999DFCE972A4A58F070B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611691   (1041130) от 12.02.2023
-
-Квартирник у Маргулиса. Группа «Гудтаймс» (11.02.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041130.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гудтаймс» — одна из самых позитивных, непредсказуемых и безудержных групп России. Харизматичных и энергичных музыкантов из Костромы по праву называют «повелителями дудок и властелинами танцполов», ведь их выступления и музыка никого не оставляют равнодушными. В гостях у Евгения Маргулиса «Гудтаймс» поделились интересными воспоминаниями и исполнили хиты, под которые (   Читать дальше...   )00:00:05  Бельмондо
-00:05:29  Императрицы и князья
-00:11:04  Огоньки
-00:16:30  Почему он, а не я?(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB183DABB570D5DD7BB5AE373DB767388D70AF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

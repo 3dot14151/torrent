@@ -6,7 +6,7 @@ The Big Moon - Walking Like We Do (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001992.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Field Music - Making a New World (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001721.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Beach Slang - The Deadbeat Bang of Heartbreak City (2020) [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001691.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bobina - Targets (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001643.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Twenty One Pilots - TOPxMM (The Mutemath Sessions) EP (2016) [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001011.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dropkick Murphys - Signed And Sealed in Blood (2013) [FLAC|Lossless]<Celtic Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998550.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Hollywood Undead - Notes From The Underground (Best Buy Deluxe Edition) (2013) [
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997717.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Patti Smith - 14 альбомов (1975-2012) Дискография [WAVPack/FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995438.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993317.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992720.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991968.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Algiers - There Is No Year (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991927.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Theory of a Deadman - 3 Альбома (2002-2011) [FLAC|Lossless]<Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991740.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ The Hold Steady ‎ - Thrashing Thru The Passion (2019) [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989946.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Our Last Night - 5 Альбомов (2004-2012) Дискография [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989024.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Gemma Ray - Psychogeology (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988057.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Wolf Parade - Thin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988009.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Nickelback - Greatest Hits (2012) 2CD [FLAC|Lossless]<Alternative Rock, Post Gru
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987696.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Jolly Goods - Slowlife (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987053.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ The Homesick - The Big Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987049.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Wire - Mind Hive (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986219.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Andy Shauf - The Neon Skyline (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986166.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Tupelo Honey - Brave New World (2014) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985768.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Julian Cope - John Balance Enters Valhalla (2019) [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983620.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Nick Cave & The Bad Seeds - Push The Sky Away (2013) /WEB/ [FLAC (tracks)|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981019.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ We Are the City - RIP (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980568.jpg" />
 </div>
 
 

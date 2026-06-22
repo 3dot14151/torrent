@@ -1,3 +1,113 @@
+###  Публикация: 1761383   (36756) от 19.11.2024
+
+Святитель Григорий Двоеслов | Беседы на Евангелия [2 книги] (2009) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Григорий I Двоеслов († 604), папа Римский, – вселенский отец и учитель Церкви. Среди его обширного богословского наследия особое значение имеют «Беседы на Евангелия». Главной целью своей книги Святитель видел нравственное усовершенствование христианина, для чего увещевал паству «как можно скорее поспешать к вечным радостям отечества небесного».
+
+Издатели (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD60C5943B35BB0CA5A5655B5A0610F5A069F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761369   (36753) от 19.11.2024
+
+Архимандрит Иустин (Попович) | Толкование на 1-е послание к фессалоникийцам святого апостола Павла (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36753.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жизнь каждого существа на земле ведет свое происхождение с небес. Жизнь человека происходит с неба. Корень жизни каждой человеческой сущности и всего человечества в целом – в неизмеримых глубинах неба, в трисиянных бесконечностях Пресвятой Троицы.
+
+Таинство жизни каждого существа на земле, малого и большого, простого и сложного, – явление по своей сущности святое, (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC7C6CE7BC4FF6AE035085150DB2728EEC5CD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767520   (33349) от 22.12.2024
+
+И.Н. Косоков | К вопросу о шаманстве в Северной Азии (1930) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всякая религия, в том числе и шаманство, является громадным тормозом социалистического строительства, особенно в национальной деревне. Развернутое наступление социализма по всему фронту требует всемерного усиления антирелигиозной работы на всех участках борьбы с религией - в частности с шаманством, борьба с которым находилась до самого последнего времени в «беспризорном» (   Читать дальше...   )Жанр: История, политология, социология, религиоведение, культурология, публицистикаИздательство: БезбожникФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2244112C744F93EE0A1AB62A10B42E55433BDBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767517   (33346) от 22.12.2024
+
+С.Л. Урсынович | Религии туземных народностей Сибири (1930) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сибирь занимает громадное пространство, равняющееся почти 13 миллионам квадратных километров (т.-е. более, чем в два раза, превышающее европейскую часть нашего Союза), с населением около 15 миллионов человек.
+
+Это население состоит частью из русских, появившихся в Сибири в конце XVI века и в течение XVII столетия завоевавших почти всю ее нынешнюю территорию, частью (   Читать дальше...   )Жанр: История, политология, социология, религиоведение, культурология, публицистикаИздательство: БезбожникФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2382810A1B01C71C408C711DBD533F6366F88E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768680   (33035) от 25.12.2024
 
 Архимандрит Кирилл (Павлов) | О прощении обид и любви к ближним (2018) [PDF, FB2, EPUB, MOBI, TXT, FB3, RTF]
@@ -6,7 +116,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33035.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31524.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30758.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30739.jpg" />
 </div>
 
 
@@ -110,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30723.jpg" />
 </div>
 
 
@@ -138,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30721.jpg" />
 </div>
 
 
@@ -164,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30720.jpg" />
 </div>
 
 
@@ -190,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30320.jpg" />
 </div>
 
 
@@ -216,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30004.jpg" />
 </div>
 
 
@@ -242,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29902.jpg" />
 </div>
 
 
@@ -268,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29900.jpg" />
 </div>
 
 
@@ -296,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29899.jpg" />
 </div>
 
 
@@ -322,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29898.jpg" />
 </div>
 
 
@@ -351,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29891.jpg" />
 </div>
 
 
@@ -377,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29777.jpg" />
 </div>
 
 
@@ -403,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29583.jpg" />
 </div>
 
 
@@ -429,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28986.jpg" />
 </div>
 
 
@@ -455,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27941.jpg" />
 </div>
 
 
@@ -481,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27937.jpg" />
 </div>
 
 
@@ -509,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27931.jpg" />
 </div>
 
 
@@ -538,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26713.jpg" />
 </div>
 
 
@@ -564,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25835.jpg" />
 </div>
 
 
@@ -575,111 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66D7B59F8C6025747F069ABFD425CF705D538BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921639   (25658) от 05.03.2025
-
-С. Лавров (Архимандрит Амвросий (Юрасов)) | Яко с нами Бог (2004) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25658.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части этой книги описан пример диспута между просвещённым научными знаниями атеистом и верующим человеком. Такие диспуты проводились в советское время в целях антирелигиозной пропаганды, но были впоследствии запрещены партийным руководством, так как в подавляющем большинстве случаев верх в этих философских спорах одерживали верующие.
-Вторая часть содержит (   Читать дальше...   )Жанр: ПравославиеИздательство: Задонский Рождество-Богородицкий МонастырьФормат: PDF, DJVUКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F25E7F1B50794775557465B4045E9E67CE7B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784541   (24936) от 12.03.2025
-
-Рамачандра Рао | Тантра. Мантра. Янтра. Тантрические традиции Тибета (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24936.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу включены две лучшие работы современного исследователя буддийской Тантры Рамачандры Рао "Тантра. Мантра. Янтра" и "Тантрические традиции Тибета". Автор развенчивает привычные для массового читателя апелляции к тантрическому буддизму как к набору практик, ориентированных на интимную сферу человека. Прослеживая историю становления и развития (   Читать дальше...   )Жанр: Эзотерические знания. Религиоведение. Духовные ученияПеревод: А. ИванниковИздательство: БеловодьеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8E069D8448FBAD8AA725C53558FF48A3918524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788761   (22847) от 01.04.2025
-
-Гюстав Доре | Библия. Книга Священного Писания Ветхого и Нового Завета (2025) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библия является не только основой христианства, но и важнейшей частью всей мировой культуры. Ее Ветхий Завет был написан на древнееврейском языке. Эти тексты, создававшиеся с XV по I в. до н. э., тщательно сохранялись при переписывании и к X в. н. э. благодаря усилиям еврейских ученых — масоретов, — работавших с древними рукописями Священного Писания, обрели окончательно (   Читать дальше...   )Жанр: Религиозные книгиИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCAEBC9A4E6B282E826DB866FE86CE54884C450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788787   (22828) от 01.04.2025
-
-СЗКЭО (изд.) | Библия. Новый завет (2024) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синодальный перевод Нового Завета Библии (четыре Евангелия, Деяния святых апостолов, двадцать одно послание апостолов и Откровение Иоанна Богослова) в этой книге украшают более трехсот великолепных цветных рисунков, выполненных выдающимся живописцем, портретистом и гравером Джеймсом Тиссо (1836–1902). Его монументальные и точные в деталях иллюстрации делают это издание (   Читать дальше...   )Жанр: Религиозные книгиИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80EACF01FF440B75AAA6F98B3923148F10C8A718
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1059154   (463729) от 03.10.2016
+
+Валерий Корж | Полный справочник пчеловода (2010) [FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник поможет пчеловодам получить невиданный медосбор со своей пасеки и всю зиму угощать и лечить семью и друзей ароматным медом.
+ В издании рассматриваются такие темы:
+ - основные приемы содержания и разведения пчел;
+ - влияние внешних условий на жизнедеятельность пчел;(   Читать дальше...   )Жанр: Пчеловодство, ХоббиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C745A8E6EDF42D7E9E740C4EB38695938F27B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550807   (457424) от 22.09.2012
+
+В.Г.Кашковский, А.С.Орлов | Производство воска на пасеке [1973] [Pdf]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пчелиный воск является ценнейшим продуктом пчеловодства,
+который необходим для многих видов промышленности: металлургической, авиационной, электротехнической, автомобилестрои­тельной, железнодорожной, текстильной, кожевенной, фармацевти­ческой, парфюмерной и др.
+ В книге описаны технология производства и переработка воска на пасеке.Жанр: ПчеловодствоФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A06FEB8F3352029FA3DCE702FA260DE278056E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060122   (456970) от 06.10.2016
 
 Наталия Костина-Кассанелли | Выращиваем лекарственные и пряные травы на участке, балконе, подоконнике (2016) [EPUB, FB2, MOBI]
@@ -6,7 +63,7 @@
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456970.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455382.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455267.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453556.jpg" />
 </div>
 
 
@@ -112,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452590.jpg" />
 </div>
 
 
@@ -138,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451280.jpg" />
 </div>
 
 
@@ -164,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451251.jpg" />
 </div>
 
 
@@ -190,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450458.jpg" />
 </div>
 
 
@@ -216,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449250.jpg" />
 </div>
 
 
@@ -242,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448026.jpg" />
 </div>
 
 
@@ -270,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443872.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441011.jpg" />
 </div>
 
 
@@ -326,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435965.jpg" />
 </div>
 
 
@@ -353,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430172.jpg" />
 </div>
 
 
@@ -379,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427751.jpg" />
 </div>
 
 
@@ -405,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427147.jpg" />
 </div>
 
 
@@ -431,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422472.jpg" />
 </div>
 
 
@@ -457,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420049.jpg" />
 </div>
 
 
@@ -485,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415627.jpg" />
 </div>
 
 
@@ -512,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414067.jpg" />
 </div>
 
 
@@ -538,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410961.jpg" />
 </div>
 
 
@@ -564,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406553.jpg" />
 </div>
 
 
@@ -591,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403018.jpg" />
 </div>
 
 
@@ -617,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400974.jpg" />
 </div>
 
 
@@ -630,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B59377F0C46502CE8E78E33CAE07C68EA6B4D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567399   (396860) от 29.10.2012
-
-Н.М.Вильчинский | Комнатная культура цитрусовых растений [1961] [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396860.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно освещаются ботаническая характеристика и биологические особенности цитрусовых растений, пригодных для выращивания в комнатных условиях: лимона, апельсина, мандарина, грейпфрута, шеддока, цитрона, кинкана, трифолиаты, даются практические советы любителям-цитрусоводам по выращиванию посадочного материала, окулировке, приготовлению почвенных смесей, питанию и уходу за растениями, освещению, борьбе с вредителями и болезнями.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA61E1D6A87C5FEFF2F8CD1B6975B1C97B272F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568025   (395773) от 30.10.2012
-
-О.В.Завязкин (сост.) | Разведение и содержание крупного рогатого скота [2011] [Pdf]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395773.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдете всю необходимую информацию по выбору породы, кормлению, размножению, содержанию крупного рогатого скота. Опыт европейских животноводов показывает, что при правильном выборе породы и соблюдении прогрессивных методов выращивания даже небольшое поголовье быстро окупает все расходы и начинает приносить прибыль.Жанр: Фермерство, сельское хозяйство, бизнесФормат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86092B4FECDA5C8A6A4E1CAD7CA048756899F6A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

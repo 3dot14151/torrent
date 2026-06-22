@@ -1,4 +1,139 @@
 https://t.me/izofen
+###  Публикация: 1877168   (1073845) от 
+
+Maven, Alexey Grigorev | AI Bootcamp: от RAG до агентов (2026) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073845.jpg" />
+</div>
+
+
+###  Подробнее
+
+AI Bootcamp: от RAG до агентов — это интенсивная практическая программа, которая помогает разработчикам быстро перейти от базовой работы с LLM к созданию настоящих production-ready AI‑систем
+Вы научитесь использовать Retrieval-Augmented Generation для построения ассистента, который отвечает на вопросы по документации, GitHub‑репозиториям, YouTube‑транскриптам (   Читать дальше...   )Производство: MavenЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 53:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC90CE83A44E4A6114F175C6BD348D5D47C72EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876264   (1073506) от 
+
+Merion Academy, Сурен Хоренян | Python Advanced. Продвинутый курс (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продвинутый курс Python поможет вам уверенно перейти на следующий профессиональный уровень: освоить асинхронность, метапрограммирование, тонкости типизации и профилирования, а также создать собственное приложение на FastAPI. Курс разработан для тех, кто хочет ускорить развитие до уровня middle-разработчика
+Курс направлен на глубокое изучение базовых и современных (   Читать дальше...   )Производство: Merion AcademyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 21:01:12Реклама: наложение на видео (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9CCC19155F8B17E0843D3A9376CF8A6DCD49BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876620   (1073450) от 
+
+Merion Academy, Сурен Хоренян | Python - программист с нуля (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте разработчиком на одном из самых популярных языков программирования.Производство: Merion AcademyЖанр: видеокурс, обучающий курс, программирование, PythonЯзык озвучки: русскийПродолжительность: 43:14:03Реклама: наложение на видео (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55DE178BBCC483E56E78383CABBF1D3986E6F1C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875853   (1073367) от 16.06.2026
+
+Balun.Courses, Владимир Балун | Интенсивы (2025 - 2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073367.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 интенсивов
+- gRPC в Golang
+- Битовые манипуляции задачи с алгосекций
+- Два указателя задачи с алгосекций(   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 13:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECE2337821082709FCA688673D79E882440FEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876299   (1073151) от 
+
+OTUS, Игорь Стурейко и др. | Машинное обучение для финансового анализа (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс по машинному обучению для финансового анализа поможет вам освоить практические методы работы с данными, автоматизации торговых стратегий и создания собственных интеллектуальных торговых систем на базе современных ML‑подходов.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 58:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A077910C55AEB635168CF5D3825F7FE84CD962EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875847   (1072837) от 
 
 Balun.Courses, Дмитрий Антипов | Инженерия AI-агентов: с нуля до запуска в prod (2026) PCRec [RU]
@@ -7,7 +142,7 @@ Balun.Courses, Дмитрий Антипов | Инженерия AI-агент�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072837.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072443.jpg" />
 </div>
 
 
@@ -59,7 +194,7 @@ AIHero, Matt Pocock | Claude Code for Real Engineers (2026) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072344.jpg" />
 </div>
 
 
@@ -85,7 +220,7 @@ Purpleschool, Антон Ларичев | Claude Code (2026) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071275.jpg" />
 </div>
 
 
@@ -111,7 +246,7 @@ Slurm (Слёрм), Марсель Ибраев, Максим Мошаров | �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070594.jpg" />
 </div>
 
 
@@ -137,7 +272,7 @@ Slurm (Слёрм), Марсель Ибраев, Артём Прима | Kuberne
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070593.jpg" />
 </div>
 
 
@@ -163,7 +298,7 @@ Diodov.net, Дмитрий Забарило | Программирование �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069766.jpg" />
 </div>
 
 
@@ -190,7 +325,7 @@ AIHero, Matt Pocock | Claude Code для настоящих инженеров (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069407.jpg" />
 </div>
 
 
@@ -219,7 +354,7 @@ R&D-лаборатория Devhands, Алексей Белозерский | Lak
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069406.jpg" />
 </div>
 
 
@@ -248,7 +383,7 @@ R&D-лаборатория Devhands, Алексей Рыбак | Произво�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069292.jpg" />
 </div>
 
 
@@ -275,7 +410,7 @@ OTUS, Илья Сикорский и др. | Unreal Engine Game Developer C++. B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069117.jpg" />
 </div>
 
 
@@ -301,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068933.jpg" />
 </div>
 
 
@@ -327,7 +462,7 @@ OTUS, Глеб Коробейников и др. | Разработка ядра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068917.jpg" />
 </div>
 
 
@@ -353,7 +488,7 @@ qa.guru, Дмитрий Тучс, Михаил Рубанов | Курс по а
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068860.jpg" />
 </div>
 
 
@@ -379,7 +514,7 @@ Skillbox, Виталий Флоренцев, Александр Исупов | �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068859.jpg" />
 </div>
 
 
@@ -405,7 +540,7 @@ Slurm (Слёрм), Марсель Ибраев, Артём Прима | Kuberne
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068858.jpg" />
 </div>
 
 
@@ -431,7 +566,7 @@ balun.courses, Александр Пряхин | Начинающий TeamLead (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068857.jpg" />
 </div>
 
 
@@ -457,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068772.jpg" />
 </div>
 
 
@@ -486,7 +621,7 @@ OTUS, Сергей Кольцов и др. | C++ Developer. Basic. Базовы�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068345.jpg" />
 </div>
 
 
@@ -515,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068094.jpg" />
 </div>
 
 
@@ -541,7 +676,7 @@ TutorPlace, Иван Земцов | Основы кибербезопаснос�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067936.jpg" />
 </div>
 
 
@@ -552,138 +687,6 @@ TutorPlace, Иван Земцов | Основы кибербезопаснос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACC357DB27DB96625116F4B181AF45FED863E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868007   (1067152) от 28.04.2026
-
-TutorPlace, Людмила Рябова | Аналитик данных (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите выйти на рынок как востребованный специалист и построить карьеру в data science? На курсе вы сможете пройти полный цикл анализа – от сбора до презентации результатов – и уверенно пройти собеседование на позицию аналитика!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, программированиеЯзык озвучки: русскийПродолжительность: 03:29:29Реклама: наложение на видео (плашка спонсора и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F45A152D624DE2126277C8358BBA8AD04DB58FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868016   (1067140) от 28.04.2026
-
-TutorPlace, Юрий Мануленко | JavaScript (2025) WEB-DL, PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите уверенно писать код на JavaScript и превращать идеи в работающие проекты? На курсе вы шаг за шагом освоите основы, получите практику и создадите фундамент для старта в мире веб-разработки!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, программирование, JavaScript (JS)Язык озвучки: русскийПродолжительность: 02:45:15Реклама: наложение на видео (плашка спонсора и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BABE6F4400D4E428B24417888B0E8DBCBC6496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1868027   (1067131) от 28.04.2026
-
-TutorPlace, Иван Земцов | Специалист по информационной безопасности (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите стать экспертом в области информационной безопасности и защищать компанию от киберугроз? Наш курс даст вам все необходимые навыки, чтобы успешно строить карьеру и эффективно управлять рисками безопасности!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, программирование, администрированиеЯзык озвучки: русскийПродолжительность: 01:40:26Реклама: наложение на видео (плашка спонсора и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DBAA90B2324757CDDF83766D98ECEE2FD3C9B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867537   (1066893) от 27.04.2026
-
-Otus, Юрий Пасхин, Никита Иванченко, Алесей Черный | Профессиональная разработка в 1С:EDT + Git (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1C:Enterprise Development Tools это современная расширяемая среда разработки прикладных решений. Поддерживает ключевые принципы создания прикладных решений на платформе «1С:Предприятие 8» и содержит большое количество инструментов автоматизации разработки.Производство: OtusЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 36:42:21Реклама: присутствуют вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745219EB5A4E95E01D2AC1E67E5F619D25192392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866010   (1066705) от 24.04.2026
-
-Jeffrey Way | Laracasts Full Dump - Part 2 (2026) WEB-DL [EN / EN Sub] [Дамп сайта 17.04.2026] (2026) WEB-DL
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный дамп laracasts.com за 17 апреля 2026. Все уроки были скачаны напрямую из mux в разрешении 2K с сохранением оригинальных кодеков. Уроки, для которых не доступен 2K, были скачаны в следующем доступном разрешении (FHD или HD).
-
-Поскольку объём с каждым разом становился бы всё больше, решил добавить новые уроки как вторую часть. Поэтому списка "Что нового" (   Читать дальше...   )Производство: laracasts.comЖанр: ВидеоурокиЯзык озвучки: АнглийскийПродолжительность: 109:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF509E4B6B01B200A3BC6F28C7633A316D88905
 ```
 
 https://mybot314.ru/tekegram_catalog/

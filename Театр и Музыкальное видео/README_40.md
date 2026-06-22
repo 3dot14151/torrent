@@ -1,3 +1,144 @@
+###  Публикация: 233763   (816702) от 12.05.2020
+
+Бит- квартет "Секрет" - Снова вместе, 25 лет спустя! (Телеверсия концерта) (2007) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Домой
+02. Ничего не исчезает
+03. Привет
+04. Твой папа был прав(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24D5C911FCB6A8D9BF2C028A17EC6F0E9013878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882586   (816624) от 29.03.2015
+
+Shania Twain - Still The One: Live From Vegas (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия шоу популярной канадской исполнительницы кантри Шанайи Твейн «Shania: Still the One Live From Las Vegas», с которым она выступала в зале Colosseum отеля Caesars Palace целых два года, вплоть до декабря 2014-го.
+Съемки 22 и 23 июля 2014 года.За рип благодарим BLUE_LIFE01. Opening
+02. I'm gonna getcha good!
+03. You win my love
+04. Don't be stupid (You know I love you)(   Читать дальше...   )Жанр: Country, Country PopПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143AE18AE3BD58DBA14BD57C8175D846C9F1B1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882583   (816619) от 29.03.2015
+
+Мама-кот (2013) DVBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли кот высидеть яйцо? А уж тем более научить птенца летать? Конечно же, нет! Но чего не сделаешь, если дал кому-то обещание…
+Однажды прекрасным утром кот Зорбас сидел на балконе, любовался морским пейзажем и мечтал о том, как будет жить в свое удовольствие. И тут на его голову в буквальном смысле свалилась чайка. Силы чайки были на исходе, и она взяла обещание (   Читать дальше...   )Производство: Россия, Московский театр им. Вл.Маяковского, кинокомпания "Дебют"Жанр: Мьюзикл, СемейныйРежиссер: Полина СтружковаАктеры: Алексей Дякин, Нияз Гаджиев, Макар Запорожский, Игорь Евтушенко, Максим Глебов, Вера Панфилова, Мария Фортунатова, Даша Колотинская, Владимир Гуськов, Всеволод МакаровПродолжительность: 01:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C95030CAC47C5A05CE3DBB6D65A6B78718940E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382661   (816596) от 12.05.2020
+
+Бит-квартет "Секрет" - Концерт на платформе МТС Live (2020) WEB-DLRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн-концерт группы «Секрет» который состоялся 3 мая 2020 года на площадке МТС Live. Группу «Секрет» часто называли русскими "Битлз". Пик популярности коллектива пришелся на конец 80-х годов. Песни «Алиса», «Именины у Кристины», «Моя любовь на пятом этаже» стали всенародными хитами. В 2014 году после продолжительной паузы группа «Секрет» выпустила новый (   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9DDBFD5762391784258E40D89F890EC874DBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754523   (815392) от 21.10.2021
+
+Легенды Ретро FM (2013) HDTV [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_815392.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Первом канале большая премьера - международный фестиваль "Легенды Ретро FM" 201301. Лариса Долина - Темп
+02. Лев Лещенко - До свидания, Москва
+03. Алёна Апина - Ксюша
+04. Алёна Апина - ЛёхаЖанр: Концерт, PopПродолжительность: 04:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC81F0ABE6C68996D988D587AC61373B709DE515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358646   (815142) от 13.05.2020
 
 Милый лжец (1976) DVDRip [H.264]
@@ -6,7 +147,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815142.jpg" />
 </div>
 
 
@@ -34,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815132.jpg" />
 </div>
 
 
@@ -61,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815005.jpg" />
 </div>
 
 
@@ -90,7 +231,7 @@ Jean-Michel Jarre - Welcome to the Other Side (Live In Notre Dame VR) (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813680.jpg" />
 </div>
 
 
@@ -119,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813335.jpg" />
 </div>
 
 
@@ -145,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812889.jpg" />
 </div>
 
 
@@ -171,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812882.jpg" />
 </div>
 
 
@@ -198,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812801.jpg" />
 </div>
 
 
@@ -225,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812728.jpg" />
 </div>
 
 
@@ -254,7 +395,7 @@ Nightwish - Vehicle of Spirits (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812626.jpg" />
 </div>
 
 
@@ -283,7 +424,7 @@ Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812614.jpg" />
 </div>
 
 
@@ -312,7 +453,7 @@ Julies Massenet "Manon" (2008) - Netrebko, Villazon, Daza, Fischesser - 2DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811640.jpg" />
 </div>
 
 
@@ -339,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811459.jpg" />
 </div>
 
 
@@ -370,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811076.jpg" />
 </div>
 
 
@@ -396,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810968.jpg" />
 </div>
 
 
@@ -425,7 +566,7 @@ Led Zeppelin - Danmarks Radio (1969) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810859.jpg" />
 </div>
 
 
@@ -455,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810746.jpg" />
 </div>
 
 
@@ -481,7 +622,7 @@ Depeche mode-Devotional. Live In Barcelona (1993) DVDRip (MC GROM-Release)
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810628.jpg" />
 </div>
 
 
@@ -510,7 +651,7 @@ Mylene Farmer - Stade de France (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810587.jpg" />
 </div>
 
 
@@ -539,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810206.jpg" />
 </div>
 
 
@@ -565,7 +706,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809964.jpg" />
 </div>
 
 
@@ -580,146 +721,6 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29E8367A10494F76DF9D5205855370D5B155509E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504200   (809931) от 24.10.2021
-
-Красная рута / Червона рута (1971) TVRip [H.264] [handmade AI colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм полностью колоризован.
-В поезде «Донецк — Верховина» знакомятся карпатская девушка Оксана и молодой шахтёр с Донбасса Борис. В роли Оксаны — преподавательница Черновицкого музыкального училища София Ротар (тогда её фамилия писалась ещё так). Бориса играет солист ВИА «Смеричка» Василий Зинкевич. Парень и девушка влюбляются друг в друга, и весь нехитрый сюжет (   Читать дальше...   )Производство: СССР, УкртелефильмЖанр: мюзиклРежиссер: Роман ОлексивАктеры: София Ротару, Василий Зинкевич, Раиса Кольца, Назарий ЯремчукПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9427E3A6D38183FE0C2C8272F132002DBCFB61F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383594   (809827) от 16.05.2020
-
-Квартирник НТВ у Маргулиса. Группа Маша и Медведи (15.05.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809827.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз в гости к Евгению Маргулису пришла известная российская рок-группа «Маша и Медведи». В 1998 году вышла песня «Любочка», поднявшая молодой коллектив на вершину хит-парадов. Необычные исполнители заняли свое место под музыкальным солнцем и по сей день гастролируют и выпускают альбомы. По словам солистки Марии Макаровой, их музыка — не та, от которой «фанатеют» (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39AD4D66598E3979FBB2A42EA170F526C445C26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383317   (809694) от 16.05.2020
-
-Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-концерт российского исполнителя Noize MC, который состоялся 14 мая 2020 года на площадке МТС Live.
-"Я спою 12 песен в формате #noizemcбезоркестра и отвечу на ваши вопросы", — рассказал музыкант. Музыка Noize MC совмещает в себе черты нескольких жанров и стилей. В своих треках музыкант объединяет речитатив с рок-композициями. С 2011 года он старается (   Читать дальше...   )01. "26.04"
-02. В темноте
-03. Говорящие головы
-04. Иордан(   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 01:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D3F69BB9D442082008EFBCAB5CC544734E2FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504614   (809615) от 24.10.2021
-
-Сборник  видеоклипов (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.
- 1.Alan Walker, Sabrina Carpenter & Farruko - On My Way.
-2.Alyosha - Капли Anton Kraynov REMIX
-3.Anitta - Paradinha
-4.Arash ft Sean Paul - She Makes Me Go.(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB1AFAB93B56B7FB1528B40CC7461DC5FC7F091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134615   (809386) от 16.05.2020
-
-Бенефис (2017) IPTVRip [H.264] (2 части) (Театр им. Е. Вахтангова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия спектакля Театра имени Евгения Вахтангова.
-В сценической версии театра пьеса получила не только новое название, но и несколько измененный сюжет. Легендарный артист пошёл на рискованный эксперимент - он сыграл главную роль, к тому же женскую, с блеском, без фальши, точно выдержав жанр в лучших традициях Театра имени Евгения Вахтангова.Производство: Россия, Театр имени Евгения Вахтангова, ГТРК "Культура"Жанр: Театр, драмаРежиссер: Владимир Иванов, Николай НеклюдовАктеры: Владимир Этуш, Ольга Тумайкина, Евгений Князев, Екатерина Симонова, Сергей Пинегин, Светлана ИозефийСубтитры: отсутствуютПродолжительность: 01:05:00 + 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C7C39828C7BA010822EE7E1F7780827C8F30BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

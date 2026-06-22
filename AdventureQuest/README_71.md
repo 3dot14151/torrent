@@ -1,3 +1,133 @@
+###  Публикация: 1692452   (122643) от 16.01.2024
+
+Progeria: Vae Victis (2024) [Ru/En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Progeria: Vae Victis - визуальная новелла, созданная по мотивам романа российского фантаста Viva la Post Mortem. Откройте для себя альтернативную вселенную, где в XXI веке существует Российская империя, а по улицам ходят волшебники и колдуны. В центре истории находится Кирилл, ученик пятого курса Академии Смерти. В попытках защитить свою семью от ложных обвинений, (   Читать дальше...   )Тип издания: SceneРазработчик: TryhardSЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF3E0265D4807CB5933A5FF1816F56B9E22492D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692356   (122586) от 16.01.2024
+
+Baldr Sky (2019) [En] (1.01) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Baldr Sky - визуальная новелла в аниме-стилистике. В центре истории Коу Кадокура - кибер-офицер, пытающийся раскрыть правду о трагическом деле, которое заставило его забыть о мирном существовании. Над страной нависла угроза войны. Тайные заговоры, секреты и тайны - это все, что ждет героя в процессе прохождения. Но есть одна большая проблема: Коу не помнит свое прошлое. (   Читать дальше...   )Тип издания: LicenseРазработчик: GIGAЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CDF079E4A27242CA3E8BFF5BF8DC4EA0DDFD82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650123   (122282) от 18.01.2024
+
+Viewfinder (2023) [Ru/Multi] (20231024) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viewfinder – отличное сочетание платформера и головоломки, которое точно порадует любителей спокойного геймплея и запоминающейся атмосферы. Нам предлагается исполнить роль человека, чьи сны воплотились в некую реальность и теперь ему предстоит изучить все локации, прежде, чем он вернется обратно. Ты погружаешься в сказочное окружение, обогащённое яркими красками (   Читать дальше...   )Тип издания: SceneРазработчик: Sad Owl StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BEC8F96250337E613AFCEEACB4BBA1E34D340CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694692   (120878) от 26.01.2024
+
+The Source (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-фантастический визуальный роман, в котором наши главные герои путешествуют во времени и открывают тайны своего мира. Дополнительно игроки выделяют такие особенности игры, как визуальная новелла, глубокий сюжет, научная фантастика. Игра рассчитана на одиночное прохождение, многопользовательские режимы не предусмотрены.Тип издания: SceneРазработчик: OctopusesЖанр: Визуальная новеллаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BDFEFB4A71E6B6F919520CDBC8C7BB3FB2CB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694879   (120701) от 27.01.2024
+
+Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сойер планирует провести мероприятие на территории заброшенной фабрики. Она приезжает туда вместе с друзьями, но достаточно быстро понимает, что здесь творятся странные вещи. В какой-то момент становится ясно – надо побыстрее отсюда убраться. Но позволят ли им это сделать?Тип издания: SceneРазработчик: GustavЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, КорейскийЯзык интерфейса: Английский, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AB006F4C170792CB92DAB503323727B1F2C34E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695237   (120572) от 28.01.2024
 
 A Night at the Watermill (2024) [Multi] (1.0.794) License GOG
@@ -6,7 +136,7 @@ A Night at the Watermill (2024) [Multi] (1.0.794) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120572.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120565.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Lil' Guardsman (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120550.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120392.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120333.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120220.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120202.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119575.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119397.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119394.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119390.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Last Worker (2023) [Ru/Multi] (1.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119249.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119054.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Not Another Weekend (2021) [Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118971.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118866.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118863.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Steel Echoes (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118817.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118706.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Splice (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118681.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118645.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118528.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Boxes: Lost Fragments бросает вас с головой в роскошн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DBBC317FD3E3F6518D18C2886BE8F8C99520FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698564   (118514) от 09.02.2024
-
-Nexus PI (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118514.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Nexus PI вы окажетесь на месте Макса, частного детектива в мрачной, разрушенной климатом реальности. Однако надежда все же теплится - Макс обладает необычной способностью перемещаться по реальностям, разыскивая в мультивселенной передовые технологии, чтобы спасти свой гибнущий мир. Действие этого научно-фантастического детектива-нуара разворачивается в двух контрастных (   Читать дальше...   )Тип издания: RepackРазработчик: Lion Sized StudiosЖанр: Logic, Puzzle, First-person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2607A6DEA1DB6AEDFC3FD8E89AE4D02FAA7CC0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698469   (118506) от 09.02.2024
-
-CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь в холодной тусклой комнате и медленно привыкаете к обстановке, которая неожиданно кажется знакомой. Странное ощущение не покидает вас, ведь что-то здесь точно не так. Потом ваше внимание привлекает необычный предмет, лежащий на полу. Это блокнот с надписью CLeM. Покопавшись в его страницах с замысловатыми рисунками насекомых и странными символами, (   Читать дальше...   )Тип издания: RepackРазработчик: Mango ProtocolЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9977BDF3BC0AAB7CCAEC61E5CF3661419E4F29A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698426   (118501) от 09.02.2024
-
-Axiom of Maria (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Axiom of Maria переносит геймера в будущее. Согласно сюжетной линии, все события разворачиваются в 2070 году. Произошла ужасная трагедия в Корее, которая привела к печальным событиям. Так, по данным, неизвестная эпидемия сократила число жителей до 1 миллиона. Теперь практически все управляется при помощи искусственного интеллекта. Казалось бы, можно дальше жить и (   Читать дальше...   )Тип издания: RepackРазработчик: Studio GanzheitЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, КорейскийЯзык субтитров: Английский, Японский, Корейский и другиеЯзык интерфейса: Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA552B08E96F0B0F5897D76A1C65D3AFE754B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698658   (118314) от 10.02.2024
-
-Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118314.jpg" />
-</div>
-
-
-###  Подробнее
-
-На юге Франции 70-х вы играете за частного детектива-новичка, цель которого - выудить тайны одного упрямого старика. По ходу расследования вам предстоит опрашивать свидетелей, разбираясь, когда они лгут и почему, а затем предъявить обвинения тем, кто молчит, тем убегая от своего прошлого. Вам поручено весьма необычное дело Виктора Дювалона. Профессор истории в годах (   Читать дальше...   )Тип издания: RepackРазработчик: Pierre Feuille StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C742AB8A9A73CB338DEA7A22E4D250CCAB4ABE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535083   (117898) от 13.02.2024
-
-The Messenger / Louvre: The Final Curse / Лувр: Последнее проклятие (2000) [Ru] (1.0) Repack Pilotus
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Май 1999 года, Музей Лувр. Агент секретной службы Морган проникает в Лувр. Ее задача - найти четыре объекта до того, как их обнаружат потомки рыцарей- сектантов, которые хотят, соединив эти объекты, вызвать Великий Апокалипсис. Агент Морган предпринимает фантастическое путешествие во времени, которое переносит ее в Лувр времен правления Чарльза V, Генри IV и Луи (   Читать дальше...   )Тип издания: RepackРазработчик: Arxel Tribe, Index+Жанр: Adventure, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47FFD3FD3CCB09E3C517EB5B039EBF933186202
 ```
 
 https://mybot314.ru/tekegram_catalog/

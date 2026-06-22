@@ -1,3 +1,65 @@
+###  Публикация: 967744   (777445) от 07.03.2018
+
+Сказки народов СССР (2007) 4CD [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто дом не строил, думает, что стены сами из земли растут.
+Кто старых сказок не знает, думает, что мудрость на дне котла под пловом лежит.
+Кто хочет ума набраться, меньше говорит, больше слушает.
+А кто хочет сказку людям рассказать, должен помнить, что верёвка хороша длинная, а слово короткое...Жанр: АудиоспектакльПродолжительность: 00:45:03
+
+01 | Лоскутное одеяло | 18:09
+02 | Кукурузинка | 07:16(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC33EDA0B09ACC81AF4F38ECF900A4E83546778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967035   (777193) от 08.03.2018
+
+Феликс Зальтен | Бемби (1980/2008) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть-сказка об олененке Бемби, который сталкивается в лесу с суровыми законами борьбы за выживание. Мир лесных обитателей, окружающих Бемби, наполнен не только борьбой, но и добротой, благородством и состраданием.
+Однажды весной в лесу случилось замечательное событие: у мамы - оленихи родился малыш, принц Бэмби. Все звери и птицы очень обрадовались появлению нового (   Читать дальше...   )Жанр: Музыкальная сказка / инсценировкаПродолжительность: 00:45:07
+
+01 | Бемби, часть 5 | 11:32
+02 | Бемби, часть 6 | 10:50(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB529860A2122A4636955C67168DFFF81DB97DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967778   (777188) от 08.03.2018
 
 Братья Гримм | Храбрый портняжка (1956/2014) [WavPack]
@@ -6,7 +68,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777188.jpg" />
 </div>
 
 
@@ -35,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777140.jpg" />
 </div>
 
 
@@ -61,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777124.jpg" />
 </div>
 
 
@@ -90,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777121.jpg" />
 </div>
 
 
@@ -116,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777117.jpg" />
 </div>
 
 
@@ -143,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777115.jpg" />
 </div>
 
 
@@ -175,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776185.jpg" />
 </div>
 
 
@@ -201,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776175.jpg" />
 </div>
 
 
@@ -227,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776155.jpg" />
 </div>
 
 
@@ -253,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775687.jpg" />
 </div>
 
 
@@ -279,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_775203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_775203.jpg" />
 </div>
 
 
@@ -306,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774987.jpg" />
 </div>
 
 
@@ -332,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774916.jpg" />
 </div>
 
 
@@ -358,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774847.jpg" />
 </div>
 
 
@@ -385,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774772.jpg" />
 </div>
 
 
@@ -411,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774266.jpg" />
 </div>
 
 
@@ -437,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773445.jpg" />
 </div>
 
 
@@ -463,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773261.jpg" />
 </div>
 
 
@@ -492,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773258.jpg" />
 </div>
 
 
@@ -518,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773257.jpg" />
 </div>
 
 
@@ -544,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773118.jpg" />
 </div>
 
 
@@ -572,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771833.jpg" />
 </div>
 
 
@@ -598,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771830.jpg" />
 </div>
 
 
@@ -624,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771708.jpg" />
 </div>
 
 
@@ -635,64 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182F61CB83EBB4651B8867CB1CA0B36C7EBCC6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391839   (771641) от 22.06.2020
-
-Детский ансамбль «Гномы» - Зайцы (2019) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зайцы
-02. Старый утюг
-03. Маленькие мышки
-04. ЖуравушкаЖанр: Детские песниПродолжительность: 00:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C42157A53324A65D0935356F5D27940A9BEB86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391854   (771636) от 22.06.2020
-
-Детский ансамбль «Гномы» - А я уже большая (2018) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. День рождения
-02. Папина дочь
-03. Домовёнок
-04. Я уже большая(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123B42D362017518CDAF647BD3C1920F76DAF2C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

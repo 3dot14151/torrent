@@ -6,7 +6,7 @@ MetaImage 1.9.8 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036055.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pantone Color Manager 2.3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035678.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Corel AfterShot Pro 3.7.0.446 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035429.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ SVGMaker 1.16 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033564.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Goldie Ap‪p 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033319.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ WaiFu2‪x 2.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033299.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ AirMagic 1.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033040.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Photolemur 3 1.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032994.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Morph Age 5.1.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032291.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ GraphicConverter 11.8.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031223.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Flyer Design – Flyer Template for Indeisgn 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031206.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Flyer Design – Flyer Templates for Pages 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031173.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Flyer Creator - Poster Design 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031169.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Flyer Design – Flyer Templates for Word 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031159.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Flyer Design – Flyer Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031152.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Brochure Design - Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031148.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Adobe Photoshop 2020 v21.2.5
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031006.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Kodak Preps 9 v9.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030880.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Hexels 3 v3.1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028910.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Picture Colorizer Pro 2.0.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028365.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Principle 6 v6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027252.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Kit for Affinity-Templates 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025997.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Acorn 6 v6.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025857.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ WidsMob ImageConvert - JPG/PNG 2.17 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025840.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ WidsMob Portrait Pro 2.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025803.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Artboard 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024451.jpg" />
 </div>
 
 

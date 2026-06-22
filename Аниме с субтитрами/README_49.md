@@ -1,3 +1,29 @@
+###  Публикация: 972502   (717354) от 08.06.2016
+
+Valkyrie Drive: Mermaid | Сила Валькирии: Русалочка [2015, TV, 12 эп. + 6 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном из миров нежданная мутация превратила избранных девушек в грозное оружие, поражающее человеческое воображение. Для рождения такого чуда нужна спаянная боевая двойка, где в оружие превращается Экстер, то есть «внешняя», а ее напарница–Либератор способна этим оружием владеть. Сам процесс вооружения или «режим Валькирии» запускается после интенсивной… э-э, взаимной (   Читать дальше...   )Производство: Студия ARMSЖанр: экшн, эччи, юриРежиссер: Канэко ХиракуПеревод: FratelliЯзык субтитров: РусскийПродолжительность: 12 серий по 24 минуты + 6 спешалов по 2 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B14D40E44E4B859EA6A951CAA77DE1BD4F258E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400783   (716858) от 06.08.2020
 
 Gangsta. | Бандиты [2015, TV, 12 из 12] BDRip 1080p raw
@@ -6,7 +32,7 @@ Gangsta. | Бандиты [2015, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716858.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Hakubo | Twilight | Сумерки [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716857.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716589.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Ore Monogatari!! | My Love Story!! | Моя история! [2015, TV, 24] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716410.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Katsugeki Shoujo Tanteidan / Команда боевых девушек-дете
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716408.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Ookami Shoujo to Kuro Ouji | Wolf Girl and Black Prince | Волчица и Чё
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716332.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Photon / Photon - The Idiot Adventure / Фотон: Приключения ид�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715299.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Soukou Kihei Votoms: Yabou no Roots / Armored Trooper Votoms: Red Shoulder Docum
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715171.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Detatoko Princess | Внезапно принцесса [1997, OVA, 3 из 3] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715169.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Soukou Kihei Votoms: Gen-ei Hen / Armored Trooper Votoms: Phantom Arc / Брон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715166.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Grisaia no Meikyuu / Лабиринт Грисайи [2015, TV-спешл] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714795.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика зака�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714217.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Ichigatsu ni wa Christmas | Рождество в январе [1991, OVA, 1 э�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713206.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Girls' Frontline | Shaonu Qianxian: Renxing Xiao Juchang | Девушки на �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713189.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ UFO Nitsukamatta Kodomo-tachi | Дети в плену инопланетян [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713167.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Mouretsu Pirates / Moretsu Uchuu Kaizoku / Bodacious Space Pirates / Лихие 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713073.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Mahou Shoujo Madoka Magica / Magical Girl Madoka Magica / Девочка-вол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712890.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712877.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Beatless | Без пульса | Слабый удар [2018, TV, 24 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712858.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712786.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Bakuon!! | Мотоклуб [2016, TV, 12 + 4sp] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712463.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Tales of Zestiria: The X / Tales of Zestiria: The Cross / Сказания Зе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712097.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Aku no Hana / Flowers of Evil / Цветы зла [2013, TV, 13] BDrip 1080p Hi1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712027.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Rakudai Kishi no Cavalry | Rakudai Kishi no Eiyuutan | Chivalry of a Failed Knig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711341.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Eromanga-sensei (2019) | Эроманга-сэнсэй OVA [2019, OVA, 2 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711005.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Eromanga-sensei (2019) | Эроманга-сэнсэй OVA [2019, OVA, 2 эп.] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79C409755C8A22E813713385E284282C0AEA3BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286531   (710994) от 03.03.2019
-
-Lostorage Conflated WIXOSS | Беспамятство: Объединение WIXOSS [ТВ-4][2018, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассница Судзуко Хомура вернулась в свой родной город Икэбукуро, однако у неё не получалось поладить со своими одноклассницами. Поэтому она решает научиться играть в популярную карточную игру ВИКРОСС, которая на проверку оказывается не так проста, как кажется. Однако Судзуко выдержала испытание и прошла серию жестоких карточных дуэлей ВИКРОСС, где за поражение (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключенияРежиссер: Ёсида РисакоПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D11752D35B160F6D5C598F82A231BBF169F4989
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 344422   (654308) от 31.05.2011
+
+PBS Nature: Собаки, которые изменили мир. Создание собаки [часть 2] / Dogs That Changed The World. Dogs by design (2007) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654308.jpg" />
+</div>
+
+
+###  Подробнее
+
+"У каждого народа своя история происхождения собак. Но откуда они на самом деле? Этот фильм - рассказ о появлении собак на Земле. О самом удивительном скачке эволюции. И рассказ о том, как собака меняла жизнь людей на протяжении 15 тысяч лет. Согласно генетике, эти милые существа вначале были волками. Долгое время считалось, что древние люди забрали волчат и приручили их. Но идея о том, что люди взяли волчат и воспитали из них собак, сейчас под сомнением. Новая теория считает, что волк сам превратился в собаку, в каменном веке, в эпоху мезолита..."Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7258AECFEE05C0180160D30B2ADE753368F87B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140784   (654022) от 08.06.2017
 
 Баскетбол. НБА 2016-2017. Восточная конференция. Финал. Бостон Селтикс – Кливленд Кавальерс (2017) IPTV [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654022.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654014.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Discovery: В погоне за классикой / Chasing Classic Cars (2011)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653939.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653866.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ Discovery: Анатомия тигриного укуса / Anatomy Of A Tiger B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653796.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653729.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653456.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653426.jpg" />
 </div>
 
 
@@ -232,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653330.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ Discovery: Выжить любой ценой / Ultimate Survival (2011) HDTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653230.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653135.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653097.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Discovery: Выжить любой ценой [сезон 7] / Ultimate Survival
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653037.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652649.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652567.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652363.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652359.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652267.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ NHL 10/11, SC: Финал, матч №1: Boston Bruins vs Vancouver Canucks (01
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652237.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652178.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652176.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652119.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652105.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651727.jpg" />
 </div>
 
 
@@ -677,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651563.jpg" />
 </div>
 
 
@@ -689,35 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7CC9FCE31AB50ED7C8968AE4D1EFD6EFF864DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031485   (651491) от 04.07.2016
-
-Футбол. Чемпионат Европы 2016. 1/4 финала. Франция - Исландия (03.07.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651491.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 июля 2016, воскресенье. 22:00 МСК
- 1/4 финала
-Стадион:  Стад де Франс (Сен-Дени, Франция) , 76833 зрителя (96 % при вместимости 80000)
-Главный судья:  Бьорн Куйперс (Олдензал, Нидерланды)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: русский (Сергей Дерябкин (превью), Константин Генич, Роман Гутцайт)Продолжительность: 02:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585811D115A096BAEA096FAF69592F14BA56073E
 ```
 
 https://mybot314.ru/tekegram_catalog/

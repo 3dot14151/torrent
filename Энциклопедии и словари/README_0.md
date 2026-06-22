@@ -1,3 +1,115 @@
+###  Публикация: 1849376   (1053793) от 23.01.2026
+
+Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the American Mosaic (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Which historical events were key to shaping Latino culture? This book provides coverage of the 50 most pivotal developments over 500 years that have shaped the Latino experience, offering primary sources, biographies of notable figures, and suggested readings for inquiry.
+
+Latinos—people of European, Indigenous, and African descent—have had a presence in North America (   Читать дальше...   )Жанр: Энциклопедии, Латинская АмерикаЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB599AFF561F7C943C4CB303642E02E7550C24EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849375   (1053792) от 23.01.2026
+
+BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Established in 1983, Capcom is one of the world's most well-known video game publishers and is recognized for creating many important game franchises, such as Mega Man™, Resident Evil™, and Street Fighter™.
+Full of facts, statistics, and historical information, the Capcom 30th Anniversary Character Encyclopedia will offer any fan of Capcom's illustrious library of (   Читать дальше...   )Жанр: Энциклопедии, ИгрыЯзык: АнглийскийИздательство: DKФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502DC2AA051A9D903844AD98AF6B051B9E2A7DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849364   (1053791) от 23.01.2026
+
+Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053791.jpg" />
+</div>
+
+
+###  Подробнее
+
+A comprehensive depository of all information relating to the scientific and technological aspects of Shale Gas and Alternative Energy.
+Conveniently arranged by energy type including Shale Gas, Wind, Geothermal, Solar, and Hydropower.
+Perfect first-stop reference for any scientist, engineer, or student looking for practical and applied energy information.
+Emphasizes (   Читать дальше...   )Жанр: Энциклопедии, ГидроэнергетикаЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849415   (1053777) от 23.01.2026
+
+Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Places, Things (and Foods) Every Jew Should Know (2022) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Celebrate Jewish culture with this fun collection of facts and stories!
+
+Jewish traditions aren't just something they sing about in Fiddler on the Roof. Explore them all with this delightful book of essential Jewish foods, philosophers, pop culture, and more. It's sure to be way more satisfying than the typical encyclopedia—but probably not as exciting as finding (   Читать дальше...   )Жанр: Энциклопедии, Традиции народовЯзык: АнглийскийИздательство: CallistoФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023E9339C39F1EBCD5A28480C9050ECA8F69A217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849414   (1053776) от 23.01.2026
 
 I. McNeil | An Encyclopedia of the History of Technology (2002) [PDF] [EN]
@@ -6,7 +118,7 @@ I. McNeil | An Encyclopedia of the History of Technology (2002) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053776.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053775.jpg" />
 </div>
 
 
@@ -58,7 +170,7 @@ Lucy Morrison, Staci L. Stone | A Mary Shelley Encyclopedia (2003) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053773.jpg" />
 </div>
 
 
@@ -86,7 +198,7 @@ Pam J. Crabtree, Peter I. Bogucki | Ancient Europe. 8000 B.C. to A.D. 1000. An E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053772.jpg" />
 </div>
 
 
@@ -112,7 +224,7 @@ Mac Fulfer | Amazing Face Reading. An Illustrated Encyclopedia for Reading Faces
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053770.jpg" />
 </div>
 
 
@@ -138,7 +250,7 @@ Karen Bescherer Metheny, Mary C. Beaudry | Archaeology of Food. An Encyclopedia 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053516.jpg" />
 </div>
 
 
@@ -166,7 +278,7 @@ Paul Malmassari | Armoured Trains. An Illustrated Encyclopedia 1825-2016 (2016) 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053512.jpg" />
 </div>
 
 
@@ -192,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052893.jpg" />
 </div>
 
 
@@ -218,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052892.jpg" />
 </div>
 
 
@@ -244,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052891.jpg" />
 </div>
 
 
@@ -272,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052890.jpg" />
 </div>
 
 
@@ -298,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052889.jpg" />
 </div>
 
 
@@ -324,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052868.jpg" />
 </div>
 
 
@@ -350,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052866.jpg" />
 </div>
 
 
@@ -378,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052788.jpg" />
 </div>
 
 
@@ -407,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052640.jpg" />
 </div>
 
 
@@ -433,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052610.jpg" />
 </div>
 
 
@@ -459,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1052201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1052201.jpg" />
 </div>
 
 
@@ -486,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051822.jpg" />
 </div>
 
 
@@ -504,6 +616,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845269   (1050707) от 31.12.2025
+
+С.О. Гусев, А.А. Гребенщиков, А.О. Верчинов (сост.) | Каталог банкнот СССР и России 1917-2025: разновидности, стоимость, водяные знаки. Выпуск 4 (2025) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1050707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цены на банкноты в рублях, в трёх состояниях VF XF UNC.
+- Каталог для всех, нет ограничения по знанию материала для читателя/пользователя. Каталог для человека любого уровня.
+- Водяные знаки все есть в виде рисунков или фотографий.
+- На банкнотах нового образца зашифровано место производства банкноты (ППФ или МПФ) - в каталоге всё разъяснено!(   Читать дальше...   )Жанр: справочная литература, банкноты, бонистикаИздательство: Coins MoscowФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982B9C70E0909BF4D839F1A7021A774D36FC5F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844791   (1050161) от 28.12.2025
 
 Евгений Ларин, Владимир Мордвинцев | Пираты и мореплаватели (2014) [PDF]
@@ -512,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050161.jpg" />
 </div>
 
 
@@ -538,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049202.jpg" />
 </div>
 
 
@@ -551,142 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F33C64114F580149AFDCE4A974951433F5A9126C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841382   (1047955) от 11.12.2025
-
-Н.Л. Мещеряков (гл. ред.) | Малая Советская Энциклопедия [1-е издание] [10 книг] (1928-1932) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малая советская энциклопедия (МСЭ) - одна из популярных универсальных энциклопедий среднего объема, изданных во времена СССР.
-Выпущена в 1928–32 годах. Изначально 1-е издание МСЭ планировалось выпустить в 6 томах. В итоге ее объем увеличился до 10 томов, содержащих более 30 тысяч статей.
-
-МСЭ стала первой законченной многотомной советской энциклопедией (1-е издание (   Читать дальше...   )Жанр: энциклопедияИздательство: Советская ЭнциклопедияФормат: PDFКачество: Обработанный скан, OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5EFA3D55D7ED0158CA7A660082996AE6E526FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841388   (1047953) от 11.12.2025
-
-Н.Л. Мещеряков, О.Ю. Шмидт, П.М. Керженцев (гл. ред.) | Малая Советская Энциклопедия [2-е издание] [11 книг] (1936-1947) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047953.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-е издание Малой Советской Энциклопедии (МСЭ) было выпущено в 11 томах.
-В 1936-1941 вышли 10 томов, но из-за начавшейся Великой Отечественной войны оставшийся 11-й том был издан только в 1947 году.
-Как и у первого издания, тираж составил около 100 тысяч экземпляров, а объём написанного - 790 авторских листов.
-В разные годы главными редакторами издания были Н.Л. (   Читать дальше...   )Жанр: энциклопедияИздательство: Советская ЭнциклопедияФормат: PDFКачество: Обработанный скан, OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FD1A26D7A19AE55BA9DAFEC98F8EF73785AEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380588   (1045020) от 16.01.2023
-
-Михаил Вишневский | Всё о грибах. Популярная энциклопедия (2019) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Всё о грибах" является результатом более чем двадцатилетней научной, просветительской, лекционной и литературной деятельности известного миколога и популяризатора науки Михаила Вишневского. Ориентированное в первую очередь на грибников, издание содержит увлекательную информацию о происхождении грибов и их устройстве, грибах-помощниках и грибах-вредителях, (   Читать дальше...   )Жанр: Энциклопедия, МикологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D612832E7DF4F066658B85BC6B1F01AAF610C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967592   (1045019) от 16.01.2023
-
-А. Поленов | Большая энциклопедия грибника. Собираем и готовим (2014) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит всю необходимую информацию о грибах, произрастающих на территории России. Построение в форме справочника-определителя позволит даже самому неопытному грибнику идентифицировать добычу и узнать о её свойствах. В описании к каждому грибу указаны места произрастания, сезон сбора и рекомендации по приготовлению. Книга дополнена рецептами грибных блюд, которые (   Читать дальше...   )Жанр: энциклопедия, кулинария, домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEC631442D63E230F6D32CFE507350B18D07C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450636   (1039689) от 13.01.2021
-
-С. Лукашевич | Краткий словарь морских выражений [1925] [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании автор стремился охватить термины и понятия, которые давали бы неподготовленному читателю руководствоваться морской популярной литературой. При составлении словаря автор исключил термины и выражения, отражающие бытовую сторону царского флота и дофильтрационный период Красного Флота. Книга представляет интерес лицам, занимающихся морским делом, (   Читать дальше...   )Жанр: Словарь, профессиональная терминологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C2500D0FB13EA62201591DD73305C75958A54E
 ```
 
 https://mybot314.ru/tekegram_catalog/

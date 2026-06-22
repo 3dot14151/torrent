@@ -1,3 +1,81 @@
+###  Публикация: 994405   (891611) от 07.03.2016
+
+Арт новости (07.03.2016) HDTVRip  [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новости искусства, репортажи со всех международных выставок, которые нельзя пропуститьТелекомпания: Museum HDЖанр: ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A9802E865C5658881929B86C7619204FFBEAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994259   (891564) от 07.03.2016
+
+Я блесну непрошеной слезой (07.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрея Миронова большинство зрителей воспринимали стереотипно – баловень судьбы, любимец женщин, веселый парень – все у него, мол, получалось, легко и просто… Но какой ценой давалась ему эта легкость – никто даже не задумывался! Складывалось впечатление, что все, что делал Миронов - он делал ради кого-то. Ради мамы, ради семьи, ради зрителей! Он не жалел ни сил, (   Читать дальше...   )Телекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F442CC605D29BF944CD09FEF66720B585EFDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994352   (891476) от 07.03.2016
+
+Андрей Миронов. Держась за облака (07.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голубоглазый блондин с голливудской улыбкой, фееричный, успешный актер – Андрей Миронов. Он запомнился как мастер комедий, а мечтал о драматических ролях. Его называли героем-любовником, а он всю жизнь искал свою единственную. Боготворил и обожал мать, а она никогда его не хвалила и даже ради любимого праздника – 8 марта – изменила дату рождения сына. Ему завидовали, (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйРежиссер: Всеволод ТарасовПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A905672354A2EB83EA6E55D5520CAD33BB1C5278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994385   (891329) от 07.03.2016
 
 Кристиан Лубутен. На высоких каблуках (2016.03.07) SATRip
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891329.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890298.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889646.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887736.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887731.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Gimme Danger. История Игги и The Stooges / Gimme Danger (2016) BDRip
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886959.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886205.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883620.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883528.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882937.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882394.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882316.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882315.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882261.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880618.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880535.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880076.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878936.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878128.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877438.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872570.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870944.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870940.jpg" />
 </div>
 
 
@@ -592,86 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B16E4EB71B6D94446836B04677D2E803B8E44114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998257   (870373) от 19.03.2016
-
-Георгий Юматов. Амнистия для героя (19.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870373.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 марта 2016 года Георгию Юматову исполнилось бы 90 лет.
-
-Кумир советских зрителей – всех, независимо от возраста и пола, суровый красавец с неотразимым природным обаянием, Георгий Юматов обладал трудным, порой невыносимым характером и… талантом, за который ему прощалось всё. И многодневные кутежи, и неконтролируемые вспышки гнева.Телекомпания: Первый каналЖанр: ДокументальныйРежиссер: Андрей ВладимировПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3ECFBFD1F701C38314C694736B14F069388E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998441   (869956) от 19.03.2016
-
-Scorpions: Вечность и один день / Scorpions: Forever and a Day (2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о рок-группе Scorpions снимался в течение полутора лет. Он рассказывает о 50-летней карьере немецких рок-легенд, акцентируя внимание на гастрольном турне "Final Sting", которое задумывалось группой как прощальное. Но как рассказывает Рудольф Шенкер, основатель группы, во всех городах и странах, где они выступали, поклонники оказывали (   Читать дальше...   )Телекомпания: Германия, DOKfilm Fernsehproduktion, Tempest Film, Deutsche WelleЖанр: Документальный, Биография, МузыкаПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2460A570C18C2166E77A99A5654871D0BCF2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998127   (869814) от 19.03.2016
-
-Scorpions: Вечность и один день / Scorpions: Forever and a Day (2015) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о рок-группе Scorpions снимался в течение полутора лет. Он рассказывает о 50-летней карьере немецких рок-легенд, акцентируя внимание на гастрольном турне "Final Sting", которое задумывалось группой как прощальное. Но как рассказывает Рудольф Шенкер, основатель группы, во всех городах и странах, где они выступали, поклонники оказывали (   Читать дальше...   )Телекомпания: Германия, DOKfilm Fernsehproduktion, Tempest Film, Deutsche WelleЖанр: Документальный, Биография, МузыкаПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FF3359A01633EE0D589496C4551CB7CF5850BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

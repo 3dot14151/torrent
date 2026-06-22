@@ -1,3 +1,159 @@
+###  Публикация: 1561394   (212860) от 04.07.2022
+
+Strange Investigations 2: Two For Solitaire / Удивительные расследования 2: Двойной расклад (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной игры Strange Investigations. Первое расследование завершено, но Дана с Малькольмом снова в деле. Причем зловещее преступление произошло, что называется, на пороге их собственного дома. Детективам понадобятся все их навыки, чтобы найти и обезвредить злодея. Удастся ли им разгадать хитроумный план преступника?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700B491378D254EACFC357516AA6C17F78F67A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831023   (212545) от 28.10.2025
+
+Happy Holidays 4: Trick or Treat / Счастливые праздники 4: Кошелек или жизнь (2025) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение праздничной серии игр поиска предметов с мини-играми Happy Holidays. Исследуйте дома с привидениями, светящиеся веранды и улицы, заполненные монстрами. От некоторых моментов у вас по спине побегут мурашки, а от других - потеплеет на сердце. Решайте головоломки с поиском предметов в уютных и таинственных локациях, от светящегося окна кондитерской до тихой (   Читать дальше...   )Тип издания: UnofficialРазработчик: GameOn ProductionЖанр: Я ищу, КазуальнаяЯзык субтитров: Русский, Французский, НемецкийЯзык интерфейса: Русский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B9F6690DEB71E64476DF8FF9BBB709A796A424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584485   (211966) от 19.10.2022
+
+The Intersection of Worlds: 100 Doors / Перекрёсток миров: 100 дверей (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую увлекательную игру. Получая в наследство особняк с огромным количество комнат, вы не догадываетесь что все не так-то просто! Побег из комнаты в комнату оказывается путешествием по разным мирам и даже путешествием во времени! Какую тайну скрывал от вас дядя, подаривший этот великолепный дом? Есть только один способ это выяснить - исследовать каждую (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383E84A647456EDCB628A90A20DFCE368BC71CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638875   (211864) от 10.06.2023
+
+Strange Investigations 3: Secrets Can Be Deadly (2023) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективной серии игр Strange Investigations. Дана Стрэндж и ее напарник Малькольм едва успели завершить сложное дело, как пришлось взяться за еще одно расследование. Группу молодых людей преследует мстительный призрак, а на подругу Даны совершено нападение. На этот раз в деле присутствует легенда о давних событиях - предательстве, убийстве и мести. Правда (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEC1D36DD65A228D72FFF00C3DDBFB6C602EF6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639241   (211728) от 12.06.2023
+
+Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Ватсон обеспокоен пропажей своей давней подруги мисс Кьюбит накануне ее свадьбы. Полиция думает, что она сбежала из-за предсвадебного волнения и скоро даст о себе знать. Но ни семью Кьюбит, ни Ватсона не устраивает это объяснение. Ведь незадолго до пропажи девушки все стали получать странные послания с пляшущими человечками. Ватсон обращается за помощью к (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F012333560900D87C2ED79576145A2567D3D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585464   (211724) от 22.10.2022
+
+Gloomy Tales: Horrific Show / Мрачные Истории: Кошмарное Представление (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую мистическую игру. На Хэллоуин в Сиэтл приезжает знаменитый странствующий цирк, на сцене которого выступают настоящие монстры, и ваша сестра Аннабель жаждет увидеть их! Во время представление Аннабель выходит на сцену в качестве добровольца, чтобы исполнить номер с исчезновением. Неожиданно загорается цирковой шатер, и вы теряете Аннабель из виду (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9CAABC692DC6536B4CC0D569F1E46AF82E33FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639562   (211588) от 13.06.2023
 
 Royal Romances 3: The Power of Chosen One (2023) [En] (1.0) Unofficial [Collector's Edition]
@@ -6,7 +162,7 @@ Royal Romances 3: The Power of Chosen One (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211588.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Unsolved Case 2: Murderous Script / Нераскрытое дело 2: Сцен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211192.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Unsolved Case 3: The Scarlet Hyacinth (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211162.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ How to Say Goodbye (2022) [Multi] (1.0.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211085.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs / Мост в другой м
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211054.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Royal Romances 3: The Power of Chosen One / Королевские романы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210860.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Cursed Fables 3: A Voice to Die For (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209464.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Unsolved Case 3: The Scarlet Hyacinth / Нераскрытое дело 3: Ал�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209239.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Immortal Love 10: Polar Lights (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208947.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ When The Past Was Around (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208828.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Big Adventure: Trip to Europe 5 / Большое приключение: Пое�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208748.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Immortal Love 10: Polar Lights / Бессмертная любовь 10: Сев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208174.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Whispered Secrets 14: Purrfect Horror / Нашептанные секреты 14
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208096.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Mystical Riddles 3: Ship From Beyond (2023) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208045.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ It Happened Here 2: Beacon of Truth (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207825.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Cursed Fables 3: A Voice to Die For / Проклятые предания 3: Г�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207564.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ One Dreamer (2022) [En] (1.0.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207342.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Dark City 8: Kyiv (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207101.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Ms. Holmes 4: The Case of the Dancing Men / Мисс Холмс 4: Дело о �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207033.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Mystical Riddles 3: Ship From Beyond / Мистические загадки 3: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206954.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Mystical Riddles 3: Ship From Beyond / Мистические загадки 3: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FC08C72BB1A68C5C0B205BC0715FE3D0CF8A982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652225   (206654) от 10.08.2023
-
-Connection of Worlds 2: Star Riddle (2023) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агентство "Следопыт миров" снова в деле! Следуйте за всемирно известными детективами, присоединяйтесь к расследованию серии краж звезд из разных уголков Вселенной! Выследите таинственного короля Джотара. Допросите коварного злодея, чтобы выяснить, кто и зачем его нанял, а затем отправляйтесь в приключение по множеству миров в поисках истинного организатора! (   Читать дальше...   )Тип издания: UnofficialРазработчик: Relax GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3DE47700CDEAB3E1A1287699042C02168C1C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653947   (206030) от 18.08.2023
-
-Royal Romances 4: Endless Winter / Королевские романы 4: Вечная зима (2023) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр Royal Romances. На королевство опустилась вечная зима, а холод и голод вынудили людей покинуть свои дома в поисках убежища. Как долго это может продолжаться, пока в лесу никого не останется? В эти беспокойные дни, когда хранительнице леса становится особенно сложно следить за благополучием земель, находящихся под ее опекой, эльфийка (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653684   (206014) от 17.08.2023
-
-It Happened Here 2: Beacon of Truth / Это случилось здесь 2: Свет правды (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение детективной серии игр It Happened Here. Лауреат премии в области правдивых преступлений Эмили Смит собирается ввязаться в дело века! К ней обращается ее близкая подруга Кэтрин с просьбой расследовать смерть ее мужа десятилетней давности. Эмили берется за дело и вскоре погружается в историю маленького городка и загадочного маяка, о котором ходят недобрые (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7266720CE967C8E2E11256F349CBDF5EE2CDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830774   (205708) от 27.10.2025
-
-Halloween Stories 9: The Death Card / Хеллоуинские истории 9: Карта смерти (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии страшилок Halloween Stories. Кристина с мужем Марком и друзьями приезжают в родной город, чтобы возродить любимую традицию из детства - провести ночь на Хэллоуин в «доме ведьмы», который, по словам местных жителей, когда-то принадлежал настоящей ведьме. Но этот Хэллоуин будет совсем не таким, как обычно, ведь на их вечеринке появится (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7F9F339CF7063825404B12F93622D2899F42E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656569   (203249) от 31.08.2023
-
-City Legends 3: Ghost of Misty Hill / Городские легенды 3: Призрак Мисти Хилл (2023) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр City Legends. В жизни вашего старого друга, писателя Майкла Ринга, наступил трудный период. Перед смертью его мать попросила сына обратиться в лечебный центр Мисти-Хилл, чтобы взять перерыв. Однако вскоре вы получаете загадочное сообщение от Майкла, в котором он умоляет вас о помощи. Неужели жуткие слухи о лечебном центре всё-таки (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8921EDCC2DCAA6C66E3609537F0F72301BDAD080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293865   (202315) от 21.08.2023
-
-Sherlock Holmes and The Hound of the Baskervilles / Шерлок Холмс и собака Баскервилей (2010) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте героем нового увлекательного приключения, основанного на знаменитом произведении Артура Конан Дойля. На этот раз легендарных сыщиков посетил сэр Генри Баскервиль и рассказал загадочную историю о том, что по территории графства Девоншир вот уже много лет бродит огромная собака и не дает покоя обитателям Баскервиль-холла. Генри рассказал, что его предки, начиная (   Читать дальше...   )Тип издания: UnofficialРазработчик: Frogwares Game Development StudioЖанр: Quest, Adventure, Hidden ObjectЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D3B8DEB7B3A7C57E01199481B35038EC02E1D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

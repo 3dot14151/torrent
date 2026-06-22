@@ -1,3 +1,29 @@
+###  Публикация: 1845410   (1050691) от 31.12.2025
+
+VK Музыка: песни и подкасты v8.7 Mod by VK Equals [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050691.jpg" />
+</div>
+
+
+###  Подробнее
+
+В VK Музыке можно слушать треки из ВКонтакте и ОК, найти интересные подкасты на русском языке и аудиокниги, включить любимое радио. Музыка без интернета: оформите подписку, скачайте песни прямо в приложении и слушайте офлайн.Тип издания: ModРелиз состоялся: 30.12.2025Разработчик: VK.comПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59E1797D4A9A283B64E4FC6EF3A6348B822AFE2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845415   (1050690) от 31.12.2025
 
 Night clock / Ночные часы v2.11.17 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +32,7 @@ Night clock / Ночные часы v2.11.17 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050690.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Grok - ИИ ассистент v1.0.96-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050689.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Seven / 7 Минут Упражнение v9.24.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050683.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ STEEZY Studio - Learn To Dance v5.19.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050682.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ KineMaster - Video Editor & Maker v8.0.9.35926.GP Mod by youarefinished [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050676.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Relax Rain: sleeping sounds v9.3.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050675.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Photo Mate R3 v4.1.0 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050667.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Listen Audiobook Player v5.4.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050666.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ SuperImage Pro - AI Enhancer v3.16.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050665.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Photo Lab PRO v3.13.80 Mod by MixRoot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050663.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ FBReader Premium v3.8.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050662.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050660.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Bendy: Lone Wolf v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050573.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050436.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Red Dead Redemption v1.53.61003005 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050400.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050363.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050321.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Auto Reply: автоответчик v6.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050318.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050317.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050316.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ PhotoDirector v20.8.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050300.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050299.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Photo Studio PRO v2.8.8.4702 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050292.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v3.1.47 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050291.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050289.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E38E8ED3D0446FA217874DEFABD1C1A8DFF271B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844643   (1050288) от 27.12.2025
-
-Цитаты+ — Вдохновение дня v3.7.6 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quotes+ — Твой карманный источник ежедневного вдохновения. Наслаждайся более чем 2800+ вдохновляющими цитатами, чтобы поднять настроение, замотивироваться или задуматься. Простой, чистый и красивый дизайн — Quotes+ помогает сосредоточиться на главном.Тип издания: ProРелиз состоялся: 26.12.2025Разработчик: Sashkin AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB7672C6C5AC5D7403B934BA2EC35A9EEFE9E54
 ```
 
 https://mybot314.ru/tekegram_catalog/

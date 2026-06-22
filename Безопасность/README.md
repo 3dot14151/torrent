@@ -7,7 +7,7 @@ TinyWall 3.5.1 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072467.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Minimal Firewall 2.8.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072421.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ MinerSearch 1.4.9.1 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071828.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Malwarebytes AdwCleaner 8.8.1 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071533.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Minimal Firewall 2.8.2 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070619.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Kaspersky Free 21.25.7.504 (a) Repack by LcHNextGen (22.05.2026) [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070385.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Text Encrypter 256 1.0.2.5 Portable [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070198.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Auslogics Anti-Malware Pro 1.23.0.4 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070191.jpg" />
 </div>
 
 
@@ -212,6 +212,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872267   (1070070) от 21.05.2026
+
+Auslogics Anti-Malware Pro 1.23.0.4 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1070070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Anti-Malware предлагает дополнительную защиту для вашего основного антивируса, установленного в системе. Утилита, совместимая с другими программами безопасности, поможет проверить ваш компьютер на наличие распространенных вредоносных программ и опасных изменений в критических областях системы Windows, потенциальных угроз безопасности ваших данных и потенциально (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4959D80D0618AC3800EAE9CF4E23DDF4669A81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871769   (1069946) от 18.05.2026
+
+Sandboxie 5.72.6 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1069946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E22668FA713F8968F5CFEE5CB2067C6F989ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871770   (1069943) от 18.05.2026
+
+Sandboxie plus 1.17.6 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1069943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0564049A41EB45C4DA89A6B10951362387D306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871203   (1069411) от 15.05.2026
 
 PrivWindoze 7.0.0 [Multi/Ru]
@@ -220,7 +298,7 @@ PrivWindoze 7.0.0 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069411.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ Minimal Firewall 2.8.1 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069288.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ Watchdog Anti-Malware Premium / Business 4.4.1 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069108.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ Microsoft Safety Scanner 1.449.583.0 Portable [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069007.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ Minimal Firewall 2.8.0 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068912.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ MinerSearch 1.4.9.0 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068766.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ Windows Firewall Control 6.32.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068764.jpg" />
 </div>
 
 
@@ -399,6 +477,58 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869400   (1068289) от 06.05.2026
+
+Sandboxie 5.72.5 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A605AA6D3C03FB5F4BF1182E09E7B02A5889F701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869404   (1068288) от 06.05.2026
+
+Sandboxie plus 1.17.5 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A58F00E6AF96A7A2630A57A33F7DA9E2CEF896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868808   (1067723) от 02.05.2026
 
 Windows Firewall Control 6.32.0.0 [Multi/Ru]
@@ -407,7 +537,7 @@ Windows Firewall Control 6.32.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067723.jpg" />
 </div>
 
 
@@ -433,7 +563,7 @@ Minimal Firewall 2.7.3 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067302.jpg" />
 </div>
 
 
@@ -459,7 +589,7 @@ Nsauditor Network Security Auditor 3.2.7 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066851.jpg" />
 </div>
 
 
@@ -485,7 +615,7 @@ Windows Firewall Control 6.31.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066174.jpg" />
 </div>
 
 
@@ -511,7 +641,7 @@ Windows Firewall Control 6.31.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066127.jpg" />
 </div>
 
 
@@ -537,7 +667,7 @@ Glary Malware Hunter Pro 1.215.0.849 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066079.jpg" />
 </div>
 
 
@@ -549,142 +679,6 @@ Malware Hunter - отмеченный наградами продукт, кот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F22A33BB1C35107512DD55C71F636D9B31AB344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864298   (1064606) от 
-
-Minimal Firewall 2.7.2 Portable [En]
-
->>Безопасность
->>Firewalls
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5AFEFF4783827D13F321641F88E30606B392AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862444   (1064152) от 30.03.2026
-
-Glary Malware Hunter PRO 1.214.0.848 Portable by FC Portables [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
-Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C804156D7A1715C291873CACF2BE59AF19F76B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862482   (1064127) от 30.03.2026
-
-Glary Malware Hunter Pro 1.214.0.848 [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
-Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E826520926859217D0623EFA2B1BFB066EB8C9DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862846   (1063888) от 01.04.2026
-
-simplewall 3.8.7 + Portable [Multi/Ru]
-
->>Безопасность
->>Firewalls
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой в использовании и нетребовательный к ресурсам компьютера фаервол, имеющий все необходимые опции для блокировки входящего и исходящего трафика приложений.
-Поддерживаются два режима работы: фильтрация по белому или черному списку.
-Работа simplewall реализована через возможности WFP (Windows Filtering Platform).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBAA1DD188A0A97EF5654BB28D8113D23E85114A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863111   (1063711) от 02.04.2026
-
-Abelssoft KeyDepot 2026.12.11 & Portable [Multi]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063711.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современную цифровую эпоху, когда количество онлайн-аккаунтов постоянно растет, безопасное управление паролями становится важнейшей задачей. KeyDepot, менеджер паролей последнего поколения с высоким уровнем безопасности, совершает революцию в способах защиты нашей цифровой личности и экономии драгоценного времени.
-
-С KeyDepot запоминание множества паролей становится (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D473D2BF394A25891778F6EF25CDFE2749622D
 ```
 
 https://mybot314.ru/tekegram_catalog/

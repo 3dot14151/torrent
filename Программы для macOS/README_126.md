@@ -1,3 +1,109 @@
+###  Публикация: 1605770   (237561) от 19.01.2023
+
+App Tamer 2 v.2.7.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237561.jpg" />
+</div>
+
+
+###  Подробнее
+
+При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!Тип издания: macOS SoftwareРелиз состоялся: 16.01.2023Разработчик: © 2010-2023 St. Clair SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4902E77EFF33C88606F6D8F09697B7F4A55016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605654   (237535) от 19.01.2023
+
+Inboard - Image Organizer 1.1.6 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет Вам легко организовать фотографии и скриншоты. Inboard обеспечивает интуитивный пользовательский интерфейс, где ваши изображения организованы в библиотеку и есть возможность добавить любое число изображений.
+Изображения показаны в виде превью, вы можете изменить их размер, используя ползунок. К тому же, вы можете сортировать изображения по дате (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2023Разработчик: © Regular SIAПоддерживаемая ОС: macOS 10.15 или вышеЯзык интерфейса: Английский и Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D395C58A5C48CE7B4316BE2D2C48A6716C3EEAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450737   (237465) от 27.02.2021
+
+Script Debugger 7 v7.0.13 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
+Редактор полностью поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2021Разработчик: Late Night Software Ltd.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B6CD31B9458FE590D8F5CCFD947294280EC549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450745   (237456) от 27.02.2021
+
+WebToLayers 1.2.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237456.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebToLayers преобразует веб-сайты в документы Photoshop. Другими словами, приложение позволяет создавать скриншоты веб-страниц, сохраняя каждый элемент в отдельном слое. Приложение сэкономит вам много времени при перепроектировании или улучшении существующих веб-страниц.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2021Разработчик: Jeremy VizziniПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F080D46A8373AC4C38B4BB207F04FED86E3CD038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639238   (237352) от 12.06.2023
 
 Debit & Credit Premium - Personal Finance Manager 6.1.5 [Multi/Ru]
@@ -6,7 +112,7 @@ Debit & Credit Premium - Personal Finance Manager 6.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237352.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ NCH MixPad Masters 10.61 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237321.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Bigasoft WTV Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237124.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ BetterMouse 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237110.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Viper FTP 6.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237107.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ iRightMouse Pro 2.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237043.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ HDRsoft Photomatix Pro 7.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237038.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ BookMacster 2.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237027.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ Lasso 1.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237003.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Markster 3.0.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236927.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ BookMacster 3.0.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236918.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ HistoryHound 2.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236873.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ Wolf 2 - Responsive Designer Pro 3.04 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236859.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ PicFindr 1.4.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236782.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ Cisdem PDF Compressor 4.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236774.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ OpenIn 4 Advanced Link Handler 4.0.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236701.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ Super Vectorizer Pro for Mac 2.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236699.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ AudFree Tidable Music Converter 2.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236691.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ iDealshare VideoGo for Mac 6.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236681.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ AudKit Tidal Music Converter 2.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236654.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ BetterDisplay Pro for Mac 2.0.1 pre-release [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236639.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ Boss Radar 3.05 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236614.jpg" />
 </div>
 
 
@@ -569,111 +675,6 @@ Boss Radar - отслеживание устройств Bluetooth. Соверш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49EE12071B3ABB4F5CE5E1C39A7281E27D83C748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608862   (236598) от 01.02.2023
-
-Outline 3.2301.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outline для Maс это интуитивное приложение для заметок с удобной организацией рабочего пространства: блокноты, секции, группы секций и страницы помогут Вам содержать записи в порядке независимо от сложности их структуры.
-Outline для Маc идеален для студентов, преподавателей, врачей, юристов, руководителей и всех, чья повседневная жизнь включает ведение записей любого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2023Разработчик: © 2023 GORILLIZED CORPORATIONПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3393FD5391FEF187103D10BB444A3126111A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505863   (236564) от 28.10.2021
-
-start 5.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236564.jpg" />
-</div>
-
-
-###  Подробнее
-
-start - это уникальный лаунчер для macOS, позволяющий быстро и легко открывать приложения, документы или папки. Создайте порядок в Dock и начните работу с помощью приложения Smart Launcher. start поддерживает вас и ваш рабочий процесс благодаря хорошо спланированной организационной системе для приложений и быстрому доступу к тому, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: Gerald KoederПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE03DCC69BDD34236B5EBD37DA9E4F2EDB17A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640153   (236531) от 16.06.2023
-
-Keep It 2.2.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 2004 - 2023 Reinvented SoftwareПоддерживаемая ОС: macOS 11.3+Язык интерфейса: Английский, Арабский и Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53AE4D0C409DFA2F813D64A48DA8645AAE158B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641367   (236473) от 22.06.2023
-
-PCDJ LYRX 1.10.1.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236473.jpg" />
-</div>
-
-
-###  Подробнее
-
-LYRX — это современное и быстрое программное обеспечение для караоке, разработанное для удовлетворения всех ваших потребностей.Тип издания: macOS SoftwareРелиз состоялся: 13.06.2023Разработчик: © 2006 - 2018 DIGITAL 1 AUDIO INCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEC5EB003B8086B644C447A7DC441C4D94CFE2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

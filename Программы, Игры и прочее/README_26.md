@@ -1,3 +1,31 @@
+###  Публикация: 1449680   (1029686) от 22.02.2021
+
+Vinylage Music Player v2.0.16 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vinylage Music Player - стильный аудио-плеер с анимацией винилового проигрывателя.
+
+Используя Vinylage Music Player вы можете не только насладиться любимой музыкой, но и выбирать из нескольких моделей реальных Hi-Fi проигрывателей, менять цвет виниловых дисков и тип исторически достоверных наклеек, услышать шум и треск винила в тишине между музыкальными треками и (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 13 октября 2020 г.Разработчик: Valentyn VieshchunovПоддерживаемая ОС: Android 4.0.3Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E0300B63678E0EFF114BE77B10613DE8ADC377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449842   (1029512) от 23.02.2021
 
 Православный Kалендарь v2.4 [Ru]
@@ -6,7 +34,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029512.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Transit King Tycoon v4.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029300.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Mekorama v1.4.6 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029277.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Enhance it v4.0.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029208.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028609.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028327.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ ElLi - Расчет проводки v1.3.33  Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028283.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028279.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ Calc for Electronics v3.3.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028043.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ Vector Full v1.2.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027893.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ Plague Inc + Редактор сценариев v1.18.5 b1270 / v1.2.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027855.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ Grand Theft Auto: SAMP Mobile v7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027841.jpg" />
 </div>
 
 
@@ -330,7 +358,7 @@ Piano Melody ver.Tokyo Ghoul Fix (200) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027836.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ Freezer v0.6.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027834.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027714.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Queen Rock Tour v1.1.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027697.jpg" />
 </div>
 
 
@@ -438,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027684.jpg" />
 </div>
 
 
@@ -464,7 +492,7 @@ Hungry Dragon v3.10 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027680.jpg" />
 </div>
 
 
@@ -490,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027676.jpg" />
 </div>
 
 
@@ -516,7 +544,7 @@ Jetpack Joyride + Mod (Unlimited Money) v1.40.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027517.jpg" />
 </div>
 
 
@@ -542,7 +570,7 @@ Slay the Spire v2.2.6 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027475.jpg" />
 </div>
 
 
@@ -568,7 +596,7 @@ SAI (Split APKs Installer) v4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027463.jpg" />
 </div>
 
 
@@ -594,7 +622,7 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027391.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ Evolution Never Ends / Эволюция никогда не заканчивае
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027329.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ Handy GPS 35.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027168.jpg" />
 </div>
 
 
@@ -658,35 +686,6 @@ Handy GPS - Настоящий ручной GPS с множество функц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41175347239423C818C8A95F689665BB9875CECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415725   (1027141) от 09.03.2021
-
-Мой ежедневник v1.5.2.8 [Ru/Multi] - список дел, календарь, органайзер (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение состоит из следующих инструментов:
-- Ежедневник
-- Календарь
-- Планировщик дел(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 01.03.2021Разработчик: Time Management StudioПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD6C9F4039EA17D1AD3CAA96868B90F2F5688B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

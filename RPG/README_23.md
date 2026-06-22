@@ -1,3 +1,107 @@
+###  Публикация: 1295071   (621948) от 11.04.2019
+
+Grimshade (2019) [Ru/En] (1.0.5) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grimshade — это история компании героев, волею судеб втянутых в круговорот событий, развернувшихся в мире Ри'Фа. Высокие городские стены уже не защищают жителей от нападений жутких монстров, обитающих в окрестных лесах.Тип издания: RepackРазработчик: TALEROCKЖанр: RPG, Adventure, ActionЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCF8795814C76B0C66DBEB51891DB461AC4D061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115080   (621227) от 25.06.2017
+
+We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звёзды мира гномов медленно умирают, и целая раса оказалась на грани уничтожения. Спасти ее могут лишь три гнома-астронавта, отправившиеся на поиски новой звезды в недрах Бесконечного Камня. Управляйте Поршнем (Forcer), Крушителем (Smashfist) и Тенью (Shadow), открывая вместе с ними неизвестные территории каменной вселенной, встречая новые цивилизации и древних чудовищ (   Читать дальше...   )Тип издания: LicenseРазработчик: Whale Rock GamesЖанр: Экшн, Приключение, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD37CA8EE1E7468175B2482DB44A4CFCF2CF490D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036467   (620429) от 20.07.2016
+
+Mugen Souls (2015) [Ru] (1.03/dlc) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во вселенной есть набольшая галактика, состоящая из семи миров, которые существуют независимо друг от друга. Это позволило каждому из них создать свою неповторимую культуру. Но в один из дней Богиня Чоу-Чоу решает выпустить указ, согласно которому все люди из всех миров должны приклониться перед ней. Mugen Souls – японская ролевая игра с пошаговыми боями и огромными (   Читать дальше...   )Тип издания: RepackРазработчик: Idea FactoryЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81576D840CF4722E3C634129BDF80AB15A9078E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036280   (620419) от 20.07.2016
+
+I am Setsuna (2016) [En/Ja] (1.0) License CODEX
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ради сохранения мира раз в десять лет жители земель приносят кого-то в жертву монстру, обитающему на острове. Но в один из годов монстр очень разозлился, и чтобы его успокоить, в качестве жертвы ему предлагают Сетсуну – девушку, обладающую великой магической энергией. Теперь ей вместе со своими телохранителями предстоит отправиться на церемонию жертвоприношения с (   Читать дальше...   )Тип издания: LicenseРазработчик: Tokyo RPG FactoryЖанр: RPG (Japanese-style), 3DЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0AD321B402BA7EB9DE9123F5D93683111C1049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036401   (620311) от 20.07.2016
 
 I am Setsuna (2016) [En/Ja] (1.0) Repack Other s
@@ -6,7 +110,7 @@ I am Setsuna (2016) [En/Ja] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620311.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Final Fantasy XV / Final Fantasy 15 (2018) [Ru/Multi] (1138403/dlc) Repack R.G. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618672.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.3.1/dlc) License GOG [Enhanced Co
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618247.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Book of Demons (2018) [Ru/Multi] (1.01.18203) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614815.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ South Park: The Fractured but Whole (2017) [Ru/Multi] (1.0/dlc) License CODEX [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613007.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Grim Dawn (2016) [Ru/Multi] (1.0.1.1/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612452.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612060.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Medieval Dynasty (2021) [Ru/Multi] (1.3.0.5) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609157.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Bastion [Ru/En] (RePack/1.0r21) 2011 l Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608955.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Bastion [Ru/En/Multi6] (RePack/1.0r21) 2011 l R.G.Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607073.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Ghost of a Tale (2018) [Ru/Multi] (8.33) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606001.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Xanadu Next (2016) [En] (24.11.2016) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605400.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Bastion [Ru] (RePack/1.0r21) 2011 l Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605032.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Shadowrun: Dragonfall (2015) [Ru/Multi] (2.09) Repack xGhost [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604594.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Sudeki (2005) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604179.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Bard's Tale (2004) [Ru/Multi] (2.7.2.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603624.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Grimshade (2019) [Ru/En] (1.1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603027.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ For The King (2018) [Ru/Multi] (1.0.10.9949) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603024.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Serpent Rogue (2022) [Ru/Multi] (0.0.160) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602753.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ We are the Dwarves (2016) [Ru/Multi] (1.0/upd8/hf) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602323.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Fall of Light (2017) [Ru/Multi] (1.50c) Repack Other s [Darkest Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601537.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Witches, Heroes and Magic (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600783.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Witches, Heroes and Magic - стратегия наподобие Heroes of Migh
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:033E45A49BF0471FCC6BC1A593E200AC9AD36218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528922   (600711) от 01.05.2022
-
-The Waylanders (2022) [Ru/Multi] (1.10) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может пойти не так на первой встрече кельтского народа с его богами, Туата де Дананн? Оказывается, очень многое: вместо празднества и просветления вы чудом избегаете гибели в битве с одним из божеств и выпадаете из потока времени. Волшебная порча окутала ваши родные земли, а некогда мирное королевство разваливается на грызущиеся за трон фракции. Богатое полотно (   Читать дальше...   )Тип издания: LicenseРазработчик: GATO STUDIOЖанр: Приключение, Ролевая игра, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E5928CF54544B9E2BD42FC56FD777969A7C0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297979   (600671) от 30.04.2019
-
-Fall of Light (2017) [Ru/Multi] (1.50c) License PLAZA [Darkest Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600671.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли Никса, воина, чьи славные годы давно позади, вам предстоит избегать Теней, пробираться через извилистые коридоры мрачных подземелий, прокладывать путь по темному миру на поверхности и сражаться с послами Тьмы в давным-давно покинутых храмах. Путь будет полон головоломок и смертельно опасных ловушек, что отделяют вас от цели: привести свою дочь Эфиру в последнее (   Читать дальше...   )Тип издания: LicenseРазработчик: RuneHeadsЖанр: Action, RPG, Adventure, Puzzle, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE10C0FC15BCDDC4E2B3CBF82EF9449B8161845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299617   (597408) от 02.05.2019
-
-SUPER DRAGON BALL HEROES WORLD MISSION (2019) [Ru/Multi] (1.0) License SKIDROW
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Dragon Ball Heroes World Mission — тактическая карточная игра с бодрым противостоянием, глубокой стратегией и захватывающим сюжетом, разворачивающимся в обширной вселенной Dragon Ball Heroes. Отправляйтесь в путь вместе со своим аватаром и станьте чемпионом мира. Вы должны попасть внутрь игры и в команде с персонажами Dragon Ball восстановить мир в реальности.Тип издания: LicenseРазработчик: Dimps Corporation, SAFARI GAMESЖанр: Action, 3D, StrategyЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C7C2EE440B36AC0C78C779906F55E0958CDAB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232918   (594754) от 27.06.2018
-
-Drakkhen (1989) [En] (1.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фэнтезийная РПГ, четыре персонажа, необычный для жанра вид от третьего лица. Речь идет не о привычной изометрии, а именно о камере, находящейся за спинами вашего отряда. Четыре персонажа посещают различные опасные места, противоборствуя различным недружелюбным монстрам. Очередная миссия по спасению мира ложится на этих героев и усердного геймера.Тип издания: LicenseРазработчик: Infogrames Europe SAЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50980D886DCC0F34B47A7931227CAE428917FF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

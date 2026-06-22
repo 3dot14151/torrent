@@ -1,3 +1,57 @@
+###  Публикация: 602263   (997752) от 12.01.2013
+
+Святая Тереза имени Младенца Иисуса (Тереза из Лизье) | Повесть об одной душе [1992] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997752.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Святая Тереза, в отличие от великих святых прошлого, избирает малый путь. Эта первая особенность её личного credo. Тема детскости оказывается для нее чуть ли не главной — детскости, которая становится определяющей характеристикой нашего «я». Слова «если не обратитесь и не будете как дети...» бесконечно часто цитировались во время проповедей, но евангельский призыв к детскости в истории христианства так и не был осмыслен, пока не появилась «История одной души» Терезы из Лизье."
+
+Священник Георгий ЧистяковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6284F7076BBD634536E78144374ACA5639F4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602142   (997532) от 13.01.2013
+
+Майкл Хейз, Лайам Джирон (под ред.) | Современное католическое богословие. Хрестоматия [2007] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрестоматия состоит из разделов, посвященных Библии, христианской этике, богослужению, личности Христа, учению о церкви. Книга адресована прежде всего студентам и преподавателям семинарий и богословских факультетов ВУЗов в качестве учебного пособия по курсам «Введение в Ветхий Завет», «Введение в Новый Завет», «Введение в богословие», «Этика и аксиология религии», «История современной церкви».Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387D2C1E8986295DE402AE84699B0E1893C34C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602251   (997506) от 13.01.2013
 
 Цветочки Святого Франциска Ассизского. Рассмотрения Таинства Святых Стигматов. Житие брата Джинепро [2011] [PDF]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997506.jpg" />
 </div>
 
 
@@ -36,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997502.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997270.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997261.jpg" />
 </div>
 
 
@@ -118,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997244.jpg" />
 </div>
 
 
@@ -146,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997226.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997223.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997221.jpg" />
 </div>
 
 
@@ -230,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997217.jpg" />
 </div>
 
 
@@ -257,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997216.jpg" />
 </div>
 
 
@@ -285,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997182.jpg" />
 </div>
 
 
@@ -311,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997158.jpg" />
 </div>
 
 
@@ -337,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997025.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997011.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996726.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996178.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996171.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995556.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994855.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994714.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994669.jpg" />
 </div>
 
 
@@ -600,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992733.jpg" />
 </div>
 
 
@@ -626,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992693.jpg" />
 </div>
 
 
@@ -652,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989356.jpg" />
 </div>
 
 
@@ -669,67 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1E7F186E4E929A98FDB2A44411386CEC5C56F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611217   (989229) от 30.01.2013
-
-Курамухаммад хаджи Рамазанов | Основы мусульманской религии. Часть I (учебник) [1999] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-я часть учебника "Основы мусульманской религии": Общие сведения о мусульманской религии. Столпы имана.
-
-Рекомендовано ДУМД в качестве учебника по основам мусульманской религии.
-
-В брошюре 112 страниц, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D084099841E1C83E9D62972D4822C80B1740E10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611214   (989188) от 30.01.2013
-
-Архимандрит Тихон (Покровский) | Двенадцать Евангелий святых страстей Христовых [репринт ≈ 1998] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Репринт книги дореволюционного издания, выполненный ориентировочно в 1998 году санкт-петербургским издательством "Алгоритм".
-
-Полное название книги - "Двенадцать Евангелий святых страстей Христовых. Евангельские чтения святых страстей Господа и Спасителя нашего Иисуса Христа, предлагаемые церковью в великий пяток на утрени. С объяснениями, составленными архимандритом Тихоном (Покровским)".
-3-е издание.
-
-В брошюре 24 страницы, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2808B1196ECAD240674A93CC39CEDD203DD9CBBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

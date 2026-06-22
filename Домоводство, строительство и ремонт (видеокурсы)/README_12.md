@@ -1,3 +1,29 @@
+###  Публикация: 1736940   (50013) от 14.07.2024
+
+Alan Turner | Отделка выполненная вручную (2020) WEBRip [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повышайте качество своих проектов, изучая методы отделки дерева вместе с основателем Philadelphia Furniture Workshop Аланом Тернером. На этом занятии вы приобретете знания по выбору и нанесению шеллака, масляно-лаковых смесей, гель-лаков и даже лаков на водной основе. Начните с освоения подготовки поверхности, чтобы настроиться на успех. Затем Алан научит вас простым (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF4691296B12E9A2470195A0376B53464149213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737314   (49861) от 16.07.2024
 
 George Vondriska | Деревообработка: Все о дереве (2018) WEBRip [EN, RU / EN Sub]
@@ -6,7 +32,7 @@ George Vondriska | Деревообработка: Все о дереве (2018)
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49861.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49214.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ George Vondriska | Основы работы с ленточной пилой (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49177.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49080.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49018.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49000.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ George Vondriska | Основы работы с циркулярной пило�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48893.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ ColorSchool, Наталья Маркевич | Свет в саду (2024) WEB-D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48870.jpg" />
 </div>
 
 
@@ -230,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48816.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ Doug Stowe | Основы изготовления шкатулок (2007) DVDRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48581.jpg" />
 </div>
 
 
@@ -286,7 +312,7 @@ George Vondriska | Техники работы с ручным фрезером 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47995.jpg" />
 </div>
 
 
@@ -314,7 +340,7 @@ George Vondriska | Основы работы с фрезерным столом 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47949.jpg" />
 </div>
 
 
@@ -342,7 +368,7 @@ George Vondriska | Настройка и использование фуганк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47845.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Christopher Schwarz | Изготовление стульев без страх�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46686.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Mark | 5 Творческих проектов по деревообработк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46504.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Kyle Kwiatkowski | Три основных соединения «ласточк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46372.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45997.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Solid Factory, Антон Ильин | Основы инженерного ан�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45933.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Mike Siemsen | Скамейки и ящики (2020) WEBRip [EN, RU / EN Sub]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45781.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Bill Thomas | Изгиб и формирование (2023) WEBRip [EN, RU / EN 
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45663.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Christopher Schwarz | Верстак (2008) DVDRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44842.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Robert Spiece | Двери для шкафов и изысканной мебе�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44632.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Jim Heavey | Ящики для шкафов и изысканной мебели
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44386.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Cynthia Bleskachek | Начало работы с обивкой мебели (2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44280.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ Christopher Schwarz | Создайте походное кресло (2018) WEBR
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44227.jpg" />
 </div>
 
 
@@ -678,32 +704,6 @@ Christopher Schwarz | Создайте походное кресло (2018) WEBR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CABC83557E9F3AED190EF28B472FA3D902CBB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748490   (44045) от 10.09.2024
-
-pro-z.ru | Проектирование одноэтажного жилого дома в сейсмическом районе (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44045.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках курса вы научитесь проектировать фундаментную плиту, железобетонный каркас и конструкцию крыши "от и до" на индивидуальные жилые дома, расположенные в сейсмических регионах.Производство: pro-z.ruЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:27:07Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE19FCEB5F80955CE845DEB16C1A42EBD4F278FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

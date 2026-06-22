@@ -1,32 +1,3 @@
-###  Публикация: 1155530   (533534) от 03.08.2017
-
-Joyce Cooling - Global Cooling (2009) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grass Roots
-02. Global Cooling
-03. Save This Dance for Me
-04. Cobra(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4D5AFC4117487124FB1A30DBF634ECEB7C933E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155409   (533528) от 03.08.2017
 
 Benny Goodman And His Orchestra - Sing, Sing, Sing (1935, 1936) 1987, Bluebird Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -35,7 +6,7 @@ Benny Goodman And His Orchestra - Sing, Sing, Sing (1935, 1936) 1987, Bluebird R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533528.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Chris Rea - The Platinum Collection (2006) [FLAC|Lossless|image + .cue] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533070.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Ray Brown & Laurindo Almeida - Moonlight Serenade (1981) 1984, Bell Records[WavP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532798.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Carlos Vega - Bird's Up (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532791.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ John Graas - Four Classic Albums (1956 - 1958) 2CD, 2017, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532790.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Shakatak - Times And Places (2016) [FLAC|Lossless|image + .cue] <Smooth-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532578.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Shaun Murphy - 4 Альбома (2009-2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532427.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ Nancy Wilson - With My Lover Beside Me (1991) Sony Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532036.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ Dave Specter - Six String Soul 30 Years On Delmark (2021) 2xCD, Compilation [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531871.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Barney Wilen - Barney (1959) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531729.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ Fattburger - One Of A Kind (1986) /Golden Boy Jazz/[FLAC|tracks+.cue]<Jazz, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531726.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ Dee Dee Bridgewater - Dee Dee's Feathers (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531717.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ Jack Teagarden & Jonah Jones - Old Timey Jazz (1979) 2014, Music Trax [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531691.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ Rosey - Luckiest Girl (2008) [FLAC|Lossless|image + .cue] <Soul-Jazz, Cool Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531681.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ Jose James - Yesterday I Had The Blues - The Music Of Billie Holiday (2015) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531621.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ VA - Jazz Cocktail Classics (2015) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531619.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Quincy Jones - Complete Recordings 1955-1959 (2013) 4CD, Enlightenment [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531574.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Omar And The Howlers - Wall Of Pride (1988) [FLAC|Lossless|image + .cue] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531571.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Sonny Rollins - Trio & Quartet: Paris 1965 - Copenhagen 1968 (2008) 2CD, Gambit 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531397.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Oscar Peterson - Jam Montreux '77 (1977) 1989, Prestige[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531063.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Dann Zinn - Day Of Reckoning (2019) Origin Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530967.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ The Count Basie Orchestra - Long Live The Chief (1986) Denon [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530965.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Chris Amemiya & Jazz Coalescence - In The Rain Shadow (2013) OA2 Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530963.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ VA - Blues Fusion - Electro Deluxe (2013) [MP3|320 Kbps] <Blues , Downtempo, Chi
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530788.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Tommy Emmanuel & Frank Vignola - Just Between Frets : Groovemasters Vol. 11 (200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530680.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Tommy Emmanuel & Frank Vignola - Just Between Frets : Groovemasters Vol. 11 (200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22EA07B8D5B8C81594E1316610E87F6D4A61F086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051918   (530678) от 12.09.2016
+
+Tommy Emmanuel, Martin Taylor - The Colonel & The Governor (2013) [FLAC|Lossless|tracks + .cue] <Crossover, Guitar Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won't Last A Day Without You     (05:11)
+02. Jersey Bounce     (03:54)
+03. Bernie's Tune     (03:28)
+04. A Smooth One     (05:30)(   Читать дальше...   )Жанр: Crossover, Guitar Jazz, InstrumentalПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6EB6AE221E07C7BB40DB4431040CD3EE6DF26A
 ```
 
 https://mybot314.ru/tekegram_catalog/

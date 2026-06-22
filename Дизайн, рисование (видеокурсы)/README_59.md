@@ -6,7 +6,7 @@ milenanoda.school, Milena Noda | Марафон «Создание стилиз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231938.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Lynda, Brian Morse | PFTrack Essential Training (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231937.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Udemy, Michael Gerard | Unreal Engine 4 - Learn How to Create a Lost Road scene 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231911.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ The Gnomon Workshop, Gary Meyer | Fundamentals of Perspective Vol. 1-3 (2012) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231826.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Rohan Dalvi | Procedural Modeling in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231698.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231307.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231247.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231215.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231128.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230633.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Artilike, Галина Гомзина | Акварельный интенсив 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230627.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Fluidart, Екатерина Гаврилова | Онлайн курс «Сов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230612.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230601.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Artmeup, Кристина Бриль | Текстурная живопись (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230580.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ CG Forge, Tyler Bay | Pyro II - Flames & Sparse Pyro (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230523.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Skillshare, Yassine Larayedh | Create Realistic Looking Forests & Mountains in B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230413.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230393.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Skillshare, 3D Tudor | Substance Painter to Unreal Engine 5 Masterclass (2022) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230317.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine Complete Material Syst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230284.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Tim Bergholz | Ultimate Grenade Tutorial Hardsurface 3D Course (2015) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230275.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230038.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Stan Air | AirHair Tutorial (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229940.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Hudozhnik Online, Полина Абдулаева | Черно-белый Нов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229806.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229672.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Udemy.com | Adobe Photoshop cc course from A-Z Beginner to Master (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229553.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Enterclass, Илья Ибряев | Мачу-Пикчу (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227303.jpg" />
 </div>
 
 

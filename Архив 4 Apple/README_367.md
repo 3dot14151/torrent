@@ -1,3 +1,30 @@
+###  Публикация: 1567361   (474549) от 02.08.2022
+
+DirEqual 4.4.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474549.jpg" />
+</div>
+
+
+###  Подробнее
+
+DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
+Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1FD81C68B8E2255C4CA4E30643AABF291DF544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567312   (474545) от 02.08.2022
 
 Artstudio Pro 4.1.4 [En]
@@ -6,7 +33,7 @@ Artstudio Pro 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474545.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Cardhop 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474544.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Disk Space Saver 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474542.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Alien Skin Exposure X5 Bundle v5.2.4.282 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474505.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ ApolloOne - Photo Video Viewer 3.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474432.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Task Office 7.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474423.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Easy File Organizer 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474416.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ Serial Box & SerialSeeker 2022 - 08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474328.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ RAR Extractor Max-Unzip Winrar 9.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474315.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Sweet Home 3D 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474236.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ NeoOffice 2017 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474013.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ Luminar 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473774.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Parallels Desktop for Mac Business Edition 13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473424.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473220.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ IP Scanner Pro 3.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473174.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ Downie 4 v4.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473078.jpg" />
 </div>
 
 
@@ -436,7 +463,7 @@ MediaInfo 20.08.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473071.jpg" />
 </div>
 
 
@@ -462,7 +489,7 @@ AirFoil 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473059.jpg" />
 </div>
 
 
@@ -488,7 +515,7 @@ Scrivener 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472911.jpg" />
 </div>
 
 
@@ -517,7 +544,7 @@ Aurora HDR Pro 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472908.jpg" />
 </div>
 
 
@@ -543,7 +570,7 @@ MacX Video Converter Pro 6.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472907.jpg" />
 </div>
 
 
@@ -570,7 +597,7 @@ Launchpad Manager Yosemite Pro 1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472748.jpg" />
 </div>
 
 
@@ -597,7 +624,7 @@ BetterZip 5 v5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472638.jpg" />
 </div>
 
 
@@ -625,7 +652,7 @@ TextMan 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472468.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ WidsMob HDR 3.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472387.jpg" />
 </div>
 
 
@@ -662,33 +689,6 @@ WidsMob HDR 3.17 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A59CF772589D5A48F5696D0BD321D26C217F9BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567492   (472384) от 03.08.2022
-
-Athentech Perfectly Clear WorkBench for Mac 4 v4.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2022Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB869E63AB2113816B378277327453B7C8FAF74
 ```
 
 https://mybot314.ru/tekegram_catalog/

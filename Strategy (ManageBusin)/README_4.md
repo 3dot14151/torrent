@@ -6,7 +6,7 @@ Earth Space Colonies (2016) [En] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669754.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Lossless Repack R.G. Catalyst [G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668699.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Long Journey Home (2017) [Ru/Multi] (1.17.14643) License RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662933.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662650.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Long Journey Home (2017) [Ru/Multi] (1.17.14643) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661837.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sheltered (2016) [Ru/Multi] (1.6) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657532.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654403.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tropico 6 (2019) [Ru/Multi] (1.0/dlc) License PLAZA [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644328.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Planet Coaster (2016) [Ru/En] (1.6.2/dlc) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642477.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Pathway (2019) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636652.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Tropico 6 (2019) [Ru/En] (96607/dlc) Repack R.G. Механики [El Prez Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634820.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Constructor (2017) [Multi] (1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632832.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pro Cycling Manager 2013 (2013) [Multi] License CPY
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631773.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lethis - Path of Progress (2015) [Ru/Multi] (1.4.0 fix 8487) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624915.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622147.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ RESCUE 2: Everyday Heroes (2015) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615536.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack xatab [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613002.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Urban Empire (2017) [Ru/Multi] (1.2.1.3.12587/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612447.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Villagers (2016) [Ru/Multi] (1.100) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604379.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Pathway (2019) [En/Ge/Fr] (1.0.5) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603511.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603323.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Beholder 3 (2022) [Ru/Multi] (1.0.9_99) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599301.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (2.2.18.9/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597087.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rise of Industry (2019) [Ru/Multi] (1.0.0.0205A) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595882.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.22.0.4460/dlc) Repack Other s [Foun
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587496.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Hospital Tycoon / Больничный магнат [En/Ru] (P) 2007
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586730.jpg" />
 </div>
 
 

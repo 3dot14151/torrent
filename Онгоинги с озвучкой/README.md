@@ -7,7 +7,7 @@ Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de | Бо�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066803.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kuro Neko to Majo no Kyoushitsu | Чёрная кошка и класс ведь
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066243.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ichijouma Mankitsu Gurashi! | Жизнь в манга-кафе на одном 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066201.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065645.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Tsue to Tsurugi no Wistoria TV-2 | Меч и жезл Вистории [ТВ-2] 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065285.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065122.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 3rd Season | Orejihanki |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064775.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064723.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Isekai Nonbiri Nouka 2 | Фермерская жизнь в ином мире [�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064701.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064596.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064475.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063488.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mamonogurai no Boukensha | Авантюрист, пожирающий демон
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063388.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Reincarnation no Kaben | Лепестки реинкарнации | Petals of R
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063296.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063292.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kanan-sama wa Akumade Choroi | Канан до чёртиков проста | M
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063270.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063264.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063188.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Needy Girl Overdose | Зависимая девушка: Передозиров�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063146.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063051.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053854.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053178.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052911.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Hime-sama "Goumon" no Jikan Desu TV-2 | Время пытки, принцесс�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052898.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052760.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052625.jpg" />
 </div>
 
 

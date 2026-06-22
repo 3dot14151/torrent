@@ -1,3 +1,56 @@
+###  Публикация: 1731520   (52641) от 21.06.2024
+
+Honeyview 5.53 Build 6273 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Honeyview - быстрый и удобный просмотрщик графических изображений с поддержкой множества различных форматов. Программа работает как с самыми популярными типами файлов, так и достаточно редкими: BMP, JPG, GIF, PNG, PSD, DDS, JXR, WebP, J2K, JP2, TGA, TIFF, PCX, PNM, PPM и многие другие.
+Кроме того, это приложение способно показать картинки, находящиеся в сжатом виде (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306F12DEFC317000D459AA872C8C5B69764F5E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745416   (45574) от 26.08.2024
+
+Adobe Bridge 2024 14.1.2.300 (x64) Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B78A83EABAA21FC143C96B4A5D3D29C0940DB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747190   (44612) от 04.09.2024
 
 Photo Supreme 2024.2.2.6636 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -6,7 +59,7 @@ Photo Supreme 2024.2.2.6636 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44612.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Exif Pilot 6.27.2 + Batchplugin [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27712.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ IrfanView 4.72 + Plugins [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18563.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ XnView Shell Extension 4.2.0  + Standalone  [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11560.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Photo Supreme 2025.3.0.7956 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10367.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ FastStone Image Viewer 8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9563.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ FastStone Image Viewer 8.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9542.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ FastStone Photo Resizer 4.4 + Portable [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7753.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ XnView Classic 2.52.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5412.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ FastStone Image Viewer 8.1 Corporate + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2703.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ Adobe Bridge 2025 15.1.2.737 RePack by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2668.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ Imagine 2.2.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1166.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ XnView MP 1.9.4 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65.jpg" />
 </div>
 
 

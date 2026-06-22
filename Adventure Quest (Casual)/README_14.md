@@ -1,3 +1,107 @@
+###  Публикация: 1278370   (771839) от 25.01.2019
+
+Maze 4: Stolen Minds (2018) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771839.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгого рабочего дня вы едете в машине - и вдруг как будто из ниоткуда на дороге появляется незнакомец. Так в одно мгновение вы стали пленницей. Какие эксперименты провел над вами незнакомец, что вы стали видеть призраков? Сможете ли вы отличить иллюзию от реальности и сбежать от безумца, пока не стало слишком поздно?Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA38B62C874DC1D8ED1517E880637AC5A2826573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278377   (771723) от 25.01.2019
+
+Vacation Adventures: Cruise Director 5 (2018) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как директор круиза вы организуете сказочные экскурсии в Карибском бассейне, Европе и Южной Америке. В своих путешествиях посетите удивительные туристические достопримечательности и достопримечательности в таких городах, как Лондон, Эдинбург, Барселона, Вена и Стамбул. Проведите время, расслабляясь на Виргинских островах и путешествуя по Европе на самом роскошном (   Читать дальше...   )Тип издания: UnofficialРазработчик: Casual ARTЖанр: Квест, Поиск предметовЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC01C6B88E9340419BA045D6D8A5C15BD64F2593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278434   (771714) от 25.01.2019
+
+Grim Tales 13: The White Lady / Мрачные истории 13: Белая леди (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Grim Tales. Вы узнаете грустную историю о двух детях, решивших поиграть в заброшенном поместье, где по слухам обитает загадочная Белая леди! Ваш племянник со своей подружкой пропали из школы-интерната Эвергрин. Незадолго до исчезновения дети рассказали, что видели призрак женщины в белом, - и это ваша единственная зацепка. Сможете (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EF03F264E3E4222B9E8AE77E06A692528D4ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278460   (771581) от 25.01.2019
+
+Redemption Cemetery 13: The Cursed Mark / Кладбище искупления 13: Клеймо проклятых (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Извечной карой для неупокоенных душ, начиная еще с библейских времен, являлось обречение на вечные скитания и отверженность от людского мира, налагаемое за предательство близких или же еще более тяжкое преступление - братоубийство! И хотя между веками враждующими братьями - хранителем Киром и одержимым демоном Олафом - практически нет сходства с библейскими Каином (   Читать дальше...   )Тип издания: UnofficialРазработчик: Amax InteractiveЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717274090C154B149234C62A7CC6DC1221EF3145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016000   (771456) от 13.05.2016
 
 The Curio Society 2: New Order (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ The Curio Society 2: New Order (2016) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771456.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Green Moon 2: Children of the Moon (2016) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771163.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Summer in Mara (2020) [Ru/Multi] (1.5) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770298.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dark Romance 4: Kingdom Of Death (2016) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770235.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Kronville: Stolen Dreams / Кронвилль: Украденные Сны (2015
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770112.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Haunted Hotel 11: The Axiom Butcher / Проклятый отель 11: Мань
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770067.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Last Dream (2015) [Ru/Multi] (1.0) Repack Other s [Developer's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769460.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Spirit Legends 3: Time for / Легенды Духов 3: Время перем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769196.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Fatal Evidence 2: The Missing / Роковые улики 2: Пропавшие 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769185.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Hidden Expedition 19: The Price of Paradise (2020) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768913.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Demon Hunter V: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768521.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ The Curious Expedition (2016) [Ru/Multi] (1.3.13.5) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768207.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Secrets of Great Queens 2: Regicide (2018) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767787.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Fear For Sale 12: Tiny Terrors (2018) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767741.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Queen's Quest 5: Symphony of Death (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767733.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Secret City 2: The Sunken Kingdom (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767675.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Haunted Manor 5: Halloween's Uninvited Guest (2018) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766924.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Dark City 2: Munich (2018) [En] (1.0) Unofficial [Collector's Edition / Колл
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766920.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Queen's Quest: Tower of Darkness / Королевский квест: Тёмна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766683.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Vermillion Watch 4: In Blood / Алый дозор 4: Ценою крови (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766552.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Halloween Chronicles: Monsters Among Us (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766033.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Paranormal Files: Fellow Traveler / Паранормальные явления:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765956.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Paranormal Files: Fellow Traveler / Паранормальные явления:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B907F6AC1C1625D4607E6D8E544D049E03C5181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214159   (765713) от 20.03.2018
-
-Greed 3: Old Enemies Returning / Жадность 3: Старые враги возвращаются (2017) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дочь доктора Гудвина, Сара, снова позвонила вам, и у нее плохие новости. Чудотворное лекарство, созданное ее отцом, хотят похитить. Похоже, что старые враги доктора Гудвина вернулись в Понтонные лаборатории и на этот раз они даже готовы на убийство, чтобы завладеть этим чудо-лекарством. С помощью Сары вам нужно узнать правду о странных энергетических существах, которые, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Urchin GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43C9585665D260158326B9F05B1ECDD7F6A3C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279766   (764390) от 31.01.2019
-
-Shadowplay 3: The Forsaken Island (2018) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло три года с тех пор, как ваш брат исчез во время работы над сверхсекретным проектом. Все на острове пропали... или вы так думали. Когда активируется спасательный маяк, вам нужно искать выживших! Вещи быстро совершают темный поворот, когда странные существа начинают атаковать! Можете ли вы узнать, что на самом деле произошло на удаленном объекте, или вы станете (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563A4411F937C39E1266A2D4C8C436CC6E997E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279754   (764387) от 31.01.2019
-
-Wanderlust: What Lies Beneath / Жажда странствий: Что утаила ложь (2018) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас нанял теневой бизнесмен, чтобы исследовать появление пирамиды в амазонских джунглях. Странная пирамида появилась буквально из земли за ночь! Как опытный археолог, вы сразу же понимаете, что у вас странное расследование. Но ничто не могло подготовить вас к тому, что вы найдете не только эту пирамиду, но будите бегать от своей сестры, чтобы завладеть правами на (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497CF379BE109041444600EEF024DE42F72020FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279890   (764373) от 31.01.2019
-
-PuppetShow 15: Porcelain Smile (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ваша подруга получает странное письмо о своей новой редкой марионетке, вы спешите на помощь. По прибытии вы быстро обнаружите, что это не просто пустые угрозы, когда ее похитил маньяк в маске! Можете ли вы раскрыть правду об аукционе редкой коллекции кукол и спасти своего друга во времени?Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315A4B9724F83159990B80FC5A1D908B58E6906A
 ```
 
 https://mybot314.ru/tekegram_catalog/

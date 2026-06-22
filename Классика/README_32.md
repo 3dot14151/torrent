@@ -6,7 +6,7 @@ Brahms - Ein deutsches Requiem (John Eliot Gardiner & Orchestre Revolutionnaire 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464764.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Beethoven - Piano Sonatas Nos.26, 27 & 29 (Solomon Cutner) (2000) [FLAC|image +.
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464759.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Лучшая музыка против стресса #100 (2012) [MP3|224 
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459664.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Il Volo with Placido Domingo - Notte Magica - A Tribute To The Three Tenors (201
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459362.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Corrette - Concertos for Organ and Orchestra (Rene Saorgin & Ensemble Baroque De
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457969.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Horowitz - Plays Hydn & Clementi (Vladimir Horowitz) (2003) [FLAC|image +.cue]<C
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457967.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Wolfgang Amadeus Mozart-Klarinettenkonzert A-dur KV 622 & Sinfonia concertante E
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457832.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Schumann - Kinderszenen, Fantaisie, Arabeske (Vladimir Horowitz) (2003) [FLAC|im
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457818.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Rachmaninov - Transcriptions for Orchestra (Neeme Jarvi & Detroit Symphony Orche
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457812.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bach, Scarlatti, Mozart - Piano works (Vladimir Horowitz) (2003) [FLAC|image +.c
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457646.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Nils Frahm - Old Friends New Friends (2021) 2xCD [FLAC|Lossless|tracks + .cue] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457445.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Ludovico Einaudi - Seven Days Walking (Day 6) (2019) Decca Records [FLAC|Lossles
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456703.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Luciano Pavarotti - The People's Tenor (2017) [MP3|320 Kbps] <Classical, Opera>
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456502.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Respighi - Ancient Airs and Dances (Rico Saccani & National Symphony Orchestra o
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455863.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Tchaikovsky - Serenade for Strings, Souvenir de Florence (Philippe Entremont & V
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455742.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Schubert - The Complete Impromptus, Moments Musicaux (Alfred Brendel) (2CDs) (19
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453558.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Chris Snelling - Piano Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, P
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452643.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Paganini - Violin Concerto No.6 (Salvatore Accardo & London Philharmonic Orchest
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451619.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Johann Sebastian Bach–Concertoc BWV1041, 1052 & 1056, Sonata BWV1034: mandolin
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450281.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Johann Sebastian Bach & Alessandro Marcello-Konzerte und Sinfonien fur Oboe: Cam
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449854.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Johann Ernst Eberlin - Missa in C major, Requiem in C major (Jurgen Rettenmaier 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449573.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Beethoven - Piano Concertos nos.3 & 5 (Leonard Bernstein & New York Philharmonic
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449443.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Schubert - Piano Sonatas D.960, D.840 “Relequie” (Rudolf Serkin) (2003) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449442.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Alnaes, Sinding - The Romantic Piano Concerto Series (Piers Lane & Bergen Philha
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449433.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Beethoven - Piano Sonatas Nos.8, 14, 23 (Rudolf Serkin) (2003) [FLAC|image +.cue
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449432.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Handel - Water Music, Music for the Royal Fireworks (Trevor Pinnock & The Englis
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449288.jpg" />
 </div>
 
 

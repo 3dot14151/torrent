@@ -1,3 +1,133 @@
+###  Публикация: 1117237   (818391) от 22.03.2017
+
+Blades Of Time (2012) [Ru/Multi] (1.6/dlc) SteamRip Let'sPlay [Limited Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аюми — бесстрашная охотница за сокровищами. Она великолепно вооружена и необычайно прекрасна. В поисках ценных трофеев девушка отправляется на таинственный и, конечно же, полный опасностей остров. Как выяснилось, это место богато не только сокровищами — оно буквально пропитано гнетущей магией Хаоса.Тип издания: SteamRipРазработчик: Gaijin EntertainmentЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2DA787BF55DF077E635C2E47063356B1ED3F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117527   (818321) от 22.03.2017
+
+Troll and I (2017) [Multi] (1.0) License CODEX
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Troll and I разворачивается в Скандинавии, в расположенной в глухом лесу деревушке, населенной мирными лесорубами, грибниками и земледельцами. Идиллическая атмосфера разрушается после публикаций в городской прессе рассказов о загадочном Тролле, живущем в местных лесах. Деревенские жители вмиг оказываются в центре интересов беспринципных охотников за диковинками, (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiral HouseЖанр: Violent, Action (3rd Person), AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143A44E36399CEACB90FDB92E5F78D82C3EF435E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117952   (814418) от 24.03.2017
+
+Just Cause 3 (2015) [Ru/En] (1.05/dlc) Repack Seraph1
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814418.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Just Cause 3 – средиземноморская республика Медичи находится под контролем жестокого генерала Ди Равелло. Встречайте Рико Родригеза, чья миссия заключается в свержении генерала любыми доступными способами.В вашем полном распоряжении более 1000 квадратных километров территории, включая воздушное пространство и морское дно, а также огромный запас оружия, гаджетов (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E66D2D8EF92051A041B5BF8B71F76EDAC518FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197641   (813205) от 08.01.2018
+
+The Surge (2017) [Ru/Multi] (Update 11/dlc) SteamRip R.G. Origins [Complete Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в CREO – корпорацию, которая спасает мир! Отныне вы в числе ее сотрудников. И в первый же день случается катастрофа. Сознание ускользает, вы проваливаетесь в темноту... Придя в себя, вы обнаружите, что экипированы высокотехнологичным экзоскелетом, а еще вчера процветающий комплекс превращен в руины. Вышедшие из-под контроля роботы, спятившие от страха (   Читать дальше...   )Тип издания: SteamRipРазработчик: Deck13Жанр: Action, 3D, 3rd PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99DDF6067E02C220AAF76934DC484C793142B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197650   (813203) от 08.01.2018
+
+Remember Me (2013) [Ru/Multi] (1.0.2/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый Париж, 2084 год. Воспоминания перестали быть личными, их можно оцифровать, купить или продать. Под напором социальных сетей, стремительному развитию которых положил начало XXI век, понятия «частная жизнь» и «личное дело» превратились в пережиток былой эпохи. Люди добровольно пожертвовали сокровенным в обмен на удобства, которые обеспечили им технологии. И, (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0D6CE7183EA1B4CFF1F25CBA2BC250000DDAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197617   (813073) от 08.01.2018
 
 DmC - Devil May Cry (2013) [Ru/Multi] (1.0r3/dlc) Repack xatab
@@ -6,7 +136,7 @@ DmC - Devil May Cry (2013) [Ru/Multi] (1.0r3/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813073.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Son of Nor (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810493.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ Mafia: Definitive Edition (2020) [Ru/En] (1.0.7368608/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807657.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807629.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ Kill to Collect (2016) [En/Multi] (1.1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807172.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ Prototype 2 (2012) [Ru] (1.0/dlc) Repack xatab [Radnet Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805743.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ Infinite Tanks (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804580.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804008.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802211.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ Darksiders: Wrath of War (2010) [Ru] (1.1/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801904.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ Alice: Madness Returns (2000-2011) [Ru/Multi] (1.0.0.0/dlc) SteamRip Let'sPlay [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801631.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ Saints Row 2 (2009) [Ru/Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800999.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ Styx: Shards of Darkness (2017) [Ru] (1.02/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800074.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ Alice: Madness Returns (2011) [Ru] (1.0.0.0/dlc) Repack Other s [The Complete Co
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799957.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ Saints Row: The Third - Remastered (2020) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799855.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (1.033793/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798192.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ Alan Wake Remastered (2021) [Ru/En] (1.0.33793/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798178.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ Rustler (Grand Theft Horse) (2021) [Ru/Multi] (1.02.21/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798046.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ Soulsland (2021) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797896.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ Saints Row: The Third - Remastered (2020) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797684.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ Project Runner (2021) [En] (1.0) License DARKSiDERS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797268.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ Project Runner - это игра на выживание, в которой гл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:066B7689A0900249E4787A65898D8830A6AD10BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239245   (793771) от 06.01.2019
-
-Hellblade: Senua's Sacrifice VR (2017) [Ru/Multi] (1.01) License GOG [VR]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая игра от создателей Heavenly Sword, Enslaved: Odyssey to the West и DmC: Devil May Cry о путешествии в глубины легенд и безумия. В эпоху викингов измученная кельтская воительница отправляется в ужасную страну мертвых, чтобы сразиться за душу погибшего возлюбленного.Тип издания: LicenseРазработчик: Ninja TheoryЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0134840530FA55456F373E888BB87E5547E9652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264227   (793768) от 06.01.2019
-
-HellGate: London (2018) [En] (20181213) Repack R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793768.jpg" />
-</div>
-
-
-###  Подробнее
-
-История игры проста - демонические существа вырвались наружу, уничтожая город за городом. Кто-то уже сотни лет ожидал пришествия демонов, как тамплиеры, а для кого-то появление дьявольских существ оказалась роковой неожиданностью.Тип издания: RepackРазработчик: Flagship StudiosЖанр: Action (Shooter), RPG (Rogue, Action), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46FE965B05331D13C81E517F3C4CE6B27679EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144114   (793481) от 23.01.2018
-
-Dead Rising 4 (2017) [Ru/En] (1.0/upd3/dlc) Repack =nemos=
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотожурналист Фрэнк Уэст возвращается к нам в Dead Rising 4, новой главе популярнейшей серии игр про зомби. Игроки найдут здесь все, чем знаменит Dead Rising, включая огромный арсенал комбинируемого оружия и транспорта как для эффективного, так и для безумно эффектного изничтожения зомбиТип издания: RepackРазработчик: Capcom, Game Studio VancouverЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1769083E2AD5AC7C7040BC5431B6E845419A1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274636   (792744) от 07.01.2019
-
-Alpha Protocol (2010) [Ru] (1.1) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792744.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современном мире тонкой политической игры и запутанных заговоров ничто не выглядит таким, какое оно есть на самом деле. Кто друг, а кто враг? Кто виноват, кто прав и прав ли вообще хоть кто-нибудь? Ответить на эти непростые вопросы придется вам, выступив в роли агента Майкла Тортона в опасной правительственной интриге.Тип издания: RepackРазработчик: Obsidian EntertaimentЖанр: Action (Shooter), 3rd Person, RPGЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61ADE11C4D20ADA1C35D7EF12417E2D4A2371BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247661   (791996) от 08.01.2019
-
-COLINA: Legacy (2018) [Ru/Multi] (1.0/upd3) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791996.jpg" />
-</div>
-
-
-###  Подробнее
-
-COLINA: Legacy – ужастик с элементами головоломки, где вам предстоит взять под свой контроль главного героя по имени Алекс и помочь ему понять, что произошло в доме на вершине холма, в котором когда-то жила его бабушка. По сюжету игры, Алекс приходит в себя в машине своих родителей и не находит никого рядом. Он видит лишь дом, мерцающий впереди. И есть странное чувство, (   Читать дальше...   )Тип издания: LicenseРазработчик: Chance6 Studios, LLCЖанр: Adventure (Horror), Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5131F01C50AF3887D5481586DB8FCE2AA5FDD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

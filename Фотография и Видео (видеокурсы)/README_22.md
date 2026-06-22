@@ -1,3 +1,29 @@
+###  Публикация: 1647011   (195668) от 16.07.2023
+
+WhitePhotoSchool, Сергей Гунин | Гуру света - Практика (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это самая доступная возможность прокачать интуитивные навыки работы и начать снимать с интересным студийным светом. Получи больше 20 подробных и понятных видеоуроков к своим будущим съёмкамПроизводство: WhitePhotoSchoolЖанр: ФотографияЯзык озвучки: РусскийПродолжительность: 39:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56EE1240AC29A57AC810989FE7A4A1A1F53C67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647269   (195639) от 17.07.2023
 
 Дарья Калугина | Курс по коммерческой фуд-фотографии (2020) WEB-DL [RU]
@@ -6,7 +32,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195639.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195635.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195621.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195619.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195613.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ Maria Yakimova | Фото как кино. Авторский курс по по
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195599.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195554.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ Revuer, Евгений Дюжакин | Цвет +. Как делать крут
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195332.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195249.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ PhotoWhoa, Sam Henderson | 12 Videos For Creating Stunning Fine Art Nude Photogr
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192768.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190265.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187912.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ Liveclasses, Антон Мартынов | Как найти свой путь �
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187010.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ Photoville, Игорь Новиков | Как в кино (2023) WEB-DL [AD] [R
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186974.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186543.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186515.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185814.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ Contrse, Дарья Калугина | Интенсив по фуд-фотогр
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185799.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ Udemy, Stefan Mitrovic | Ai Youtube Masterclass: Unleash the Passive Income (202
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185787.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_185783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185783.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Pratik Naik | Beauty and portrait retouching (2023) WEB-DL [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185737.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184272.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_184207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184207.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Photocollege, Николай Бирюков | The course. Тариф Лайт (2
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182903.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182787.jpg" />
 </div>
 
 
@@ -678,32 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08C894B06340C6685F3573C34C47FB57D12B275F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666020   (180495) от 02.10.2023
-
-Кемран Ширалиев | Магия света (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер класс Кемрана Ширалиева по источникам света для фотографа.Жанр: ФотографияЯзык озвучки: РусскийПродолжительность: 01:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D732EA942A7FAB33B00DB11CB69961F69B2EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

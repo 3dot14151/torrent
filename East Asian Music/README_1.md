@@ -1,3 +1,29 @@
+###  Публикация: 621273   (961305) от 21.02.2013
+
+Lia - 6 альбомов, 4 Best Albums, 10 компиляций, 2 Live Albums, 4 Remix Albums, 17 синглов (2001-2012) [MP3|192-320 кб/с]<J-Pop>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961305.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-PopПродолжительность: 00:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E888AAB3AC3DFBBFB53B990E76F8BDBBF0FFC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 621223   (958804) от 23.02.2013
 
 the brilliant green - discography (1997-2010) [MP3|320 кб/с]<JRock>
@@ -6,7 +32,7 @@ the brilliant green - discography (1997-2010) [MP3|320 кб/с]<JRock>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958804.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Kanae Nozawa - Planet (2014) [MP3|320 кб/с] <Instrumental Folk, New Age, Rela
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952511.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ BTS - Map of the Soul: 7 (2020) [FLAC|Lossless|tracks + .cue] <K-pop, Pop Rap>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947840.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939712.jpg" />
 </div>
 
 
@@ -120,7 +146,7 @@ Katsu Ohta - Micronist (2003) [WavPack|Lossless|image + .cue] <Neoclassical Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939274.jpg" />
 </div>
 
 
@@ -149,7 +175,7 @@ Kazuki Tomokawa - Дискография (1975-2008) [MP3|128-256]<Acid Folk>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939267.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ Hyuna (4minute) - Дискография (6 Альбомов) (2011-2015) [FLAC|
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933689.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ Zhaoze - 1911 (2011) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambient, Psychede
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920680.jpg" />
 </div>
 
 
@@ -230,7 +256,7 @@ Sally - 11 альбомов (2011-2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <J
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919514.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ Thousand Excaliver - Sailing your dream (2014) KanColle Vocal /Doujin/ [FLAC|Los
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911560.jpg" />
 </div>
 
 
@@ -289,7 +315,7 @@ Kyokutou Kaizoku-dan StrikerS - 1 альбом (2014) Touhou Vocal /Doujin/ [FLA
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909785.jpg" />
 </div>
 
 
@@ -316,7 +342,7 @@ Tiger Huang(Huang Xiao Hu) - 6 альбомов (1992-2009) [FLAC|Lossless]<Chin
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908793.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Masterpieces For Our Struggle - 2 альбома (2013-2014) Touhou Vocal /Douji
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908405.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Touhou Gensoukyou UROBOROS Vol.2 ~fAIRYtAILoVERdRIVE~ (2014) Touhou Vocal /Douji
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908129.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Kinema 106 - Gun (2014) KanColle Vocal /Doujin/ [MP3|320 kbps] <J-Rock>
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906040.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Okui Masami - 20 альбомов, 4 Best Albums, 13 компиляций, 2 Liv
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901603.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Onmyo-Za - Karyo-Binga (2016) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892527.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Foxtail-Grass Studio - 22 альбома (2010-2015) Touhou Instrumental /Doujin
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882414.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ Touhou Gensoukyou UROBOROS Vol.4 ~dEATHtINYoVERdRIVE~ (2015) Touhou Vocal /Douji
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882405.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ Touhou Gensoukyou UROBOROS Vol.5 ~eNDoFtHEuLTIMATEoVERdRIVE~ (2015) Touhou Vocal
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882404.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ Loudness - Rise To Glory -8118- (2018) 2xCD [FLAC|Lossless|image + .cue] <Heavy 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877440.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876948.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ Loudness - Sаmsаrа Flight (2016) 2xCD, Compilation, 35th Anniversary [FLAC|Lo
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875970.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ Concerto Moon - Rain Fire (2020) 2xCD, Japanese Edition [WavPack|Lossless|image 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868135.jpg" />
 </div>
 
 
@@ -686,7 +712,7 @@ Ignus-Fatuus — Through Darkened Days (2016) /Doujin/ [FLAC|Lossless|tracks]<Me
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866254.jpg" />
 </div>
 
 
@@ -700,35 +726,6 @@ Ignus-Fatuus — Through Darkened Days (2016) /Doujin/ [FLAC|Lossless|tracks]<Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:850B1D966C6ECDDA2344BB2165010C7ED0308DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749798   (864032) от 24.02.2017
-
-LiLA'c Records - 31 альбом (2009-2016) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <Trance, Electronic, Techno>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2015.12.31 (LLEX-0011) BACK TRAX (C89)
-2016.12.29 (LLAC-0025) TOHO SPEED -Vertex Tuned 2- (C91)
-2016.12.29 (LLEX-0012) TSVT appendix (C91)Тип издания: DoujinЖанр: Electronic, Trance, TechnoФормат: Touhou VocalПродолжительность: 00:22:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DE1A4C3A98745DEDC95779AC520485A7B5AD90
 ```
 
 https://mybot314.ru/tekegram_catalog/

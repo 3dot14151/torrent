@@ -1,3 +1,29 @@
+###  Публикация: 1172697   (778459) от 04.03.2018
+
+Taishou Mebiusline: Chicchai-san | Кроха Тайсё [2017, TV, 12+SP] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о юноше, звать которого Кёичиро Хираги. Он отправился в странствие из провинциального городка в сам Токио с благородной целью поступления в университет. С собой он несёт не только горячее сердце и жажду к знаниям, но ещё и семейный меч, которым смог бы защищаться в пути. Прибыв в Токио, Кёичиро оказывается втянут в заговор императорской армии.Производство: Studio A-CATЖанр: приключенияРежиссер: Ватанабэ СюПеревод: Aniplay ; YakusubЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54824AF09D5AC776D736828D74AB9F3CD8D5BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210878   (778122) от 05.03.2018
 
 Yuuri!!! on Ice | Юри на льду [2016, TV, 12] BDrip 1080p 10bit raw
@@ -6,7 +32,7 @@ Yuuri!!! on Ice | Юри на льду [2016, TV, 12] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778122.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778103.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Little Witch Academia (2017) | Академия ведьмочек [2017, TV, 25
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778094.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Plastic Memories | Синтетические воспоминания [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776249.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Shinmai Maou no Testament BURST | The Testament of Sister New Devil BURST | За
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776245.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] BDrip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776243.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Kokoro ga Sakebitagatterunda | Kokosake | The Anthem of the Heart | Сердцу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773913.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Tenkuu no Escaflowne / Vision of Escaflowne TV / Видение Эскафлон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773561.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773321.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Buzzer Beater 2 | Забить на последней секунде 2 [2007, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773252.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ Buzzer Beater | Забить на последней секунде [2005, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773248.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ Gekkan Shoujo Nozaki-kun | Monthly Girls' Nozaki-kun | Нозаки и его с
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773209.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ All Out!! | Изо всех сил!! [2016, TV, 25 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773126.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2020
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772443.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772434.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Zetman / Зетмен [2012, TV, 13 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772389.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Tachibanakan to Lie Angle | Любовные страсти пансиона Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769763.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769597.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769452.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Senki Zesshou Symphogear XV / Последняя Песня Боевых При�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769353.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ Tenshi no 3P! | Angel's 3Piece! | Ангельское трио [2017, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768946.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768926.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Human Lost: Ningen Shikkaku | Human Lost: Исповедь неполноцен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768897.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ Re: Zero - Director`s Cut | Re: Zero kara Hajimeru Isekai Seikatsu - Shin Henshu
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768886.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ Arte | Арте [2020, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768870.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ Arte | Арте [2020, TV, 12 эп.] WebRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BBEF678F3A6837AF0198BD70ADFFDED66163632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373415   (768858) от 28.06.2020
-
-Listeners | Слушатели [2020, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768858.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Великая симфония юности» разворачивается в мире, где нет такого понятия, как «музыка». Юноша встречает Мю, загадочную девушку с пустующим аудиовходом на теле. И когда она подключается к усилителю, начинает происходить нечто, способное изменить мир.Производство: Студия MAPPAЖанр: приключенияРежиссер: Андо ХироакиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACF1B1B717DB3AD515352E39A28C2F4A9363D29
 ```
 
 https://mybot314.ru/tekegram_catalog/

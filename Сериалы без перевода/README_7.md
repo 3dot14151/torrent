@@ -1,3 +1,81 @@
+###  Публикация: 1667211   (176823) от 08.10.2023
+
+Счастливые дни / Happy Days (1976-1977) DVDRemux (сезон 4, серии 1-25 из 25) [EN / EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176823.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий находится американская семья среднего класса, Канингхемы. Отец семейства, Ховард, владеет магазином электротоваров. Его жена, Мэрион, домохозяйка. У этой пары имеется трое детей: Ричи (наивный и оптимистичный), его младшая сестра Джони и старший брат Чак (помешан на баскетболе). Ричи зависает в забегаловке "У Арнольда" со своими приятелями (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: комедия, семейный, музыкаРежиссер: Джерри Пэрис, Фрэнк Бакстон, Херб УоллерштейнАктеры: Генри Уинклер, Мэрион Росс, Том Босли, Эрин Моран, Энсон Уильямс, Рон Ховард, Дон Мост, Аль Молинаро, Скотт Байо, Линда ГудфрендПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английскиеПродолжительность: серии по ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B603C31632246BE8DA820B33B413BEDF888A3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667212   (176810) от 08.10.2023
+
+Счастливые дни / Happy Days (1977-1978) DVDRemux (сезон 5, серии 1-27 из 27) [EN / EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176810.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий находится американская семья среднего класса, Канингхемы. Отец семейства, Ховард, владеет магазином электротоваров. Его жена, Мэрион, домохозяйка. У этой пары имеется трое детей: Ричи (наивный и оптимистичный), его младшая сестра Джони и старший брат Чак (помешан на баскетболе). Ричи зависает в забегаловке "У Арнольда" со своими приятелями (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: комедия, семейный, музыкаРежиссер: Джерри Пэрис, Фрэнк Бакстон, Херб УоллерштейнАктеры: Генри Уинклер, Мэрион Росс, Том Босли, Эрин Моран, Энсон Уильямс, Рон Ховард, Дон Мост, Аль Молинаро, Скотт Байо, Линда ГудфрендПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH)Продолжительность: серии по ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082FCE9D0DF84C07F59217F30CF8607C46667BBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667209   (176806) от 08.10.2023
+
+Счастливые дни / Happy Days (1974-1975) DVDRemux (сезон 2, серии 1-23 из 23) [EN / EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176806.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий находится американская семья среднего класса, Канингхемы. Отец семейства, Ховард, владеет магазином электротоваров. Его жена, Мэрион, домохозяйка. У этой пары имеется трое детей: Ричи (наивный и оптимистичный), его младшая сестра Джони и старший брат Чак (помешан на баскетболе). Ричи зависает в забегаловке "У Арнольда" со своими приятелями (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: комедия, семейный, музыкаРежиссер: Джерри Пэрис, Фрэнк Бакстон, Херб УоллерштейнАктеры: Генри Уинклер, Мэрион Росс, Том Босли, Эрин Моран, Энсон Уильямс, Рон Ховард, Дон Мост, Аль Молинаро, Скотт Байо, Линда ГудфрендПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH)Продолжительность: серии по ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8C223CF1F957A60AE4438864303370B2595810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667213   (176746) от 08.10.2023
 
 Счастливые дни / Happy Days (1978-1979) DVDRemux (сезон 6, серии 1-27 из 27) [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176746.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176718.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173557.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172977.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170156.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160392.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151736.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151298.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145098.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133392.jpg" />
 </div>
 
 
@@ -260,32 +338,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680087   (131977) от 05.12.2023
-
-Больничка / H (1998-2002) WEB-DLRip [H.264] (сезон 1-4, серии 1-71 из 71) [FR / EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_131977.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной из больниц в пригороде Парижа «дружная» команда докторов и медсестер под руководством чудаковатого профессора каждый день несет свою нелегкую службу. Между спорами, шутками и розыгрышами они готовы помочь любому несчастному, сломавшему какую-нибудь часть тела, ну или просто посадившему занозу.Производство: Франция, Canal+Жанр: КомедияРежиссер: Шарль Немес, Эдуар Молинаро, Эрик ЛартигоАктеры: Жамель Деббуз, Эрик Жюдор, Рамзи Бедиа, Софи Мунико, Жан-Люк Бидо, Катрин Бенгиги, Линда Харди, Эдгар Живри, Нильс Дюбо, Херв ХассонПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Английские .sbtl (full, CC)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7B3E28996EB2AB1730E9DA61248E3F953753D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533107   (127126) от 19.12.2023
 
 Девушка Асигару Спецвыпуск: Ещё одна невероятная романтическая история / Ashi Girl: Chojiku Love-Com Futatabi (2018) HDTVRip [MPEG-2/1080i] [JP / RU, JP Sub]
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127126.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118675.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115621.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115360.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85597.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84343.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81266.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79789.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76966.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76963.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76383.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60698.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60628.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E659EB93FD4D33B641A9AB9DA2F637F0A2ECEE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715391   (60007) от 12.04.2024
-
-Фоллаут / Fallout (2024) WEB-DL [H.265/2160p]  [4K, Dolby Vision Profile 5, 10-bit] (сезон 1, серии 1-8 из 8) [EN, ES / RU, EN, ES, Multi Sub]
-
->>След.
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал описывает последствия апокалиптического обмена ядерными ударами в альтернативной истории Земли, где достижения в области ядерных технологий после Второй мировой войны привели к возникновению ретрофутуристического общества и последующей войны за ресурсы. Выжившие укрылись в бункерах, известных как Убежища, построенные для сохранения человечества в случае ядерного (   Читать дальше...   )Производство: США / Kilter Films, Bethesda Game Studios, Amazon MGM StudiosЖанр: фантастика, боевик, драма, приключенияРежиссер: Джонатан Нолан, Клер Килнер, Фред ТуаАктеры: Элла Пернелл, Аарон Мотен, Уолтон Гоггинс, Кайл МакЛахлен, Майк Дойл, Мойзес Ариас, Дэйл Дики, Майкл Эмерсон, Крис Парнелл, Зак Черри, Лесли Уггамс, Сарита ЧоудхуриПеревод: ОтсутствуетЯзык озвучки: Английский, Испанский и др.Субтитры: русские, английские и др.Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B0D54221FEC45EA875BCD452612AC65B2C6FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745351   (43853) от 12.09.2024
-
-Мамаша из Норвегии / Milf of Norway (2024) WEBRip (сезон 1, серии 1-8 из 8) [NOR / RU Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леоне (Марианн Холе) теряет работу в престижном агентстве и чувствует себя потерянной. Опубликовав на InsideFans свою фотографию, на которой она едва одета в традиционный народный костюм, она обнаруживает, что у нее есть нишевая аудитория, готовая платить большеПроизводство: Норвегия / ANTI BrandpeopleЖанр: КомедияРежиссер: Руне Денстад ЛанглоАктеры: Марианн Холе, Деннис Стурхей, Тронд Фауса Аурвааг, Хенриетта Фэй-Шолль, Одд Магнус Уильямсон, Хибба Наджиб, Руди Клэс, John Emil Jørgensrud, Maxime Jørgensen, Ким ФалькПеревод: СубтитрыЯзык озвучки: НорвежскийСубтитры: Русские (hardsub - машинный перевод)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3523B11ABB0A93009705C24C06BF344994E97EA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

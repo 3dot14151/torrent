@@ -1,3 +1,159 @@
+###  Публикация: 1838724   (261319) от 24.11.2025
+
+Chivalry Quest: Sword and Flame (2025) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новое захватывающие приключение. Вскоре после побега из горящей деревни вы просыпаетесь под присмотром незнакомца - того, кто, кажется, знает о вашем прошлом больше, чем вы сами. То, что начинается как поиск ответов, быстро превращается в путешествие по истерзанным войной землям, пылающим небесам и тайнам, погребенным глубоко под горами. Ходят слухи о (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6CE11EDC1C204090B7E89ACE407256B35CB21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503507   (261277) от 04.06.2012
+
+Tesla's Tower - The Wardenclyffe Mystery / Башня Теслы. Тайна Ворденклиф (P) [Ru] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая прекрасная игра поведает о жизни Николы Теслы. В его планах было обеспечить человечество бесплатной энергией, но случилось нечто ужасное - сильный взрыв помешал ему. И теперь нашей героине предстоит отправиться в прошлое и выяснить, что же там произошло на самом деле.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Русский ("Наша Версия")
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BF8E476057216A6E0B56C7F4C04215E7CC7BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503986   (259962) от 31.05.2012
+
+Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паутина лжи (L) [Ru] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259962.jpg" />
+</div>
+
+
+###  Подробнее
+
+С тех пор, как  история с Отелем первый раз повстречалось агенту ФБР, много событий и дел было раскрыто, но это — исключение.  Профессиональная тяга к расследованию необъяснимых событий вновь сталкивает агента с отелем Lonely Star и теперь он один на один ступает на путь раскрытия мистического феномена этого проклятого места. Lonely Star отель всегда рад открыть свои двери новым постояльцам, но крепко закрывает их сразу за ними. Серии загадок, головоломок и мини-игр жанра «Я ищу» увлекут вас в прохождение этой волнующей истории до конца. Подсказки ограничены в каждом эпизоде, поэтому полагайтесь на свою логику и опыт в раскрытии дел. Удастся ли агенту ФБР закрыть это дело раз и навсегда - пока не известно. Добро пожаловать в отель и будьте осторожны — мистика не любит пытливых гениев.Тип издания: ЛицензияРазработчик: SpecialBitЖанр: Казуальная, Квест, Логическая, Я ищуЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский (официальная версия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF1D8327923802D20BEF2A4FD294B56C89B4E9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502216   (258867) от 27.05.2012
+
+Spirit Walkers - Curse of the Cypress Witch (P) [En] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит перенестись в прошлое, чтобы помочь своим друзьям предотвратить проклятие... Мэйлин, главная героиня игры, отправилась с подружками в поход. Однако прогулка вскоре становится не такой весёлой: сначала краем глаза то тут, то там девушки начинают замечать призрак женщины, затем одна из них получает серьёзную травму. Пытаясь отыскать помощь, девушки выходят на поляну с огромным кипарисом - там-то их и поджидает виденный ранее призрак. Он соглашается помочь в обмен на то, что вы отправитесь в другое время и измерение и исправите там кое-какие события.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70DD59880AC8EC93AF27409334ACAF685BAAA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502218   (258820) от 27.05.2012
+
+Tesla's Tower - The Wardenclyffe Mystery (P) [En] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая прекрасная игра поведает о жизни Николы Теслы. В его планах было обеспечить человечество бесплатной энергией, но случилось нечто ужасное - сильный взрыв помешал ему. И теперь нашей героине предстоит отправиться в прошлое и выяснить, что же там произошло на самом деле.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DCB7963DC96DDB49722978142CF54C06897229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501704   (258643) от 26.05.2012
+
+Dead City / Город мертвых (P) [Ru] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы молодой вампир, который боится нанести вред своему любимому - смертному. Судьба приводит вас в город, в котором вы надеетесь стать снова человеком.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, ГоловоломкаЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C8FFB3D434571AE6A6543AF437823B3D5DCC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501834   (258601) от 26.05.2012
 
 Flux Family Secrets: The Rabbit Hole / Секреты семьи Флакс 2. Вверх по кроличьей норе (L) [Ru] 2012
@@ -6,7 +162,7 @@ Flux Family Secrets: The Rabbit Hole / Секреты семьи Флакс 2. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258601.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Final Cut: Death on the Silver Screen. Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258567.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Sandman / Истории шёпотом: Песочный человек (P) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258353.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Reflections of Life 15: A Shattered Heart (2025) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258023.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Amazing Adventures 5: Riddle of the Two Knights (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257242.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Inspector Magnusson: Murder on the Titanic / Инспектор Магнуссо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256977.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Lady Mabel Mysteries: Death on Board / Тайны леди Мейбл: Смер�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256819.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Edge of Reality 10: Island of Shadows / Край реальности 10: Ост
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256817.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Mystery Case Files: Dire Grove / За семью печатями. Дайр Гр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256183.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Haunting Mysteries: Island of Lost Souls Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256089.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Top Secret Finders (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256078.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Fabled Legends: The Dark Piper Collector's Edition / Небывалые леге
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253847.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Dark Alleys: Penumbra Motel Collector's Edition / Темные аллеи. Мо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253527.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.0.8) License GOG [Part 3]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251793.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Secrets of Salem 2: The Phantom Cab / Секреты Салема 2: Призр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251703.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.10) License GOG [Part 1]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251691.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Living Legends 13: Haunting Melody (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251683.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Mystery Case Files: Return to Ravenhearst / За семью печатями. В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251562.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Snark Busters: High Society / Охотники за Снарком 3. Высше
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251295.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Snark Busters: High Society / Охотники за Снарком. Высшее
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250939.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Snark Busters: High Society / Охотники за Снарком. Высшее
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DDE43BC4F3957E5397B2F234C0BC2B8BCA47B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835445   (250839) от 06.11.2025
-
-Legendary Tales 4: Map of Hope / Легендарные предания 4: Карта Надежды (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_250839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legendary Tales возвращаются с новой историей-приквелом! Люсия и ее брат долгие годы скрывались от ведьм, но им больше некуда бежать. Внезапно старая подруга Скарлетт приносит новости, которые развеивают нависшее отчаяние: возможно, есть место, где они наконец смогут воссоединиться со своими сородичами. К сожалению, Скарлетт не может присоединиться к путешествию.Тип издания: UnofficialРазработчик: Five-BN GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57065886E5A3519DF9187D4EB1AB26C74DA4C2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834662   (250356) от 04.11.2025
-
-Shrine's Legacy (2025) [Multi] (1.04) Repack Necros
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shrine's Legacy - это ролевая игра, вдохновленная лучшими классическими играми SNES. Исследуйте обширный мир, сражаясь в реальном времени с помощью надежной боевой системы и ролевой системы снаряжения. В героической партии из двух человек на помощь всегда придет один компаньон, управляемый либо игрой, либо другом в кооперативном режиме.Тип издания: RepackРазработчик: Positive Concept GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнлийскийЯзык субтитров: Анлийский, Китайский (Упрощенный)Язык интерфейса: Анлийский, Китайский (Упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109F6C9F6F7B34624406C82862AF0372C888EAB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537881   (249954) от 18.03.2022
-
-Maze Of Realities: Flower Of Discord / Лабиринт Реальностей: Цветок Раздора (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую увлекательную игру. Вы - следователь по делам пропавших людей. Ваша племянница вместе с участниками экспедиции пропала в горах Гренландии. Во время их поисков вы открываете портал в другой мир. Но вскоре выясняется, что существует не один мир, а три: Аркалия, Атлантида, которая также известна как Подводный мир, и Параллельный мир! Равновесие между (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F53396627A6A7AC1C7E51DD8E7FDA8EE11CB2A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493414   (248587) от 07.05.2012
-
-Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на продажу 2. История Саннивейла. Коллекционное издание (P) [Ru] 2011
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Череда загадочных исчезновений жителей города Саннивейл началась много лет назад, когда на месте старинного дома было решено проложить шоссе. Именно тогда сначала пропала, а затем была найдена мёртвой первая жертва - жена горожанина Жана Этьена. Впоследствии муж был признан виновным в этом преступлении и казнён. Но к большому удивлению всех убийства не прекратились. Город редеет и многие дома заколочены, так как их хозяева в страхе покинули эти места. Кто или что стоит за этими исчезновениями и кто станет следующей жертвой? Проведите своё расследование и раскройте тайну, держащую в страхе весь город. Проходя игру, приглядитесь внимательно к жителям города, ведь каждый из них поможет вам приблизиться к разгадке. А кто то может быть даже стоял у истоков всей этой мистической истории и должен теперь ответить за свои прошлые ошибки.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Русский (официальная версия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AB73BA16E33C22DBAA6695CDAB25D4C638DEC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834312   (248520) от 03.11.2025
-
-Undertale (2015) [Ru/En] (1.08) Repack Necros
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248520.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Undertale вы играете за человеческого ребенка, который попадает под землю и оказывается в мире монстров. Вы должны найти выход... или остаться здесь навеки. Добро пожаловать в UNDERTALE – ролевую игру, где убивать не обязательно. Всех врагов можно «победить» без насилия. Потанцуйте со слизнем. Погладьте собаку. Шепотом поведайте свою сокровенную тайну рыцарю. Или, (   Читать дальше...   )Тип издания: RepackРазработчик: Toby FoxЖанр: Инди, Ролевые игрыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F9776C25EFAEFEBADEB8579E5641E4EBCCE06F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492510   (247989) от 05.05.2012
-
-Atlantic Journey: The Lost Brother / Атлантическое путешествие. В поисках брата (L) [Ru] 2012
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помогите любящей сестре отыскать брата-авантюриста, отправившегося на поиски очередной древней реликвии для своей коллекции. Обследуйте все уголки земного шара, собирая по пути полезные предметы и играя с уличными торговцами в хитрые и увлекательные мини-игры. Кстати, если вы победите, то получите ценный подарок, который позволит вам продвинуться в поисках. Кроме спрятанных предметов, на каждой локации для вас приготовлены приятные бонусы. Если вы сможете их отыскать, то они украсят интерьер вашей каюты на яхте. При необходимости пользуйтесь подсказкой, но главное - во всем будьте аккуратны! И в лаборатории, и в музейных помещениях оставляйте после себя порядок. Как только в той или иной стране след парня будет найден, тут же открывайте карту и выбирайте следующее место ваших приключений. Да, и не забудьте обзавестись необходимым инвентарем и снаряжением, чтобы без проблем справляться с текущими заданиями и виртуозно решать головоломки в мини-играх!Тип издания: ЛицензияРазработчик: VostorgЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык интерфейса: Русский (официальная версия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BB1423935D2BE0B1167DCE244AE093D599740F
 ```
 
 https://mybot314.ru/tekegram_catalog/

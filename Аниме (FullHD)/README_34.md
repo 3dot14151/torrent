@@ -6,7 +6,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449561.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Завет Дь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448627.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fate/Stay Night Unlimited Blade Works / Судьба: Ночь Схватки (�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447430.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Toaru Hikuushi e no Koiuta | The Pilot's Love Song | Песня любви од�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447106.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Shashinkan | Фотоателье [2013, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447025.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Robot Girls Z | Девочки-роботы Зет [2014, TV, 3 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444750.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Servamp | Сервамп [2016, TV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443140.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Pop in Q | Поп и Кью [2016, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440729.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440593.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ BPS: Battle Programmer Shirase | Боевой программер Сирасэ 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440587.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Dragon's Dogma | Догма дракона [2020, Web, 7 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439984.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Lost Butterfly | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437349.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Legend of the White Whale 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435967.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ The Idolmaster Movie: Kagayaki no Mukougawa e! | The Idolmaster Movie: Beyond th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434487.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Joukamachi no Dandelion / Castle Town Dandelion / Одуванчик из при
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434388.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Listeners | Слушатели [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433968.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Recorder to Randsell Mi / Флейта в рюкзаке Ми [2013, TV, 12 + 1 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433744.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433615.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433287.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] We
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433280.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432870.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431824.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431823.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431822.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431719.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Uchuu no Kishi Tekkaman Blade | Star Knight Tekkaman Blade | Space Knight Tekkam
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431651.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053673.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053520.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053519.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Marker School, Анастасия Агеева | Базовый курс гра�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052058.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050040.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049515.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049514.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Marker School, Екатерина Пластинина | Bella Grafica! Архи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049488.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049345.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049344.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Genius.Space, Катерина Кравчук | Профессия Графич�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048438.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Yarets.Art, Виктория Ярец | Pixel Art (2025) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048434.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ TutorPlace, Дарина Костина | Adobe Illustrator для начина�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047981.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047638.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Fashion Factory, Гузель Юзеева | Fashion-иллюстрация (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047578.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Gumroad, Mitch Leeuwe | Collection of drawing guides (2019-2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047340.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046603.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046588.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Knower School, Дмитрий Смирнов | Курс игровой граф�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045619.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045346.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044897.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044790.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Videosmile, Дмитрий Кузнецов | Супер Illustrator (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044779.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Timesavervfx, Александр Ежов | Живые фото - Анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044667.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Saharovigor, Анна Маратканова | Горный пейзаж с до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044409.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044370.jpg" />
 </div>
 
 

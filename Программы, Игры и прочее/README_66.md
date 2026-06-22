@@ -1,3 +1,29 @@
+###  Публикация: 918995   (578745) от 23.07.2015
+
+Сказки народов мира 1.01 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая книга сказок для детей. Сказки народов мира. Более 1300 сказок!Тип издания: FreeРелиз состоялся: 9 июля 2015 г.Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7A209C62422BEFEF2C33319D585E186E17918D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945483   (577644) от 01.07.2018
 
 Кинопоиск v4.5.2 Mod [Ru] - подробная информация о любом фильме или актёре
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577644.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ YARVITTO v3.18 Pro [Ru/Multi] - путеводитель по Европе и н
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575747.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ All GPS Tools Pro v2.6.2 + Mod [En] (Compass, Weather, Map Location)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575628.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Atlantic Fleet версия: 1.08 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575142.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575039.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571960.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568461.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Learn English - Listening and Speaking v6.3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556995.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Adguard Premium 2.9.136 Final [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556642.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Text Scanner [OCR] v9.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556324.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555530.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555516.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554989.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553452.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ VidTrim Pro - Video Editor v2.6.1 [Ru/Multi] - видеоредактор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553413.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551834.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Cloud Radio Pro ( Record & Lyrics ) v5.3.1 [Ru/Multi] - Онлайн радио 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551355.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Tom And Jerry Classic 1.0 [Ru/En]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551345.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551301.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Screen Translator Plus v3.2.1 [Ru/Multi] - Переводчик буфера о�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549996.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547567.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546845.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546837.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539481.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538294.jpg" />
 </div>
 
 
@@ -654,34 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C78B788E5D8E056E28171B3EC4EB796AA9D087E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925306   (535155) от 09.08.2015
-
-RunKeeper 5.8.3 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйся к 26-миллионному сообществу пользователей RunKeeper, которые уже превратили телефон в личного карманного тренера! Отслеживай прогулки, пробежки, походы и поездки на велосипеде с помощью GPS на своем телефоне Android.
-Отслеживай физическую активность и получай при этом удовольствие:
-- Просматривай подробные статистики о темпе, дистанции, времени и сожженных (   Читать дальше...   )Релиз состоялся: 04.08.2015Разработчик: FitnessKeeper, Inc.Поддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский, Английский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAEDA72C0A7DE108EAA39DCD73DA41CF0970BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

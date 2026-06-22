@@ -1,3 +1,100 @@
+###  Публикация: 368721   (527424) от 29.07.2011
+
+Ronnie Nyogetsu Seldin - Ichi On Buttsu: One Sound Enlightenment (1997) [MP3|320 kbps]<Zen, Ethnic, Shakuhachi>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_527424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ifu-Sashi
+02. Banji
+03. Omae
+04. Darami
+05. Banshiki
+06. Koku
+07. Mukaiji
+08. Kyorei1997Жанр: Zen, Ethnic, ShakuhachiПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E608A272AE04B6D9CCB6E7372A8664B866958E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266334   (526722) от 30.07.2011
+
+CLON - Discography[5 albums] (1996-2005) [FLAC|Lossless]<Korean,dance>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_526722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 세상 밖으로
+ 02. Ok! Alright! (feat. 채연)
+ 03. 우하
+ 04. Ready To Go (feat. 이지연)
+ 05. 내사랑 송이 (feat. 원우)
+ 06. Let's Go (feat. 이지영)
+ 07. 더이상 침묵할 수 없다
+ 08. 소외된 외침
+ 09. 대면... (Interlude)
+ 10. 무언의 발걸음 (feat. 이정)(   Читать дальше...   )1996-2005Жанр: Korean, danceПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559355   (524324) от 25.06.2022
+
+Hate Beyond - Perpetual Pain (2003) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perpetual Pain
+02. Dark Signs
+03. Gun Philosophy
+04. My Fate By Hate(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03910A0C15FA09D82EF7D4A84343836BE21C57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559645   (523379) от 26.06.2022
 
 Hate Beyond - Ruthless Aggression (2018) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
@@ -6,7 +103,7 @@ Hate Beyond - Ruthless Aggression (2018) [FLAC|Lossless|image + .cue] <Thrash, D
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523379.jpg" />
 </div>
 
 
@@ -35,7 +132,7 @@ Remember - Route back home (2015) [FLAC|Lossless|WEB-DL]<Ambient, Cyberpunk, Dre
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521465.jpg" />
 </div>
 
 
@@ -64,7 +161,7 @@ Jun Togawa - 12 альбомов (1984-2008) [FLAC|Lossless]<Japanese,new wave,n
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_520828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_520828.jpg" />
 </div>
 
 
@@ -99,7 +196,7 @@ SHIKI - Discography (2005-2010) 11 albums [FLAC|Lossless]<Doujin,touhou, trance,
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_518923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_518923.jpg" />
 </div>
 
 
@@ -134,7 +231,7 @@ Bonten - Gaifu (2007) [FLAC|Lossless]<Japanese,drums>
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_517740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_517740.jpg" />
 </div>
 
 
@@ -167,7 +264,7 @@ Sato Anna - 3 альбома (2005-2008) [FLAC|Lossless]<Japanese, New Age, Enka
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_516615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_516615.jpg" />
 </div>
 
 
@@ -200,7 +297,7 @@ Kiyoshi Yoshida - 3 альбома (2001-2007) [FLAC|Lossless]<Japanese/Japanese
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_515330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_515330.jpg" />
 </div>
 
 
@@ -235,7 +332,7 @@ Huang Jiang Qin - 12 albums (2004-2009) [MP3|320 кб/с]<Instrumental, Ethnic, 
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514223.jpg" />
 </div>
 
 
@@ -264,7 +361,7 @@ coldrain - Nonnegative (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, P
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513620.jpg" />
 </div>
 
 
@@ -293,7 +390,7 @@ Nemophila - Revive (U.S. Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcor
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511524.jpg" />
 </div>
 
 
@@ -322,7 +419,7 @@ Yoshii Kazuya - 2 albums (2007-2009) [FLAC|Lossless]<J rock,rock'n'roll>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_511322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_511322.jpg" />
 </div>
 
 
@@ -357,7 +454,7 @@ Sojiro - Дискография /20 альбомов/ (1987 - 2009) [MP3|256,320
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510738.jpg" />
 </div>
 
 
@@ -383,7 +480,7 @@ Hikawa Kiyoshi - Discography incomplete [12 albums] (2001-2009) [FLAC|Lossless]<
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_510218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_510218.jpg" />
 </div>
 
 
@@ -418,7 +515,7 @@ Four Get Me A Nots - Astrea (2015) [OGG| 488-540 кб/с]<JPop, Pop Punk Rock>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509885.jpg" />
 </div>
 
 
@@ -447,7 +544,7 @@ Xiao Ping - GOD Of Guitar (2009) [MP3|160 кб/с]<Instrumental, Guitar>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509695.jpg" />
 </div>
 
 
@@ -482,7 +579,7 @@ Tetsuya Komuro - 4 альбома (1989-2011) Творчество(избран�
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_508090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_508090.jpg" />
 </div>
 
 
@@ -517,7 +614,7 @@ Meiko Kaji - Aitsu no Suki Sona Blues (2011) [MP3|320 кб/с]<J-POP, Blues, Blu
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507451.jpg" />
 </div>
 
 
@@ -549,7 +646,7 @@ coldrain - Nonnegative (2022) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, M
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507128.jpg" />
 </div>
 
 
@@ -578,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503264.jpg" />
 </div>
 
 
@@ -607,7 +704,7 @@ Jeon Su Yeon - Sentimental Green (2005) [MP3|320 kbps]<NewAge>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502801.jpg" />
 </div>
 
 
@@ -642,7 +739,7 @@ VA - Face To Face (vol. I-III) (2006-2009) [MP3|320 кб/с]<Instrumental, Ethni
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502445.jpg" />
 </div>
 
 
@@ -677,7 +774,7 @@ Seira Kagami - 4 альбома, 2 сингла (2007-2010) [MP3|192-320 кб/с
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502354.jpg" />
 </div>
 
 
@@ -703,7 +800,7 @@ VA - Pacific Moon. Compilation (27 albums) (1999-2010) [MP3|320 кб/с]<Ethnic,
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501949.jpg" />
 </div>
 
 
@@ -717,87 +814,6 @@ VA - Pacific Moon. Compilation (27 albums) (1999-2010) [MP3|320 кб/с]<Ethnic,
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379563   (501939) от 25.08.2011
-
-VA - The Rough Guide To The Music Of Japan (2008) [APE|Lossless] <Folk, World, Country>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501939.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:44] 01. Michiko Suga - Ushibuka Haiya Bushi
-[04:11] 02. Chanchiki - Yagaefu
-[03:14] 03. Nami Makioka - Subayado Bushi
-[03:50] 04. Takashi Hirayasu - Koza Renka(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541462   (500142) от 01.09.2012
-
-Aki Toyosaki - 3 альбома, 21 сингл  (2009-2012) [MP3|320 кб/с]<J-Pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Albums:Жанр: J-PopПродолжительность: 00:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB817B271F59BA87CADB5B814EA70ADC7E2185D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935321   (499163) от 08.09.2015
-
-Pazzo Fanfano Di Musica - Pazzo Fanfano Di Musica (1989) Reissue /2013, King Records, Japan/ [FLAC|image + .cue]<Symphonic Prog>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Галстуки-бабочки, фраки, строгие женские платья... Мельканье смычков, черно-белая вереница нот... Воздух напоен отголосками старинных мотивов. Однако консерваторская чопорность лишь прикрытие. На деле все по-другому. Просто сборная японских прогрессивных талантов решила поиграть в "итальянство". Что же такое Pazzo Fanfano di Musica? Сводный проект мастеров (   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2253D35723C1276748B62EF9EA86DCF9EBA6004
 ```
 
 https://mybot314.ru/tekegram_catalog/

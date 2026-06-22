@@ -1,3 +1,111 @@
+###  Публикация: 1724456   (29824) от 25.01.2025
+
+Андрей Третьяков | Цикл "Рос: Мангуст" [9 книг] (2023-2024) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я нищий граф. Максимально нищий. Как так вышло? Вот в такой род я попал. Но это же мелочи? Умный человек всегда найдёт, где поднять своё благосостояние! Впрочем, это было бы терпимо, но неизвестные убийцы постоянно пытаются меня прикончить, и непонятно за что.
+Но всё это неважно, у меня есть магия, "изнанка", молодость, шикарные девушки и веселье. И даже (   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DFBB0F69C4C91E7EF9EA77512569C63577DCFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779106   (27966) от 11.02.2025
+
+Андрей Шитик | Сборник произведений [5 книг] (2020-2023) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Шитик - малоизвестный талантливый российский писатель-фантаст. Пишет интересно, грамотно, без попаданцев и боярства. Книги читаются с удовольствием, рекомендуется всем поклонникам Фантастики с большой буквы.Жанр: Боевая фантастика, постапокалипсис, киберпанкИздательство: ЛитресФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6501A66416FF5032A89139E2B8FCBCDF8E448555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780363   (27201) от 18.02.2025
+
+А. Суконкин | Плеяда (2025) [PDF, EPUB, FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плеяда — группа выдающихся деятелей науки, искусства, военного дела или политики, проживавших в одном историческом периоде.
+
+Книга о том, что значит война – для рядового, для командира отделения, взвода, роты, батальона, бригады, армии, группировки, для Генерального Штаба и для… ну, там сами увидите.
+Книга о том, что между вышеперечисленными категориями никогда не (   Читать дальше...   )Жанр: Проза о войнеИздательство: СамиздатФормат: PDF, EPUB, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA96BBA8AB94E17DDA37CF4E604888C2EC619D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780678   (27092) от 19.02.2025
+
+Сбopник | «Танковая фантастика» [122 книги] (2000-2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник книг в жанрах попаданцы и боевая фантастикa, все книги в котором посвящены танкам и танкистам.Жанр: Боевая фантастикa, альтернативная история, попаданцыИздательство: Различные, СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AA79A794118AEBF3D905D5F1DA1EDE3302DA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750130   (26731) от 23.02.2025
 
 Дмитрий Чайка | Цикл "Третий Рим" [16 книг] (2023-2025) [FB2]
@@ -6,7 +114,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26731.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26677.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26486.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26101.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25801.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24592.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24349.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23900.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23882.jpg" />
 </div>
 
 
@@ -251,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23856.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23848.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23820.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23347.jpg" />
 </div>
 
 
@@ -358,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23227.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23124.jpg" />
 </div>
 
 
@@ -413,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23088.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22669.jpg" />
 </div>
 
 
@@ -467,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22623.jpg" />
 </div>
 
 
@@ -494,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22552.jpg" />
 </div>
 
 
@@ -521,7 +629,7 @@ Ascold Flow | Цикл "Круизеры" [5 книг] (2024-2025) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22189.jpg" />
 </div>
 
 
@@ -547,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21978.jpg" />
 </div>
 
 
@@ -575,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21959.jpg" />
 </div>
 
 
@@ -589,115 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3128E5874E85500A23E9A21544CC6AB8F538357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777149   (21642) от 12.04.2025
-
-Сергей Мусаниф | Цикл "Боб Кэррингтон" [6 книг] (2022-2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее зовут Боб. Она служит в полиции, ездит на «Шевроле Тахо», в багажнике которого лежит топор, ругается, как сапожник, а предупредительный выстрел делает сразу в голову. Но внутри она - хрупкий, нежный и ранимый канадский дровосек.Жанр: Городское фэнтези, Боевик, Фантастический детективИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D541D3426B1D811C0795DF79F447041C738C3E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791311   (21555) от 13.04.2025
-
-Дан Лебэл | Цикл "Схождение" [6 книг] (2022-2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба значительной части Земли давно предрешена случайным выбором в величайшем событии множества миров, измерений и параллельных реальностях. Можно ли к такому подготовиться? Наверное, можно. Если знать что грядёт, то можно выполнить минимум, который позволит не погибнуть в первые часы, когда придет беда. А что потом? После первых часов, или даже дней после катаклизма? (   Читать дальше...   )Жанр: РеалРПГ, Постапокалипсис, Боевая фантастикаИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D65B1C0FF3315890393AAAAF450E28A90EF547A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791396   (21513) от 13.04.2025
-
-Дмитрий Ра | Цикл "Гильдия злодеев" (2022-2024) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если ты - воротила преступного мира и попадаешь в мир эльфов? В тело бастарда, вычеркнутого из книги Рода.
-В кармане 20 медяков, яростная бандитка жаждет отнюдь не ласки, да еще и говорящий череп объявляет тебя хозяином пространственного Анклава.
-Конечно же надо зашибать деньги, заключать странные договора, коллекционировать проклятые артефакты! А, еще (   Читать дальше...   )Жанр: Попаданцы в магические миры, Бояръ-Аниме, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E5BB19A94954FFE266440D643F4B44AE70009C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792077   (21159) от 17.04.2025
-
-Павел Барчук | Цикл "Ученик Смерти" [3 книги] (2024-2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любите ли вы сиськи, как люблю их я…
- Вот так я мог бы сказать. Но не скажу. Сисек в этой истории нет. А жаль…
- Зато есть могущественный некромант, который умер не в то время, и малолетний бастард, который родился не в том месте.
- Хотите, расскажу, как легко потерять все: власть, деньги, вечную жизнь, а взамен получить кучу врагов и туманное будущее? Как разозлить Смерть, (   Читать дальше...   )Жанр: Альтернативная история, Попаданцы, Бояръ-Аниме, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6968792583D6DADFDF4BD2548614378391D9789A
 ```
 
 https://mybot314.ru/tekegram_catalog/

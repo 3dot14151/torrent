@@ -1,3 +1,56 @@
+###  Публикация: 1369589   (901176) от 24.03.2020
+
+Стражи Галактики / Guardians of the Galaxy (2014, 2017) BDRip [H.264/1080p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважному путешественнику Питеру Квиллу попадает в руки таинственный артефакт, принадлежащий могущественному и безжалостному злодею Ронану, строящему коварные планы по захвату Вселенной. Питер оказывается в центре межгалактической охоты, где жертва — он сам.
+Единственный способ спасти свою жизнь — объединиться с четверкой нелюдимых изгоев: воинственным енотом по (   Читать дальше...   )Производство: США / Marvel Studios, Walt Disney Pictures, Moving Pictures CompanyЖанр: фантастика, боевик, приключения, комедияРежиссер: Джеймс ГаннАктеры: Крис Прэтт, Зои Салдана, Дэйв Батиста, Вин Дизель, Брэдли Купер, Ли Пейс, Майкл Рукер, Карен Гиллан, Джимон Хонсу, Джон Си Райли, Сильвестр Сталлоне, Пом Клементьефф, Элизабет Дебики, Курт РасселлПеревод: ДублированныйСубтитры: русские (Forced, Full), английские (Full, SDH, SDH-Colored)Продолжительность: 02:00:51 / 02:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95483F29D5180B9FF5C784869A871F5B61577040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868543   (893912) от 13.02.2015
+
+Паранормальное явление: Квадрология / Paranormal Activity: Quadrilogy (2007-2012) BDRip [1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается спустя 5 лет с момента событий фильма «Паранормальное явление 2». Алекс и её бойфренд борются с паранормальной активностью в их доме.Производство: СШАЖанр: Ужасы, триллер, детективРежиссер: Генри Джуст, Эриель ШульманАктеры: Кэтрин Ньютон, Кэти Физерстон, Мэтт Шивли, Стивен Данэм, Алексондра Ли, Брэйди Аллен, Эйден Лавкамп, Сара Морнелл, Алиша Боэ, Брэндон Хэйл ЭггерсенПеревод: ДублированныйЯзык субтитров: Русский , АнглийскийПродолжительность: 01:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C223983BD39D9B0F3DA4372443F62427CB9C4D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341705   (893313) от 04.09.2021
 
 Фантоцци / Fantozzi (1975-1999) DVDRemux [Антология]
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893313.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891967.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888847.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884014.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_881037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881037.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880029.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876226.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875763.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873141.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870578.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869141.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867229.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865964.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860880.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856207.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855593.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849859.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846882.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846820.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846114.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845994.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842541.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838844.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836488.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561171   (835524) от 01.05.2020
-
-Жандармы: Коллекция / Les gendarmes: Collection (1964-1982) [H.264/1080p] Blu-ray [Луи де Фюнес / Louis De Funes]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые времена — новые нравы. В жандармерию присылают четырех стажеров — девушек с ногами от шеи. Наши герои приходят в приятное волнение, а их жены — в исступление. Седина в бороду, бес в ребро.
-Как назло, девушек похищают неизвестные злодеи. Честь мундира висит на волоске. Если Крюшо не вернет стажеров завтра к утру, его уволят без рекомендаций и выходного пособия. (   Читать дальше...   )Производство: Франция ИталияЖанр: Самая веселая комедияРежиссер: Тони Абоянц, Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Жан Лефевр, Мишель Модо, Женевьев Град, Жак Франсуа, Морис Риш, Клод Жанзак, Катрин Сэр, Софи Мишо, Ги Гроссо, Франс Румийи, Бабет, Патрик ПрежанПеревод: Многоголосый закадровый, Одноголосый закадровыйСубтитры: ФранцузскиеПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFFB807FAC6E8E71DE625145FEA0DA94C66531F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 313313   (824278) от 25.03.2011
-
-Гарри Поттер: Гексалогия / Harry Potter: Hexalogy (2001-2009) HDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_824278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь не только мир волшебников, но и мир маглов ощущает на себе все возрастающую силу Волан-де-Морта, а Хогвартс уже никак не назовешь надежным убежищем, каким он был раньше. Гарри подозревает, что в самом замке затаилась некая опасность, но Дамблдор больше сосредоточен на том, чтобы подготовить его к финальной схватке, которая, как он знает, уже не за горами. Вместе они пытаются разгадать секрет бессмертия Волан-де-Морта, а для этого Дамблдор приглашает на должность преподавателя по зельеварению своего старинного друга и коллегу — профессора Горация Слизнорта, который обожает устраивать вечеринки для избранных и гордится своими обширными связями в высших кругах. Но этот бонвиван и не подозревает, что как раз от него Дамблдор надеется заполучить самую важную информацию о крестражах. Тем временем учеников атакуют самые разные враги, а подростковые эмоции хлещут через край. Гарри начинает понимать, что становится все более неравнодушным к Джинни, однако, и Дин Томас тоже. А Лаванда Браун вбила себе в голову, что (   Читать дальше...)Жанр: фэнтези, детектив, приключения, семейныйРежиссер: Дэвид ЙэтсАктёры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Джим Броудбент, Эларика Галлахер, Робби Колтрейн, Майкл Гэмбон, Мэгги Смит, Алан Рикман, Бонни РайтПеревод: Профессиональный (полное дублирование)Продолжительность: 02:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B081F53F01AA6328B37C22E4E26BA831767D5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

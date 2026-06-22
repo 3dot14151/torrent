@@ -1,3 +1,55 @@
+###  Публикация: 1078820   (297799) от 02.12.2016
+
+Н. Медведева (сост.) | Азбука пчеловода. Руководство по разведению пчел на приусадебном участке (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297799.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Мед и другие продукты пчеловодства только дорожают и из-за своей цены становятся почти недосягаемы. Но владельцы земельных участков могут обеспечить себя медовыми деликатесами сами. Стоит только захотеть. Ведь многие пчеловоды выросли из обычных садоводов-любителей. Однажды, заведя пару ульев для увеличения урожаев на даче, они настолько увлеклись разведением (   Читать дальше...   )Жанр: ПчеловодствоФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A7B37A5C0993999BC434B0D57E784093171832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078958   (297668) от 02.12.2016
+
+Мартин Штангль, Петер Клок | Умная обрезка и прививка плодовых и декоративных деревьев и кустарников (2014) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все секреты обрезки и прививки деревьев, плодовых и декоративных кустарников под одной обложкой! Именно правильная обрезка способствует высокому качеству плодов и помогает сохранить здоровье деревьев без каких-либо опрыскиваний. А прививка позволяет самостоятельно и успешно размножать растения, сохраняя важные свойства сорта, экономить на покупке саженцев. Детальные (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E6543DDD4C37B99A99B0A2650167B8A1F4DA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962150   (296884) от 03.12.2015
 
 Виктория Крейс | Сад вашей мечты. Планирование, содержание, уход своими руками (2014) [PDF]
@@ -6,7 +58,7 @@
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296884.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292957.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292947.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287967.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281816.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280311.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279123.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277029.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277019.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264846.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261233.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260267.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258877.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258532.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258335.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256177.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256142.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252698.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248002.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233557.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233510.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229096.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228739.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227168.jpg" />
 </div>
 
 
@@ -624,61 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5201C6DEDC1DC2A1062399049FCFAD72B96B8866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513651   (223495) от 29.11.2021
-
-Б. Рябинин | Любитель-собаковод (1955) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто приходится слышать: где можно приобрести породистого щенка? куда обратиться? Другие спрашивают: а что лучше — щенок или взрослая собака? какую породу выбрать?… Нередко недоуменные вопросы возникают у тех, кто уже обзавелся собственной собакой и даже успел вырастить ее...
-В книге идет речь о служебном собаководстве.
-Само собой разумеется, что это не учебник, (   Читать дальше...   )Жанр: Домашние животныеФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3864B2AFC6D4CE1E898DD0725D17F471EEDB138F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426010   (218499) от 22.11.2020
-
-Мария Гудаваж | Доктор Пес. Как наши лучшие друзья становятся нашими врачами (2020) [EPUB]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга от автора бестселлеров New York Times «Солдат Пес», «Десантник Пес» и «Суперагент Пес» Марии Гудаваж о собаках-врачах.
-Собака лучше любого электронного прибора способна определить, например, заболевание раком – она делает это по запаху. Точно также собаки могут заранее предупреждать больного о приближении судорог или спазмов, о приступах внезапного сна (   Читать дальше...   )Жанр: Домашние животные, ЗдоровьеПеревод: Ирина ГолыбинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A292889846555559D08107C520EE2439165379F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

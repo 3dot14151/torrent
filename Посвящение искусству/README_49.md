@@ -1,3 +1,83 @@
+###  Публикация: 1671446   (171184) от 25.10.2023
+
+Аль Пачино, Бронкс и ярость (Стать Аль Пачино) / Al Pacino, le Bronx et la fureur / Becoming Al Pacino (2022) WEBRip [VP9/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аль Пачино — живая легенда кино. В связи с 50-летием его дебюта на большом экране документальный фильм исследует талант и демонов этого харизматичного актера, включив в него редкие архивы, такие как отснятые очерки и фотографии, а также исторические кадры, связанные с его культовыми фильмами.
+
+В 81 год Аль Пачино отмечает полувековой юбилей своей карьеры. В 1940-х (   Читать дальше...   )Производство: Франция / ZedЖанр: документальный, история, биография, знаменитостиРежиссер: Жан-Батист ПеретьеАктеры: Аль Пачино, Стивен Бауэр, Марлон Брандо, Джон Казале, Фрэнсис Форд Коппола, Роберт Де Ниро, Энн Дворак, Вернер Энг, Джин Хэкмен, Дастин ХоффманПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: Французские неотключаемые на английскую речьПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7116DEB6CD4E31ECD8ED29B49ADCAB5198014AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655024   (171144) от 25.10.2023
+
+Цвет времени (2020) HDTVRip [H.264/1080p] (серии 1-11 из ?)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый выпуск программы посвящен тому или иному всемирно известному художнику, скульптору, произведению искусства или художественному течению. Среди мастеров живописи, о которых пойдет речь в программе, - Эль Греко, Тициан, Караваджо, Эдгар Дега, Клод Моне, Марк Шагал.Производство: Россия, телеканал "Культура", НеофитЖанр: документальный, история, искусство, живописьЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии ~00:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6260E6CC21E3502506082504FD9EFBE11FFEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671499   (171117) от 25.10.2023
+
+Джеки Чан - юмор, слава и кунг-фу / Jackie Chan - Humour, gloire et kung-fu (2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеки Чан - настоящая икона азиатской и китайской культуры. За свою 45-летнюю карьеру он занял нишу не только как актер, каскадер, режиссер и сценарист, но и как певец и крупный бизнесмен. Снявшись почти в 200 фильмах, Чан примирил поклонников жанрового кино и голливудских блокбастеров, преодолев разрыв между азиатским и западным кинематографом. С помощью отрывков (   Читать дальше...   )Производство: Франция, Польша, Австралия, ZED, ARTE, Ale Kino+, PlaneteЖанр: документальный, биография, история, киноРежиссер: Antoine CoursatУчастники: Джеки Чан, Marie Borgini, Verena Rendtorff, Sebastian Griegel, Бретт Рэтнер, Томас Венке, Брюс Ли, Джейден Смит, Уилл Смит, Сильвестр СталлонеПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: Французские (hardsub на английскую речь)Продолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884CD708DE55B687CB8698EC0E72F5D3E4A2F546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596199   (170306) от 09.12.2022
 
 Искусство звука с Марком Ронсоном / Watch the Sound With Mark Ronson (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [DVO]
@@ -6,7 +86,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170306.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170240.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169532.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169220.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168845.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168772.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168646.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168104.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167924.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167535.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166746.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166008.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165200.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165173.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165130.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163034.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162932.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162655.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162614.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ The Beatles: Вернись / The Beatles: Get Back (2021) WEB-DL [H.264/1080p] 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162516.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ The Beatles: Вернись / The Beatles: Get Back (2021) WEB-DL [H.265/2160p] 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162500.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162336.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162290.jpg" />
 </div>
 
 
@@ -595,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA36B05A88A4EEAE1966FEBA40C1E6FF8870772E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433131   (162170) от 19.12.2020
-
-Юл Бриннер: Душа бродяги (2015) DVB [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок, сын знаменитого американского актёра Юла Бриннера, едет в маленькую швейцарскую деревушку, откуда ведет начало его род. Он собирается принять участие в церемонии переименования площади, которая отныне будет называться в честь Юла Бриннера. По дороге сын вспоминает проведенные с отцом годы. Мало кто знает, что актёр, сыгравший главную роль в одном из самых популярных (   Читать дальше...   )Телекомпания: Россия / КультураЖанр: Документальный, Искусство, БиографияРежиссер: Маргарита КуклинаСубтитры: Teletext SubtitleПродолжительность: ~00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DA37C024F719CFF98A7BA04A2D0F41C4860B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433074   (162052) от 19.12.2020
-
-Юл Бриннер, великолепный / Les mille et une vies de Yul Brynner (Yul Brynner, The Magnificent) (2020) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм - первая попытка рассказать об удивительной жизни главного киноковбоя 1960-х, звезды культовой «Великолепной семерки» Юла Бриннера, секс-символа и самого экстравагантного актера Голливуда. Жизнь Бриннера была полна ярких моментов: от парижских кабаре до сцен бродвейских театров и съемок в Голливуде. Он постоянно находился между вымыслом и реальностью, (   Читать дальше...   )Производство: Франция, Arte France, DarjeelingЖанр: Документальный, биография, кинематографРежиссер: Бенуа Готье, Жан-Фредерик ТибоПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9F27E7C75F6B59FE34CE86FCA97134010D7B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647581   (161760) от 04.11.2023
-
-Игорь Тальков - Фильм памяти (2011) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незадолго до своего 35-летия 6 октября 1991 года в Санкт-Петербурге оборвалась жизнь поэта, композитора, социального певца Игоря Талькова. В памяти людей он запомнился как бунтарь, певец свободы. Один из немногих, кто со сцены начал говорить правду. Главный манифест - песня "Россия" была визитной карточкой певца и занимала главное место в его творчестве. (   Читать дальше...   )Телекомпания: "Ля-Минор"Жанр: ДокументальныйПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF4504BEA6D4DA2A0760E4C9636BFC066FACDDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

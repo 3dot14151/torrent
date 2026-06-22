@@ -6,7 +6,7 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Как найти любовь по интернету / How to Find Love O
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780220.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/10
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778083.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777113.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773017.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771722.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Да Винчи: Утерянное сокровище / Da Vinci: The Lost
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769491.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Планета муравьёв: Взгляд изнутри / Planet Ant: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769487.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC. Наука и ислам / Science and Islam (2009) HDTVRip [H.264/720p] [3
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769485.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC. Порядок и беспорядок / Order and Disorder (2012) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769473.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC. Викинги / Vikings (2012) BDRip [H.264/720p-LQ] [Серия 1-3 из 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769470.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC. Horizon: Возможно ли создать звезду на Земле?
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762635.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC. Horizon. Как развить творческие способности?
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762630.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761726.jpg" />
 </div>
 
 
@@ -363,6 +363,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570532   (761318) от 25.04.2014
+
+BBC. Все о космосе / The Complete Cosmos (1998) DVDRip [1, 2 серии]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_761318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм "Все о космосе" - это целая астрономическая энциклопедия у вас дома, уникальное и наиболее полное исследование нашей Солнечной Системы и галактики "Млечный Путь". Взрыв сверхновой, формирование новых звезд и планет, Черные дыры - загадочные убийцы целых галактик и далекие квазары - каждый эпизод расскажет нам много нового и интересного об этих явлениях. Красочная 3D анимация с использованием передовой компьютерной графики позволят увидеть собственными глазами космические облака, где рождаются звезды, проследить путь комет - одиноких странников во вселенной, изучить строение Солнца. Этот фильм был переведен на 60 языков мира и удостоен нескольких наград научных фестивалей, он предназначен для широкой и разносторонней аудитории и будет интересен не только любителям астрономии.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 02:07:54 + 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A8EF5FC1DF8F3B66571B3AA5496167EE80DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514381   (761299) от 25.04.2014
 
 BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [H.264/720p-LQ] HDTVRip
@@ -371,7 +397,7 @@ BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761299.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ BBC. Древний Египет: Жизнь и смерть в Долине Ц�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760691.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ BBC Horizon: Остановить мужские самоубийства / Stop
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760255.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ BBC: Рождение человечества. Битва за планету �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759540.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ BBC: Тайны Тихого океана (6 серий из 6) / BBC: South Pac
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759394.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759303.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758975.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ BBC. США: Великая история и большое надувател�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758497.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758193.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_758149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758149.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ BBC: Египет. Тайны, скрытые под землей. Часть 2 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757918.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ BBC: Египет. Тайны, скрытые под землей. Часть 2 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:271B848044BA1BAC83230A1652F14C5D794C4FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557840   (757914) от 27.04.2014
-
-BBC: История хирургии. Запасные части [3 из 5] / Blood and Guts. A History of Surgery: Spare Parts (2008) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня хирургия делает удивительные вещи – пересадки лица, человеческих органов и другие сложнейшие операции. Путь к этим операциям был полон ошибок и неимоверной храбрости (украденные трупы, медицинское мошенничество), но эти опыты и пробы спасали человеческие жизни. Эта программа проследит за развитием хирургии от древних времен и до наших дней.
-В каждой серии этого пятисерийного фильма вам расскажут об истории различных операций: с чего начались и как проводились операции на мозге, операции на сердце, как проходили трасплантации органов и частей тела, как врачи пришли к пластической хирургии и каких высот она достигла.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6D245575586ED151CA3335A883DB912A029181
 ```
 
 https://mybot314.ru/tekegram_catalog/

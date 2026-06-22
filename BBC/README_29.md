@@ -1,3 +1,29 @@
+###  Публикация: 1360264   (61562) от 28.03.2024
+
+BBC: По странам и континентам. Дикая Австралазия / Wild Australasia (Wild Down Under) (2003) DVDRemux (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предположения о существовании загадочной Terra incognita Australis - "Неизвестной южной земли" к югу от экватора высказывали еще древние географы. Обширная территория суши в южном полушарии изображалась на картах в XV веке, хотя очертания ее ничем не напоминали Австралию. Вплоть до XVII века никому из европейцев не удалось увидеть Австралию собственными (   Читать дальше...   )Производство: Великобритания, Австралия, Australian Broadcasting Corporation (ABC), British Broadcasting Corporation (BBC)Жанр: Документальный, природа, флора, фаунаУчастники: Мэтт ДэйПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: серии x ~00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFE56CF370635577DCA30DF8BA0DBC1F9FDDED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224703   (61556) от 28.03.2024
 
 BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDRemux [H.264/1080i] (Серии 1-3 из 3)
@@ -6,7 +32,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61556.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61319.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61318.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ BBC: Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61247.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ BBC: Реальная история научной фантастики / The R
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61156.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ BBC: Мир природы. Очковые медведи: Лесные тени
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61137.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC: Революции: Идеи, изменившие мир / Revolutions: Id
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61131.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61129.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ BBC: Секреты ухода за волосами / Hair Care Secrets (2017) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61124.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ BBC: Самое опасное место для работы / Toughest Place t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61118.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ BBC. Турки-османы. Мусульманские властители Е
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61009.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ BBC. Византий: сказания о трёх городах / Byzantium: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60930.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ BBC. Горы - жизнь над облаками / Mountain: Life at the Extre
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60924.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ BBC: Реальная история научной фантастики / The R
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60797.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC: После смерти. Загадочная наука разложени
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60740.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ BBC: Гении древнего мира / Genius Ancient World (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60694.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ BBC: Путеводитель по Марсу / Mars: A Traveller's Guide (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60604.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC: По странам и континентам. Индонезия / Wild In
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60507.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ BBC: Последние царственные воины Европы. 1066: Г
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60397.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ BBC. Как устроены шикарные отели. Kulm Hotel, St Moritz 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60384.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ BBC: Силы природы / Wild Weather (2002) DVDRemux (серии 1-4 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60372.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60293.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ BBC: Тайны Китая / Secrets of China (2015) HDTVRip [H.264/1080p] (Се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60195.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60167.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ BBC: По странам и континентам. Южная Америка / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60163.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ BBC: По странам и континентам. Южная Америка / 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF711ECFE1BCF26027F8902F13A5B2F900A36455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229673   (60056) от 11.04.2024
-
-BBC: Твое тело. 10 секретов сна / 10 Things You Need To Know About Sleep (Your Body. 10 Secrets of Sleep) (2009) HDTVRip [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достаточно ли вы спите, и как выглядеть хорошо после недосыпания? Как бороться с бессонницей? Что такое сны, и как ими управлять? Что делать с храпом возлюбленного? С помощью впечатляющих визуальных технологий и новейших научных исследований можно отправиться в фантастическое путешествие по внутреннему миру человеческого тела.Производство: Великобритания, BBCЖанр: ДокументальныйУчастники: Режиссер: Ник Мэттингли, Ричард БрайтПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29228F408D7E5738EDE7F3AEE6C55AF318621FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

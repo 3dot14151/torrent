@@ -1,3 +1,263 @@
+###  Публикация: 1862561   (1064062) от 31.03.2026
+
+WonderFox HD Video Converter Factory Pro 28.8 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064062.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7AE5A489E6D3B67BB46471FDDDA363185A8028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862689   (1063980) от 31.03.2026
+
+clever FFmpeg-GUI 3.5.3 Portable [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clever FFmpeg GUI — небольшой, но продуманный графический интерфейс для FFmpeg. Он обрабатывает аудио- и видеопотоки по отдельности. После обработки их можно мультиплексировать. Автоматическое определение потока, конвертация видео, аудио и субтитров, извлечение видео, аудио и субтитров, определение громкости звука, изменение длительности и высоты звука, автоматическое (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51C3B5D1B0523ED40F3DA6D30F85E6C4E847F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862974   (1063812) от 02.04.2026
+
+Wondershare UniConverter 17.3.0.531 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958C0978F318287FF64C4D4E6AD6B76A948DA2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863185   (1063663) от 03.04.2026
+
+OpenShot Video Editor 3.5.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный видеоредактор с открытым исходным кодом, который прост в использовании, быстро осваивается и удивительно мощный.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EBB3372F9F739F5DAB404D459299CC86C1D86BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863259   (1063610) от 03.04.2026
+
+Fast Video Cutter Joiner 7.0.5 Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA12012E5D75C22C36011A112CBF2434559CE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863747   (1063269) от 05.04.2026
+
+MKVToolNix 98.0 Stable + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063269.jpg" />
+</div>
+
+
+###  Подробнее
+
+MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63732443DFBBFE9DAA9CB411AFE661DB58FD6C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863963   (1063114) от 07.04.2026
+
+Wondershare UniConverter 17.3.0.531 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A51FD6F0A7DD89E94D696FADB37E78FF3828A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863969   (1063113) от 07.04.2026
+
+Fast Video Cutter Joiner 7.0.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645CA752EB28FF4E7ED1DB03C03D3B5E6D134075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863981   (1063109) от 07.04.2026
+
+CoolUtils Total Movie Converter 4.1.0.78 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Movie Converter - многофункциональная программа для конвертирования видео-файлов в любые популярные форматы такие, как: AVI, MPG, WMV, MPEG, FLV. К тому-же, программа способна подготовить видео для самых различных устройств - iPod, iPhone, Zune, Apple TV, Archos, Creative Zen Vision, XBox и многих других. Предусмотрена возможность пакетного конвертирования (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A15E862753783075B811F96118F2FECEEE61E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861957   (1062708) от 27.03.2026
+
+Adobe Media Encoder 2026 26.0.2.2 Light Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Media Encoder позволяет экспортировать видео в форматы для любых устройств и создавать прокси-файлы. Вы можете автоматизировать свои рабочие процессы с помощью пресетов, папок для просмотра и функций для публикации материалов. С помощью функции Time Tuner можно отрегулировать продолжительность видеоролика, применить таблицы LUT и коррекцию громкости без (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85B9D8C94E93D721D22B2AA8B0963F18CB3A440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861958   (1062707) от 27.03.2026
 
 Adobe Media Encoder 2026 26.0.2.2 Full Portable by 7997 [Multi/Ru]
@@ -6,7 +266,7 @@ Adobe Media Encoder 2026 26.0.2.2 Full Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062707.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Cypheros TS-Doctor 4.2.20 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062614.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ Aiarty Video Enhancer 3.6 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062400.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ Fast Video Cutter Joiner 7.0.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062328.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ Aiarty Video Enhancer 3.5 RePack (& Portable) by elchupacabra [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062284.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ WonderFox HD Video Converter Factory Pro 28.7 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062079.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ Fast Video Cutter Joiner 7.0.4 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061820.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ VideoProc Converter AI 8.9 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061764.jpg" />
 </div>
 
 
@@ -216,7 +476,7 @@ HandBrake 1.11.0 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061624.jpg" />
 </div>
 
 
@@ -242,7 +502,7 @@ Bigasoft Total Video Converter 6.6.2.9498 RePack (& Portable) by elchupacabra [M
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061474.jpg" />
 </div>
 
 
@@ -268,7 +528,7 @@ StaxRip 2.52.1 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061261.jpg" />
 </div>
 
 
@@ -295,7 +555,7 @@ Wondershare UniConverter 17.2.3.515 RePack (& Portable) by elchupacabra [Multi/R
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061231.jpg" />
 </div>
 
 
@@ -321,7 +581,7 @@ Fast Video Cutter Joiner 7.0.3 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061175.jpg" />
 </div>
 
 
@@ -347,7 +607,7 @@ Freemake Video Converter 6.0.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061136.jpg" />
 </div>
 
 
@@ -373,7 +633,7 @@ Winxvideo AI 4.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061135.jpg" />
 </div>
 
 
@@ -400,7 +660,7 @@ WonderFox HD Video Converter Factory Pro 28.7 RePack (& Portable) by elchupacabr
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061134.jpg" />
 </div>
 
 
@@ -411,267 +671,6 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06273E1A6C6BB421BB5A741BC03C445DD985270F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859575   (1061111) от 16.03.2026
-
-VideoProc Converter AI 8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061111.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinX VideoProc Converter - усовершенствованная версия, WinX HD Video Converter Deluxe, мощная, многофункциональная программа все-в-одном для обработки видео, предназначена для редактирования, вырезания, кадрирования, слияния, настройки, конвертирования и сжатия (4K) видео с полным аппаратным ускорением.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3CBA22C40D74C9631C010678D223395FAEF9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859044   (1060950) от 14.03.2026
-
-VidCoder 12.17 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060950.jpg" />
-</div>
-
-
-###  Подробнее
-
-VidCoder - небольшая утилита, с помощью которой можно извлекать видео с DVD/Blu-ray-дисков, а также осуществлять транскодирование видеороликов. В качестве инструмента кодирования используется HandBrake. Присутствует пакетная обработка файлов, возможность добавлять субтитры к видео в формате SRT, настраивать параметры кодирования (обрезка изображения, настройка разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370DF1259DB34856929C27DB3EA4F831F9E42F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859222   (1060832) от 14.03.2026
-
-Kdenlive 25.12.3 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860559CE78AD0FD3C190AF7BEF61388D1B01CE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859229   (1060823) от 14.03.2026
-
-Wondershare UniConverter 17.2.3.515 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - простой в использовании видеоконвертер, с помощью которого вы легко можете конвертировать, редактировать, увеличивать, скачивать, записывать на диск, организовывать, захватывать видеосигнал и просматривать в более чем 159 форматах. Наслаждайтесь последним дополнением к VCU в новом видеоформате 4K! Ощутите с помощью 4K лучшее и непревзойдённое (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CBD14AB300F181B921D443B689904DC6AE720B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858863   (1060685) от 13.03.2026
-
-Video Codec Converter 1.2.2 [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настольное приложение с графическим интерфейсом пользователя для пакетного преобразования видео с использованием FFmpeg . VCC предоставляет удобный интерфейс для конвертации видеофайлов между популярными кодеками с полным контролем над параметрами кодирования.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8D664C204477657940B25CC171FA15917C9030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858600   (1060649) от 11.03.2026
-
-Winxvideo AI 4.8 [Multi]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Winxvideo AI  - это набор инструментов для масштабирования, редактирования и улучшения ваших видео.
-Программа использует искусственный интеллект для повышения качества и скорости преобразования, редактирования и сжатия видео. Поддерживает широкий спектр входных и выходных форматов, включая 4K, 8K, HEVC, AV1, MP4, MKV, MOV и другие.Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E411AF503A2DEC0F1E907EF04907D320682495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858622   (1060637) от 11.03.2026
-
-Topaz Video 1.2.1 RePack by KpoJIuK [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video – это профессиональное программное обеспечение для улучшения видео на базе искусственного интеллекта, которое позволяет удалять шум из видео, снятого при слабом освещении, восстанавливать и повышать разрешение старых архивных видео до 4K, восстанавливать фокус и регулировать частоту кадров, создавая новые кадры буквально из воздуха.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F68CF785C1102FE6D51E6DC28EEC9BAB35E2B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858651   (1060614) от 12.03.2026
-
-Kdenlive 25.12.3 + Standalone [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kdenlive - бесплатный нелинейный видеоредактор, который удовлетворяет большинство задач пользователя, от базового редактирования видео до профессиональной работы. Присутствует возможность использовать любые аудио/видео форматы (например QuickTime, AVI, WMV, MPEG и пр.), поддерживается 4:3 и 16:9 соотношение сторон для PAL, NTSC и различных HD стандартов, в том числе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95EE1673F0523E8E194776120890452BA5C28113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858532   (1060414) от 11.03.2026
-
-CompressO 2.1.0 [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060414.jpg" />
-</div>
-
-
-###  Подробнее
-
-CompressO (произносится как "Эспрессо") — это бесплатное кроссплатформенное приложение для сжатия видео с открытым исходным кодом, работающее на основе FFmpeg.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F31593ED5A8842A4AAE8AF80C9B2BAFECDBD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858580   (1060368) от 11.03.2026
-
-Adobe Premiere Pro 2026 26.0.2.2 RePack by KpoJIuK [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro 2026 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C6060ACD3D9D56347BFFA6A45829BE191E1655
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 61055   (45636) от 26.08.2024
+
+Kiss: "Rock the nation. Live!" (2005)  DVD9x2
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной праздник на улице фэнов KISS вышел в свет двойной DVD "Kiss - Rock The Nation Live!". Издание включает в себя лучшие моменты концертов команды в Вашингтоне и Вирджинии, заснятые во время тура Rock The Nation 2004 г.  В обширном трек-листе DVD-коллекции поклонников легендарного коллектива ждут настоящие находки, ибо многие из представленных композиций (   Читать дальше...   )Жанр: Hard Rock, GlamФормат: DVD videoКачество: DVD9Продолжительность: 01:09:40 / 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6582C18BB9E36431DBCDE8AD7E8B3A7C3F157AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 722745   (45615) от 26.08.2024
+
+Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт коллектива Cheap Trick состоялся в 1999 году в Рокфорде, штат Иллинойс, и потому диск назван Silver, что отмечает 25-летие группы.
+Американский релиз этого концерта в NTSC был издан в 2001 году, а в этой раздаче DVD в формате PAL, выпущенный в 2005 году в Германии.1. Ain't That a Shame
+ 2. I Want You to Want Me
+ 3. Oh Candy
+ 4. That 70's Song(   Читать дальше...   )Производство: ГерманияЖанр: Hard Rock, Power PopПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB46E14131E27DD7949A748C69C8FAEEDD34C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 214374   (45526) от 27.08.2024
 
 Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
@@ -6,7 +62,7 @@ Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45526.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ AC/DC - Stiff Upper Lip Live 2001 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45425.jpg" />
 </div>
 
 
@@ -67,7 +123,7 @@ W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45404.jpg" />
 </div>
 
 
@@ -96,7 +152,7 @@ Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45117.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ Helloween - Live on 3 Continents (2007) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45115.jpg" />
 </div>
 
 
@@ -154,7 +210,7 @@ Doro - 20 Years a Warrior Soul DVD (2006)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45111.jpg" />
 </div>
 
 
@@ -180,7 +236,7 @@ Halford - Live In Anaheim (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45083.jpg" />
 </div>
 
 
@@ -209,7 +265,7 @@ B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43505.jpg" />
 </div>
 
 
@@ -238,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34471.jpg" />
 </div>
 
 
@@ -264,7 +320,7 @@ AC/DC (ACDC) - Plug Me In (Limited Edition) [2007, Hard Rock, 3xDVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12107.jpg" />
 </div>
 
 

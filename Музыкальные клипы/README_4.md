@@ -1,3 +1,57 @@
+###  Публикация: 1355337   (983439) от 26.01.2020
+
+Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983439.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 Pet Shop Boys - Leaving (Promotional Video)
+2020 Pet Shop Boys - Monkey business (Official video)
+2020 Pet Shop Boys (feat. Years & Years) - Dreamland (Official lyric video)Жанр: Synthpop, Dance-PopПродолжительность: 00:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF33B513B67039B76F766F99CC9E630CC97647DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436013   (982331) от 13.01.2012
+
+VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: VariousПродолжительность: ~02:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7004CA39EA0C21AF61E3F0BCFD23D70F3DBD74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355568   (982201) от 27.01.2020
 
 Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
@@ -6,7 +60,7 @@ Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982201.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ VA - Millenium Sexy - Сборник популярных видеоклипов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982166.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982158.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982061.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981342.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981297.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ Stars Of The 90'S (2004-2006) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981079.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981023.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980082.jpg" />
 </div>
 
 
@@ -252,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980079.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978774.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977475.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976658.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976574.jpg" />
 </div>
 
 
@@ -389,7 +443,7 @@ VA - Зимний марафон № 218: Зимняя волна новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975575.jpg" />
 </div>
 
 
@@ -418,7 +472,7 @@ U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975530.jpg" />
 </div>
 
 
@@ -446,7 +500,7 @@ Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <De
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975453.jpg" />
 </div>
 
 
@@ -475,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974857.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974326.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972478.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972461.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972353.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972350.jpg" />
 </div>
 
 
@@ -643,7 +697,7 @@ Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972275.jpg" />
 </div>
 
 
@@ -654,58 +708,6 @@ Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F199C72B375102761D6A09669C16A230EF4747F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617533   (972200) от 12.02.2013
-
-DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, ElectroПродолжительность: 00:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC80442AFB4079A8340145E1619C7B8193473C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617279   (971758) от 12.02.2013
-
-Сборник видеоклипов / Clips (music video) HDTV-1080i
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов разных жанров в отличном качестве. :bou:Жанр: variousПеревод: ОтсутствуетПродолжительность: ~04:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD7921D1462ED81DADC119B6D724C233A5CED4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

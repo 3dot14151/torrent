@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166844.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166839.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166513.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Muse - Simulation Theory Film (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166449.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Roger Waters - The Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166113.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165481.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164319.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163239.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162579.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162233.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162224.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161960.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161134.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Def Leppard: Hits Vegas - Live at the Planet Hollywood (2020) BDRip [H.265/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160813.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160437.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Helloween - Live at Budokan (2023) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160146.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159863.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159853.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159851.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159847.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159843.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159292.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158926.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158900.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158442.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Madonna - The Confessions Tour (Live From London) (2006) HDTVRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_157818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_157818.jpg" />
 </div>
 
 

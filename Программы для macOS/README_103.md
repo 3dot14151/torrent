@@ -1,3 +1,119 @@
+###  Публикация: 1254716   (370967) от 15.10.2018
+
+Mirror for Philips TV 2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Philips
+Приложения для зеркального отображения экрана вашего Мака на любом Smart TV. Philips. Никаких проводов и дополнительных аппаратных средств не требуется!
+
+Приложение работает на любой модели Smart TV. Philips с 2012 и позже.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46360B2E1DDC048A5F572D5188BEA7AC09F212E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254719   (370954) от 15.10.2018
+
+Mirror for Panasonic TV 3.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется!
+Приложение работает на любой модели Смарт-ТВ Panasonic с 2012 и позже.
+
+При использовании приложения, будет возникать задержка в секунд (обычно между 1 и 3 секундами). Так что зеркальное отображение не подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802F028F87A63A27872964F1F4C79C6D8A771656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254711   (370827) от 15.10.2018
+
+Mirror for Sony TV 2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Sony
+Приложения для зеркального отображения экрана вашего Mac на любом Смарт-ТВ Sony. Никаких проводов и дополнительных аппаратных средств не требуется!
+
+Приложение работает на любой модели Смарт-ТВ Sony с 2012 и позже.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94334533BC4F8E58EB6938A2F851E1C04BF27465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254706   (370687) от 15.10.2018
+
+Mirror for Samsung TV 3.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Samsung
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Samsung. Никаких проводов и дополнительных аппаратных средств не требуется!
+
+Приложение работает на любой модели Смарт-ТВ Samsung с 2012 и позже.Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CBECCD48144975AE383030BC55527782D0828F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254948   (370378) от 15.10.2018
 
 Unibox 1.9.2 [Multi/Ru]
@@ -6,7 +122,7 @@ Unibox 1.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370378.jpg" />
 </div>
 
 
@@ -32,7 +148,7 @@ VideoProc (former MacX Video Converter Pro) 3.9 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369656.jpg" />
 </div>
 
 
@@ -60,7 +176,7 @@ Business Templates 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369644.jpg" />
 </div>
 
 
@@ -88,7 +204,7 @@ Graphic Styles 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369142.jpg" />
 </div>
 
 
@@ -116,7 +232,7 @@ Adobe Muse CC 2018.0.0.685 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369098.jpg" />
 </div>
 
 
@@ -143,7 +259,7 @@ Corporate Packs for Pages 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369006.jpg" />
 </div>
 
 
@@ -171,7 +287,7 @@ CalendarPro for Google 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368297.jpg" />
 </div>
 
 
@@ -200,7 +316,7 @@ KCNcrew Pack 10-15-20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367834.jpg" />
 </div>
 
 
@@ -226,7 +342,7 @@ Visual Studio Code 1.50.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367339.jpg" />
 </div>
 
 
@@ -252,7 +368,7 @@ Capture One Pro 8.3.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367219.jpg" />
 </div>
 
 
@@ -279,7 +395,7 @@ Photo Size Optimizer (was IMAGEmini) 1.71 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366777.jpg" />
 </div>
 
 
@@ -306,7 +422,7 @@ Elasty 2.0.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366367.jpg" />
 </div>
 
 
@@ -332,7 +448,7 @@ Outline 3.21.3 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366231.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Disk Expert 2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366055.jpg" />
 </div>
 
 
@@ -388,7 +504,7 @@ ActiveDock 1.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366016.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ FileMaker Pro 18 Advanced v18.0.3.317 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365874.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ Music Tag Editor 2 v5.4.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365246.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Microsoft Edge for Mac 86.0.622.43 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365115.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Ample Sound Ample Guitar T III v3.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365100.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ iStopMotion 3.8.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365029.jpg" />
 </div>
 
 
@@ -549,7 +665,7 @@ GN Infographics for Adobe Photoshop - Templates 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365019.jpg" />
 </div>
 
 
@@ -577,7 +693,7 @@ TableEdit Pro 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364355.jpg" />
 </div>
 
 
@@ -590,115 +706,6 @@ TableEdit был разработан с нуля, чтобы (   Читать 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB15BACA6AD462B1935AFF58AA156791A8829CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177082   (363192) от 25.10.2017
-
-Kite Compositor 1.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kite Compositor -  дизайн анимации и прототипирования для Mac. Kite построен непосредственно на основе основной анимации Apple, которая обеспечивает весь тяжелый процесс для создания красивых анимаций интерфейса. Это та же структура, которая используется в iOS, macOS и tvOS для компоновки графики и анимации интерфейса.
-
-Kite предлагает ряд базовых строительных блоков, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Rhodes SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BC8115FACDB09F7D02F8E45833EA2D8F53A991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177614   (362822) от 25.10.2017
-
-IINA 0.0.14.1 (Build 55) [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2017Разработчик: Collider LIПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F7BF70A8D4B3E976635CFFA7BFA80004F9CA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071198   (361796) от 09.11.2016
-
-SnapMotion 3.1.4 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361796.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnapMotion - приложение которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
-
-SnapMotion имеет два режима:
-- Ручной режим, где вы можете извлекать изображения точно в установленное время.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 ноября 2016Разработчик: Jeremy VizziniПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7125C9E8B335DE4C535A10A91966BB92B6D8B086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255533   (361668) от 19.10.2018
-
-Orion PDF Author 2 v2.20.3 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orion PDF Author - новый и простой способ создания инструкций, буклетов, руководств пользователя и тд. в формате PDF.Тип издания: macOS SoftwareРелиз состоялся: 16.10.2018Разработчик: Aidaluu Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F092FA8C11AFF48E0C84D26020DB84B0B56E05
 ```
 
 https://mybot314.ru/tekegram_catalog/

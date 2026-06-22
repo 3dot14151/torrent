@@ -6,7 +6,7 @@ Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530708.jpg" />
 </div>
 
 
@@ -27,6 +27,39 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368367   (529568) от 27.07.2011
+
+Jai-Jagdeesh - I Am Thine (2011) [MP3|320 kbps]<Mantras, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_529568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aad Guray Namay
+02. Satigur Kar Deenai
+03. I Am Thine
+04. Ong Namo Guru Dayvaa
+05. Mayray Govindaa
+06. Om Namah Shivaya Raam
+07. Aap Sahaaee Hoaa
+08. With You2011Жанр: Mantras, New AgeПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9B2A0876D6D7284F33E3ABAC0F25E465495FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 368373   (529491) от 27.07.2011
 
 Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
@@ -35,7 +68,7 @@ Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529491.jpg" />
 </div>
 
 
@@ -68,7 +101,7 @@ Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529132.jpg" />
 </div>
 
 
@@ -97,7 +130,7 @@ Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528641.jpg" />
 </div>
 
 
@@ -126,7 +159,7 @@ Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528075.jpg" />
 </div>
 
 
@@ -155,7 +188,7 @@ Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526692.jpg" />
 </div>
 
 
@@ -184,7 +217,7 @@ David Hollandsworth - Discovery (2015) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526079.jpg" />
 </div>
 
 
@@ -213,7 +246,7 @@ Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524848.jpg" />
 </div>
 
 
@@ -242,7 +275,7 @@ Pakarina - 4 albums (2010-2012) [MP3|320 kbps]<New age, Instrumental, Native ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520774.jpg" />
 </div>
 
 
@@ -268,7 +301,7 @@ Yanni - 33 albums (1984-2012) [MP3|320 кб/с]<New Age, Instrumental, Soundtrac
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520710.jpg" />
 </div>
 
 
@@ -303,7 +336,7 @@ Nickos Chortis - Elements (2015) [MP3|320 кб/с]<Ambient, New Age, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519591.jpg" />
 </div>
 
 
@@ -332,7 +365,7 @@ Kevin Monaco - Endless Sky (2018) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519211.jpg" />
 </div>
 
 
@@ -361,7 +394,7 @@ Wychazel - White Wolf Spirit 3 (2019) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517031.jpg" />
 </div>
 
 
@@ -390,7 +423,7 @@ Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Elect
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516956.jpg" />
 </div>
 
 
@@ -419,7 +452,7 @@ Cyril Baranov - Rosa (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516112.jpg" />
 </div>
 
 
@@ -448,7 +481,7 @@ VA - Mystic & Relax Vol.1(2007) [MP3|192 кб/с]<Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510545.jpg" />
 </div>
 
 
@@ -474,7 +507,7 @@ VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509362.jpg" />
 </div>
 
 
@@ -503,7 +536,7 @@ Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509024.jpg" />
 </div>
 
 
@@ -532,7 +565,7 @@ Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509018.jpg" />
 </div>
 
 
@@ -561,7 +594,7 @@ Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508242.jpg" />
 </div>
 
 
@@ -590,7 +623,7 @@ VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507582.jpg" />
 </div>
 
 
@@ -625,7 +658,7 @@ VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504885.jpg" />
 </div>
 
 
@@ -660,7 +693,7 @@ Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504867.jpg" />
 </div>
 
 
@@ -687,7 +720,7 @@ Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504856.jpg" />
 </div>
 
 
@@ -722,7 +755,7 @@ Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504839.jpg" />
 </div>
 
 
@@ -742,41 +775,6 @@ Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2622E9CA068BE2A2BAE908E3567827A0D89437C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540338   (504740) от 28.08.2012
-
-Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Ethereal Voices>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (01:06)
-02. Gloria (03:25)
-03. The Magic Will Return (03:36)
-04. By Morning Dawn (03:17)
-05. Hallelujah (03:36)
-06. A Stone Will Tell (04:05)
-07. Gone to Earth (04:33)
-08. World of Fantasy (03:22)
-09. Call of Immortality (04:04)
-10. Turn the Key (03:25)(   Читать дальше...   )Жанр: New Age,Celtic,World,Ethereal VoicesПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8FF75E4A7C0F4876FAAD28F839CC36F6DCE057
 ```
 
 https://mybot314.ru/tekegram_catalog/

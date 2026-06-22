@@ -1,3 +1,30 @@
+###  Публикация: 557840   (757914) от 27.04.2014
+
+BBC: История хирургии. Запасные части [3 из 5] / Blood and Guts. A History of Surgery: Spare Parts (2008) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня хирургия делает удивительные вещи – пересадки лица, человеческих органов и другие сложнейшие операции. Путь к этим операциям был полон ошибок и неимоверной храбрости (украденные трупы, медицинское мошенничество), но эти опыты и пробы спасали человеческие жизни. Эта программа проследит за развитием хирургии от древних времен и до наших дней.
+В каждой серии этого пятисерийного фильма вам расскажут об истории различных операций: с чего начались и как проводились операции на мозге, операции на сердце, как проходили трасплантации органов и частей тела, как врачи пришли к пластической хирургии и каких высот она достигла.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6D245575586ED151CA3335A883DB912A029181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361485   (757840) от 27.04.2014
 
 BBC: Амазонка - Великая река мира / BBC: Amazon: super river (2007) DVDRip
@@ -6,7 +33,7 @@ BBC: Амазонка - Великая река мира / BBC: Amazon: super ri
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757840.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ BBC. Тайны мозга. Патология / The Brain: A Secret History. Br
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757763.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ BBC. Horizon: Не верь глазам своим / Is Seeing Believing? (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757658.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ BBC: Происхождение человека [3 серии] / Origins of Us 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757566.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757007.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756708.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756693.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ BBC. Horizon: Путешествия во времени (2003) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755951.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755936.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ BBC: Грязные города. Средневековый Лондон [ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755835.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755285.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754816.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754814.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ BBC: Погружение на Галапагосах (Подводный мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754309.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ BBC. Мир природы. Лобо. Волк, который изменил А
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754216.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ BBC: Корень всех зол? [2 серии] / The Root of All Evil? (2006)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754035.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ BBC: Как устроена Земля [2 из 2] / Earth Machine (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754031.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ BBC: Всё, что мы знаем о Вселенной, неверно? / BBC
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753967.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ BBC. Самые умные животные / Super Smart Animals (2012) SATRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753902.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753659.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753656.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753646.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753562.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ BBC. Как устроены шикарные отели. Marina Bay Sands (Си
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753561.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753553.jpg" />
 </div>
 
 
@@ -649,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C25BDB48699FD3A95F6003CF1DAAC3B0C870F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395710   (753551) от 11.07.2020
-
-Большое австралийское приключение (Кимберли) / Coast Australia (2013) HDTV [H.264/1080i] (сезон 1, серия 1)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большое приключение начинается. Это страна, остров и континент одновременно, журналист Нил Оливер приглашает совершить путешествие длиной 60 000 километров вдоль побережья Австралии.Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, познавательный, путешествияРежиссер: Приа ВисвалингамПеревод: Двуголосый закадровый, профессиональный (ТПО Ред Медиа)Субтитры: отсутствуютПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634911D644C72C080431846C0BFB96D60D6969C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

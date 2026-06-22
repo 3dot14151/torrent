@@ -1,3 +1,29 @@
+###  Публикация: 279438   (955001) от 07.01.2011
+
+Gekijouban Trigun: Badlands Rumble / Триган: Переполох в пустыне / Trigun the Movie [2010, Movie] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: приключения, драма, комедия, фантастика.Формат: mkv от Yousei-raws.Продолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC291B9C94F9D1A697374D76FB24A7BB31745E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486134   (954928) от 26.02.2013
 
 Rurouni Kenshin: Meiji Kenkaku Romantan - Shin Kyoto Hen / Бродяга Кэнсин OVA-3 [2012, OVA, 2 из 2] BDRip 720p raw
@@ -6,7 +32,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Shin Kyoto Hen / Бродяга Кэн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954928.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Mirai Shonen Conan / Future Boy Conan / Конан - мальчик из буд�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954926.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Okusama ga Seitokaichou! Plus! / My Wife Is the Student Council President! + / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954921.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Quiz Magic Academy: The Original Animation | Загадки Магической
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954865.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Hikaru no Go / Hikaru's Go / Хикару и го [2001, TV, 75] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954572.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Choushin Hime Dangaizer 3 | Дангайзер 3 [1999, OVA, 4 эп.] DVDRip 527
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951778.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Bastard!! Ankoku no Hakai Shin | Bastard! Destroyer of Darkness | Ублюдок
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951466.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Hikaru no Go | Hikaru's Go | Хикару и го [2001, TV, 75 + 1] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950902.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Shirobako / Белая коробка [2014, TV, 24] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950841.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Shijou Saikyou no Deshi Kenichi OVA / Kenichi: The Mightiest Disciple OVA / Си
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950293.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Kyoushoku Soukou Guyver / Guyver: The Bioboosted Armor / Гайвер [ТВ] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950176.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Cop Craft | Мастерство копа [2019, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948218.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948038.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | Оседлать волну с то
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948029.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Promare | Промар [2019, Movie + 2 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948022.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | DanMachi II | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947848.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Ginga Ojou-sama Densetsu Yuna: Kanashimi no Siren / Ginga Ojou-sama Densetsu Yun
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947522.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Himitsu: Top Secret / Himitsu: The Revelation / Химитсу [2008, TV, 26ep.]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946890.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Yurumates / Бездельники [2009-2012, OVA1, OVA2, TV1, TV2; 13 x 2 + 1 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945844.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945535.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944763.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Teekyuu 8 / Теннис - 8 сезон [2016, TV, 12 из 12] WEB-DLRip 720p 10
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944145.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Fate/Grand Order -First Order- | Судьба: Великий Приказ — �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944088.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Bikini Warriors OVA / Воительницы в бикини OVA [2016, OVA, 2 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942651.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Flip Flappers [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942634.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Flip Flappers [2016, TV, 13] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C4A58816C763B7C969D52971067541981311F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947376   (941695) от 07.02.2016
-
-Lance N' Masques / Копьё и маски [2015, TV, 12] HDTVRip Hi10p 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941695.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наше современное и технологически развитое время настоящих рыцарей уже не осталось. Все они вышли из моды и канули в небытие. Йотаро Ханабуса — один из немногих оставшихся верным старым традициям рыцарь, последний из своего ордена, стремящийся вернуть старые традиции. Сюжет данного аниме описывает приключения юного рыцаря, а также его подруги — Макио Кидоин, девушки (   Читать дальше...   )Производство: Studio GokumiЖанр: приключенияРежиссер: Исигуро КёхэйПеревод: Veles (Ani-Panic)Субтитры: ASSФормат: MKVПродолжительность: 12 серий по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4047502464A59A05D7C39C1FC5D7696C2EF2C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

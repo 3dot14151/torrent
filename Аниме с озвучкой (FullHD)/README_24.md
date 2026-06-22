@@ -6,7 +6,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209561.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209254.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209173.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209093.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208895.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208727.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208344.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208181.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207951.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207872.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207828.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207713.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207659.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207646.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207517.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Roujin Z | Старик Зет [1991, Movie] HDRip HEVC 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207502.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Uma Musume: Pretty Derby | Девушки-лошадки: Милое дерби 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207468.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Armitage III: Poly Matrix | Армитаж: Полиматрица [1996, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207166.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207152.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Armitage III | Армитаж III [1995, OVA, 4 из 4] BDRip 1080p HEVC 10-bit 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207116.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Project A-ko | Проект А-ко [1986, Movie] BDRip 1080p HEVC 10-bit raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206989.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Project A-ko 2: Daitokuji Zaibatsu no Inbou | Project A-Ko 2: Plot of the Daitok
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206947.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206903.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206745.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Riding Bean | Боб на колесах [1989, OVA] BDRip 1080p HEVC 10-bit rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206653.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206642.jpg" />
 </div>
 
 

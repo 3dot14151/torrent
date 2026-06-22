@@ -1,3 +1,57 @@
+###  Публикация: 1702257   (115819) от 24.02.2024
+
+Text Workflow 1.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
+Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82EF235D1BB14F0449B017AD8EC03C5081444ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702262   (115801) от 24.02.2024
+
+Video Converter X2 for Mac 1.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
+Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBF71BA9F17DD18BE0CBA8F5231782EA878B1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704183   (114524) от 03.03.2024
 
 Topaz Video AI for Mac 4.2.0 U2B [En]
@@ -6,7 +60,7 @@ Topaz Video AI for Mac 4.2.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114524.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ BBEdit 15.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114505.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Wondershare Recoverit for Mac 12.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114503.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Navicat Premium 16.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114501.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Affinity Photo 2 v.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114500.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ Topaz Gigapixel AI for Mac 7.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114498.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ Topaz Photo AI 2 for Mac 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114497.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ Navicat Data Modeler Essentials for Mac 3.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114486.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ QLab 5.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114485.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ Affinity Publisher 2 v.2.4.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114472.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ Affinity Designer 2 v.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114470.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ Serial Box & SerialSeeker 03-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114468.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ Navicat for SQLite on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114466.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ Navicat Charts Creator for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114464.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ Navicat for MySQL for Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114463.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ Navicat for SQL Server on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114461.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ Navicat Charts Viewer for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114459.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ PullTube 1.8.5.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114458.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ Text Workflow 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114457.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ Tenorshare 4uKey - Password Manager 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114442.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ Screen Studio for Mac ARM/iNTEL 2.20.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114321.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ Syncovery for Mac 10.12.4 ARM/iNTEL [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114314.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ Desktop Stickers 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114311.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ WatsGo for Mac 8.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114307.jpg" />
 </div>
 
 
@@ -625,59 +679,6 @@ WatsGo перенос данных между Android и iPhone. Перенос 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E76C4513B64580FA15E0F84D78A7CF501072BE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704443   (114302) от 04.03.2024
-
-StopTheMadness 40.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114302.jpg" />
-</div>
-
-
-###  Подробнее
-
-StopTheMadness — это расширение для браузеров Safari, Firefox, Google Chrome и Chromium, которое не позволяет веб-сайтам усложнять использование вашего браузера. И это защищает вашу конфиденциальность. StopTheMadness не является блокировщиком рекламы: он предлагает уникальные функции, недоступные в блокировщиках рекламы или любых других приложениях. StopTheMadness (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2018 Jeffrey JohnsonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A47BC4797AF3D43F4B578BDAF9B0C2FE798349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704515   (114294) от 04.03.2024
-
-Feeder 4 v.4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
-С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 2004 - 2024 Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5C89F6BE85D80A37607577FB7EBFBCC678C9C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

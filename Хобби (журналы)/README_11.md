@@ -1,3 +1,55 @@
+###  Публикация: 1105873   (874941) от 18.02.2017
+
+Журнал | Шитье и крой (ШиК). Спецвыпуск №2 [+выкройки] (2017) [PDF,JPG]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный выпуск №2 2017 журнала «Шик: Шитье и крой. Большие размеры» представляет 30 моделей из итальянского журнала Boutique. В номере – пальто и накидки, комплекты из платья и жакета, стильные блузки и брюки.Жанр: шитье и кройФормат: PDF, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0266A15EEEDB19359D8F90AED8FC750C45F23C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997677   (873773) от 17.03.2016
+
+Журнал | Сабрина. Спецвыпуск №3. Лучшее для лета (2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873773.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сабрина», самый популярный в Европе журнал по вязанию, представляет женские, мужские, детские модели, которые находятся на пике моды, подходят для людей любого возраста и на все случаи жизни. В каждом номере более 30 моделей с инструкциями, схемами и выкройками - как для начинающих, так и для опытных вязальщиц. Широко представлена молодежная тема, отдельная тема (   Читать дальше...   )Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D781E8DCFA246932B728A10641690F76EC2A1D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766031   (873349) от 13.03.2014
 
 Журнал | Сабрина. Спецвыпуск №3 (2014) [PDF]
@@ -6,7 +58,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873349.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873337.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872903.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871249.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869993.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869982.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869784.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869626.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868121.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867325.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866105.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865909.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862293.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862200.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861548.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861518.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861506.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860835.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858460.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857287.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856929.jpg" />
 </div>
 
 
@@ -547,6 +599,59 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769529   (856857) от 22.03.2014
+
+Подшивка журналов | Extreme How-To №3, 4 (март, апрель 2014) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_856857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Extreme How-To" поставляет самую последнюю информацию об инструментах, оборудовании и технологиях ремонта дома и техники для умельцев на все руки.
+От корпоративных подрядчиков до дачников и любителей мастерить, наши читатели найдут в издании последовательные рекомендации по домашнему ремонту и благоустройству, садовому дизайну и изготовлению мебели.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA05188A62564E23005ACF9613BD231182440ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769187   (856724) от 22.03.2014
+
+Журнал | Stereo & Video [Россия] №4 (230) (апрель 2014) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_856724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965349CCF9501A53ABAF18404F043DD3FDC2BB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769515   (856301) от 22.03.2014
 
 Подшивка журналов | Вязание ваше хобби №3, 4 (2014) [PDF]
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856301.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DB89B1100BEA3A5E11D9247C6690993C64AB0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769539   (856275) от 22.03.2014
-
-Подшивка журналов | HolzWerken №44, 45 (январь-апрель 2014) [PDF] [De]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание адресовано тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом очередном или специальном выпуске. Периодичность выхода (с 2007 года) - 6 раз в год.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C6D10E224CD5D4BC020180C77033F6801B8845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001144   (855640) от 27.03.2016
-
-Журнал | Вязание ваше хобби №4 (2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855640.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вязание – ваше хобби» предназначен для женщин, которые любят проводить свободное время за вязание на спицах и крючком. Каждый номер журнала содержит 30 суперхитов вязаной моды каждого сезона – классические и спортивные женские модели, сочетающие в себе комфорт и практичность. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели (   Читать дальше...   )Жанр: ВязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE88D1B6C66BCF76BBDB2054208BDBB0C925972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000939   (855631) от 27.03.2016
-
-Журнал | Вязание ваше хобби №4 Жилеты и безрукавки (2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое ищущее поколение – молодёжь.  Хотите выглядеть так, чтобы на  вас обращали внимание? Жаждете  выделяться из толпы? Тогда рискуйте, пробуйте новое, экспериментируйте.  А мы поможем вам создать ваш  собственный, неповторимый стиль.Жанр: ВязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2838B22C8D2CECC978CB90320A76C9CAB95EA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000912   (855419) от 27.03.2016
-
-Журнал | М-Хобби №3 (177) (март 2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855419.jpg" />
-</div>
-
-
-###  Подробнее
-
-М-Хобби - один из лучших на сегодняшний день российский журнал для любителей масштабного моделизма и военной истории. Издание постоянно публикует материалы о моделях военной техники, авиации, автомобилях, обзоры новинок модельного рынка. Мастера моделизма делятся секретами своего мастерства.Жанр: Моделизм, военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22C554D5C76F461F56EB38CE4E86AB5F7649EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1745420   (45587) от 26.08.2024
+
+Adobe Substance 3D Modeler 2024 1.13.0.53 (x64) Portable by 7997 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Substance 3D Modeler - программное обеспечение для визуального 3D-моделирования, предназначенное как для экспертов в области 3D, так и для разработчиков визуальных эффектов и для графических дизайнеров. Adobe Substance 3D Modeler использует пространственные данные из физического мира, позволяя создавать модель так же, как и в реальной мастерской. Независимо (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC70D25006E8681303C3DA7A9DA33EE7B90D255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745424   (45585) от 26.08.2024
+
+Adobe Dimension 2024 4.0.3 (x64) Portable by 7997 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Dimension — это интуитивный инструмент для ЗD-объектов и макетов, который позволяет создавать фотореалистические изображения, обмениваться интерактивным 3D-контентом и др. Объединяйте 3D- и 2D-контент для создания визуализации брендов, макетов продукта, виртуальных фотографий, иллюстраций и других творческих проектов.
+Используя машинное обучение, данный инструмент (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32CC9BD4D99248741A4762B2DC893FDDBC17C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755472   (40305) от 15.10.2024
 
 Blender 3.6.17 LTS + Portable [Multi/Ru]
@@ -6,7 +59,7 @@ Blender 3.6.17 LTS + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40305.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Chaos Enscape 3D 4.2.1.88 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34337.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Lumion Pro 2024.4.2.0 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33014.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ LuBan 3D 06.02.2025 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27739.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ SolidRocks 2.5.0 for 3ds Max repack by MSI [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27537.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Blender 4.2.9 LTS + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21280.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Blender 4.4.1 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21176.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ Chaos Vantage 2.8.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19497.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Autodesk 3ds Max 2026 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18273.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ SketchUp Pro 2025 25.0.660 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15720.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ SketchUp Pro 2025 25.0.660 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15719.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ Phaser Editor 4.11.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15181.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ Corona Renderer 13 for 3ds Max 2016-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12514.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ V-Ray 7.00.40 for Blender 4.2-4.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12283.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ Rhinoceros 3D 8.21.25188.17001 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11981.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ Pepakura Designer 6.1.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11727.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ Luxion KeyShot Enteprise 2025.2 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10963.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ Cinema4D 2024.2.0 + Redshift 3.5.23 + RedGiant bundle 2024.0.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10933.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ Chief Architect Premier X17 Build 27.1.0.54 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10806.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ Room Arranger 10.1.0.716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8716.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ V-Ray 7.20.00 for 3ds Max 2021-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8321.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6190.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Room Arranger 10.2.0.732 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5273.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ AMS Мой Дом 3D 4.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5237.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ AMS Мой Дом 3D 4.0 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C101FD5B27A789427F624548130DF81F5DFAF809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816846   (3947) от 07.09.2025
-
-Мой Дом 3D 4.0 RePack (& Portable) by elchupacabra [Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой Дом 3D -  - это программа для самостоятельного проектирования домов. Вы сможете создать поэтажный план здания с мансардой и цокольным этажом, пристроить крыльцо, лестницу. Внешнюю и внутреннюю отделку меняйте по своему усмотрению. В каталоге есть 1150+ материалов и возможность загрузить свое фото обоев, линолеума и прочих покрытий.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57E670D176235D881733678A03D087018F5E224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817937   (3064) от 13.09.2025
-
-Конструктор шкафов-купе 3D 1.25 Repack by KaktusTV [Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конструктор шкафов-купе — удобный редактор для разработки дизайна шкафов с нуля. Программа позволяет добиться профессионального результата и создать трёхмерную модель в кратчайшие сроки, независимо от опыта. Вы без труда спроектируете шкаф, который идеально подойдёт вам по всем параметрам, ведь в конструкторе есть все инструменты, чтобы реализовать любую вашу креативную (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FFCD3CBD12B4546DBAA2E701CDFDD1FFE76BEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 520540   (630866) от 09.07.2012
+
+Зеркало для героя (1987) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое случайных знакомых, Сергей Пшеничный и Андрей Немчинов, волею загадочных обстоятельств переносятся почти на 40 лет назад. Этот день — 8 мая 1949 года — начинает повторяться для них с неумолимым постоянством. Каждому из героев судьба дает свой шанс: Андрей может предотвратить гибель людей в обветшавшей шахте, Сергей — по-новому взглянуть на своих родителей и (   Читать дальше...   )Жанр: Драма, ФантастикаРежиссер: Владимир ХотиненкоАктеры: Сергей Колтаков, Иван Бортник, Борис Галкин, Александр ПесковПродолжительность: 02:11:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682898   (630140) от 23.07.2013
+
+Победитель (1975) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гражданская война. Командир Красной Армии Яков Спиридонов попадает в белогвардейский плен, совершает побег и находит приют в одной из разоренных деревень у молодой учительницы. Он не расслабляется, а организовывает повстанческий отряд и до прихода Красной Армии выполняет оперативное боевое задание по удержанию моста…Жанр: Приключения, военныйРежиссер: Андрей Ладынин, Эдгар ХоджикянАктеры: Александр Збруев, Георгий Тараторкин, Валентина Карева, Михаил Лобанов, Евгений Шутов, Владимир Коренев, Алексей Локтев, Ирина Гошева, Иван Рыжов, Вадим Захарченко, Юрий Гусев, Станислав Чекан, Владимир Заманский, Николай Маликов, Валентин Брылеев, Александр Вигдоров, Валентина УшаковаПродолжительность: 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F93719B415A52D1CCB7F4238DD90841C46A09B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228240   (629852) от 04.06.2018
 
 Эта твёрдая земля / Ця тверда земля (1967) WEBRip [UKR / RU Sub]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629852.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629519.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628693.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627230.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626607.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626371.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626357.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626174.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625716.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624098.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623145.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622480.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622198.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621661.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620781.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620211.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620202.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619356.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618928.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618012.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617308.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616329.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616285.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615320.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1707B4576E7287AB2521F9F02DFBFC0AFC84B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295723   (614817) от 15.04.2019
-
-У меня все нормально (1978) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614817.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной из частей войск ПВО, в присутствии комиссии из центра, происходит ЧП — падает боевая ракета. Почему-то не сработал механизм подготовки ракеты к бою. Генералы отстраняют командира части Баташева от командования и предлагают снять ракету с вооружения. Но Баташев — человек с характером. Вместе с конструктором дорабатывает новую методику  подготовки транспортно-заряжающей (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: Военный, ДрамаРежиссер: Александр ИгишевАктеры: Владлен Бирюков, Борис Борисов, Юрий Соловьев, Владимир Герасимов, Ольга Матешко, Светлана Карпинская, Людмила Чиншевая, Владимир Дружников, Николай ГринькоПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82562D228669C220EDC81472C6BBD552E83679D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230783   (612257) от 14.06.2018
-
-Желтая птица (1983) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эстрадная певица Нино Мтиули потеряла веру в себя - нет былой популярности у публики, неудачно сложилась личная жизнь. Однако она постепенно обретает уверенность, что сможет выйти из творческого кризиса...Производство: СССР, Грузия-фильмЖанр: ДрамаРежиссер: Амиран ДарсавелидзеАктеры: Гюли Чохели, Лали Колелишвили, Гурам Пирцхалава, Ираклий Перадзе, Марина Кахиани, Гиви Берикашвили, Темур Рцхиладзе, Мурман Джинория, Василий Кахниашвили, Роман Рцхиладзе, Русудан КвливидзеПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA36C097326F6DD41315FC700D35D7E1BECF6BD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

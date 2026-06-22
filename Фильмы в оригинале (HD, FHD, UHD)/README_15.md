@@ -1,3 +1,135 @@
+###  Публикация: 1199887   (797364) от 18.01.2018
+
+Я тебя помню / Eg man pig / I Remember You (2017) BDRemux [H.264/1080p] [ICE / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ужасы переселения могут настичь даже в тихой Исландии. Пока семья, переехавшая в старый дом, понимает, что он проклят, в городской церкви вешается женщина, у которой три года назад пропал восьмилетний сын — и эти события как-то связывает пропажа другого ребенка 60 лет назад.Производство: Исландия, Zik Zak Filmworks, Zik Zak KvikmyndirЖанр: Драма, Ужасы, Детектив, ТриллерРежиссер: Оскар Тор АксельссонАктеры: Аугуста Эва Эрлендсдоуттир, Йоуханнес Хёйкьюр Йоуханнессон, Тор Кристьянссон, Анна Гунндис Гюдмундсдоттир, Сара Догг Асгерсдотти, Тростур Лео Гуннарссон, Тор Тулиниус ...Перевод: ОтсутствуетЯзык озвучки: ИсландскийСубтитры: АнглийскиеПродолжительность: 01:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B07710297AA7D614CAE57E7C073252F2C431650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199979   (797311) от 18.01.2018
+
+Убийство священного оленя / The Killing of a Sacred Deer  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый кардиохирург Стивен живет счастливой жизнью с женой Анной и двумя прелестными детьми. Этой семейной идиллии угрожает призрак из прошлого, которое Стивену больше не под силу скрывать.Производство: Великобритания, Ирландия, США / Element Pictures, A24, Film4Жанр: ужасы, триллер, драма, детективРежиссер: Йоргос ЛантимосАктеры: Николь Кидман, Колин Фаррелл, Алисия Сильверстоун, Билл Кэмп, Барри Кеоган, Рэффи Кэссиди, Денис Даль Вера, Мишель Пул, Кеннет Мейер, Эми Кларк, Уилльям Уиллет, Санни Сулджик, Уилльям Кросс , Чарльз Пул, Анита Фармер БергманПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0447B3A289FD0AD44738E05F47D2E9A13EE6337C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011414   (796836) от 27.04.2016
+
+Возможности управления / Creative Control  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в Нью-Йорке, Бруклине. В фильме отображается ближайшее будущее, где технический прогресс уже пришел. Появились различные устройства для общения. Каждый может получить к ним доступ. В настоящем мире слишком много рекламы и ненужной информации, поэтому отдушиной становится искусственный мир.
+Дэвид остро ощущает неудовлетворенность жизнью. (   Читать дальше...   )Производство: США, Ghost Robot, Greencard Pictures, MathematicЖанр: драмаРежиссер: Бенжамин ДикинсонАктеры: Бенжамин Дикинсон, Нора Зеетнер, Дэн Гилл, Алексия Расмуссен, Регги Уоттс, Гэвин МакИннесс, Пол Манза, Кэти Эйзенберг, Химаншу Сури, Мередит Хагнер, Женева КаррПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE53802F1A85F12D6971EBDC9F2DB0CB765D915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200225   (796818) от 19.01.2018
+
+Геошторм / Geostorm (2017) BDRemux [H.264/1080p] [EN / EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796818.jpg" />
+</div>
+
+
+###  Подробнее
+
+После беспрецедентной серии стихийных бедствий, обрушившихся на нашу планету, лидеры мировых держав объединили усилия, чтобы создать разветвленную сеть орбитальных спутников по контролю над климатом для предотвращения природных катаклизмов. Но что-то пошло не так — система, выстроенная для защиты Земли, теперь угрожает ей. Начинается гонка наперегонки со временем, (   Читать дальше...   )Производство: США / Warner Bros., Electric Entertainment, RatPac-Dune Entertainment, Skydance Media, Stereo D, Twisted MediaЖанр: фантастика, боевик, триллерРежиссер: Дин ДевлинАктеры: Джерард Батлер, Джим Стёрджесс, Эбби Корниш, Александра Мария Лара, Дэниэл Ву, Эухенио Дербес, Амр Вакед, Эдеперо Одуйе, Энди Гарсиа, Эд ХаррисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, португальские, немецкие, итальянские, испанские, китайские,
+датские, финские, греческие, исландские, норвежские, шведскиеПродолжительность: 01:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B4615A6CA82CC88144F02F6128C84B482C77EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011207   (796687) от 27.04.2016
+
+Дэдпул / Deadpool  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уэйд Уилсон - наёмник. Будучи побочным продуктом программы вооружённых сил под названием «Оружие X», Уилсон приобрёл невероятную силу, проворство и способность к исцелению. Но страшной ценой: его клеточная структура постоянно меняется, а здравомыслие сомнительно. Всё, чего Уилсон хочет, - это держаться на плаву в социальной выгребной яме. Но течение в ней слишком (   Читать дальше...   )Производство: США, Канада, 20th Century Fox Film Corporation, Donners' Company, Kinberg Genre, Marvel Entertainment, TSG EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Эд Скрейн, ТиДжей Миллер, Джина Карано, Брианна Хилдебранд, Стефан Капичич, Лесли Уггэмс, Джед Риис, Каран Сони, Майкл Беняер, Стайл ДэйнПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A53809470781A718CFAB55A5575FB4386C9624C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011437   (796669) от 27.04.2016
 
 Дэдпул / Deadpool  (2016) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
@@ -6,7 +138,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796669.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796633.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796593.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796580.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796539.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796505.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796022.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796018.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795906.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795467.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795457.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795331.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794855.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794335.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794315.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794305.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794244.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794243.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794055.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793983.jpg" />
 </div>
 
 
@@ -526,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793934.jpg" />
 </div>
 
 
@@ -537,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93DB706B1FABC230C5C5518D6C41A1C2AEA78994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274232   (793926) от 06.01.2019
-
-Скорость убивает / Speed Kills (2018) BDRemux [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпион по гонкам на катерах и миллионер Бен Аронофф имеет вторую жизнь, из-за которой он встревает в конфликт с законом и наркобаронами.Производство: Пуэрто Рико / Blue Rider Pictures, Hannibal Pictures, JTP Films, Pimienta, Speed Kills ProductionЖанр: Триллер, Драма, КриминалРежиссер: Джоди СкурфилдАктеры: Джон Траволта, Кэтрин Уинник, Дженнифер Эспозито, Джеймс Римар, Мэттью Модайн, Том Сайзмор, Келлан Латс, Моран Атиас, Майкл Уэстон, Хорди МольяПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D5377C054FFCACF46A1B197898CEFBC13E0E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274227   (793880) от 06.01.2019
-
-Ужастики 2: Беспокойный Хэллоуин / Goosebumps 2: Haunted Halloween (2018) BDRemux [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793880.jpg" />
-</div>
-
-
-###  Подробнее
-
-В заброшенном доме парочка ребят находит странную книгу «Беспокойный Хэллоуин» Р. Л. Стайна. Друзья быстро понимают, почему книгу спрятали подальше от всех, когда небольшой городок заполняют монстры разной степени ужасности.Производство: США, Великобритания / Columbia Pictures Corporation, Original Film, Scholastic Entertainment, Silvertongue Films, Sony Pictures AnimationЖанр: Ужасы, Фэнтези, Комедия, ПриключенияРежиссер: Эри СанделАктеры: Мэдисон Айсмен, Джереми Рэй Тейлор, Калил Харрис, Мик Вингерт, Кен Жонг, Венди МакЛендон-Кови, Крис Парнелл, Брайс Касс, Пейтон Уич, Шэри ХидлиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5510BCE99A1EE8C4EC7A9ECF98D0081A2872F55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201132   (793811) от 23.01.2018
-
-Субурбикон / Suburbicon (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в солнечный Субурбикон! В прекрасный тихий городок в самом сердце Америки. Счастливые семьи. Недорогие миленькие дома. Ухоженные газоны. Воплощение американской мечты. Чудесную жизнь городка внезапно прерывает шокирующее, из ряда вон выходящее событие — образцовая семья переживает вторжение в их семейное гнёздышко. Это событие толкает на худшие поступки (   Читать дальше...   )Производство: Великобритания, США / Black Bear Pictures, Dark Castle Entertainment, Huahua MediaЖанр: Криминал, Драма, Триллер, ДетективРежиссер: Джордж КлуниАктеры: Мэтт Дэймон, Джулианна Мур, Оскар Айзек, Ноа Джуп, Гленн Флешлер, Меган Фергюсон, Джек Конли, Гэри Басараба, Майкл Коэн, Стив МонроПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40B2DC5271B8F741DDC62E424D8F83B41660659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200983   (793686) от 23.01.2018
-
-Рендель / Rendel (2017) WEB-DL [H.264/720p-LQ] [GER / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ослепленный невероятной жаждой мести, главный герой, после смерти своей семьи, решает примерить плащ супергероя, чтобы отомстить всем, кто этого заслуживает.Производство: Финляндия, Black Lion Pictures, Frozen Flame Pictures, Bad Beaver ProductionsЖанр: Боевик, Криминал, ФэнтезиРежиссер: Йессе ХааяАктеры: Бьянка Брэди, Алина Томникова, Шила Шах, Йессе Хаая, Матти Оннисмаа, Enni Ojutkangas, Теро Салениус, Michael Hall, Кристофер Гуммерус, Джонни ВивашПеревод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: Английские (отдельным файлом)Продолжительность: 01:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE931076163B7BBA333453732FB6AA14BF6A84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200613   (793595) от 23.01.2018
-
-Тор: Рагнарёк / Thor: Ragnarok (2017) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде, это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие, (   Читать дальше...   )Производство: США, Marvel Entertainment, Marvel Studios, Walt Disney PicturesЖанр: Боевик, Приключения, Комедия, ФантастикаРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15A2D64DF1C470B462100AC1E8B5CEA8D36217C
 ```
 
 https://mybot314.ru/tekegram_catalog/

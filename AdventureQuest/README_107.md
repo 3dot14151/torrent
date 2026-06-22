@@ -1,3 +1,133 @@
+###  Публикация: 1783423   (19004) от 08.05.2025
+
+Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Decepticon
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034BFBE5614EBB875640DD8BC7EFB2FDC1719E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796055   (18991) от 08.05.2025
+
+Cybernetic Fault (2020) [Ru/Multi] (1.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cybernetic Fault – сатирическая приключенческая игра с антинаучным сюжетом. Игроку предстоит ощутить себя в роли учёного-романтика, который не стесняется своей некомпетентности и ставит смелые эксперименты над реальностью и здравым смыслом. На чтение инструкций к оборудованию и расчёты у него не остаётся времени! Без решительного разрыва с классической наукой мир (   Читать дальше...   )Тип издания: RepackРазработчик: Whale Rock GamesЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A7B77CE99FB0302CADDD7A4D872B9E710C8D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776591   (18885) от 09.05.2025
+
+Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительная игра "Mark of the Deep" - это ваш шанс отправиться в эпическое пиратское приключение, которое порадует вас богатой историей, интересным сюжетом, а также лучшими элементами таких хитов, как "Metroidvania" и "Souls-Like". Вам предстоит отправиться в удивительное путешествие в роли пирата по имени Новичок, который должен пролить (   Читать дальше...   )Тип издания: RepackРазработчик: Mad MimicЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Бразильский ПортугальскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D9063A812546514557701E6608DA146DAAE0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796279   (18808) от 09.05.2025
+
+Ary and the Secret of Seasons (2020) [Ru/Multi] (1.0) Repack Yaroslav98
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ary and the Secret of Seasons - удостоенная наград приключенческая игра, где девочка по имени Aryelle (Ариэль) или Ary (Ари) путешествует по огромному миру Valdi. Став Стражем Зимы, Ary получает способность менять сезоны, и ей предстоит научиться управлять ими, побеждать врагов, преодолевать препятствия и решать сложные головоломки по всему миру.Тип издания: RepackРазработчик: eXiin, Fishing CactusЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735F82A14BE8DAA6206A72E31487CCB354E84105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796371   (18787) от 10.05.2025
+
+The Midnight Walk (2025) [Ru/Multi] (Build 18383361) Repack seleZen [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте The Midnight Walk, новое инди-приключение от авторов Lost in Random. Подружитесь с одиноким фонарем и осветите себе путь по чудесному и ужасному миру. Обхитрите монстров и изучите жуткие детали ландшафта, созданного вручную из настоящей глины и анимированного покадрово.Тип издания: RepackРазработчик: MoonHoodЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06320BA34FB83A5B7D4CFFE0DB3431CE5FE0CE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796417   (18776) от 10.05.2025
 
 Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edition]
@@ -6,7 +136,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18776.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18775.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18753.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18748.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Unavowed (2018) [En] (2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18693.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18691.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834) Repack seleZen [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18545.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18363.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack Let'sРlay [Remas
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18359.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Crow Country (2024) [Multi] (Build 18435138) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18345.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ The Crimson Diamond (2024) [En] (1.10u3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18328.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18282.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.7.0/dlc) Repack Decept
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18266.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18258.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack FitGirl [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18247.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18239.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18229.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18227.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18214.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18208.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18204.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:863FD01CE96B1A4C4B1A98A711AE72F9A854BCF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797211   (18182) от 15.05.2025
-
-Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс Колфилд, временная преподавательница фотографии в престижном Каледонском университете, находит в снегу тело своей близкой подруги Сафи. Девушку убили. В надежде спасти её Макс пытается вернуться в прошлое, хотя уже много лет не перематывала время. Вместо этого она находит способ перемещаться в параллельный мир, где Сафи жива и ей всё так же грозит опасность. (   Читать дальше...   )Тип издания: RepackРазработчик: Deck Nine GamesЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72572706997214463CC8DB362E1656C5B72BB2EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797434   (18150) от 16.05.2025
-
-The Sinking City (2019) [Ru/Multi] (ms6 58246 s mc2 4/dlc) License GOG [Remastered Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18150.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Sinking City - это приключенческий детектив, созданный по мотивам произведений Говарда Филлипса Лавкрафта, настоящего мастера жанра ужасов. Отправьтесь в 1920-е годы и возьмите на себя роль частного детектива, измучившегося искателя истины, который угодил в приключение куда большего масштаба, чем его собственные цели и убеждения. Оказавшись в западне посреди (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9582B17C5DA53673217DF8CD3966095CA4FE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797478   (18134) от 16.05.2025
-
-Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправься в бескрайний мир, где ты можешь изменить каждую планету, каждую систему и каждый миг. Исследуй вселенную, полную жизни, древних тайн и нетронутых красот. Дай отпор Красной тьме, собирая ресурсы и создавая инструменты, оружие и транспорт, без которых не обойтись в этой одиссее. Объединись с друзьями и сразись с гигантскими противниками, чтобы подарить надежду (   Читать дальше...   )Тип издания: RepackРазработчик: Atypical GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66300E6DEA93FB65083560E60914B20AB95FC892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797438   (18130) от 16.05.2025
-
-Outer Wilds (2019) [Ru/Multi] (1.1.16/dlc) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outer Wilds – приключенческий экшен от первого лица, основанный на популярной тематике «Дня сурка». События происходят на вымышленной планете Камелёк, которая уничтожается взрывом звезды уже через 22 минуты после начала игры. Но история на этом только начинается. Пользователь попадает в «петлю времени», которая позволяет постепенно развивать сюжет, путешествовать (   Читать дальше...   )Тип издания: RepackРазработчик: Mobius DigitalЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7ACDD16496A4C7B192704583A7691AD714AF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797504   (18046) от 17.05.2025
-
-Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18046.jpg" />
-</div>
-
-
-###  Подробнее
-
-То, что начиналось как обычное расследование, вскоре превращается в падение в темноту. Его называют Manivore. Он больше, чем просто убийца… Он хладнокровный, умный и манипулятивный. Он не просто убивает своих жертв. Он стирает их следы, разлагает их тела и оставляет только отвратительное произведение искусства. Для него смерть - это не побег, а последняя деталь тщательно (   Читать дальше...   )Тип издания: RepackРазработчик: FarkasInteractiveЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A79E2AD0C04CAF72B9C1D7EC31C1BA1E819051
 ```
 
 https://mybot314.ru/tekegram_catalog/

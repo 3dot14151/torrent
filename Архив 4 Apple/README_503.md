@@ -1,3 +1,58 @@
+###  Публикация: 1106294   (242128) от 19.02.2017
+
+AutoPrompt 1.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242128.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoPrompt  - это простое приложение для меню-бара, которое время от времени будет Вас спрашивать  что Вы делает в этот момент.
+AutoPrompt  - это  интуитивный интерфейс для списков задач и их продолжительность. Просто запишите вашу текущую задачу всякий раз, когда  AutoPrompt  Вас об этом попросит. Создайте свой ежедневный рабочий лист во время  работы.
+
+Идеология  приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 февраля 2017Разработчик: InspiringLife.coПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12248CC898BB56ECAAB32533298D69F823F6352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458796   (242116) от 30.03.2021
+
+MacCleaner 2 PRO 2.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очистите Mac и оптимизируйте его производительность. Ускорьте медленный Mac, освободите место на диске, удалите ненужные файлы, предотвратите ошибку «Startup Disk Full».Тип издания: macOS SoftwareРелиз состоялся: 30.03.2021Разработчик: NektonyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA4297ACFFD97EEE25AAE0AACCFD07750BED300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628521   (242094) от 23.04.2023
 
 Typora for Mac 1.5.14 [Multi/Ru]
@@ -6,7 +61,7 @@ Typora for Mac 1.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242094.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ iThoughtsX 5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242091.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ A Better Finder Rename 11 v11.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242081.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ Artstudio Pro 4.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242071.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ Affinity Designer 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242067.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Omni Recover 3 v3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242062.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Cycling'74 Max 8.5.4 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242038.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ Magic Battery 7.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242001.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ WiFi Explorer Pro 3 v3.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241994.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ Final Cut Pro 10.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241968.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ iCollections 6 v6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241953.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ Adobe Photoshop for Mac 2022 v23.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241924.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.10.0.1782 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241918.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Integrity Pro 12.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241914.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ Deckset 2.0.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241913.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ Instant Translate – translator, dictionary, voice 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241910.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ Trickster 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241906.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ PCalc 4.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241905.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ Scrutiny 12.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241904.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ RAW Power 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241901.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ Grids for Instagram 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241893.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ Compressor 4.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241891.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ CheckBook Pro 2.7.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241855.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ Translate Tab 2.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241843.jpg" />
 </div>
 
 
@@ -634,60 +689,6 @@ Translate Tab 2.0.15 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBB63605ABCEA328F3E59D1DDAD08C8E22461C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635403   (241834) от 25.05.2023
-
-Motion 5.6.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motion — это мощный инструмент анимации, созданный для видеоредакторов и позволяющий легко создавать кинематографичные титры в 2D и 3D, плавные переходы и реалистичные эффекты в режиме реального времени.Тип издания: macOS SoftwareРелиз состоялся: 23.05.2023Разработчик: Apple Inc.Поддерживаемая ОС: macOS 12.6+Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409807A5408508A0BD43E30B6E4A5A787BDC882B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376639   (241833) от 18.04.2020
-
-TextMate 2 v2.0.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241833.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextMate для Mac OS - Отличный редактор программного кода и простых текстов. С помощью TextMate вы сможете обрабатывать скрипты, создавать макросы, интерактивно заполнять поля, проверять программный код на ошибки, подсвечивать код десятков языков программирования. Удобно реализована работа с множеством файлов, навигация и поиск по ним.
-
-Быстро растущее сообщество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.04.2020Разработчик: MacroMates Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C7ECE9ED8EEE68E3F1F873D12AF5F3738E42BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

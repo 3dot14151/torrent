@@ -1,55 +1,3 @@
-###  Публикация: 1080989   (285422) от 08.12.2016
-
-Whiplash - Crash Valley (2016) [En] (1.0) License PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда нибудь мечтали побыть в шкуре краш-тест манекена? Это ваш шанс! Вы будете играть за Бастера, краш-тест манекена. Он пережил годы пыток и боли в краш-тест лаборатории. Но с него хватит! Настало время мести! Крошите людям лица и наносите масштабные разрушения долине Crash Valley и ее жителям.Тип издания: LicenseРазработчик: Diagrammet ABЖанр: Adventure, Indie, SimulatorЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192F68CF2196885AAC5E051E0C516739E989B10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270499   (285420) от 15.12.2010
-
-Deadliest Catch: Alaskan Storm / Смертельный улов [Ru/Еn] (P) 2008
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_285420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: ПираткаЖанр: Simulator/NavalЯзык интерфейса: английский + русский(текст)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D0C96EA1E1F776E41952439C7927DCE6393C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264555   (279139) от 24.11.2018
 
 Afterlife (1996) [Multi] (1.0) License GOG
@@ -58,7 +6,7 @@ Afterlife (1996) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279139.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ TIS-100 (2015) [En] (11.27.2017) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276706.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Unholy Heights (2013) [En/Jp] (20171109) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275618.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Project Hospital (2018) [Ru/Multi] (1.0.14611) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272881.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ PRO FISHING SIMULATOR (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272855.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ PC Building Simulator (2019) [Ru/En] (1.5.2/dlc) Repack Sceef
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272359.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Domina (2018) [En] (1.2.11) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269755.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269299.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.9.24446/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266566.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Dawn of Man (2019) [Ru/Multi] (1.3.3) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262569.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.0.2_457676/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261675.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ DAVE THE DIVER (2023) [Ru/Multi] (1.0.5.1749/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261669.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Oxygen Not Included (2019) [Ru/Multi] (700386/dlc) Repack Necros [Complete Bundl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259828.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Agricultural Simulator: Historical Farming (RePack) [Multi3/-] 2012 | Sash HD
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259485.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 52150) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257859.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ The Planet Crafter (2024) [Ru/Multi] (1.609/dlc) Repack Necros [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257748.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257620.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Barotrauma (2023) [Ru/Multi] (1.10.7.2/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257529.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Supermarket Simulator (2025) [Ru/Multi] (1.1.7) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256823.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Zoochosis (2024) [Ru/Multi] (2.2.3) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256820.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Dragon Song Tavern: Cozy and Adventurous (2025) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256768.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Deconstruction Simulator (2025) [Ru/Multi] (8028) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256767.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ LAN Party Adventures (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256760.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Monster Care Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256752.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Monster Care Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AD825AAC354522A46CC728CE83F316548938C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837386   (256751) от 16.11.2025
+
+Campus Life (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте свой собственный путь. Некоторые говорят, что университетские годы – это лучшее время в жизни. Это правда? В этой игре - да! Даже если вы закончили учёбу давно, никогда не поздно вновь насладиться атмосферой студенческих лет. Создайте идеального студента, выбрав лучший набор качеств и навыков.Тип издания: RepackРазработчик: GameFormatic S.A.Жанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3C9D1E05B1AF9055D7F08A4A8A2BD7F0C4388B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837388   (256748) от 16.11.2025
+
+ServiceIT: You can do IT (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы владелец ИТ-сервисной компании. Выполнение, ремонт и проникновение в сеть для программирования, управления сервером и очистки. Ваши навыки подвергнутся окончательному испытанию, когда вы обнаружите присутствие неуловимого анонимного хакера, намеревающегося саботировать самую суть вашей компании.Тип издания: RepackРазработчик: picture4uЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25510096A7307DA25F5DD2667DFEB3052959381A
 ```
 
 https://mybot314.ru/tekegram_catalog/

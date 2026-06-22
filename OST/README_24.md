@@ -1,3 +1,148 @@
+###  Публикация: 1650832   (194852) от 03.08.2023
+
+VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194852.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Particles/кошечка/Atomic Heart - Prekrasnoe Dalyoko
+2. ScaryON/BassnPanda/Atomic Heart - BEA-D Theme
+3. Geoffplaysguitar/Atomic Heart - Colossus BEA-D
+4. ScaryON/BassnPanda/Atomic Heart - Electronica IM02(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B6CE5E18A6C31939FBC2FB8653F4B04189D900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659767   (189242) от 13.09.2023
+
+Stephen Parsons & Francis Haines - Считанные секунды / Split Second (1992) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Split Second Theme
+02. Chasing Stone
+03. Shes's Really Something (performed by Playground)
+04. "I'm Back"(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB12A986E4123935F1BBC153447518555762324E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202959   (187895) от 17.09.2023
+
+Christopher Willis - Смерть Сталина / The Death Of Stalin (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moscow, 1953
+02. Beria's Plan
+03. First On The Scene
+04. We Cry For You(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26CC3837CA36368041BF955CEA565D79404567E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591262   (187518) от 17.11.2022
+
+VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. POLINA - Что-то пошло не так
+2. Люся Чеботина - Главная причина
+3. Николай Ростов - Где ты была вчера?
+4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665949   (177874) от 06.10.2023
+
+Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prognosis
+02. Henry Hope
+03. Meet Gabriela
+04. Tequila(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1941CDDCCDD0D3F2D04499A11544EDA51E27268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 162682   (172542) от 17.10.2023
 
 Геннадий Гладков - Джентльмены удачи (1971) Переиздание 2002 [MP3|320 kbps] <Soundtrack>
@@ -6,7 +151,7 @@
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172542.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170532.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170462.jpg" />
 </div>
 
 
@@ -92,7 +237,7 @@ John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168200.jpg" />
 </div>
 
 
@@ -121,7 +266,7 @@ Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166481.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ John Towner Williams - Звёздные войны: Скайуокер. Восх
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163563.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163021.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158234.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ Maury Laws & Jules Bass - Сумасшедшая вечеринка чудови
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157892.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154081.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Paul Haslinger - Resident Evil: The Final Chapter / Обитель зла: По�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153878.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152101.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150433.jpg" />
 </div>
 
 
@@ -388,7 +533,7 @@ Theodore Shapiro - Collateral Beauty / Призрачная красота (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148106.jpg" />
 </div>
 
 
@@ -417,7 +562,7 @@ VA - Cyberpunk 2077- Radio, Vol. 1-3 (2020) OST [MP3|320 Kbps] <Films-Games, Fil
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147210.jpg" />
 </div>
 
 
@@ -446,7 +591,7 @@ Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146090.jpg" />
 </div>
 
 
@@ -481,7 +626,7 @@ VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145322.jpg" />
 </div>
 
 
@@ -510,7 +655,7 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144648.jpg" />
 </div>
 
 
@@ -539,7 +684,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144430.jpg" />
 </div>
 
 
@@ -568,7 +713,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144324.jpg" />
 </div>
 
 
@@ -597,7 +742,7 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136202.jpg" />
 </div>
 
 
@@ -617,166 +762,6 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C479FC16A4D6E870357EE00047EFA332735E8213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534140   (134346) от 24.12.2012
-
-Отбросы / Misfits [Season 1-4] (2009-2012) [MP3|128-320 Kb/s]<Unofficial Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Unofficial SoundtrackПродолжительность: 18:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D52A62A0980E165F1CA75D955D5A2095221FBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594117   (133526) от 26.12.2012
-
-Судья Дредд / Dredd (2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She’s A Pass [3:16]
-02. Mega City One [3:13]
-03. The Plan [2:37]
-04. The Rise Of Ma-Ma [1:55]
-05. Anderson’s Theme [2:37]
-06. Lockdown [2:46]
-07. Cornered [2:17]
-08. Kay Escapes [3:17]
-09. Mini-Guns [2:02]
-10. Undefined Space [1:17](   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD1DE88CF89DDE0D980953C6EF786D4C32891C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594102   (133511) от 26.12.2012
-
-Облачный атлас / Cloud Atlas  (2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_133511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude - The Atlas March [1:15]
-02. Cloud Atlas Opening Title [3:47]
-03. Travel To Edinburgh [1:42]
-04. Luisa's Birthmark [3:00]
-05. Cavendish In Distress [1:23]
-06. Papa Song [4:15]
-07. Sloosha's Hollow [2:59]
-08. Sonmi-451 Meets Change [3:34]
-09. Won't Let Go [4:10]
-10. Kesselring [1:54](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594109   (133476) от 26.12.2012
-
-007: Координаты «Скайфолл» /Skyfall (2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133476.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grand Bazaar, Istanbul [05:16]
- 02. Voluntary Retirement [02:22]
- 03. New Digs [02:32]
- 04. Severine [01:19]
- 05. Brave New World [01:50]
- 06. Shanghai Drive [01:26]
- 07. Jellyfish [03:22]
- 08. Silhouette [00:56]
- 09. Modigliani [01:05]
- 10. Day Wasted [01:31](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682058   (132055) от 05.12.2023
-
-Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet
-02. Estrella
-03. Fairy of Water
-04. The Field(   Читать дальше...   )Жанр: Score, New AgeПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523B88FD73EB8E988AFE0B878D9D8818D050C599
 ```
 
 https://mybot314.ru/tekegram_catalog/

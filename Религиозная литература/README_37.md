@@ -1,3 +1,59 @@
+###  Публикация: 1522257   (760242) от 06.01.2022
+
+Сретенский монастырь (изд.) | Апостол (2010) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первой датированной книгой на Руси стал «Апостол», в 1564 году её напечатали Иван Фёдоров и Пётр Мстиславец. С тех пор эта книга – одна из важнейших в жизни каждого православного христианина.
+
+По совету святых отцов нам необходимо включать чтение Святого Евангелия и «Апостола»  в своё келейное (домашнее) молитвенное правило. Обычно рекомендуется следующая последовательность: (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC51362018FAF2BB44E40315F2473488591B8612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522291   (760240) от 06.01.2022
+
+Сретенский монастырь (изд.) | Псалтирь (2020) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Псалтирь (от греч. псалтирион, — название струнного музыкального инструмента) — книга, входящая в состав Библии, которая состоит из 150 песней или псалмов. В Православной Церкви Псалтирь более всех других Священных Книг употребляется при Богослужении.
+
+«В этой книге измерены и описаны словом вся жизнь человеческая, и душевные расположения, и движения помыслов, и (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A716EA637D5BFA1EF93A401DA414D0D12B7C49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215400   (759839) от 25.03.2018
 
 Рене Жирар | Насилие и священное (2010) [PDF, DJVU]
@@ -6,7 +62,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759839.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759837.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759830.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759292.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759201.jpg" />
 </div>
 
 
@@ -136,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759191.jpg" />
 </div>
 
 
@@ -162,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759050.jpg" />
 </div>
 
 
@@ -188,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758537.jpg" />
 </div>
 
 
@@ -214,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757735.jpg" />
 </div>
 
 
@@ -240,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757635.jpg" />
 </div>
 
 
@@ -266,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757554.jpg" />
 </div>
 
 
@@ -292,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756783.jpg" />
 </div>
 
 
@@ -318,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755187.jpg" />
 </div>
 
 
@@ -347,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754858.jpg" />
 </div>
 
 
@@ -373,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754855.jpg" />
 </div>
 
 
@@ -399,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754770.jpg" />
 </div>
 
 
@@ -425,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754763.jpg" />
 </div>
 
 
@@ -451,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754606.jpg" />
 </div>
 
 
@@ -477,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753063.jpg" />
 </div>
 
 
@@ -505,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753061.jpg" />
 </div>
 
 
@@ -531,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753057.jpg" />
 </div>
 
 
@@ -560,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752074.jpg" />
 </div>
 
 
@@ -587,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_751968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751968.jpg" />
 </div>
 
 
@@ -613,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751341.jpg" />
 </div>
 
 
@@ -624,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61834763F5593C4B587012CF7ADF0E8CA0E6C2DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216394   (749580) от 31.03.2018
-
-А. Т. Лукачевский | Марксизм-ленинизм как воинствующий атеизм (1933) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая брошюра не является новой работой. В основу ее легла глава «Марксизм-ленинизм как воинствующий атеизм» из учебника по диамату, вышедшего под редакцией тт. Митина и Разумовского. Некоторые места взяты из других работ автора, в которых прорабатывались им отдельные вопросы марксистско-ленинского учения о религии и борьбе с ней («Маркс и Энгельс о религии», (   Читать дальше...   )Жанр: История, политология, науковедение, философия, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DC2F7107F5D8A0C3F7585E80B38A7596072A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216513   (749579) от 31.03.2018
-
-А. Дмитрев | Вопрос об историчности Христа в свете археологии (1930) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вопрос об историчности основателя христианской религии Иисуса Христа с точки зрения положительных свидетельств, вещественных памятников первоначального христианства, хоть и заставляет нас на некоторое время погрузиться в глубокую древность, тем не менее, представляет сейчас жгучую злободневность и имеет весьма важный практический интерес.
-
-Археология раннего христианства (   Читать дальше...   )Жанр: История, политология, археология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F15228694862B578903472274C37A6FC1386295
 ```
 
 https://mybot314.ru/tekegram_catalog/

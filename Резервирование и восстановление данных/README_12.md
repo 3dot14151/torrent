@@ -6,7 +6,7 @@ Hetman Recovery Software 2024 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28942.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28315.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IsoBuster Pro 5.52 Build 5.5.2.00 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28291.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Macrium Reflect Server Plus v 8.0.7175 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27887.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Aiseesoft FoneLab for Android 5.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26492.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ R-Drive Image Technician 7.3 Build 7302 RePack (& Portable) by TryRooM [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25983.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Disk Drill 5.7.917 Enterprise (x64) [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23503.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Macrium Reflect Server Plus 8.0.7175 x64 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21301.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ MiniTool Power Data Recovery 12.5 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20073.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AOMEI Backupper Technician Plus 7.5.0 Repack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17610.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ AOMEI Backupper Technician Plus 7.5.0 WinPE by FC Portables [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16019.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ O&O DiskImage Premium 21.0.1074 RePack by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14942.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Exiland Backup Professional 6.9 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13791.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Macrium Reflect Free Edition 8.0.7783 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12389.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ MiniTool Power Data Recovery 12.6 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10434.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Auslogics File Recovery 12.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10253.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ FreeFileSync 14.4 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9858.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Auslogics File Recovery 12.0.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9520.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ TeraByte Image for Windows 3.64 + BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9377.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Aiseesoft FoneLab for Android 5.1.12 RePack (& Portable) by elchupacabra [Multi/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8829.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hetman Partition Recovery 5.1 Unlimited Edition RePack (& Portable) by elchupaca
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8702.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Tenorshare 4DDiG 10.5.8.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8616.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Hekasoft Backup & Restore 0.99.1 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8542.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Hetman Partition Recovery 5.1 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7942.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ DiskDigger 2.0.11.4091 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5221.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Auslogics File Recovery 12.1.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4166.jpg" />
 </div>
 
 

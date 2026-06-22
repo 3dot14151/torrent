@@ -1,3 +1,56 @@
+###  Публикация: 1674289   (162637) от 04.11.2023
+
+Nevercenter CameraBag Photo 2023.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162637.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
+Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3282CBC39B3BAEE06F09DC2F9BDD4CE2739E81BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674288   (162631) от 04.11.2023
+
+Nevercenter CameraBag Pro 2023.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162631.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2023Разработчик: © 2023 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4046F8066A1BA15E8D3C441F722211C1553B4D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674087   (162627) от 04.11.2023
 
 Amadine 1.5.4 [En]
@@ -6,7 +59,7 @@ Amadine 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162627.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ NCH WavePad Audio Editor Pro 17.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162619.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Adobe Premiere Pro 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162617.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Blocs 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162612.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162605.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162595.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Adobe Photoshop Lightroom Classic v10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162564.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Commander One PRO - FTP client 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162543.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ Adobe Acrobat Pro DC 2020.013.20074 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162531.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ TG Pro (Temperature Gauge Pro) 2.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162530.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ WiFi Explorer 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162497.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Adobe Photoshop 2021 v22.1.0 + Neural Filters [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162495.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Commander One PRO Pack 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162466.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ Microsoft Office 2021 for Mac LTSC v16.56 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162465.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ Elmedia Player Pro 8.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162450.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ BusyCal 3 v3.12.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162446.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ ProFind 1.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162445.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ BusyContacts 1.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162439.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ Metadata Converter Pro for Mac 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162438.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ NetShred X 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162434.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ Qbserve 1.87 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162428.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ MarkupTable 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162420.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ Easy App Locker for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162417.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ Caato Time Tracker Pro 1.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162413.jpg" />
 </div>
 
 
@@ -632,59 +685,6 @@ Caato Time Tracker использует трехуровневую иерарх�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B37273D2B2E9AE5CF029C8D4BF93699B457860E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517723   (162404) от 16.12.2021
-
-Scroll 2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162404.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью приложения Scroll исправьте чрезмерно чувствительную прокрутку в некоторых приложениях с помощью Magic Mouse или прокрутите только одним касанием трекпада. Ограничьте прокрутку Magic Mouse. Прокрутите одним касанием сенсорной панели. Поддерживает Magic Mouse и любой трекпад Apple.Тип издания: macOS SoftwareРелиз состоялся: 13.06.2021Разработчик: © 2021 Ryan HansonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0366D07DC34F62CE5352E0F8D49363FFCD6D229C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517683   (162394) от 16.12.2021
-
-Duplicate Finder and Cleaner for Mac 1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Finder and Cleaner - это суперсовременный инструмент для удаления дубликатов и похожих файлов даже в большом объеме хранилища на вашем Mac. Этот привлекательный инструмент работает с несколькими библиотеками фотографий, резервными копиями iPhone на Mac, а также с файлами с жестких дисков и внешних хранилищ.
-Duplicate Finder и Cleaner помогут вам избавиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2021Разработчик: © 2021 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF88B79557081CD34A484108B6A510321B164DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

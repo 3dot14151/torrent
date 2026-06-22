@@ -1,81 +1,3 @@
-###  Публикация: 593777   (134388) от 24.12.2012
-
-Том Дентон | Автомобильная электроника [2008] [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книг, в которых рассказывается об электрооборудовании автомобиля, много, но они либо посвящены одной-единственной системе, либо описывают электрооборудование конкретных автомобилей, фактически являясь пособиями по ремонту. В данной книге рассмотрены все электрические системы современного автомобиля.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7FFDB4327758E6ACB9C09F5B4E796CE8A2364C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594252   (134014) от 25.12.2012
-
-А.Ревин (ред.) | Hyundai Getz с двигателями 1,3i 1,6i. Устройство, эксплуатация, обслуживание, ремонт [2009] [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134014.jpg" />
-</div>
-
-
-###  Подробнее
-
-В руководстве рассмотрены устройство, техническое обслуживание и ремонт автомобилей Hyundai Getz с двигателями рабочим объемом 1,3 л (12 клапанов) и 1,6 л (16 клапанов). Подробно описаны возможные неисправности, их причины и способы устранения. Операции по обслуживанию и ремонту проиллюстрированы цветными фотографиями и снабжены подробными комментариями. В Приложениях приведены инструменты, смазочные материалы, эксплуатационные жидкости, лампы, а так же схемы электрооборудования и моменты затяжки резьбовых соединений. Книга предназначена для водителей, ремонтирующих автомобиль самостоятельно, а так же для работников СТО.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D1A25FD63523433DD25F4B22DD934AA2CC576C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691975   (122995) от 14.01.2024
-
-Эксмо | 3 в 1. Все для сдачи экзамена в ГИБДД: ПДД, билеты, вождение. Со всеми изменениями на 2024 год (2024) [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое полное и удобное пособие для сдающих на права в 2024 году!В книге вы найдете:– правила дорожного движения со всеми изменениями на 2024 год;– актуальную редакцию экзаменационных билетов;– уроки вождения с иллюстрациями и понятными схемамиЖанр: Автомобильная литератураИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6468C53497F64244623C67075CE9C476EDD91ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490241   (102289) от 30.04.2012
 
 А.А. Гладкий | Автософт. Компьютерные программы для автолюбителя [2010] [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102289.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ Ford Focus III. Руководство пользователя [2011] [PDF]
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90902.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87278.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86586.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86543.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82875.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82154.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79207.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78070.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61047.jpg" />
 </div>
 
 
@@ -338,32 +260,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752852   (41528) от 04.10.2024
-
-Сергей Моряхин | Наука вождения (2024) [EPUB, PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Моряхин один из самых известных профессиональных автоинструкторов России, автор популярного канала «Автоинструктор-62» на YouTube (более миллиона подписчиков), основатель онлайн-школы «Наука вождения». Почему даже самые прилежные, пройдя курс, говорят, что усвоили теорию, но не могут воспользоваться ею в реальных условиях? Почему тратят много времени на чтение (   Читать дальше...   )Жанр: вождение автомобиля, учебное пособиеИздательство: СПб.: «Питер»Формат: EPUB, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5186CB9A0B171B37F1D66CD5DE96813B786A8245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769577   (32630) от 29.12.2024
 
 Энди Томпсон | Советские автомобили. Полная история (2011) [PDF]
@@ -372,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32630.jpg" />
 </div>
 
 
@@ -399,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24174.jpg" />
 </div>
 
 
@@ -425,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20773.jpg" />
 </div>
 
 
@@ -437,35 +333,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC46EB7D340F2CB8D7A4A9F0C0EBBF5C6D17032B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813803   (6680) от 21.08.2025
-
-Павел Старцев | Экстремальное вождение (2024) [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — для тех, кто уже водит, но хочет управлять автомобилем уверенно, безопасно и осознанно. Без "воды", без штампов — только то, что действительно работает в реальных дорожных условиях.
-В пособии:
-Типовые ошибки водителей и причины аварийных ситуаций;
-Грамотные действия в повседневных и сложных дорожных условиях;(   Читать дальше...   )Жанр: Учебное пособие, вождение автомобиляИздательство: Автор (Литрес)Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B326BDD2E1040ED373ECEB3DC80AAAA086E4D75
 ```
 
 https://mybot314.ru/tekegram_catalog/

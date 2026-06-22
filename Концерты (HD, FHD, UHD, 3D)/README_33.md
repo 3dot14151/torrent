@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290894.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290605.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289649.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Bee Gees - One Night Only 1997 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289129.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289125.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Europakonzert / European concert 2008 from Moscow (2014) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288383.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286276.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286169.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285451.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285105.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285022.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284240.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Pink Floyd: Live at Pompeii (1972) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283636.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283470.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Nightwish - Showtime, Storytime (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281367.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Muse - Rock Am Ring 2010 (2010) [720p] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275675.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274655.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274590.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273536.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271999.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268119.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266980.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266562.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265733.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265641.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1035900   (623998) от 18.07.2016
+
+Ghostbusters™ (2016) [Multi] (1.0) Repack Dok2
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Ghostbusters разворачивается после событий одноименного фильма 2016 года. Однако играть за главных героинь кинокартины вам не придется. Вместо этого вы выступите в роли новичков, которые следят за домом, пока настоящие охотники находятся на задании. В игре на выбор представлено четыре персонажа, экипировку и умения которых можно будет улучшать, выполняя (   Читать дальше...   )Тип издания: RepackРазработчик: FireForge GamesЖанр: Arcade (Shoot'em up), 3D, Top-downЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E4F9A77BA31CD75DB740AB67147278DA6AC718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277626   (623601) от 10.04.2019
+
+Feudal Alloy (2019) [Ru/Multi] (1.02) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атту — обычный робот-фермер, живущий в небольшом домике посреди поля подсолнухов. Его жизнь была простой, но приятной, пока на деревню не напала банда разбойников, которые унесли с собой запасы масляной смазки и сожгли его дом.Тип издания: LicenseРазработчик: Attu GamesЖанр: Adventue, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767B7A8CF965AE847E4D13E7FD3778E9BF2DB3A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253498   (623599) от 10.04.2019
 
 Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +58,7 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623599.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Rocket League (2015) [Ru/Multi] (1.21/dlc) Repack Dok2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622301.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Shank - Дилогия [Ru/En] (RePack) 2010-2012 l R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622253.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Ice Age: Continental Drift - Arctic Games / Ледниковый период 4:
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622239.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) Repack R.G.Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620080.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Grow Home (2015) [Ru/Multi] (5.3.02/upd3) Repack Valdeni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618718.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ LEGO The Lord of the Rings (2012) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618695.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Caveblazers (2017) [En] (1.4.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618452.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615072.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Hyperdimension Neptunia Re;Birth1 (2015) [En/Ru] (4.3.0b10.18.10) Repack R.G. Ga
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613726.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Mortal Kombat X / Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613529.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ The Hong Kong Massacre (2019) [En] (1.04) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613013.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612547.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Rogue Stormers (2016) [Ru/En] (1.0 build 34) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611525.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611356.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Enter the Gungeon (2016) [Ru/Multi] (2.1.6/dlc) License GOG [Collector`s Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611353.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Nine Parchments (2017) [Ru/Multi] (1.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610255.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Sonic Adventure 2 (2012) [Ru/En] (1.0) Rip X-NET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610168.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ God's Trigger (2019) [Ru/Multi] (1.1.58505) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608045.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608044.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ The LEGO Movie 2 Videogame (2019) [Ru/Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607896.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ I am Weapon: Revival (2016) [Ru/En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606062.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ I am Weapon: Revival (2016) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605914.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Portal Dilogy / Дилогия [Ru/En] (RePack) 2007/2011 | R.G. Shift
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605035.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ Portal Dilogy / Дилогия [Ru/En] (RePack) 2007/2011 | R.G. Shift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:331C58B2A8F19FF252A7363E3CC1954D9B2798A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038511   (604764) от 29.07.2016
-
-Anarcute (2016) [En] (1.0) Repack Elektra
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настали темные времена. Группа злых корпораций захватила крупные мегаполисы. Они взяли под свой контроль СМИ, промывают мозги полиции и бесстыдно диктуют гражданам условия жизни с высоты своих небоскребов. Пришло время действовать! Возьмите под свой контроль революцию, чтобы столкнуться с ужасным Brainwash Patrol, который господствует в мире.Тип издания: RepackРазработчик: AnarteamЖанр: Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801E80E01351AEEEB9404A85F9AA0D0F503A577D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038728   (604573) от 29.07.2016
-
-SEUM: Speedrunners from Hell (2016) [En] (1.0) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604573.jpg" />
-</div>
-
-
-###  Подробнее
-
-SEUM: Speedrunners from Hell - это экшен-платформер, смешивающий в себе Quake и Super Meat Boy, в котором игрокам предстоит сбежать из Ада, путешествуя по уровням со смертельными ловушками.Тип издания: LicenseРазработчик: Pine StudioЖанр: Arcade (Platform), Action, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667BE3859FC612607ECE3353ED2C1AD28DFD2A04
 ```
 
 https://mybot314.ru/tekegram_catalog/

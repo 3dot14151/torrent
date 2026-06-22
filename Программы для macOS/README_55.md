@@ -6,7 +6,7 @@ TinkerTool System 7 v7.71 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753609.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WebScraper 4.15.3 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753522.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF Squeezer – PDF Toolbox 6.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753514.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Instaradio 8.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753486.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Music Tag Editor 5.10.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753385.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Planner 5D Premium 4.6.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753286.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Movavi Screen Capture Pro 10.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753122.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Total Adware Doctor 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752946.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Fileloupe - Media Browser 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752263.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Magic Number 2.7.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752254.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Aiseesoft PDF Converter 3.2.39 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752177.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ SQLPro for MSSQL 1.0.318 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_751969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751969.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Theme Lab - Templates 5.4.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751958.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ PatterNodes 2 v2.4.12 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751675.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ BuildBox 2.1.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751512.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Screaming Frog Log File Analyser 4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751273.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ FxFactory Pro 7.2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751268.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ ABBYY Lingvo Dictionary для Mac 1.10.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751235.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ JetBrains PhpStorm 2018.3.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751070.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ OmniOutliner Pro 5.4.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751059.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ BalenaEtcher 1.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749919.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Typeeto: remote BT keyboard 1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749903.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ ExifEditor 1.2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749805.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ AnyToISO Pro 3.9.6 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749793.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Planner 5D Premium 4.8.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749565.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Maxon Cinema 4D Studio R25.117 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749404.jpg" />
 </div>
 
 

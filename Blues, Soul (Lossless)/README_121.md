@@ -6,7 +6,7 @@ Cole & Ward - Blues and Other Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107171.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Corey Harris - Chicken Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107170.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gena Lanette - Hell or High Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107169.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Daniele Perrino - The Soot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107167.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Knut Nordhagen & Bluepack - Maximum R & B (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107166.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Berk Jodoin - Fly Away (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107165.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ BRTHR - Brother (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107162.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Grand Causse - Sauvages Celestes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107161.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Karen Lawrence - The Blues Is Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107160.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Altered Five Blues Band - Testifyin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107159.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lightnin' Rod & The Thunderbolts - Another Moment In Time (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107135.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Katie Knipp - Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107133.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jacek Siciarek - In Yo Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107120.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jasper & Jade - The Copper God (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107118.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ James McKinley - Working Class Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107117.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ John Albert - Down the Rabbit Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107114.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Joe Clark - Hillbilly Voodoo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107112.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Josie Field - Blue Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107108.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jason Lane Band - Full Steam Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107107.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Faze-O - Slow Funk: The Atlantic Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106737.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dimitris Loizos - Back to the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106571.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Budda Power Blues - Walking Shoes & Thinking Hat (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106568.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dy Karamoon - It's Never the Same (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106566.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Cristian Luna & the Tock and Blues - After All, Right Now (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106553.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Cary St Onge - Been Livin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106552.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Craig Pilo & Jeff Pescetto - Comfort in the Night (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106550.jpg" />
 </div>
 
 

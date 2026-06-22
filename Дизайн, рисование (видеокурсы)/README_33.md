@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720929.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720925.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720523.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718686.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ CGcircuit, Daviv CGMK | Houdini Elements - Smoke (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718366.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Sapphire FX | Houdini Ship Destruction (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718341.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VFX Grace | Volcanic Eruption | Pyro FX (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718286.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716676.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Allan McKay | FX Technical Director Transformation Module 11 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714887.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Allan McKay | FX Technical Director Transformation Module 12 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714882.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Stephen Wells | Physics Pile In 3ds Max / Создание груды косте
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712100.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712089.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712015.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712008.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710578.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710207.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ studyboom | Профессия: Дизайнер мобильных прилож
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709189.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VFX Grace | Jaguar Grooming Workflow - Blender Case Study (2020) PCRec [EN / EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708504.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Allan McKay | FX Technical Director Transformation Module 10 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707406.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Allan McKay | FX Technical Director Transformation Module 8 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707400.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706783.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Skillbox | Дизайнер промосайтов (2019) CamRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704898.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Skillbox | Дизайн мобильных приложений с нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704878.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Skillbox | Дизайнер сайтов на Tilda (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704869.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Andrew Gordon | Animation Foundations Gesture (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703276.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702956.jpg" />
 </div>
 
 

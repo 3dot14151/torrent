@@ -1,3 +1,83 @@
+###  Публикация: 1570063   (125168) от 29.12.2023
+
+Нина Дашевская | Зимний мастер (2021) [MP3, Нина Дашевская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о том, что приручить чудо проще простого. Стоит только очень захотеть: снега, когда осень всё не уходит, или тепла, чтобы самую малость согреться. А волшебство найдётся, и у каждого (а как иначе?) — будет своё.
+
+В аудиокниге используются фрагменты Piano Sonata No 1 C major – Wolfgang Amadeus Mozart.Жанр: книги для детей, сказкиПродолжительность: 00:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2BD59A8307104ABB3419000239084FF4737F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614707   (125166) от 29.12.2023
+
+Дмитрий Наркисович Мамин-Сибиряк | Сказка про славного царя Гороха и его прекрасных дочерей царевну Кутафью и царевну Горошинку (2019) [MP3, Маргарита Елшанкина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125166.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Баю-баю-баю… Один глазок у Алёнушки спит, другой – смотрит; одно ушко у Алёнушки спит, другое – слушает. Спи, Алёнушка, спи, красавица, а папа будет рассказывать сказки. Кажется, все тут: и сибирский кот Васька, и лохматый деревенский пёс Постойко, и серая Мышка-норушка, и Сверчок за печкой, и пёстрый Скворец в клетке, и забияка Петух…»Жанр: литература 19 века, русская классика, сказкиПродолжительность: 01:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA287A3BF9BE187BEAF9F4F1018A74B08E3A94C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645607   (125165) от 29.12.2023
+
+Елена Березина | Мои уютные сказки (2020) [MP3, Елена Березина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как засыпает мышонок? Чему радуется мыльный пузырь? Где живёт сказка? О чём говорят снежинки? Какое задание выполняют парашютисты цветочного штаба? Об этом и не только «Мои уютные сказки». Четырнадцать музыкальных релакс-историй помогут ребёнку настроиться на сон. Из них малыши узнают, что такое радуга и когда бывает роса, кто любит гулять по солнечной травке, почему (   Читать дальше...   )Жанр: детская познавательная и развивающая литература, книги для детей, сказкиЯзык озвучки: русскийИздательство: ЛитРесПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30406597B6DF5DE41FBD1B5EB623E6D6E5115133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650154   (125164) от 29.12.2023
 
 Тамара Михеева | Не предавай меня! (2021) [MP3, Наталья Истарова]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125164.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125160.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125159.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125151.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125141.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125124.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125112.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125058.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125046.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125038.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125029.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125028.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125012.jpg" />
 </div>
 
 
@@ -355,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125010.jpg" />
 </div>
 
 
@@ -381,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125008.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124999.jpg" />
 </div>
 
 
@@ -433,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124865.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124821.jpg" />
 </div>
 
 
@@ -487,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124814.jpg" />
 </div>
 
 
@@ -516,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124784.jpg" />
 </div>
 
 
@@ -542,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124763.jpg" />
 </div>
 
 
@@ -570,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124655.jpg" />
 </div>
 
 
@@ -596,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124650.jpg" />
 </div>
 
 
@@ -607,85 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C5FD9A11361C1ED15A3CA05643EF62D341BAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689449   (124644) от 02.01.2024
-
-Анастасия Галкина, Екатерина Ладатко, Полина Пономарёва | По следам динозавров. Путешествие в меловой период (2019) [MP3, Мария Лутовинова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды заветная мечта близнецов Риты и Никиты исполнилась - они отправились в лагерь палеонтологов на настоящие раскопки. Внезапно волшебная книга перенесла их вместе с бабушкой в меловой период. Близнецов ждут захватывающие приключения! Они откроют тайну гибели дейнонихов, понаблюдают за птеродактилями и покатаются на спине игуанодона. Сумеют ли Рита и Никита спасти (   Читать дальше...   )Жанр: книги о животных, энциклопедииИздательство: CLEVERПродолжительность: 00:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA403FC40CD310E35F5EC70FA24F18D3F63F8333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689471   (124642) от 02.01.2024
-
-Гомер | Приключения Одиссея (2006) [MP3, Татьяна Горчакова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Для детей и не только.
-На диске «Приключения Одиссея» представлен один из самых знаменитых сюжетов литературы Древней Греции в художественном прозаическом переложении Елены Александровны Тудоровской. За основу автором было взято величайшее эпическое произведение – поэма Гомера «Одиссея», в котором рассказывается возвращении домой после падения Трои античного (   Читать дальше...   )Жанр: Классика, античная литература для детей, мифы, легендыИздательство: Говорящая книгаПродолжительность: 04:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFD0B7C8C806A7448714ED05F49C06B49C09C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689526   (124540) от 03.01.2024
-
-Екатерина Мурашова | Лекция «Если ребёнок ничего не хочет» (2020) [MP3, Екатерина Мурашова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители часто жалуются на то, что их ребёнок очень устал и ничего не хочет. Возраст «уставших и нехотящих» начинается с 9 лет, а заканчивается молодыми взрослыми, которые в процессе отчисления или уже отчислены из института. Они впадают в депрессию, лежат на диване и «ничего не хотят». Но почему? Ведь все родительские усилия направлены на «увлечь, развлечь и развить». (   Читать дальше...   )Жанр: детская психологияИздательство: Лекторий "Прямая Речь"Продолжительность: 01:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B937C5D40B0CF54720DB22BDF50D2C3F57B64C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

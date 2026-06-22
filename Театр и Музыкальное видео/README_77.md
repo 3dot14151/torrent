@@ -1,3 +1,260 @@
+###  Публикация: 1314835   (517216) от 16.07.2019
+
+Славянский базар в Витебске. Конкурс молодых исполнителей. День второй (14.07.2019) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517216.jpg" />
+</div>
+
+
+###  Подробнее
+
+XXVIII Международный конкурс исполнителей эстрадной песни «ВИТЕБСК–2019». День первый: «СЛАВЯНСКИЙ ХИТ»
+Как подчеркнули неизменные ведущие конкурса Денис Дудинский и Катерина Раецкая, 16 участников приехали с разных континентов, они принадлежат разным культурам и религиям, но их всех объединила музыка.
+Под аккомпанемент Национального академического концертного оркестра (   Читать дальше...   )Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E830166343D1AE6DF3C8A6580D6CB7994D30D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314766   (517033) от 16.07.2019
+
+Белые ночи Санкт-Петербурга (2019) HDTVRip [H.264/720p-LQ] (части 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фестиваль «Белые ночи Санкт-Петербурга» проходит в Северной столице уже не первый год и продолжает быть самым грандиозным и любимым мероприятием в сфере популярной музыки не только в России, но и во всей Восточной Европе.
+Более чем за 25 лет своего существования «Белые Ночи Санкт-Петербурга» стали одним из самых ожидаемых музыкальных событий. Фестиваль известен далеко (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:07:15 + 01:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E929F6B1F61247A9F7353313CC88E1CDD5680A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561029   (516593) от 03.07.2022
+
+Концерт памяти Михаила Круга. "60" (2022) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионная версия концерта памяти русского шансонье Михаила Круга. В этом году ему исполнилось бы 60 лет. Он без преувеличения был и остается звездой 90-х, его называют королем русского шансона, а его песни знали и знают наизусть даже те, кто далек от французского названия песенного жанра.01. Ирина Круг и Александр Круг - Вот и все (Это было вчера)
+02. Сергей Любавин - Случай в городском саду
+03. Лолита - Владимирский централ
+04. Игорь Слуцкий - Постой душа(   Читать дальше...   )Производство: РоссияЖанр: ШансонСубтитры: TeletextПродолжительность: 01:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6BA38584E4361959B6F3B44A8657BC98CDBA00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930296   (516146) от 22.08.2015
+
+VA - Летний марафон № 184 / (Марафон Русских Хитов) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (22.08.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. ART KEY (Артем Качарян) - Энергия Солнца (ПРЕМЬЕРА!) (00:03:53)
+2. Artik & Asti - Кто я тебе ! (при уч. Dj Loyza & The Kidd) (ПРЕМЬЕРА!) (00:03:31)
+3. Julia Parshuta - Most Wanted (ПРЕМЬЕРА!) (00:03:17)
+4. Lui Muzon – Селфи Палка (Лайки Там) (ПРЕМЬЕРА!) (00:04:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51EA48A886D049BC1037A36AC291DBC5167278B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314973   (516056) от 17.07.2019
+
+Славянский базар в Витебске. Церемония закрытия фестиваля (15.07.2019) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь на 16 июля в витебском Летнем амфитеатре торжественно закрыли «Славянский базар — 2019». Гала-концерт собрал на одной сцене артистов из Беларуси, России, Украины, Молдовы, Италии, Швеции. Самой звездной гостьей стала София Ротару — певица уже давно не была на «базаре» и подарила витебским зрителям новую песню.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4118D5151B529C3568715796864831A51B185E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930195   (516008) от 22.08.2015
+
+Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм "Iron Maiden: Flight 666" повествует о глобальном 45-ти дневном турне легендарной британской рок-группы Iron Maiden и является первой документальной лентой группы. Картина представляет собой реальные съемки мирового турне группы, которое состоялось в феврале-марте 2008 года. В рамках турне группа на специально оборудованном личном самолете Boeing (   Читать дальше...   )Flight 666 (Film)
+1. The "Magic Carpet" Takes A Bow
+2. A New Friend In Mumbai
+3. Jetlag Is A Killer(   Читать дальше...   )Жанр: Heavy MetalРежиссер: Scot MCFadyen, Sam DunnПродолжительность: 01:52:19 (Film) | 01:43:40 (Concert)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC10BA04C676B797060E0DDCBE1E8BCF2EB8889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535801   (515569) от 17.08.2012
+
+DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R'n'b, HouseПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A54036EE3BAE89BDEA7EF3AD53A7ABA2863866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536222   (515495) от 17.08.2012
+
+Сборник видеоклипов Millenium Romantic 6 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто влюблён, любил или ещё только будет любить.
+ Лучшая музыка со всего света. Клипы, к котором приложили руку талантливейшие режиссёры.
+ Коллекция Millenium Romantic - это музыка для души.01 Lara Fabian - Je T'aime
+02 Sarah Engels Pietro Lombardi - I Miss You
+03 Amel Bent - Ma Philosophie
+04 Sandra - Heaven Can Wait
+05 Mike Oldfield feat. Maggie Reilly - Moonlight shadow
+06 Desireless - Voyage Voyage
+07 Chris Norman - Some Hearts Are Diamonds
+08 Status Quo - In The Army Now
+09 Nelly Furtado — All Good Things
+10 Natasha Bedingfield - Unwritten(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1398019630BD57B071E208F9250E6AC1CF59B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536052   (515357) от 17.08.2012
+
+Slipknot / Live At Download (2009/2012) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slipknot - американская группа, исполняющая музыку в стиле ню-метал. Группа образована в 1995 году, хотя первые признаки её существования датируются 1992 годом, когда был сформирован минимальный состав. Этот концерт был снят когда Slipknot озаглавил фестиваль перед 80,000 поклонниками в июне 2009 года. Среди многих легендарных шоу в прямом эфире, эта работа остается (   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalАктеры: SlipknotПеревод: ОтсутствуетПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 374624   (515279) от 12.08.2011
 
 Led Zeppelin - The Song Remains The Same (1976) DVDRip [H.264]
@@ -6,7 +263,7 @@ Led Zeppelin - The Song Remains The Same (1976) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515279.jpg" />
 </div>
 
 
@@ -35,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515246.jpg" />
 </div>
 
 
@@ -64,7 +321,7 @@ Scorpions - Live At Wacken Open Air (2006) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515148.jpg" />
 </div>
 
 
@@ -93,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515080.jpg" />
 </div>
 
 
@@ -122,7 +379,7 @@ Scorpions - Acoustica (2001) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515067.jpg" />
 </div>
 
 
@@ -151,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514931.jpg" />
 </div>
 
 
@@ -180,7 +437,7 @@ Hurts - Live in SWR3 New Pop Festival (2010) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514359.jpg" />
 </div>
 
 
@@ -209,7 +466,7 @@ VA - Летний марафон № 185 / (Новый Хитовый Сборн
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513869.jpg" />
 </div>
 
 
@@ -238,7 +495,7 @@ Muse - Live At Rome Olympic Stadium (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513660.jpg" />
 </div>
 
 
@@ -267,7 +524,7 @@ PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513190.jpg" />
 </div>
 
 
@@ -293,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_512098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_512098.jpg" />
 </div>
 
 
@@ -319,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511979.jpg" />
 </div>
 
 
@@ -349,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511742.jpg" />
 </div>
 
 
@@ -375,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511632.jpg" />
 </div>
 
 
@@ -404,7 +661,7 @@ The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511631.jpg" />
 </div>
 
 
@@ -433,7 +690,7 @@ A-HA - Headlines And Deadlines [The Hits Of A-HA] (1991) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_511173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_511173.jpg" />
 </div>
 
 
@@ -459,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_511114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_511114.jpg" />
 </div>
 
 
@@ -479,257 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA69A4CAAEB5B51E8564C4E33F845E3D13478FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 230830   (510970) от 29.08.2010
-
-Сурганова и Оркестр - Чужие как свои (видеоряд) [Rock ] WebRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный видеоряд к альбому Чужие как свои.
-Это НЕ КОНЦЕРТНАЯ ЗАПИСЬ!
-Некоторые элементы данного видеоряда были использованы при создании компиляции
- Светлана Сурганова и Оркестр - Концерт в БКЗ Октябрьский, СПб (13.11.2009)01. Апрельская
-02. Далеко (слова О.Алексеевой, Е. Костягиной и Светланы Сургановой)
-03. Полет на дельтаплане (музыка Э. Артемьева, слова Н. Зиновьева)
-04. Этот мир (музыка А. Зацепина, слова Л. Дербенева)(   Читать дальше...   )Жанр: VIP-Punk-DecadenceПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931763   (510784) от 27.08.2015
-
-Ирина Круг - Моя королева (2006) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирина Круг – вдова известного российского певца и композитора Михаила Круга, родилась в Челябинске, в 1976 году, в семье военного.С детства занималась творчеством в театральном кружке местного ДК. Мечтала стать артисткой. Окончила ТГУ в 2005 году. В декабре 1999 года, на концерте у друзей, в Челябинске, она познакомилась с Михаилом Кругом. Через три месяца Михаил (   Читать дальше...   )01. Дорога от души к душе (дуэт с Л. Телешевым)
-02. Встретились глаза (дуэт с М. Кругом)
-03. Поле зеленое
-04. Боль о тебе(   Читать дальше...   )Производство: Россия / "Master Sound Records"Жанр: МузыкаПеревод: ОтсутствуетСубтитры: нетПродолжительность: 02:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FC2CEC528D7E0021B5D4129813FD4AAB645AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931910   (509859) от 28.08.2015
-
-Ирина Круг - Лучшие песни. Видеоальбом (2015) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тебе моя последняя любовь
-02. Шанель
-03. Я прочитаю в глазах твоих
-04. Букет из белых роз(   Читать дальше...   )Производство: РоссияЖанр: МузыкаПеревод: ОтсутствуетСубтитры: нетПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9139B3BFFF1A0D9391BD900F95771E16DE121568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536711   (509723) от 23.08.2012
-
-Alex Gaudino & Taboo - I Don't Wanna Dance (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B1A13451C6AEE1F80FCC32175EBB90EC2C9B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538215   (509720) от 23.08.2012
-
-Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20664FA32F15F0ABE8D307119C2BB21827F38D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537924   (509693) от 23.08.2012
-
-Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59117D2670C996059562B2FF76F66E815B953E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537920   (509642) от 23.08.2012
-
-Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73BF4239372819909194FA784A0925981A78BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231791   (508987) от 31.08.2010
-
-The Beatles at Shea Stadium (1965) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о концерте The Beatles в городе Нью-Йорк 15 августа 1965 года на Стадионе Ши.
-Это был первый случай в истории музыки, когда стадион был использован для рок-концерта! Концерт смотрело 55600 зрителей, что стало новым мировым рекордом посещаемости музыкального шоу.
-Группа сыграла на концерте 12 дежурных песен за 30 минут и помахав на прощание разгоряченной (   Читать дальше...   )01.Arthur Fiedler Introduction
-02.Shea Stadium
-03.I'm Down
-04.Setting Up, Murray the K(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538218   (508303) от 24.08.2012
-
-Кабаре / Crazy Horse (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Crazy Horse, оставшийся непревзойденным в течение половины столетия в качестве радикального новшества, которое преподносит женское тело как средство художественного выражения. Более 5 миллионов человек побывали на шоу Crazy Horse в прекрасно оборудованном театре на проспекте George V, находящимся рядом с Домом Balenciaga и напротив Ив Сен Лоран. В 2001 году было открыто постоянное шоу Crazy Horse в Лас-Вегасе, в MGM Grand Hotel and Casino. Дита фон Тиз, признанная королева бурлеска, впервые была приглашена в качестве гостя Crazy Horse Paris в октябре 2006 года. В феврале 2009 Дита вернулась, чтобы представить три чувственных и эффектных номера, которые она любезно подарила Crazy Horse Paris.Жанр: Мьюзикл, МузыкаРежиссер: Филипп НоэльАктеры: Дита Фон Тиз, Alexa Phocea, Azy Nenuphar, Baby Light, BagiraПеревод: ОтсутствуетПродолжительность: 0:55:47
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

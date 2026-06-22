@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003916.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003423.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003142.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003136.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002373.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ David Garrett: Music Live In Concert (2012) Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000331.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000317.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000314.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000099.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998999.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998798.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998768.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998520.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Schiller / Atemlos Live (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998454.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998013.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997981.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997642.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Helene Fischer - Live/Zum ersten Mal mit Band und Orchester  (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997136.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Duran Duran - A Diamond In the Mind (2011) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995480.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995404.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992565.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Stromae - Racine Carree Live (2015) WEB-DL
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988413.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988314.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987089.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985721.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985686.jpg" />
 </div>
 
 

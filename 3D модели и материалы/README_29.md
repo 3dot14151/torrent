@@ -1,3 +1,55 @@
+###  Публикация: 1830127   (202418) от 26.10.2025
+
+3D print - Zenith Studios - Dexter Morgan [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на новейшую коллекционную фигурку Zenith с помощью этой эксклюзивной модели вдохновленной неким экспертом-криминалистом, хранящим темную тайну.Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB57DDA1AA92C8C1BC43238D9F8F800DB456AB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829260   (202164) от 25.10.2025
+
+3D print - Wicked - Halo Diorama [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просыпайтесь, ребята, просыпайтесь!!! Вселенная в огне, и долг снова зовёт!!!! Он долго молчал... но Шеф никогда по-настоящему не спит!!!!Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2950E39A89070DE03E62064D1CAB39725AF48EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829709   (201885) от 25.10.2025
 
 3D print - Zenith Studios - Ghostface + Bust [STL]
@@ -6,7 +58,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201885.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201845.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201747.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201667.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201645.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201639.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201622.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200869.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200865.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200864.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200851.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198261.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198234.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198175.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197762.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197620.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197489.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195336.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195287.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193338.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193303.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188337.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187933.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186109.jpg" />
 </div>
 
 
@@ -637,58 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD22EA0503D8108AE0CABBCFEB347F52A99721FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827432   (186085) от 21.10.2025
-
-3D print - Neko Figurines - Hornet (Hollow Knight: Silksong) [STL, LYS]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, ребята! Делимся нашей новой диорамой «Шершень» из Hollow Knight: Silksong! Фигурка поставляется с предустановленными опорами, масштаб одинаковый для поддерживаемых и неподдерживаемых деталей.Формат: STL, LYS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A142DAFB3D25C1F63824E05A7FBAA9070055685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827249   (185806) от 20.10.2025
-
-3D print - Toon Studios - TMNT Leo [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распечатайте на 3D-принтере своего Леонардо из «Черепашек-ниндзя» с помощью этого детализированного STL-файла. Идеально подходит для создания коллекционной фигурки или настольной миниатюры.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B6C0515ABFE27EFAF1F37CE78C3C206050F55E
 ```
 
 https://mybot314.ru/tekegram_catalog/

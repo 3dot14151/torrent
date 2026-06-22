@@ -6,7 +6,7 @@ FireTube v1.4.18 build 84 Premium [En] - Аудио и видеострим му
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979624.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AutoMath Photo Calculator 2.94 [Ru/En] - решение математическ
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978945.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Solar System Scope Pro v2.6.0 [Ru/Multi] - Виртуальные планета
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978826.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977097.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977033.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Stellarium Mobile (планетарий) v1.23 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976703.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Round Labyrinth 1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975632.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974810.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974405.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973416.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Garmin: City Navigator South America NT 2016.30 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973204.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ WatchMaker Premium 3.9.6 (Final) [En] - Создание циферблатов 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971584.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ ISS Detector Satellite / МКС Детектор v2.01.62 [Ru/Multi] - Обна�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970662.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Periscope v1.3.2.1 [Ru/Multi] - трансляция видео в реальн�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969525.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969513.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ BBC: Увлеченные рыбалкой / A Passion for Angling (1993) IPTVRi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969512.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969372.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967899.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ CamScanner 5.17.0.20200131 Mod by Nocna Furia [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965901.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Discovery: Аляска: Семья из леса / Discovery Channel: Alaskan B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964343.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964342.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ EZ Folder Player Full 1.1.31 [Ru ] - Плеер по папкам
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964338.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963629.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Debug Menu Access 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963294.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ AtomicClock — NTP Time (with widget) v1.7.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963082.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961264.jpg" />
 </div>
 
 

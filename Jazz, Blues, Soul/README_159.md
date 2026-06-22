@@ -1,178 +1,3 @@
-###  Публикация: 662207   (758269) от 29.05.2013
-
-VA - The Perfect Guitar Collection. 25 Original Albums (2012) [FLAC|Lossless]<Jazz, Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_758269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Blues, RockПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215532   (758232) от 26.03.2018
-
-Bud Freeman - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just Wild About Harry [03:09]
-02. I Got Rhythm [02:38]
-03. Where Have You Been? [02:57]
-04. Ol' Man River [03:22](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F760C8373E84AC4A5B8DC1286C30DD53B547B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215514   (758231) от 26.03.2018
-
-Pony Poindexter - Pony's Express (1962) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catin' Latin [04:17]
-02. Salt Peanuts [03:40]
-03. Skylark [03:45]
-04. Struttin' With Some Barbecue [05:34](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC515F684AEDDA970E7F44E8ADCD7878807ECA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203667   (757951) от 28.05.2010
-
-Jimmy Scott - The Source (1970) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus
-02. On Broadway
-03. Our Day Will Come
-04.I Wish I Knew
-05. Unchained Melody
-06. Day by Day
-07. Sometimes I Feel Like a Motherless Child
-08. This Love of MineЖанр: Vocal JazzПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018264   (757743) от 19.05.2016
-
-Bobby Hutcherson - In The Vanguard (1987) Landmark[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Little Niles [06:46]
- 02.Estate [07:57]
- 03.Well, You Needn't [07:33]
- 04.Young And Foolish [10:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CAD6D656B79C9C8B749BA5F1A40DF196FEDEFDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018106   (757732) от 19.05.2016
-
-Paul Motian, Bill Frisell, Joe Lovando - I Have The Room Above Her (2005) [APE|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osmosis Part III
-02. Sketches
-03. Odd Man Out
-04. Shadows(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691D440EECFC2DAAF27736E313C4F944DBE2B7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018166   (757643) от 19.05.2016
 
 Rob Tognoni Band - Stones And Colours (1995) [FLAC|Lossless|tracks] <Blues Rock>
@@ -181,7 +6,7 @@ Rob Tognoni Band - Stones And Colours (1995) [FLAC|Lossless|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757643.jpg" />
 </div>
 
 
@@ -210,7 +35,7 @@ Spyro Gyra - Morning Dance (Japan Edition) (1984) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757559.jpg" />
 </div>
 
 
@@ -239,7 +64,7 @@ Bill Evans Trio - Waltz For Debby 1961 (2019) Jazz Images [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757199.jpg" />
 </div>
 
 
@@ -268,7 +93,7 @@ Greg Foat - Symphonie Pacifique (2020) [MP3|320 Kbps] <Jazz, Funk, Nu Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757120.jpg" />
 </div>
 
 
@@ -297,7 +122,7 @@ Art Tatum - Piano Starts Here: Live at the Shrine (1933, 1949) 2008, Sony [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757100.jpg" />
 </div>
 
 
@@ -326,7 +151,7 @@ Count Basie - The Complete Clef / Verve Count Basie Fifties Studio Recordings (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756889.jpg" />
 </div>
 
 
@@ -355,7 +180,7 @@ Paul Jeffrey - Watershed (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756743.jpg" />
 </div>
 
 
@@ -384,7 +209,7 @@ Brett Littlefair - Footstompin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756637.jpg" />
 </div>
 
 
@@ -413,7 +238,7 @@ The Dave Paul Band - Loving the Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756636.jpg" />
 </div>
 
 
@@ -442,7 +267,7 @@ Original Chicago Blues All Stars - Gold (2018) 2CD [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756353.jpg" />
 </div>
 
 
@@ -471,7 +296,7 @@ Mario Biondi - Brasil (2018) [MP3|320 Kbps] <Jazz, Soul, Pop>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756339.jpg" />
 </div>
 
 
@@ -500,7 +325,7 @@ Bobbi Humphrey - Dig This! (1972) Remaster, 2014, Universal[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756035.jpg" />
 </div>
 
 
@@ -529,7 +354,7 @@ Jean-Luc Ponty - Aurora (1976) [APE|Lossless|image + .cue] <Jazz, Jazz-Rock, Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756034.jpg" />
 </div>
 
 
@@ -558,7 +383,7 @@ Herbie Hancock - Feets Don't Fail Me Now (1979) [APE|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756030.jpg" />
 </div>
 
 
@@ -587,7 +412,7 @@ Jeff Lorber - Flipside (2005) [APE|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755930.jpg" />
 </div>
 
 
@@ -616,7 +441,7 @@ The Vanguard Jazz Orchestra - Overtime: Music Of Bob Brookmeyer (2014) Planet Ar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755306.jpg" />
 </div>
 
 
@@ -645,7 +470,7 @@ Count Basie and His Orchestra - Warm Breeze (1981) 1998, Original Jazz Classics 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755304.jpg" />
 </div>
 
 
@@ -674,7 +499,7 @@ Shigeharu Mukai & Astrud Gilberto - So & So: Mukai Meets Gilberto (1982) 1985, D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755302.jpg" />
 </div>
 
 
@@ -703,7 +528,7 @@ Laura Ellis - Femme Fatale (2011) Vintage Voice Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755299.jpg" />
 </div>
 
 
@@ -732,7 +557,7 @@ Eve St. Jones - French Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755288.jpg" />
 </div>
 
 
@@ -746,6 +571,177 @@ Eve St. Jones - French Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9849B7378DD0F16C59CF6CE46F9931A6678A0AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522881   (755065) от 09.01.2022
+
+VA - Classic Savoy Be-Bop Sessions (1945 - 1949) 10CD, 2016, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755065.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Dexter Gordon - Blow Mr. Dexter (alternate take) [2:40]
+02. Dexter Gordon - Blow Mr. Dexter [2:58]
+03. Dexter Gordon - Dexter's Deck [2:56](   Читать дальше...   )Жанр: BopПродолжительность: 10:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD85A8DADBEA2B464FDB54D2E67730D96548A087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522943   (754935) от 09.01.2022
+
+V.A. - Blues Legends (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuck Berry - No Particular Place To Go
+02. John Lee Hooker - Boom Boom
+03. Muddy Waters - Rollin' Stone
+04. Howlin' Wolf - Smokestack Lightnin'(   Читать дальше...   )Жанр: BluesПродолжительность: 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AAE8DFB117670666EF3ABDCD15FEBAE2AB19A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215725   (754852) от 28.03.2018
+
+Kenny Burrell - Bluesin' Around (1961, 1962) 2017, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mambo Twist [05:10]
+02. The Switch [03:06]
+03. The Squeeze [04:21]
+04. Bluesin' Around [03:46](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A724CA4682180A4BFD53AD1B1FDF2B81A9EC16F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215898   (754775) от 28.03.2018
+
+Chiara Civello - Canzoni (2014) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via con me (3:49)
+02. Io che non vivo senza te (feat. Gilberto Gil) (3:34)
+03. Con una rosa (4:25)
+04. Que me importa el mundo (4:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048983557848C0BCD50C3B79BB3D51995E34D053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018800   (754014) от 21.05.2016
+
+VA - Swingers (2CD) (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz, SwingПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BA850A0A882833A7BF75F130BDAD082D638329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395563   (753828) от 11.07.2020
+
+Dakota Staton - Isn't This A Lovely Day (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isn't This a Lovely Day [3:19]
+02. I Cover the Waterfront [6:53]
+03. Gee Baby, Ain't I Good to You [2:32]
+04. Cold Cold Feeling [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2229FE548B95FBF94D436DC0CBDBF3E1C1F30B
 ```
 
 https://mybot314.ru/tekegram_catalog/

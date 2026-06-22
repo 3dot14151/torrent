@@ -6,7 +6,7 @@ Udemy, Josh Gambrell | Недеструктивное твёрдотельное
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844401.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842496.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ kalachevaschool, Евдокия | Настроение города (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841201.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ kalachevaschool, Евдокия | Колоритные жители (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841200.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ kalachevaschool, Анастасия Лавру | Добрый волшебник
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841197.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ kalachevaschool, Анастасия Лавру | Мудрая сова (2018) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841196.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ kalachevaschool, Евдокия | Ритм улиц (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841187.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ kalachevaschool, Анастасия Лавру | Сказочный замок (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841183.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Udemy, Emiel Sleegers | Full Environment Creation in UE5 & Blender 2.92 - In-Dep
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840824.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ArtStation, Emiel Sleegers | Creating a metro train interior in Unreal Engine 5 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_839347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_839347.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839183.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Schoolism, Sonja Christoph | Introduction to Blender 2.9 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837752.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837643.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837631.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836278.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Alex Crow | Большой пак с 9 видеоуроками (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836142.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ kalachevaschool, Вера Соколова | Согревающие пожела
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835115.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ kalachevaschool, Татьяна Чулюскина | Антиква и скри�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835114.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ kalachevaschool, Анна Цымбал | Надпись на стекле (2018)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835110.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ kalachevaschool, Вера Соколова | Новогодний девиз (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835109.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ kalachevaschool, Анастасия Ермакова | Горное пастби
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835108.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ kalachevaschool, Анна Цымбал | Оформление предметов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_835107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835107.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ kalachevaschool, Анастасия Ермакова | Закат на горн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835044.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ kalachevaschool, Татьяна Чулюскина | Книжка-расклад
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_835042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835042.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ kalachevaschool, Татьяна Чулюскина | Шрифтовой колл
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835041.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ kalachevaschool, Анастасия Ермакова | Звездная ночь
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835040.jpg" />
 </div>
 
 

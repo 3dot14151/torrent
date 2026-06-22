@@ -1,3 +1,134 @@
+###  Публикация: 1802267   (12175) от 08.07.2025
+
+Maplesoft Maple 2025.1 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система Maple предоставляет пользователям мощные инструменты для решения математических задач любой сложности. В ее арсенале более 5000 встроенных функций, охватывающих широкий спектр разделов математики: математический анализ, линейную алгебру, дифференциальные уравнения, статистику, геометрию и многое другое. Maple сочетает в себе символьные, численные и гибридные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F948014300EEEA0C40662FDC1FA6138DD5AE6972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806761   (11561) от 14.07.2025
+
+KiCad 9.0.3 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11561.jpg" />
+</div>
+
+
+###  Подробнее
+
+KiCad – уникальный в своем роде программный продукт, позволяющий открывать, создавать, разрабатывать электронные схемы для последующего вывода дизайна печатной платы в интерактивном просмотре. По сути, это целый комплекс программ, относящийся к отдельному классу EDA – Автоматизация проектирования электроники. Встроенные компоненты позволят не только создать, но также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908F8805C72F4366721083D3C8973DD42196E83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807285   (11142) от 18.07.2025
+
+EasyUEFI 6.0 Release 1 Technician RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11142.jpg" />
+</div>
+
+
+###  Подробнее
+
+EasyUEFI - удобная утилита для редактирования загрузочного меню операционных систем Windows на основе EFI/UEFI. Технология UEFI все чаще используется разработчиками и производителями ПК как замена известного всем интерфейса BIOS, позволяя более гибко и тонко управлять параметрами запуска операционной системы.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6DE6D68C861EFDA285E4BAED5A744D4D8EE4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807686   (10956) от 20.07.2025
+
+VMware Workstation 17 Pro 17.6.4 Build 24832109 RePack by KpoJIuK [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10956.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FAFC363884D89922C29DFB5961C3F93F345897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808081   (10673) от 22.07.2025
+
+Inno Tools Ultimate Pack 2025 by Necros1404 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция программ и утилит имеющая прямое отношение к созданию инсталляторов в Inno Setup.
+В сборке присутствует множество весьма полезных инструментов.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8AD87B23CF0DB355345613356339062243526B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808633   (10385) от 25.07.2025
 
 PrintMyFonts 24.8.31 Portable [Multi/Ru]
@@ -6,7 +137,7 @@ PrintMyFonts 24.8.31 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10385.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ PageEdit 2.5.0 (x64) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10270.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ Sigil 2.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10267.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ SQLite Expert Professional 5.5.37.648 RePack (& Portable) by elchupacabra [Ru/En
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9529.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ CudaText 1.226.0.0 Portable + addons [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9427.jpg" />
 </div>
 
 
@@ -140,7 +271,7 @@ Keysight Advanced Design System 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9342.jpg" />
 </div>
 
 
@@ -168,7 +299,7 @@ Schrodinger Suite 2025-3 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9256.jpg" />
 </div>
 
 
@@ -194,7 +325,7 @@ Graebert ARES Commander 2026.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8998.jpg" />
 </div>
 
 
@@ -220,7 +351,7 @@ ARES Electrical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8992.jpg" />
 </div>
 
 
@@ -246,7 +377,7 @@ Zettlr 3.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8710.jpg" />
 </div>
 
 
@@ -272,7 +403,7 @@ Araxis Merge Pro 2025.1 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8683.jpg" />
 </div>
 
 
@@ -299,7 +430,7 @@ VMware Workstation 17 Pro 17.6.4 Build 24832109 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8561.jpg" />
 </div>
 
 
@@ -325,7 +456,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.50 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8109.jpg" />
 </div>
 
 
@@ -351,7 +482,7 @@ JetBrains PhpStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7550.jpg" />
 </div>
 
 
@@ -378,7 +509,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7540.jpg" />
 </div>
 
 
@@ -404,7 +535,7 @@ NVIDIA GeForce Desktop Game Ready 580.97 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7533.jpg" />
 </div>
 
 
@@ -430,7 +561,7 @@ JetBrains DataGrip 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7518.jpg" />
 </div>
 
 
@@ -457,7 +588,7 @@ JetBrains CLion 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7494.jpg" />
 </div>
 
 
@@ -483,7 +614,7 @@ JetBrains PyCharm Professional 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7364.jpg" />
 </div>
 
 
@@ -509,7 +640,7 @@ JetBrains Rider 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7326.jpg" />
 </div>
 
 
@@ -535,7 +666,7 @@ Jetbrains WebStorm 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7320.jpg" />
 </div>
 
 
@@ -546,141 +677,6 @@ JetBrains WebStorm — это мощная интегрированная сре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36A9CDAEC06152D2917FF0B1B06DC54E3B4411F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812869   (7302) от 17.08.2025
-
-JetBrains GoLand 2025.2 Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7302.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
-
-IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EB665C2C11F29D784194297FD417C992888A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812865   (7290) от 17.08.2025
-
-JetBrains RustRover 2025.2 Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7290.jpg" />
-</div>
-
-
-###  Подробнее
-
-RustRover - это мощная и удобная среда разработки, которая значительно упрощает процесс создания программ на Rust. Благодаря широкому набору функций и интуитивно понятному интерфейсу, RustRover помогает разработчикам всех уровней повысить продуктивность и качество кода.
-Если вы планируете изучать Rust или уже работаете с этим языком, RustRover может стать отличным (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B23BB60CF1B46877857E6FD44621FEF4DE5298D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812900   (7277) от 17.08.2025
-
-JetBrains DataSpell 2025.2 Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7277.jpg" />
-</div>
-
-
-###  Подробнее
-
-DataSpell — IDE для Data Science. DataSpell создан специально для тех, кто занимается разведочным анализом данных, и прототипированием моделей машинного обучения. Это эргономичная среда разработки, объединяющая в себе интерактивные возможности Jupyter-ноутбуков и умный редактор PyCharm для работы с Python и R.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23238CCD3EF3640ECA0906DACA29D14581241C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812899   (7268) от 17.08.2025
-
-JetBrains RubyMine 2025.2 Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7268.jpg" />
-</div>
-
-
-###  Подробнее
-
-RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
-Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D168CD5E55DF9E0A029E29F433398E3CA63FF20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815313   (5372) от 29.08.2025
-
-PilotEdit Lite & Pro 20.2.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
-PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A95A03FDADF34C29066E4AFD98A263D2B378AD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

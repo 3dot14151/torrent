@@ -1,3 +1,56 @@
+###  Публикация: 953378   (349162) от 04.11.2015
+
+Время Г. Выпуск 5 (2015.11.03) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349162.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Время Г» – еженедельная программа для тех, кто хочет быть в курсе последних событий уходящей недели и при этом получить заряд исключительно хорошего настроения.
+Почти в каждой новости можно найти позитивную сторону – уверен автор и ведущий проекта Вадим Галыгин. Руководствуясь этим принципом, он расскажет о том, что случилось в стране и мире за прошедшую неделю, (   Читать дальше...   )Производство: НТВЖанр: Тв-ШоуПродолжительность: 00:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E80AE452352E80E7826B54EE8AB9D8BC98AA01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073291   (347947) от 15.11.2016
+
+Место встречи. 3има тревоги нашей!? (15.11.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: В Киеве, похоже, вновь беспокойно, там начнется акция протеста обманутых вкладчиков. Ещё накануне Юлия Тимошенко призвала всех своих сторонников и всех тех, кто недоволен действующей властью, выйти на улицу и начать бессрочный протест. Силовики местные отнеслись к этому весьма серьезно, уже с утра был оцеплен правительственный квартал, в Киеве перекрыта улица Крещатик, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC667E527265942CE57D72E85FFA0985F408F59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073065   (347669) от 15.11.2016
 
 Вечерний Ургант (2016.11.14) SATRip (cезон 10, выпуск 47)
@@ -6,7 +59,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347669.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346959.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346949.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346688.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345839.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344664.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344574.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344573.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344456.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343054.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343045.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342853.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342648.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342574.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342524.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342399.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341549.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341405.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339883.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338603.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337882.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337770.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336139.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336029.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:296963C0EAEF8336E23F3D21D3517C2ADE55209F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074719   (336028) от 20.11.2016
-
-Ледниковый период. Новый сезон (2016.11.19) SATRip (выпуск 8)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое красочное и искрометное ледовое шоу возвращается после двухлетнего перерыва в эфир Первого канала.
-Звезды театра, кино, телевидения и спорта примерят коньки и сразятся за оценки беспристрастных судей во главе с Татьяной Анатольевной Тарасовой. Где, как не в жесткой борьбе, лучше всего раскрываются характеры звездных героев?Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F875014DDAA22D907E1D37791472D399C84E336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074921   (335935) от 20.11.2016
-
-Где логика? (2016.11.20) SATRip (сезон 3, выпуск 11)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A83C814DDEB97457809A290630A052BAA9DBF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

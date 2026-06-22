@@ -1,3 +1,32 @@
+###  Публикация: 1551813   (584822) от 23.05.2022
+
+Static Dress - Rouge Carpet Disaster (2022) [FLAC|Lossless|tracks] <Post-Hardcore, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584822.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. fleahouse
+2. sweet.
+3. Push rope
+4. Attempt 8(   Читать дальше...   )Жанр: Post-Hardcore, EmoПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEC406529423E9C811E0D3069427E28E1A178B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551815   (584820) от 23.05.2022
 
 Earth Eater - Infinite Ruin (2022) [FLAC|Lossless|tracks] <Technical Deathcore>
@@ -6,7 +35,7 @@ Earth Eater - Infinite Ruin (2022) [FLAC|Lossless|tracks] <Technical Deathcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584820.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gospel - The Loser (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progress
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584818.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Life Awaits - Call Me Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583762.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Blue October - Sway (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Mode
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582398.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Of Rituals - Trauma (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581970.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Fatal - Karmageddon (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Russian B
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581968.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Death Note Silence - Collide & Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581965.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Amsterdam Red Light District - Trapped (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581961.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Sever - This Should Have Been a Better Place (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581869.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ SASAMI - SASAMI (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581315.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mac DeMarco - Here Comes the Cowboy (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581313.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Evans Blue - Letters From The Dead (2016) [FLAC|Lossless|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580470.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Skillet - Unleashed (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Chri
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580386.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Skillet - Unleashed (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Chris
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580377.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Notions - Notions (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580033.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Scary Kids Scaring Kids - Out Of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580026.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Morabeza Tobacco - Morabeza Tobacco (2019) [FLAC|Lossless|tracks + .cue] <Аlter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579332.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Riddle Me This - Universal Ego (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579109.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Young the Giant - Home of the Strange (2016) [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578443.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Wild Beasts - Boy King (2016) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578381.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Liam Gallagher - Down By The River Thames (Live) (2022) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577904.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Nothing But Thieves - Nothing But Thieves (2015) Deluxe Edition [FLAC|Lossless|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576139.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Coldplay - Kaleidoscope (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575806.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ The Dream Syndicate - These Times (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573033.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570965.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCE2121D4DF38DB43F59435519F958C8EA531CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043733   (570945) от 17.08.2016
-
-PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Community Of Hope 02:23
-02. The Ministry Of Defence 04:11
-03. A Line In The Sand 03:33
-04. Chain Of Keys 03:09(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F0CAB4B05B56D2D137BB848BD338A3EE51AABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

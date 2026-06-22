@@ -6,7 +6,7 @@ Tenorshare iPhone Data Recovery 6.6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853522.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853418.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Pillars of Eternity (v3.02) + pre-order бонус + The White March Part I & II
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853371.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tenorshare iCareFone 4.0.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853355.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Adobe Audition 2020 13.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853270.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ DaVinci Resolve Studio 16 v16.2.1.017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853144.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Piezo 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853015.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ A Better Finder Attributes 7 v7.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853014.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ NetWorker Pro 7.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853013.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Adobe Premiere Pro 2020 14.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852909.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Adobe Photoshop Lightroom Classic 2020 9.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852899.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Concealer 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852893.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ PhotoMill X 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852892.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Airtool 2 v2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852889.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Easy Screen Recorder 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852888.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ AnyTrans for iOS 8.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852885.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ iVI Video Converter 4 v4.746 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852884.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ TechSmith Snagit 2021.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852880.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ balenaEtcher for macOS 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852878.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Adobe Photoshop 2020 21.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852780.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ DVD-Cloner 2021 v8.30.725 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852739.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ SecuritySpy 5 v5.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852736.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ App Cleaner & Uninstaller Pro 7.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852525.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Microsoft Office Standard 2019 for Mac v16.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852311.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Calendar 366 Plus 1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852289.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852281.jpg" />
 </div>
 
 

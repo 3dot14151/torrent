@@ -1,3 +1,148 @@
+###  Публикация: 1064742   (423171) от 21.10.2016
+
+VA - 20 лет. Лучшее (2016) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нюша, Глюк'oZa, Ани Лорак, Мот, A'Studio, Сергей Лазарев, Полина Гагарина, Дима Билан & Егор Крид - Гимн МУЗ-ТВ
+02. Фристайл - Ах, какая женщина...
+03. Владимир Пресняков - Странник
+04. Татьяна Буланова - Ясный мой свет(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B097F9EDD3F97798FAC4820B5515506DAF4EC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251479   (417713) от 01.10.2018
+
+Алла Пугачёва - Белый снег (2000) Compilation [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осторожно, листопад! (5:22)
+02. Не сгорю (4:11)
+03. Белый снег (4:00)
+04. Непогода (4:47)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E16DD74A6324EAD333B3B7CDB8309A7978BE27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091164   (417507) от 01.10.2018
+
+Лена Василёк и Белый День - Босиком по России! (2015) [MP3|320 Kbps] <Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера-Надежда-Любовь
+02. Мамин юбилей
+03. Папина дочка
+04. Сладкий мёд(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C6C424D2C1D7CC247141B395DBA4EA860E024C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325117   (416361) от 13.09.2019
+
+Александр Шоуа (НеПара) - Останови меня (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416361.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мир сошел с ума
+2. Останови меня
+3. Девочка с закрытыми глазами
+4. Звёзды сойдутся(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696F5A337F546E9A5453FE54EA5F761136F2BCBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065954   (416003) от 24.10.2016
+
+Михаил Бублик - Маяк (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пахнет домом
+02. Ближе и ближе
+03. Болею
+04. Море(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BDFDE639F2AD03B101C3B1AE00B30C935945C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 396102   (415438) от 05.10.2011
 
 Леонид Агутин - Коллекция легендарных песен (2011) [MP3|320 kbps]<Pop>
@@ -6,7 +151,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415438.jpg" />
 </div>
 
 
@@ -32,7 +177,7 @@ FIZICA - Доппельгангер (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414770.jpg" />
 </div>
 
 
@@ -61,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412422.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411380.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411324.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404778.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404052.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403945.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401916.jpg" />
 </div>
 
 
@@ -272,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399413.jpg" />
 </div>
 
 
@@ -301,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_399000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_399000.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ Alena Apina (Алёна Апина) - Коллекция (2016-2017) [MP3|320 Kb
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398563.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392518.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391222.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388899.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388808.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386620.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385098.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384971.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380859.jpg" />
 </div>
 
 
@@ -591,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380857.jpg" />
 </div>
 
 
@@ -602,150 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A6D48A0EDCA8F04A280224AE5B16CD3BBD5F9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573147   (380258) от 10.11.2012
-
-Алексей Глызин - Крылья любви... (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068214   (380135) от 01.11.2016
-
-Потап и Настя - Золотые киты - 10 лет (Live in Kiev) (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live)
- 02. Золотые киты (Live)
- 03. Не пара (Live)
- 04. На раЁне (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA92D8192ED6F4A0668A16E924EA0968F16C6829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174945   (378188) от 18.10.2017
-
-Владимир Пресняков мл. - Дискография (1988-2017) [MP3|128-320 Kbps] <Pop, Soul>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пресняков, Владимир Владимирович — Родился в Свердловске (ныне г. Екатеринбург) 29 марта 1968 года в семье музыкантов Владимира Петровича и Елены Петровны Пресняковых, в будущем солистов ВИА «Самоцветы».
- С 12 лет пел в хоре Елоховской церкви в Москве, в 13 выступал с группой «Круиз», исполняя собственные песни «Старая сказка», «Красная книга», «Кошка».
- Сольную карьеру (   Читать дальше...   )1988 - Дождёмся завтрашнего дня
-1989 - Папа, ты сам был таким (LP)
-1991 - Любовь (LP)
-1993 - Best Of Hits(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 14:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D94C8FA5695ED2BA5482AB9CFD6D7BB48AD56F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068897   (377812) от 02.11.2016
-
-Iowa - Import (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мои стихи, твоя гитара
-02. Мечты
-03. Алло-алло
-04. 140(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E23677C701DC96208030BCD3E6A3BEC1F2470D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254098   (377168) от 12.10.2018
-
-Балаган Лимитед - Танцы по-русски (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377168.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Молодая, глупая
-2. Пару тыщ
-3. Давай поженимся
-4. Тик-так ходики (Restyling Project Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB3D9AFFF786450DE25B69915A986B2C258CDE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

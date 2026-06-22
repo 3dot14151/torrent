@@ -1,3 +1,109 @@
+###  Публикация: 1668291   (174640) от 11.10.2023
+
+Macgo Mac Blu-ray Player Pro 3.3.22 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в macOS. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 2023 MacgoПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC618699ECFE6901F2C323FC6D03B7BA6632285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430208   (174561) от 09.12.2020
+
+GIF'ted 1.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свои фильмы MPEG-4 в анимированные GIF-файлы в кратчайшие сроки. GIF'ted будет анализировать цвета вашего исходного фильма, чтобы лучше всего выглядеть GIF. Или используйте классическую палитру, например, из Gameboy или SNES, для дурацких и забавных результатов. Вы также можете обрезать и обрезать выходной GIF в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский и Шведский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23990A4AF5EEAAC17C4EE9DF83C5D49588972E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668314   (174541) от 11.10.2023
+
+Rhinoceros 7 v.7.34 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
+Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 1993-2023 Robert McNeel & AssociatesПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F0FBA33C8B199AC94662B250A622269E03647B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430250   (174492) от 09.12.2020
+
+Bongiovi Digital Power Station (DPS) 2.2.5.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bongiovi Digital Power Station ™ (DPS) - это идеальное решение для обработки звука которое сочетает в себе усовершенствованную акустическую технологию, созданную звукорежиссерами со страстью к отличному звучанию.
+Bongiovi DPS - запатентованный алгоритм, который оптимизирует аудио в реальном времени. Профили DPS создаются и реализуются для максимальной гибкости звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2020Разработчик: BONGIOVI ACOUSTIC LABS LLCПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7E572995D1766AAB6B2476D7823A12A02AC600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668246   (174490) от 11.10.2023
 
 Guitar Pro for Mac 8.1.1 [Multi/Ru]
@@ -6,7 +112,7 @@ Guitar Pro for Mac 8.1.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174490.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Pico-8 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174336.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ App Cleaner & Uninstaller Pro 8.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174288.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Hands Off! 4.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174165.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ TechSmith Snagit for Mac 2024.0.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174060.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Reeder 5 v.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174033.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ Trminal 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173979.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ LilyView 1.6 [Rus/En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173747.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ SketchUp Pro 2023 v.23.1.341 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173528.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ Cold Turkey Blocker Pro for Mac 4.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173386.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ TextSniper - OCR simplified 1.10.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173375.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ Contacts Journal CRM 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173373.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ Display Maid 3.3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173235.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ Wondershare PDFelement Pro 10.0.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173221.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Adobe Bridge 2024 v.14.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173123.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ Mirror for Fire TV  2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173063.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ Mirror for Hitachi TV 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173062.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ Mirror for Roku TV 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173060.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ Mirror for Hisense TV 3.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173056.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ Mirror for Android TV 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172999.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ AVID Sibelius Ultimate Complete for Mac 2023.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172959.jpg" />
 </div>
 
 
@@ -561,7 +667,7 @@ Wondershare Filmora for Mac  12.4.3 Intel/ARM [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172939.jpg" />
 </div>
 
 
@@ -572,111 +678,6 @@ Wondershare Filmora for Mac  12.4.3 Intel/ARM [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:811D8C8B6D0019F44C1B13869E158BB94688943E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669543   (172866) от 16.10.2023
-
-AYVY 1.22.2 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172866.jpg" />
-</div>
-
-
-###  Подробнее
-
-С AYVY вы, наконец, можете прекратить поиски красивой, простой, быстрой и удобной программы просмотра мультимедиа. Мы сделали все, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2022Разработчик: © 2022-2023 Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8C1AFC9133922B4AD1EB2DB1902FD225697F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669433   (172854) от 16.10.2023
-
-Native SQLite Manager 1.26.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Native SQLite Manager — это удобный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 15.10.2023Разработчик: © 2023 Krystian KołodziejПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E370DC19E1396BA2C70A6F05AD16FCB3F02792E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669422   (172839) от 16.10.2023
-
-Micro Snitch 1.6.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задумывались о том, что приложение записывает аудио через встроенный микрофон вашего Mac без вашего ведома? Или камера захватывает видео без веских оснований?
-С Micro Snitch больше нет сомнений. Это ультралегкое приложение в строке меню работает незаметно в фоновом режиме. Оно отслеживает и сообщает о любой активности микрофона и камеры, чтобы помочь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.09.2023Разработчик: © 2015 - 2023 Objective DevelopmentПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF4150A2953766D44DDB090C435E3ABA023B843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669752   (172668) от 17.10.2023
-
-TechSmith Camtasia 2023 Studio 2023.3.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2023Разработчик: © 1995 - 2021 TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720A20C346E2333B1978F1B46E65A22B17199DBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

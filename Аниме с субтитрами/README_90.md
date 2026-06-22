@@ -1,3 +1,29 @@
+###  Публикация: 1264986   (277672) от 25.11.2018
+
+UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Волшебный учитель Нэгима! 2 [2017, TV, 12 эп. + 3 OVA] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие жители провинции грезят переехать в столицу или хотя бы в большой город, подальше от своего захолустья. Они считают, что перед ними тут же гостеприимно откроются двери в новый, счастливый мир, и их жизнь моментально наладится. Таков и наш герой Тота Коноэ, юный и амбициозный парень, живущий в глухой деревне, в которой не происходит ровным счётом ничего. И, (   Читать дальше...   )Жанр: приключенияРежиссер: Судзуки ЁхэйПеревод: AniPlay (TV 01-12);Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EA32D8F853F30FE8267D1872CD9A7931EF6F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264974   (277632) от 25.11.2018
 
 Блам! | Blame! [2017, Movie] BDrip 1080p 10bit raw
@@ -6,7 +32,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277632.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ GTO / Great Teacher Onizuka / Крутой учитель Онидзука [1999
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277276.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Koukaku Kidoutai Stand Alone Complex: Solid State Society / Ghost in the Shell: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277271.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Underbar Summer | Лето [2006, OVA, 2 эп. + 2 SP] DVDrip 720 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276150.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Devil's Line | Линия дьявола [2018, TV, 12 + 1 ОВА] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275101.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Shin Kidou Senki Gundam Wing | Mobile Suit Gundam Wing | Мобильный во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273615.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273436.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Glass Mask TV 2005 / Стеклянная маска [ТВ-2] [2005, TV, 51] SDT
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273409.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272274.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ To Love-Ru: Trouble - Darkness OVA | To Love-Ru Trouble Darkness / Любовн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270931.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Kidou Senshi Gundam: Twilight Axis | Mobile Suit Gundam Twilight Axis | Моби
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266953.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266827.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Sukas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266745.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Wakaokami wa Shougakusei! | Хозяйка гостиницы из младше�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266441.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266266.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265671.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265332.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Twin Angel Break | Ангельский дуэт: Прорыв [2017, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265007.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Kimi no Koe o Todoketai | Я хочу донести твой голос [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265004.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ New Game!! | Новая игра! [ТВ-2] [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264966.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Battle Athletess Daiundoukai | Battle Athletes | Боевые атлеты [1997
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264634.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Battle Athletess Daiundoukai | Battle Athletes Victory | Боевые атлет
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264592.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264051.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Yuru Yuri Ten | Лилии на ветру OVA 2 [2019, OVA, 1 эп.] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264002.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Gunsmith Cats | Оружейницы [1995, OVA, 3 эп.] BDRip 1080 10bit raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263973.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Gunsmith Cats | Оружейницы [1995, OVA, 3 эп.] BDRip 1080 10bit raw+e
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1F1BD721FB7029F3F4FEEA0D6CE7A2A4ABDE243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191724   (263410) от 16.12.2017
-
-Ushio to Tora TV | Усио и Тора ТВ (сезон 1 и 2) [2015, TV, 26 + 13] BDRip 1080p 10bit raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263410.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летний Усио Аоцуки с детства слышал от отца, настоятеля буддистского храма, истории о различных духах, считая их, впрочем, религиозной чепухой. Парень убедился, что был неправ, когда случайно провалился в храмовый подвал и обнаружил там тигроподобного духа-ёкая, пригвожденного к стене Копьем Зверя – как выяснилось, фамильной реликвией. Сорвав печать, Усио привлек (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Нисимура СатосиПеревод: YakusubЯзык озвучки: Японский и английскийСубтитры: Русские, АнглийскиеПродолжительность: 26+13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4837C440477A7AAA5B21B8A990C4E43FBF60AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551737.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ultra GPS Logger Pro v3.121d [Ru/Multi] - GPS трекер, который по�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551646.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Smart Video Compressor v1.2 Ad-Free [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551423.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Scientific Books 1.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551362.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551026.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550809.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Viks.TV v1.4.6 Ad-Free [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549559.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549062.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549047.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ MOBILedit! Enterprise 8.6.0.20354 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548934.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Fallout Shelter 1.7.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548932.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548253.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Top Girls HD 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546123.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544565.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ringtone Maker v2.0.7 Ad Free [Ru/Multi] - создание рингтонов
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543455.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ OneDrive 3.3.1 Final [Ru] - Облачное хранилище от Microsoft
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542904.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ UNKILLED v0.0.7 Mod [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542818.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Out There:  Edition 2.1 [Multi/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542794.jpg" />
 </div>
 
 
@@ -470,6 +470,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363977   (542502) от 20.07.2011
+
+[Программа] (Symbian 9.1 - 9.4, ^3) Opera Mobile 11.1
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_542502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera Mobile 11 - это новая версия широко известного интернет браузера, теперь доступна и для смартфонов Nokia под управлением Symbian 9.x. Opera Mobile включает в себя большинство передовых технологий и возможностей, сопоставимых с аналогичными функциями Opera для ПК. Новый удобный и интуитивно понятный интерфейс, возможности быстрой загрузки, масштабирования и панорамирования страниц, встроенный менеджер паролей, а также удобная система закладок и поддержка сенсорных экранов - это лишь часть возможностей, делающих Opera Mobile одним из самых удобных браузеров для ваших смартфонов.Тип издания: БЕЗ ЛИЦЕНЗИИЯзык интерфейса: Мультиязычный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531461   (541758) от 05.08.2012
 
 File Manager HD (Tablet) 1.8.3 - Файловый менеджер [Программа] (Android 3.0+)
@@ -478,7 +504,7 @@ File Manager HD (Tablet) 1.8.3 - Файловый менеджер [Програ
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541758.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541638.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540820.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540520.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540506.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540283.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538814.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B2092197CAEA0DCBAF6AB4844C310C724BFE5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532173   (537864) от 07.08.2012
-
-[Программа] (Android 2.0+) iHome 1.5.0 (Full) - Лаунчер с 3D эффектами
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер с 3D эффектами. Порт с iPhone.Разработчик: NetDragon Websoft IncЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Chicago - Chicago Christmas Complete (2023) Remaster [FLAC 24/192|24/96|24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161290.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160628.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Bob Marley & The Wailers - Catch A Fire (50th Anniversary) (2023) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160596.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Gama Bomb - BATS (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160316.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160290.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160288.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160280.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Portishead - Roseland NYC Live 25 (1998/2023) Remastered [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160262.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Execution Day - HEAL (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160259.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Empire of Disease - Shadows in The Abyss (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160250.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ War Curse - Confession (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160234.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Varg - Ewige Wacht (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pagan Metal, Viki
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160217.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ James Blunt - Who We Used To Be (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159850.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159314.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Feuerschwanz - Todsunden (2022) [FLAC 2.0|44/24|tracks|WEB-DL]  <Folk-metal, Med
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154067.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lord Of The Lost - Blood & Glitter (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Dark 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153975.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Pink Floyd - Live at the Rainbow Theatre, London 1972-02-19 (1972) [FLAC 2.0|44/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153682.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ DGM - Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153423.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153077.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Daft Punk - Random Access Memories (2023) Drumless Edition [FLAC 24/88.2|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150787.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150565.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sean Shibe - Profesión (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150562.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150550.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150543.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149391.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149296.jpg" />
 </div>
 
 

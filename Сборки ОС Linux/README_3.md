@@ -6,7 +6,7 @@ Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196087.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ubuntu*Pack 20.04 Cinnamon (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196048.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196030.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ubuntu 20.04.3 LTS, KDE Plasma, [amd64] 1xDVD (август 2021) [Авторс�
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141147.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Network Security Toolkit (NST) 30-11210 [x86_64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137430.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Ctlos Linux Xfce 2.2.1 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129040.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Ubuntu ServerPack 18.04 (ноябрь 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128015.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Ubuntu ServerPack 20.04 (ноябрь 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128013.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Linux XP SMB Desktop build 503 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124605.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113522.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113518.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113516.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113515.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Ubuntu*Pack 20.04 MATE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113514.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113513.jpg" />
 </div>
 
 
@@ -406,60 +406,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739394   (106144) от 27.07.2024
-
-Ubuntu*Pack 24.04 Budgie (июль 2024) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416E4B70BDD8DF4C401C691945C7493C0219905C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739472   (106062) от 28.07.2024
-
-Ubuntu*Pack 24.04 Unity (июль 2024) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997ADC93DA5EC465CE919DCD7A42F3674F87C5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706984   (62980) от 14.03.2024
 
 Ubuntu*Pack 20.04 LikeWin (март 2024) [amd64] 1xDVD
@@ -468,7 +414,7 @@ Ubuntu*Pack 20.04 LikeWin (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62980.jpg" />
 </div>
 
 
@@ -495,7 +441,7 @@ Ubuntu*Pack 20.04 Cinnamon (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62970.jpg" />
 </div>
 
 
@@ -522,7 +468,7 @@ Ubuntu*Pack 20.04 GNOME (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62969.jpg" />
 </div>
 
 
@@ -549,7 +495,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62962.jpg" />
 </div>
 
 
@@ -576,7 +522,7 @@ Ubuntu*Pack 20.04 (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62951.jpg" />
 </div>
 
 
@@ -603,7 +549,7 @@ Ubuntu EducationPack 18.04 (апрель 2024) [amd64]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59105.jpg" />
 </div>
 
 
@@ -632,7 +578,7 @@ Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56891.jpg" />
 </div>
 
 
@@ -661,7 +607,7 @@ Ubuntu EducationPack 22.04 (май 2024) [amd64] [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55437.jpg" />
 </div>
 
 
@@ -690,7 +636,7 @@ UALinux CyberPack FaP 20.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53046.jpg" />
 </div>
 
 
@@ -701,6 +647,62 @@ UALinux CyberPack FaP (digitalРазработчик: UALinuxЯзык интер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD4F442F9C48E7C529FFAFEFC1DB28CA7039E975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744238   (46257) от 20.08.2024
+
+Ubuntu KDE Plasma by spb_user 22.04.4 [amd64] 1xDVD (август 2024) [Авторская раздача]
+
+>>След.
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка Ubuntu 22.04.4 LTS, DE - KDE Plasma 5.27.11, ядро - 6.8.0-38-generic.
+В отличие от Kubuntu отсутствует kubuntu-desktop и его зависимости.
+Изменены состав пакетов, оформление, некоторые настройки.
+Большее количество виджетов Plasma, тем, шрифтов.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85754085E0C2F0FFC11CBEA4598732D60DAAA7A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708268   (43406) от 16.09.2024
+
+Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AFFA74EAA424299124D1A2511AD73F2E8CF576
 ```
 
 https://mybot314.ru/tekegram_catalog/

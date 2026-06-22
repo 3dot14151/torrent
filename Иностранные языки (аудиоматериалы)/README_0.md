@@ -1,3 +1,29 @@
+###  Публикация: 540489   (501885) от 30.08.2012
+
+ЕШКО | Английский для высшего уровня [1996] [PDF, MP3]
+
+>>Обучающие аудиоматериалы
+>>Иностранные языки (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Английский язык для высшего уровня» предназначен для тех, кто уже в достаточной степени овладел грамматикой английского языка и хочет продолжать углублять и совершенствовать свои знания. Программа обучения английскому языку построена по методу, разработанному в Европе и используемому на протяжении 50 лет. Вашему вниманию представлены 32 урока курса ЕШКО "Английский для высшего уровня". Пределов изучения английского языка не существует. Как долго бы Вы ни занимались изучением английского языка, всегда найдутся сферы, в которых Вы можете почувствовать себя неуверенно. А поэтому не останавливайтесь никогда на достигнутом. Курсы английского языка для высшего уровня помогут Вам в этом.Жанр: учебное пособие (с аудиосопровождением)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591F004C970044E5150B274875A06A978F89C9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945686   (430842) от 11.10.2015
 
 Майкл Спенсер | Живой английский (2014) [MP3]
@@ -6,7 +32,7 @@
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430842.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427698.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404308.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397043.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Buyilehu | Подкасты китайского языка (2017) [MP3, PDF]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396478.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396352.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359858.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_359441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359441.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_357064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357064.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341670.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341538.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341439.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ Berlitz | Болгарский язык. Базовый курс [MP3+PDF] (2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340255.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329962.jpg" />
 </div>
 
 
@@ -380,34 +406,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 158670   (301891) от 15.12.2009
-
-Dr. Paul Pimsleur | Английский для русскоговорящих метод Пимслера (mp3) [2005] [MP3]
-
->>Обучающие аудиоматериалы
->>Иностранные языки (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_301891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс Pimsleur English for Russian Speakers состоит из 30 уроков.
-Никаких учебников! Никакой зубрёжки! Только слушаем и говорим! Это один из самых популярных аудиокурсов. Языковые программы Пимслера являются единственной формой изучения языка, включающей оригинальную, запатентованную методику тренировки памяти, которая гарантирует вам запоминание того, что вы изучаете. Пояснения и комментарии изучаемого на уроках вы слышите на русском языке, сам материал - разговорный английский язык.
-Кроме того, в данный релиз входит книга и, дополнительно, 21 урок чтения по этой книге. В результате этого, полный размер данного релиза составляет 683 Мб, что соответствует размеру 51 урока.В дополнение хочется добавить, что в этом лингафонном курсе представлен не чистый английский язык, а его американский вариант.2005Жанр: Обучение (лингафонный курс)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423461   (299279) от 13.11.2020
 
 Мария  Хохарина-Фрейзер, Джон Фрейзер | 100 английских фраз на все случаи жизни (2020) [MP3]
@@ -416,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_299279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299279.jpg" />
 </div>
 
 
@@ -442,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215170.jpg" />
 </div>
 
 
@@ -470,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209405.jpg" />
 </div>
 
 
@@ -498,7 +496,7 @@ Lucy Bella Simkins | The Listening Challenge (2022) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208921.jpg" />
 </div>
 
 
@@ -524,7 +522,7 @@ Sir A. Conan Doyle / Артур Конан Дойль | Sherlock Holmes. Short S
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201823.jpg" />
 </div>
 
 
@@ -553,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196316.jpg" />
 </div>
 
 
@@ -579,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195908.jpg" />
 </div>
 
 
@@ -607,7 +605,7 @@ Berlitz | Финский язык. Курс изучения языка по м�
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144148.jpg" />
 </div>
 
 
@@ -634,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138559.jpg" />
 </div>
 
 
@@ -661,7 +659,7 @@ Berlitz | Чешский язык. Базовый курс (3CD) [MP3+PDF] [2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136354.jpg" />
 </div>
 
 
@@ -688,7 +686,7 @@ Berlitz | Хорватский язык. Базовый курс [MP3+DJVU] [200
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136110.jpg" />
 </div>
 
 

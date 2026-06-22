@@ -1,3 +1,29 @@
+###  Публикация: 1791299   (21545) от 13.04.2025
+
+Эскадрон гусар летучих (1980) DVDRip [H.264/1080p] (серии 1-2 из 2) [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об отважном и бесстрашном гусаре и поэте, генерал-лейтенанте Денисе Давыдове, одним из первых организовавшем и возглавившем партизанскую борьбу против наполеоновской армии, оккупировавшей Россию в 1812 году. Подвиги и приключения Давыдова, ставшего легендарным при жизни, вызывали не только восхищение и радость друзей, но и злобу высокопоставленных (   Читать дальше...   )Производство: СССР, киностудия им. М.ГорькогоЖанр: военный, биографияРежиссер: Степан Степанов (Станислав Ростоцкий), Никита ХубовАктеры: Андрей Ростоцкий, Николай Ерёменко (младший), Александр Карин, Николай Карпов, Игорь Кашинцев, Иван Краско, Лидия Кузнецова, Евгений Лебедев, Владимир Мащенко, Алексей Панькин, Юрий Рычков, Андрей Семин, Владимир Сергиенко, Владимир Шакало, Марина ШиманскаяЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:22:47 + 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740A51FDCEA935390398ABE2F716EADDEA85523A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791445   (21539) от 13.04.2025
 
 Бегущий в лабиринте / The Maze Runner (2014) WEB-DLRip [AV1/2160p] [Open Matte] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21539.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21538.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21517.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21461.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21454.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21364.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21351.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21329.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21327.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21281.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21271.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21270.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21268.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21250.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21156.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20956.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20944.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20928.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20924.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20920.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20918.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20914.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20906.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20904.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20902.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D60C1013CD5A5DD62F55995F74B9BCDEEB176A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750426   (20860) от 20.04.2025
-
-Ной / Noah (2014) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библейские сюжеты давно и прочно вошли в нашу жизнь: вряд ли есть человек, не знающий о запретном плоде или о первородном грехе. Одной из наиболее известных историй, имеющих аналоги практически в любой религии и в мифологии разных народов, является история о Великом потопе – бедствии, которым Бог наказал человечество за его многочисленные грехи и покарал всех, кто (   Читать дальше...   )Производство: США / Disruption Entertainment, Paramount Pictures, Protozoa Pictures, Regency EnterprisesЖанр: драма, приключения, фэнтезиРежиссер: Даррен АронофскиАктеры: Рассел Кроу, Дженнифер Коннелли, Рэй Уинстон, Энтони Хопкинс, Эмма Уотсон, Логан Лерман, Дуглас Бут, Ник Нолти, Марк Марголис, Кевин ДюранПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9823FB0FE8056E09B58AB0105A0E3416E54B6261
 ```
 
 https://mybot314.ru/tekegram_catalog/

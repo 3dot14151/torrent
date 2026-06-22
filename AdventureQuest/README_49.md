@@ -1,3 +1,133 @@
+###  Публикация: 583037   (314601) от 01.12.2012
+
+Miasmata [En] (L) 2012
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miasmata - игра в жанре приключения/выживания от первого лица. Играя за Роберта, пораженного смертельным заболеванием, вы должны исследовать отдаленный остров - это его единственный шанс найти лекарство. На острове Роберт надеется встретить своих бывших коллег, но вместо этого он вскоре обнаружит ужасные последствия неизвестных событий, а также таинственное существо с очень чутким нюхом... (   Читать дальше...   )Тип издания: ЛицензияЖанр: Survival horror / Adventure / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B19A694DD428BA7BA0A61A0BC7046F823CF927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110141   (313740) от 11.11.2017
+
+Stories Untold (2017) [En] (1.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stories Untold - это текстовая приключенческая игра от студии No Code в стиле сериалов 80-х годов и популярного шоу Stranger Things от Netflix. Игра Stories Untold создана на основе одноименного сериала, который был отменен так и не выйдя в эфир. Сюжет перескажет события первых четырех эпизодов и ремастера пилотной серии “The House Abandon”. Перед нами классическое (   Читать дальше...   )Тип издания: LicenseРазработчик: No CodeЖанр: Приключение, Симулятор, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F602575E21456A25448CBEE022B55CF8A29ECCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128430   (313736) от 11.11.2017
+
+Syberia 3 / Сибирь 3 (2017) [Ru/En] (3.0/dlc) Repack xatab
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безграничное воображение Бенуа Сокаля воплотилось в нечто абсолютно новое — захватывающее приключение «Сибирь 3». Повествование игры стартует там же, где закончилась предыдущая часть: Кейт Уокер, отправившись на поиски таинственной Сибирии, едва не погибает на дрейфующей лодке, но небольшой караван добрых юколов успевает спасти её от верной смерти.Тип издания: RepackРазработчик: Anuman Interactive, MicroidsЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CCD092CDBDC2D27D47B64C02A7D0CAB5B3372E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128710   (313730) от 11.11.2017
+
+Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313730.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сибирь 3» — истинный представитель следующего поколения приключенческих игр, который перенесет вас в таинственный волшебный мир в формате 3D, наполненный множеством интересных персонажей и различными загадками. Оказавшись там, вы получите незабываемые впечатления от поразительной сказки, сотворенной Бенуа Сокалем. Оказавшись в небольшом городке Вальсемборе, Кейт (   Читать дальше...   )Тип издания: RepackРазработчик: MicroidsЖанр: Adventure, 3D, 3rd Person, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705EB9B8214F8ADC0CBEEB2E2172F83B18DAF820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076500   (313104) от 25.11.2016
+
+Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1) License PROPHET
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк, 2011 год. Кому есть дело до погибших бездомных? Неужели, никому, даже если их убивают какие-то психи? Никому. Кроме Генри Уайта, интеллигентного юноши, наследника одного из самых крупных состояний в Америке. Однажды, помогая нищим, прозябающим на заброшенной станции метро, молодой человек попал в серьезный переплет и угодил в плен к бродягам, одержимым (   Читать дальше...   )Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115C4597CA81EE32D93E2D9053F579F9AA4804D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076436   (312897) от 25.11.2016
 
 Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Механики
@@ -6,7 +136,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312897.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312382.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311651.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ The Book of Unwritten Tales 2 (2015) [En/Multi] (25.11.2015) License PROPHET [Al
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311544.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311428.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310996.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.3.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310987.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309018.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307945.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306935.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.041
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306774.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306718.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) Repack Other s [Masterpiece Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306542.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306537.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305804.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дило�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305799.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ The Park (2015) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304946.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ The Moment Of Silence / Момент истины [Ru] (L) 2005
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304708.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303936.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ Quern - Undying Thoughts (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303815.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303800.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ Layers of Fear - жуткий психологический триллер, с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42F0CB14AC64D6B014E0667FEC14EDB1E62E01C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423051   (303729) от 11.11.2020
-
-Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294/dlc) Repack Other s
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303729.jpg" />
-</div>
-
-
-###  Подробнее
-
-ObsCure II является продолжением ObsCure, в котором игроков ждет новая хоррор-история с ужасными чудовищами, стрельбой и раскрытием мистических тайн. Прошло два года после событий первой части. Те ученики, которые выжили после ужасных событий, поступили в соседний колледж и пытаются вернуться к нормальной жизни. Но и там им не будет покоя. Вскоре нашим героям предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: Hydravision EntertainmentЖанр: Adventure (Horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03CFB60162959F1FF613CE64010A4859778FADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176358   (302753) от 16.11.2017
-
-Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302753.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Стражи Галактики: The Telltale Series» рассказывает новую историю о самой экзотической команде MARVEL: отважном путешественнике Питере Квилле (известном также, как Звездный Лорд), воинственным еноте по кличке Ракета, человекоподобном дереве Груте, смертельно опасной Гаморе и одержимом жаждой мести Драксе, также известном, как Разрушитель. В ходе грандиозного сражения (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5DE631B2C1C8F770E85119EBE581D9B197790C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423047   (301657) от 12.11.2020
-
-Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301657.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 2084 год. Будущее оказалось намного мрачнее, чем казалось раньше. Сперва появился нанофаг – цифровая эпидемия, унесшая жизни многих тысяч аугментированных людей. Затем началась война, превратившая Запад и Восток в руины. В образовавшемся вакууме к власти пришли корпорации, создав собственные империи беззакония.Тип издания: LicenseРазработчик: Bloober Team, Anshar StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017CBC4E95667854CCD087F032BAA44775D3C326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184412   (300828) от 17.11.2017
-
-Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Repack R.G. Catalyst [Episodes 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300828.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать. Но не тут-то было: в один прекрасный день рука Джесси застревает в жуткой перчатке, некогда принадлежавшей (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EEADDB501A490AB122130E9F489857D9131C5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333307   (300611) от 26.10.2019
-
-Norman's Night In (2019) [En] (1.0) License TiNYiSO
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Платформенная приключенческая игра, рассказывающая историю лавочника, его шара для боулинга и рокового падения в мир Cave. Используйте механику рогатки, чтобы решать головоломки, основанные на физике, сталкиваться с незнакомыми пещерными зверями и открывать невидимый мир при свете вашего нового шара для боулинга.Тип издания: LicenseРазработчик: Bactrian GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F9F3E0E5A69B6768459F80B6D743EC49A51466
 ```
 
 https://mybot314.ru/tekegram_catalog/

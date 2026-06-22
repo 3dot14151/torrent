@@ -1,3 +1,32 @@
+###  Публикация: 1163511   (450350) от 05.09.2017
+
+Viscosity 1.7.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viscosity – клиент OpenVPN для Mac
+Viscosity является VPN клиентом для Mac, обеспечивая графический интерфейс пользователя для создания, редактирования и управления VPN соединениями. Viscosity обеспечивает полное решение OpenVPN для Mac OS X и не требует никакого дополнительного программного обеспечения.
+
+Viscosity может подключаться к любому серверу VPN работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 сентября 2017Разработчик: SparkLabsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8C33A4090FCD3554C4D5DC0D20BD434B0062CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163387   (450345) от 05.09.2017
 
 Tinderbox 7.2.1 [En]
@@ -6,7 +35,7 @@ Tinderbox 7.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450345.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ PDF Expert 2.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450335.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ CleanMyMac X 4.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450316.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Color Finale Pro 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450133.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ KeyKey 2.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450053.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ TextMate 1.5.11 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_449847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449847.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ Bartender 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449575.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ CheckBook Pro 2.6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449462.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ Outside 3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449458.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Posterino 3 v3.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449456.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Translatium 13.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449452.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ Swift Publisher 5 v5.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449335.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Claquette - Animated Screenshots 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449296.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ FontExplorer X Pro 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449286.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Fidelia 1.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449284.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ MWeb: Markdown writing,note taking,static blog Gen 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449156.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Jotun v.1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449117.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Typinator 6.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449009.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Paperless 2.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449002.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ CleanMyMac 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448826.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ Cities: Skylines. After Dark v. 1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448816.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ JPEG Jackal 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448704.jpg" />
 </div>
 
 
@@ -603,7 +632,7 @@ BetterTouchTool 2.636 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448677.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ PDF Squeezer 3.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448556.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ Screenflick 2.7.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448505.jpg" />
 </div>
 
 
@@ -669,35 +698,6 @@ Screenflick  - Приложение для захвата и записи вид
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFA1FB96D7194FECF7E9155A352C5FD074ADC3B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943307   (448440) от 03.10.2015
-
-CleanMyMac 3.1.1 fix [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448440.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac 3 - Программа для очистки Мака
-Очищайте, оптимизируйте и обслуживайте ваш Мак с новым CleanMyMac 3. Он проверяет каждый уголок вашей системы, удаляет гигабайты мусора в два щелчка мышью и контролирует состояние вашего Мака.
-
-CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 октября 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3664870A7E4A119381DB97180FA5B0A911D426ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

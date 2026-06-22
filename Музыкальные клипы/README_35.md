@@ -1,3 +1,226 @@
+###  Публикация: 739055   (147959) от 27.12.2013
+
+Сборник клипов - VA - Various Music part. 49 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ahmed Chawki feat. Pitbull and Mandinga - Habibi I Love You 1080p (3:52)
+2. Antonia - Marabou (Madalin Sichitiu Remix Edit) (VJ Tony Video Edit) 1080p (3:25)
+3. Bad Girl Takeover (ft. DJ Khaled & Meek Mill) 1080p (3:36)
+4. BASTO - Live @ Starfloor 2013 (Paris) 1080p (13:42)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04586E8E76383A6B42E701B5DA8F4B1194E65A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015394   (147953) от 24.12.2018
+
+Нюша - Сборник видеоклипов (2009-2018) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Больно
+2.  Вою на луну
+3.  Выбирать чудо
+4.  Выше(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыПеревод: ОтсутствуетСубтитры: нетПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4D529935C109F27D31959E3BF05CBEB044CF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589457   (147922) от 15.12.2012
+
+Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein - Mein Herz brennt. Второй официальный клип.Жанр: IndustrialРежиссер: Zoran BihaćАктеры: Тилль Линдеманн, Рихард Круспе, Пауль Ландерс, Оливер Ридель, Кристоф Шнайдер, Кристиан Лоренц.Перевод: ОтсутствуетПродолжительность: 00:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7291FF77D0738F7BE7343FA30577AFFEF1D1656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739052   (145936) от 28.12.2013
+
+Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145936.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 13 февраля Pink отправилась в новое мировое турне в поддержку своего альбома The Truth About Love. Турне называется The Truth About Love Tour.1. Raise Your Glass
+2. Walk Of Shame
+3. Just Like A Pill
+4. U + UR Hand(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347593   (143520) от 28.12.2019
+
+Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143520.jpg" />
+</div>
+
+
+###  Подробнее
+
+360° Visualizer Music VideoЖанр: Technical Death MetalПродолжительность: 00:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348271   (143253) от 28.12.2019
+
+Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143253.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 Ice Nine Kills - Communion of the Cursed (1080p)
+2017 Ice Nine Kills - The People Under the Stairs [720p]
+2019 Ice Nine Kills - A Grave Mistake (2160p)
+2019 Ice Nine Kills - IT Is The End (feat. Less Than Jake, Fenix TX, JR Wasilewski, Buddy Schaub & Will Salazar) (1080p)(   Читать дальше...   )Жанр: Metalcore, Post-hardcoreПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A65E2F3D0B3922C294693C9C45B47A3180C839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348423   (142579) от 28.12.2019
+
+Сборник клипов - Music 80s от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142579.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Muslc 80s 1 — Intro
+01. C.C. Catch — Strangers By Night
+02. Kaoma — Lambada
+03. A-ha — Take On Me(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3975971DE0642889C06C3B8BBACF44726113A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590862   (140438) от 18.12.2012
+
+tyDi feat. Christina Novelli - Fire & Load (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DBB92569A3FD955DD4547CE8139CDC60941D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520419   (139921) от 29.12.2021
 
 Сборник клипов (12.2021) WEBRip [H.264/720p-LQ]
@@ -6,7 +229,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139921.jpg" />
 </div>
 
 
@@ -35,7 +258,7 @@ Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139841.jpg" />
 </div>
 
 
@@ -64,7 +287,7 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139775.jpg" />
 </div>
 
 
@@ -90,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138692.jpg" />
 </div>
 
 
@@ -120,7 +343,7 @@ VA - Зимний марафон № 216: Новогодний Фейервер�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138069.jpg" />
 </div>
 
 
@@ -150,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137734.jpg" />
 </div>
 
 
@@ -180,7 +403,7 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137594.jpg" />
 </div>
 
 
@@ -209,7 +432,7 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137540.jpg" />
 </div>
 
 
@@ -238,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137461.jpg" />
 </div>
 
 
@@ -267,7 +490,7 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137434.jpg" />
 </div>
 
 
@@ -295,7 +518,7 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135403.jpg" />
 </div>
 
 
@@ -321,7 +544,7 @@ Plies - Hunna (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135370.jpg" />
 </div>
 
 
@@ -347,7 +570,7 @@ The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135193.jpg" />
 </div>
 
 
@@ -373,7 +596,7 @@ Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134361.jpg" />
 </div>
 
 
@@ -399,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132550.jpg" />
 </div>
 
 
@@ -425,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131902.jpg" />
 </div>
 
 
@@ -451,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131426.jpg" />
 </div>
 
 
@@ -480,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131364.jpg" />
 </div>
 
 
@@ -494,232 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAB8189F0FF5A481FC2C6217A3D2F3980E6DFD4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595602   (131338) от 30.12.2012
-
-Шоу Элементы: Модель для сборки (2002) VHSRip - Ёжик в тумане
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу "Элементы: Модель для сборки" на национальном музыкальном канале Муз-ТВ.
-
-МДС представляет собой литературно-музыкальный симбиоз, состоящий из лучших произведений зарубежной и российской литературы, современной прозы, преимущественно фантастического жанра, в сопровождении музыкального ряда в стилях современной электроники: даун-темпо, эмбиента, трип-хопа, (   Читать дальше...   )Жанр: Музыка, Видеоарт, ЛитератураРежиссер: Влад Копп, Андрей Кильдеев (DJ Incognito), Михаил Габович, Наталья УрманПродолжительность: 1:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD663638B7E5286DBAA54038955601493229C04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596468   (131325) от 30.12.2012
-
-SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название песни: EroticЖанр: Музыка, PopПродолжительность: 00:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D485740F7C6A1CEEF927366546A232E3B9A4F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596859   (130968) от 31.12.2012
-
-Progressive Rock - Rock Legends (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка клипов выступлений классиков прогрессивного рока.01. John Wetton - Starless
-02. Rick Wakeman - Catherine Parr
-03. Focus - Eruption
-04. Emerson, Lake and Palmer - Barbarian
-05. Curved Air - Vivaldi
-06. Family - The Weaver's Answer
-07. Barclay James Harvest - Poor Man's Moody Blues
-08. Steve Hackett - Clocks
-09. Soft Machine - Tale of Taliesyn
-10. Van der Graaf Generator - Theme One(   Читать дальше...   )Жанр: Музыка, RockАктеры: Rick Wakeman, Focus, Barclay James Harvest, Steve Hackett, Uriah Heep,and more.Продолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBD2FBC4CD93B5C0201F22B34668703FD1FE51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596674   (130751) от 31.12.2012
-
-Дискотека Авария - Ноги-ноги (2012) [H.264/720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, PopПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2E707027A7DB6CE50CE7AF91A9647B31D9C710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573254   (126163) от 25.12.2023
-
-Алиса - Видеоколлекция (2008) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126163.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Али́са» — русская рок-группа, образованная в 1983 году в Ленинграде.
-По опросам Ромир, «Алиса» входит в десятку самых популярных рок-групп России1.Экспериментатор
-2.Мое поколение
-3.Мы вместе
-4.Время менять имена(   Читать дальше...   )Жанр: Музыка, РокПродолжительность: 01:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4669268989BB1ED015D38D1AA756B3F69FBA1A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 169818   (117747) от 14.02.2024
-
-Запрещенное к показу на ТВ видеоклипы / Banned, Uncensored & Uncut Music Videos (2009) Screener
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117747.jpg" />
-</div>
-
-
-###  Подробнее
-
-2Pac - All About You (Uncensored Version).mpg
-2Pac - How Do You Want It (XXX Version).mpeg
-50 Cent - Disco Inferno (DVDSCR Uncensored).mpg
-50 Cent - ft G Unit - My Buddy (Uncensored Version).mpg(   Читать дальше...   )Жанр: +18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BF60F68B5ADCB4A34AEF9D48A7223768B8C442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698879   (116952) от 18.02.2024
-
-Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список всех клипов группы за первую главу их творчества вместе с видео-комментариями.Производство: ГерманияЖанр: Techno, Happy HardcoreРежиссер: Eric Will, Rainer Thieding, Russel Curtis, Rainer Thieding, Robert BröllochsАктеры: H.P. Baxxter, Rick J. Jordan, Ferris BuellerПеревод: ОтсутствуетСубтитры: РусскиеПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC3DAD53AB6E80B4DDE0A1E582009B8C0AE8CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702436   (114690) от 02.03.2024
-
-Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник всех клипов группы за вторую главу их творчества вместе с видео-комментариями.Производство: ГерманияЖанр: Techno, Happy HardcoreРежиссер: Rainer Thieding, Patric Ullaeus, Marc Schoellermann, Michael MenkeАктеры: H.P. Baxxter, Rick J. Jordan, Axel CoonПеревод: ОтсутствуетСубтитры: РусскиеПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2309B4AB907C105C065C499149623CF5BDDB6EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

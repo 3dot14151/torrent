@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876798   (1073319) от 16.06.2026
+
+VirtualBox 7.2.10 Build 174163 + Extension Pack [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oracle VM VirtualBox является многофункциональным инструментом для создания изолированных виртуальных машин, предлагает высокую производительность, а также является единственным профессиональным решением, которое находится в свободном доступе с открытым исходным кодом на условиях GNU General Public License (GPL) v.2Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9197CFC3372A96B56D21FE9C1DBF0F76BC340055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1874531   (1071980) от 03.06.2026
 
 WinToHDD Free / Pro / Enterprise 7.0.2.2 [Multi/Ru]
@@ -7,7 +33,7 @@ WinToHDD Free / Pro / Enterprise 7.0.2.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071980.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Ultimaker Cura 5.13 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071952.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ RisohEditor 6.0.1 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071883.jpg" />
 </div>
 
 
@@ -80,6 +106,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872691   (1070800) от 24.05.2026
+
+Maplesoft Maple 2026.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1070800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система Maple предоставляет пользователям мощные инструменты для решения математических задач любой сложности. В ее арсенале более 5000 встроенных функций, охватывающих широкий спектр разделов математики: математический анализ, линейную алгебру, дифференциальные уравнения, статистику, геометрию и многое другое. Maple сочетает в себе символьные, численные и гибридные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA0DB914530A108DF2F2BAA9321ADD871785370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873133   (1070588) от 26.05.2026
 
 Real Cut 1D 11.14 + Portable [Multi/Ru]
@@ -88,7 +140,7 @@ Real Cut 1D 11.14 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070588.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ RisohEditor 6.0.0 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070520.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ LM Studio 0.4.13 Build 1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070232.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ WinToUSB Technician 10.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069915.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ Valentina Studio Pro 17.4.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069775.jpg" />
 </div>
 
 
@@ -216,6 +268,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871539   (1069638) от 17.05.2026
+
+Visual Studio Code 1.120 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1069638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DFC05E616DEFF3D8EB56BA95080C72F6674770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871295   (1069596) от 16.05.2026
 
 RisohEditor 5.9.8 + Portable [Multi/Ru]
@@ -224,7 +302,7 @@ RisohEditor 5.9.8 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069596.jpg" />
 </div>
 
 
@@ -253,7 +331,7 @@ VMware Workstation Pro 26H1 26.0.0.25388281 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069448.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ VMware Workstation Pro 26H1 26.0.0.25388281 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069447.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ WinToUSB Free / Pro / Enterprise 10.8.0.2  [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069434.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ WinToUSB Free / Pro / Enterprise / Technician 10.8.2.0 RePack (& Portable) by Do
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069362.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ WaveMetrics Igor Pro 10.02.30040 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069331.jpg" />
 </div>
 
 
@@ -377,6 +455,58 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870649   (1068989) от 13.05.2026
+
+Visual Studio Code 1.119.1 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CD33904160539DC1354AE0878DB5FA4B975EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869798   (1068471) от 08.05.2026
+
+Visual Studio Code 1.119.0 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476342D5934686A89B128EC43C612586FEC7EE7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868868   (1067946) от 03.05.2026
 
 VMware Launcher by Egorchik 1.0 [Ru]
@@ -385,7 +515,7 @@ VMware Launcher by Egorchik 1.0 [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067946.jpg" />
 </div>
 
 
@@ -414,7 +544,7 @@ PilotEdit Lite & Pro 20.8.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067906.jpg" />
 </div>
 
 
@@ -441,7 +571,7 @@ Hex Editor Neo Ultimate 8.05.00.9372 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067904.jpg" />
 </div>
 
 
@@ -468,7 +598,7 @@ Master Packager Professional 26.2.9601 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067763.jpg" />
 </div>
 
 
@@ -496,7 +626,7 @@ LDPlayer 9.5.11.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067614.jpg" />
 </div>
 
 
@@ -522,7 +652,7 @@ MEmu 9.5.2.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067612.jpg" />
 </div>
 
 
@@ -541,156 +671,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1867264   (1066749) от 24.04.2026
+###  Публикация: 1867203   (1066787) от 24.04.2026
 
-VMware Workstation Pro 25H2u1 25.0.1.25219725 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066749.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Английский, Русский (через русификатор)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1805C84DCF4F2B6E0ACFB0320605898F082912A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866697   (1066311) от 21.04.2026
-
-VirtualBox 7.2.8 Build 173730 + Extension Pack [Multi/Ru]
+Visual Studio Code 1.117.0 + Portable [Multi/Ru]
 
 >>Софт и оболочки для специалистов, Прочее
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Oracle VM VirtualBox является многофункциональным инструментом для создания изолированных виртуальных машин, предлагает высокую производительность, а также является единственным профессиональным решением, которое находится в свободном доступе с открытым исходным кодом на условиях GNU General Public License (GPL) v.2Язык интерфейса: Русский, Английский, другие
+Visual Studio Code – визуальный редактор кода от компании Майкрософт. Это мощный программный продукт на смотря на свою легкость, разработчикам удалось сделать его достаточно функциональным и полезным. Редактор отлично понимает jаvascript, TypeScript или Node.js, но при необходимости, возможности программы могут быть существенно расширены за счет быстрой установки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DABE5FF894899F48B8D72B13B9EDCF2D922701E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866393   (1066180) от 20.04.2026
-
-Turbo Studio 26.4.4.515 Portable by 7997 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turbo Studio - это программа, которая служит для виртуализации приложений. Она дает возможность упаковать любое приложение в единый исполняемый файл (контейнер), позволив запускать его без предварительной установки. Программа использует собственный формат контейнеров и предоставляет доступ к огромной библиотеке дистрибутивов популярного софта. В отличие от своего (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175DD8C8D78B5AE106E86E0FCB8BA010D035FC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866400   (1066179) от 20.04.2026
-
-Turbo Studio 26.4.4.515 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turbo Studio - это программа, которая служит для виртуализации приложений. Она дает возможность упаковать любое приложение в единый исполняемый файл (контейнер), позволив запускать его без предварительной установки. Программа использует собственный формат контейнеров и предоставляет доступ к огромной библиотеке дистрибутивов популярного софта. В отличие от своего (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4682EDBB63A99E6738C9935543C58786D51171DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1866324   (1065766) от 19.04.2026
-
-Valentina Studio Pro 17.3.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio — это универсальный инструмент для управления базами данных, позволяющий работать с DuckDB, MariaDB, MySQL, MongoDB, SQL Server, PostgreSQL, SQLite и Valentina DB. Valentina Studio позволяет подключаться ко всем основным СУБД, выполнять запросы и создавать диаграммы, чтобы лучше понимать критически важные бизнес‑данные.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A97DFFF9C73AE69425FD044B4962FF03057817B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865459   (1065181) от 15.04.2026
-
-PilotEdit Lite & Pro 20.7.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
-PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718E6A27E8EDD84B18D9C7E84BAAE7280709C685
+magnet:?xt=urn:btih:D1685D9A30F3CFAD36CBB1A203A0D3E75BC41DC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

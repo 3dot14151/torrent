@@ -1,3 +1,83 @@
+###  Публикация: 998257   (870373) от 19.03.2016
+
+Георгий Юматов. Амнистия для героя (19.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870373.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 марта 2016 года Георгию Юматову исполнилось бы 90 лет.
+
+Кумир советских зрителей – всех, независимо от возраста и пола, суровый красавец с неотразимым природным обаянием, Георгий Юматов обладал трудным, порой невыносимым характером и… талантом, за который ему прощалось всё. И многодневные кутежи, и неконтролируемые вспышки гнева.Телекомпания: Первый каналЖанр: ДокументальныйРежиссер: Андрей ВладимировПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3ECFBFD1F701C38314C694736B14F069388E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998441   (869956) от 19.03.2016
+
+Scorpions: Вечность и один день / Scorpions: Forever and a Day (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о рок-группе Scorpions снимался в течение полутора лет. Он рассказывает о 50-летней карьере немецких рок-легенд, акцентируя внимание на гастрольном турне "Final Sting", которое задумывалось группой как прощальное. Но как рассказывает Рудольф Шенкер, основатель группы, во всех городах и странах, где они выступали, поклонники оказывали (   Читать дальше...   )Телекомпания: Германия, DOKfilm Fernsehproduktion, Tempest Film, Deutsche WelleЖанр: Документальный, Биография, МузыкаПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2460A570C18C2166E77A99A5654871D0BCF2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998127   (869814) от 19.03.2016
+
+Scorpions: Вечность и один день / Scorpions: Forever and a Day (2015) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о рок-группе Scorpions снимался в течение полутора лет. Он рассказывает о 50-летней карьере немецких рок-легенд, акцентируя внимание на гастрольном турне "Final Sting", которое задумывалось группой как прощальное. Но как рассказывает Рудольф Шенкер, основатель группы, во всех городах и странах, где они выступали, поклонники оказывали (   Читать дальше...   )Телекомпания: Германия, DOKfilm Fernsehproduktion, Tempest Film, Deutsche WelleЖанр: Документальный, Биография, МузыкаПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FF3359A01633EE0D589496C4551CB7CF5850BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375179   (868720) от 12.04.2020
 
 Освобожденный Ренессанс / The Renaissance Unchained (2016) WEB-DL [H.264/1080p] (серии 4 из 4)
@@ -6,7 +86,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868720.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868190.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865495.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865390.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863437.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862164.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860795.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859344.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859199.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858795.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855732.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855604.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854595.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854413.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854239.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851261.jpg" />
 </div>
 
 
@@ -423,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850287.jpg" />
 </div>
 
 
@@ -449,7 +529,7 @@ The Beatles против The Rolling Stones / The Beatles vs the Rolling Stones:
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850238.jpg" />
 </div>
 
 
@@ -475,7 +555,7 @@ The Beatles против The Rolling Stones / The Beatles vs the Rolling Stones:
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850102.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849064.jpg" />
 </div>
 
 
@@ -527,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848914.jpg" />
 </div>
 
 
@@ -553,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846522.jpg" />
 </div>
 
 
@@ -579,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846276.jpg" />
 </div>
 
 
@@ -590,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E893080BCFBFC76D45800BF9A753130EC57D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 834604   (841286) от 04.04.2016
-
-Лавкрафт: Страх неизведанного / Lovecraft: Fear Of The Unknown (2009) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнометражный документальный фильм "Lovecraft: Fear Of The Unknown" представляет собой увлекательный рассказ о жизни Говарда Филлипса Лавкрафта. Своими мыслями о творчестве писателя делятся прославленные авторы, работающие в жанре литературы сверхъестественного ужаса, а также известные кинорежиссёры, чьё становление было бы невозможно без увлечения прозой (   Читать дальше...   )Жанр: Документальный, биография, познавательныйПеревод: Одноголосый закадровый (любительский)Язык субтитров: русскийПродолжительность: 01:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6689B1CF16A8ED67984BC2A88CDE98C997E58B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540245   (839518) от 10.03.2017
-
-Борислав Брондуков. Первый после Чаплина (2008) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 марта 2008 известному артисту и народному любимцу Бориславу Брондукову могло бы исполниться 70. К этой дате документалисты "Интера" (студия "07 Продакшн") подготовили ленту "Борислав Брондуков. Первый после Чаплина"
-Борислав Брондуков снялся при жизни в 115 картинах, но его имя почти никогда не значилось первым в титрах - он с легкостью (   Читать дальше...   )Производство: Украина / "07 Продакшн" по заказу т/к "Интер"Жанр: Телепередача, документальныйРежиссер: Алексей ЛябахПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992663C4F94086E7D46F8C407D34299605AE37AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501302   (836405) от 09.10.2021
-
-Кто Вы, Чарли Браун? / Who Are You, Charlie Brown? (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о легендарном создателе комиксов и мультипликаторе, который подарил миру целый ряд ярких и запоминающихся персонажей.Производство: США / Imagine Documentaries, Wild Brain Inc.Жанр: ДокументальныйРежиссер: Майкл БонфильоПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: РусскиеПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB55C2EF241B93A5964B2B49F05DB2AF8559F75
 ```
 
 https://mybot314.ru/tekegram_catalog/

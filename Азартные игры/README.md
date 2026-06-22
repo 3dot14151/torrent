@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Азартные игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_345010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345010.jpg" />
 </div>
 
 

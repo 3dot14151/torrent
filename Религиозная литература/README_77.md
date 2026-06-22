@@ -1,3 +1,112 @@
+###  Публикация: 1413822   (406823) от 06.10.2020
+
+Ирина Иловайская (под ред.) | Иисус Христос и Божий план нашего спасения. Краткий Христианский Катехизис (не указан) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждому, кто держит в руках эту книжечку, мы предлагаем свою дружбу, с молитвой к Пречистой Богородице; пусть слова, напечатанные на этих страницах, ярко передадут им чудесную красоту Божией любви.Жанр: Основы христианской верыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7BEB3B802AE904FCF4967B41A1663C8352D26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561724   (406102) от 17.10.2012
+
+Том Райт | Главная тайна Библии: Смерть и жизнь после смерти в христианстве [2009] [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признанный специалист по Библии и истории раннего христианства Том Райт приглашает вас в удивительное путешествие по миру представлений о жизни после смерти. После знакомства с учением древних религий и философских школ и обзора сумятицы представлений о жизни и смерти в современной культуре он подводит читателя к центру христианской веры — тайне воскресения Иисуса из Назарета, и подлинному смыслу христиан на вечную жизнь. Что такое Царство Божье? Когда состоится второе пришествие? Что будет в конце времен? Как понимать конец света? Что люди на самом деле имеют в виду, когда обращаются друг к другу с пасхальным приветствием в праздник Воскресения Христова? Как их вера связана с тем, что в Символе веры передано словами: «Чаю воскресения мертвых»? Что значили эти слова для первых христиан и как понимают их сегодня? На чем основана наша надежда на жизнь после смерти? Какие ответы мы услышим, если станем опрашивать о жизни после смерти и воскресении случайных прохожих на улицах городов? А что нам говорит об этом вопросе (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42DD59326813AAA509916409003F0B3D2685C223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385792   (403469) от 09.10.2011
+
+Джидду Кришнамурти | Сборник 34 книги [1986 - 2006] [CHM][Обновляемая]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_403469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кришнамурти – человек, который из любви к миру и истине отказался от роли живого Бога, мирового Учителя, роли, к которой он был предназначен с детства. Сделал он это, так как осознал, что истина, если она открыта не самостоятельно, а навязана авторитетом другого, пусть даже в высшей степени замечательного существа, не ведет ни к чему, кроме иллюзий, конфликта и страдания.
+Джидду Кришнамурти - один из самых загадочных духовных лидеров нашего времени. Более 60-ти лет он проводил свои знаменитые беседы с последователями, всегда настаивая на том, чтобы к нему не относились, как к Гуру.
+Он основал несколько школ, опубликовал множество книг и статей, дал около тысячи интервью, в которых раскрывал суть своего подхода к жизни.
+
+Ссылки на каждую книгу и главу. Очень удобно.
+----------------------------------------------------------------1986 - 2006Формат: CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF811E36586DE5224F1CEBADD620FF940B634272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169895   (401560) от 29.09.2017
+
+Священник Павел Флоренский | Все думы - о Вас. Письма семье из лагерей и тюрем. 1933 - 1937 гг. (2004) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Письма о. Павла Флоренского из лагерей занимают особое место в его наследии. Написанные в тяжелейших условиях лагеря, они исполнены удивительной силы духа, ощущения глубины и гармонии бытия. Адресованные самым близким людям, они обращены к «сокровенному » человеку. В книгу вошли «Завещание» о. Павла; поэма «Оро», написанная в лагерях, а также раздел, подробно раскрывающий (   Читать дальше...   )Жанр: Биография, мемуары, письмаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740F629FF3A2C89F84CE43666A54E5E59FF713AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169892   (401511) от 29.09.2017
 
 Священник Павел Флоренский | Собрание сочинений [VI Томов] (1994—2004) [PDF, DJVU]
@@ -6,7 +115,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401511.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401506.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_400766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_400766.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397798.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397769.jpg" />
 </div>
 
 
@@ -139,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396772.jpg" />
 </div>
 
 
@@ -167,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395820.jpg" />
 </div>
 
 
@@ -195,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395819.jpg" />
 </div>
 
 
@@ -221,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394049.jpg" />
 </div>
 
 
@@ -249,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393923.jpg" />
 </div>
 
 
@@ -275,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393225.jpg" />
 </div>
 
 
@@ -301,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392045.jpg" />
 </div>
 
 
@@ -327,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391378.jpg" />
 </div>
 
 
@@ -353,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391377.jpg" />
 </div>
 
 
@@ -379,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390624.jpg" />
 </div>
 
 
@@ -405,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390413.jpg" />
 </div>
 
 
@@ -431,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389710.jpg" />
 </div>
 
 
@@ -459,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389029.jpg" />
 </div>
 
 
@@ -487,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388021.jpg" />
 </div>
 
 
@@ -515,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387906.jpg" />
 </div>
 
 
@@ -543,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387575.jpg" />
 </div>
 
 
@@ -569,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387463.jpg" />
 </div>
 
 
@@ -582,110 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D8917B0256CF9B50B6FC7E1E37510654CABC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326237   (387439) от 19.09.2019
-
-Н.Ю. Плотникова | Русское партесное многоголосие конца XVII - первой половины XVIII века. Службы Божии Василия Титова: Исследование и публикация (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование и публикация посвящены крупным литургическим циклам В. Титова, выдающегося мастера партесного стиля конца XVII — начала XVIII века. Первое полное издание шести Служб Божиих на 3, 4 и 8 голосов демонстрирует богатство творческих замыслов композитора, своеобразие его композиционных идей, гармонического и полифонического мышления. Публикация осуществлена (   Читать дальше...   )Жанр: Православие. Научное изданиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C231CC1524AE370936D2A4B7883FE32B5F6876A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326248   (387316) от 19.09.2019
-
-Протоиерей Фёдор Бородин | Сотвори любовь. Как вырастить счастливого ребёнка (2018) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного московского священника протоиерея Фёдора Бородина, настоятеля Космодамиановского храма на Маросейке и отца восьмерых детей, пропитана атмосферой любви – не абстрактной, а действенной, и дарит нам живой опыт пастыря и состоявшегося многодетного родителя-педагога. Вы найдёте здесь ответы на многие сложные вопросы о семейной жизни и воспитании детей. (   Читать дальше...   )Жанр: Православие. ПедагогикаФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE19D15FD63347B69856DF699C7D2944A6746317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326424   (385198) от 20.09.2019
-
-Протоиерей Фёдор Бородин | Возрастай с Евангелием. Как воспитать ребёнка в евангельском духе. Притчи Христовы (2019) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга священника Фёдора Бородина, отца восьмерых детей и талантливого пастыря, родилась из приходских бесед с подростками, из его увлекательных искренних рассказов, в которых евангельские притчи соединяются с историями из жизни, а современные сюжеты — с евангельскими. Именно так лучше всего усваивается важное и глубокое: яркие поучительные примеры трогают сердце (   Читать дальше...   )Жанр: Православие. ПедагогикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8A4E2BBFCBEA2BDAEF4FE81E6D7BAC3B300CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574706   (383764) от 06.09.2022
-
-Владимир Семенко | Как разрушают Церковь (2013) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383764.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного православного ученого и писателя В.П. Семенко, подводящей своего рода итог его изысканиям последних лет, исследуется феномен либеральных и модернистских течений в современной Православной Церкви, главным образом на примере РПЦ, показывается их родственность аналогичным явлениям в других христианских конфессиях, анализируются ложные реформистские (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A6DDA4F96DB0032A234B814ADE43DEE44CE085
 ```
 
 https://mybot314.ru/tekegram_catalog/

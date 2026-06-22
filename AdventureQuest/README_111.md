@@ -1,3 +1,133 @@
+###  Публикация: 1763295   (13844) от 22.06.2025
+
+Pools (2024) [Ru/Multi] (17.06.2025) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pools (Бассейны) – игра, разработанная в жанре психологического хоррора, с упором на внимательность, где важно прислушиваться к каждому звуку. Мы становимся частью пугающей, жуткой, держащей в напряжении среды, где важно не потерять рассудок, если мы хотим дойти до конца. Игра разделена на шесть уникальных частей, каждую из которых мы будем проходить не более тридцати (   Читать дальше...   )Тип издания: LicenseРазработчик: TensoriЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10057239DD0FD115FB4CE5390014B30F48607E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728872   (13818) от 22.06.2025
+
+Brownie's Adventure (2024) [En] (8.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уморительная приключенческая игра в жанре point-and-click, разработанная компанией Beardy Ramblin Games. В фэнтезийном мире, напоминающем эпоху Возрождения, вы играете за Брауни, управляющего местной рыболовной фабрикой, который отправляется в причудливое и абсурдное путешествие. В игре более 70 локаций, тысячи остроумных диалогов и оригинальный саундтрек, интригующий (   Читать дальше...   )Тип издания: LicenseРазработчик: Beardy Ramblin GamesЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7B69F20531923D36290AF69DC98B6DC59951F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803348   (13783) от 22.06.2025
+
+Castle of Secrets (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Castle of Secrets - это мрачное психологическое приключение с элементами хоррора. Раскрой тайну убийства своей семьи, путешествуя сквозь мир мёртвых, встречая странных существ, решая головоломки и принимая решения, которые меняют сюжет. Проклятие древнего рода Трантонов заставляет отправиться молодую мисс Сьюзан в смертельное путешествие, где ей предстоит встретиться (   Читать дальше...   )Тип издания: RepackРазработчик: SQ StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DC456B96F20DC1E3AF354BA4B9BC6E051E61F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803521   (13704) от 23.06.2025
+
+Post Trauma (2025) [Multi] (1.04) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перемещайтесь по миру, ликвидируйте угрозы и ищите других персонажей, потерявшихся в глубинах Мрака. Post Trauma – это головоломка в стиле хоррор в духе классических игр для PS2. от небольшой студии Red Soul Games, настоящих фанатов олдскульных ужастиков. Создавая нашу игру, мы вдохновлялись признанной классикой жанра и надеемся, что нам удалось передать культовую, (   Читать дальше...   )Тип издания: RepackРазработчик: RED SOUL GAMESЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F718F74EF79594F27777BE005CF23ABF5B0503D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802375   (13654) от 24.06.2025
+
+Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_2104_354_198185) Repack EXROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мимик - эндоскелет-прототип, он может адаптироваться к любому костюму и стать любым персонажем, включая то, что Вы боитесь больше всего. Вооружившись только своей смекалкой, несколькими гаджетами и пользуясь сильно отредактированными корпоративными брифингами, вы попытаетесь заполучить ценную технологию прототипа Fazbear, решая загадочные подсказки и скрываясь от (   Читать дальше...   )Тип издания: RepackРазработчик: Steel Wool StudiosЖанр: Инди-игры, Приключенческие игры, ХоррорыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995D436E5886B536A62510E8960E257CDA9F2773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803591   (13611) от 24.06.2025
 
 Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
@@ -6,7 +136,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13611.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13605.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13598.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Sorry We're Closed (2024) [Multi] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13529.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.4/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13512.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13486.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Afterlove EP (2025) [Multi] (1.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13478.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13392.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13338.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13335.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Silent Hill 4: The Room (2004) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13328.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13312.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ LIMINAL SHIFT (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13220.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Boxville (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13197.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13164.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13155.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13148.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Boxville 2 (2025) [Ru/Multi] (build 18344919) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13000.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Until Then (2024) [Multi] (20241126 Build 16523932) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12905.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12902.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Paranormal Torment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12497.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Paranormal Torment - это психологический хоррор, кот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E25172C352E5A09001C36B821EAA448EB23DDC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805217   (12466) от 05.07.2025
-
-I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Build 13724226, Build 19042062) Repack Other s [Chapter I, II]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это трансмедиа вселенная: повествование в этом проекте идет через игровые главы, короткометражные фильмы, визуальную текстовую новеллу в паблике проекта и другое. Этим проект отличается от других игр. Глава I, если вы еще не прикоснулись этому необычному миру. Но вы можете сразу играть в Главу II - внутри небольшое интро с предысторией. “I Know This Place ..?" (   Читать дальше...   )Тип издания: RepackРазработчик: SameFrame, RBL LABSЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, Английский (Chapter I)Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C29ED287DE383A30CDD734C6DA6CC5266696249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805270   (12451) от 05.07.2025
-
-Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игрок выступает в роли женщины, живущей в добровольном уединении в старом доме только со своим котом и погребенными воспоминаниями. Центральный конфликт заключается в вопросе, являются ли ее переживания симптомами предписанной болезни или проявлением чего-то потустороннего. Однажды утром привычный уклад героини нарушается: одна из дверей заперта, ключ исчез, а в (   Читать дальше...   )Тип издания: RepackРазработчик: Beshbarmak gamesЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79730577DE44C036FB30823517EB6C7B100A094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785248   (12410) от 06.07.2025
-
-Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится работать с самыми страшными и безумными преступниками, шоуменами и госслужащими Западного побережья. Игроки на PC могут перенести прогресс сюжетного режима GTAV, а также созданных персонажей (   Читать дальше...   )Тип издания: SceneРазработчик: Rockstar NorthЖанр: Экшены, Приключенческие игры, ГонкиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5A5A0A2E0E791DD3CE052D9651FFAAFABE12F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805401   (12387) от 06.07.2025
-
-The Echo Paradox (2025) [En] (19081580) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12387.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Echo Paradox - это психологическая игра ужасов, в которой вы исследуете альтернативные вселенные с различными существами. Человечество стоит на пороге тревожного откровения – мультивселенная реальна, но жутко лишена жизни. Как смелый доброволец исследовательской группы Phaselink, вы отправляетесь в пугающее путешествие, отправляясь в неизвестные параллельные (   Читать дальше...   )Тип издания: RepackРазработчик: VirtuzillaЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F18B917D9DBCF0BA12E7F176A4E2CE88A3EC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805420   (12371) от 06.07.2025
-
-Disney Dreamlight Valley (2022) [Ru/Multi] (1.17.0.7420/dlc) Repack Let'sРlay [Enchanted Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Dreamlight Valley - это гибрид между игрой-симулятором жизни и приключенческой игрой, полной квестов, исследований и увлекательных занятий с друзьями Disney и Pixar, как старыми, так и новыми. Когда-то идиллическая земля, Dreamlight Valley была местом, где персонажи Disney и Pixar жили в гармонии - до Забвения.Тип издания: RepackРазработчик: GameloftЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02863912FB5A6CD9B77E9F725A0ACAFD1273BF7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

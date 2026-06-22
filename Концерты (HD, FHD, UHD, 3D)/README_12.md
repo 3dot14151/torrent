@@ -1,29 +1,3 @@
-###  Публикация: 1204022   (785271) от 04.02.2018
-
-Квартирник на НТВ у Маргулиса. Круиз (02.03.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785271.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Круиз» — советская и российская рок-группа, образованная в 1980 году. Их участие в закрытом «Квартирнике» — бесценный подарок для всех фанатов и не только. Они представили свои лучшие композиции специально для гостей вечеринки и телезрителей НТВ. Музыканты вспомнили о первых выступлениях и о своем пути от ВИА «Молодые голоса» к «Круизу». В гостях у «Квартирника» (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A205730743BDFD2CDFA825CBFEBEE7CCA2356911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277380   (784913) от 21.01.2019
 
 Квартирник НТВ у Маргулиса. Елена Ваенга (19.01.2019) WEB-DL [H.264/1080p-LQ]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784913.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784276.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ David Gilmour: Remember That Night (2007) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784175.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783335.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782900.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782853.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780556.jpg" />
 </div>
 
 
@@ -221,7 +195,7 @@ Nana Mizuki - Live Zipangu x Izumo Taisha Dedicated Performance (2017) [H.264/10
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779924.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779483.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779479.jpg" />
 </div>
 
 
@@ -306,7 +280,7 @@ Whitesnake - The Purple Tour Live (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779455.jpg" />
 </div>
 
 
@@ -335,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778837.jpg" />
 </div>
 
 
@@ -361,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778491.jpg" />
 </div>
 
 
@@ -388,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778422.jpg" />
 </div>
 
 
@@ -417,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776084.jpg" />
 </div>
 
 
@@ -443,7 +417,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775648.jpg" />
 </div>
 
 
@@ -469,7 +443,7 @@ Accept - Restless And Live (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775007.jpg" />
 </div>
 
 
@@ -495,7 +469,7 @@ Accept - Restless And Live (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774944.jpg" />
 </div>
 
 
@@ -521,7 +495,7 @@ Led Zeppelin - Celebration Day 2007 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773064.jpg" />
 </div>
 
 
@@ -550,7 +524,7 @@ Paul Rodgers - Free Spirit  (2018) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773011.jpg" />
 </div>
 
 
@@ -576,7 +550,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772528.jpg" />
 </div>
 
 
@@ -602,7 +576,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771825.jpg" />
 </div>
 
 
@@ -628,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771571.jpg" />
 </div>
 
 
@@ -655,7 +629,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771550.jpg" />
 </div>
 
 
@@ -684,7 +658,7 @@ Mylene Farmer - Stade de France (2009) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771425.jpg" />
 </div>
 
 
@@ -698,6 +672,35 @@ Mylene Farmer - Stade de France (2009) BDRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD56959EEDF9A4FAB1B9DBD0B476383A67DAC804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778960   (771053) от 22.04.2014
+
+Браво - 30 лет. Концерт в Stadium Live (2014) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добрый вечер, Москва
+02. Мода
+03. Мне грустно и легко
+04. Если бы на Марсе(   Читать дальше...   )Жанр: Rock, Beat, County RockПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C6A5E2CE97C78B1541BB1A49D7CA4727F06246
 ```
 
 https://mybot314.ru/tekegram_catalog/

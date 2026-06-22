@@ -1,3 +1,57 @@
+###  Публикация: 1425070   (223131) от 19.11.2020
+
+Red Giant Magic Bullet Suite 14.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Bullet Suite представляет собой набор из семи инструментов финальной редакторской обработки, используемые для профессиональной цветокоррекции, улучшения и производства фильмов в Adobe After Effects, Adobe Premiere Pro, Apple Final Cut Pro X, Apple Motion, Davinci Resolve и Avid Media Composer.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Red Giant LLCПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A289BAE25BDCCF1E507ACAB783C3F815A3944D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342620   (222895) от 03.12.2019
+
+GrandTotal 6 v6.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222895.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счетов-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2019Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF0FDE4FFDDBF8ADB7E6E66E60FDE423A54617B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342614   (222874) от 03.12.2019
 
 4K YouTube to MP3 3.9.0 [Multi/Ru]
@@ -6,7 +60,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222874.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ iCollections 6 v6.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222866.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Posterino 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222862.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Permute 3 v3.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222855.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Stats 2.6.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222836.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ NetWorker Pro 8.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222829.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ Softorino YouTube Converter 2 v2.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222819.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Application Wizard 4.4 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222781.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ DiskCatalogMaker 8.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222773.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ Movist Pro 2.2.13 (build 135) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222732.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ Downie 4 v4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222729.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ DSLR Assistant 3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222719.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ Allegorithmic Substance Alchemist 2019.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222711.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ RightFont 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222681.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ balenaEtcher for macOS 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222648.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ TechSmith Camtasia 2021 Studio 2021.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222596.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ Boxy SVG 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222563.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222560.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ SizeUp 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222463.jpg" />
 </div>
 
 
@@ -518,7 +572,7 @@ GM CHM Reader Pro for Mac 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222433.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ Vox 2.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222428.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ Adobe Media Encoder 2020 v14.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222219.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ RAR Extractor  - Unzi‪p‬ 11.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222100.jpg" />
 </div>
 
 
@@ -624,7 +678,7 @@ Pixelmator 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222064.jpg" />
 </div>
 
 
@@ -635,61 +689,6 @@ Pixelmator представляет собой мощный инструмент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDAE6102DDC9FABC149242865AC3AF0CCFB9B360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966049   (222051) от 16.12.2015
-
-LRTimelapse Pro 4.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222051.jpg" />
-</div>
-
-
-###  Подробнее
-
-LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
-
-Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 октября 2015Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4668AA72545C4D77864EF568DECB4148634161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651309   (222037) от 06.08.2023
-
-Rhinoceros 7 v.7.32 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
-Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2023Разработчик: © 1993-2023 Robert McNeel & AssociatesПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F276978552BE74E360E36028B7FEB418901A841
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Adobe Media Encoder 2021 v15.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015437.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe InDesign 2021 v16.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015434.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Premiere Pro 2021 v15.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015370.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Acrobat Pro DC v21.001.20155 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015367.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Meta 2.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015350.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ GlanceCal 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015349.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Network & Battery 12.2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015348.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Feeder 4 v4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015347.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Meta 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015342.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Donemax DMmenu 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015338.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ File Cabinet Pro 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015335.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Data Extractor 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015322.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.38 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015321.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ TechSmith Snagit 2021.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015312.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PDFpen 13 v13.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015172.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Mp3tag 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015167.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ DoYourData Start Menu Professional 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015162.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Website Watchman 2.13.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015160.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Mirror - for any device 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015158.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Movavi PDFChef for Mac 2021 v21.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015155.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ DjVu Reader Pro 2.5.1 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015152.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.7.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015146.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Amadeus Pro 2.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015141.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Twitterrific 5 v5.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015010.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Find Any File (FAF) 2.3 b17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015008.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ MacCleaner 2 PRO 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014997.jpg" />
 </div>
 
 

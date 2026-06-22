@@ -1,3 +1,29 @@
+###  Публикация: 1789985   (13756) от 23.06.2025
+
+Katainaka no Ossan, Kensei ni Naru / From Old Country Bumpkin to Master Swordsman / Мужчина средних лет из глубинки становится мастером меча [2025, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Берил Гардинант сам себя называет «скромным стариком», а зарабатывает на жизнь тем, что учит желающих обращению с мечом в своём додзё в глухой деревне. В молодости он мечтал о славе великом мечника, но те дни остались далеко позади. Внезапно его навещает знаменитый бывший ученик, который приносит сногсшибательные вести: Берил назначен особым инструктором рыцарей (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Кадзуми АкиоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562C7A07B703C79D83EDC6D7B7CFE2D7E6A71AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790187   (13743) от 23.06.2025
 
 Zatsu Tabi: That's Journey / Это путешествие [2025, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Zatsu Tabi: That's Journey / Это путешествие [2025, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13743.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gorilla no Kami kara Kago Sareta Reijou wa Ouritsu Kishidan de Kawaigarareru | T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13741.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Maebashi Witches | Ведьмы Маэбаси [2025, TV, 12 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13715.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Aharen-san wa Hakarenai 2 / Непостижимая Ахарэн-сан 2 [2025
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13709.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 эп.] WebRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13630.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Kakushite! Makina-san!! | Makina-san's a Love Bot?! | Прячься, Макин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13505.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Nazotoki wa Dinner no Ato de | The Dinner Table Detective | Разгадыван
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13496.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Shiunji-ke no Kodomo-tachi / The Shiunji Family Children / Дети семьи �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13485.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | Ki
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13418.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Chuuzenji-sensei Mononoke Kougiroku: Sensei ga Nazo o Toite Shimau kara. | Жу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13403.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Ninja to Koroshiya no Futari-gurashi | A Ninja and an Assassin Under One Roof | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13399.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13372.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ A Rank Party o Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu o Meza
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13236.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Kowloon Generic Romance | Обычная романтика в Цзюлуне [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13209.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Teogonia | Теогония [2025, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13206.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ mono | Моно [2025, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13200.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Hibi wa Sugiredo Meshi Umashi / Food for the Soul / Дни проходят, а 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13189.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Classic Stars | Звёзды классики [2025, TV, 13 эп.] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13172.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Vigilante: Boku no Hero Academia Illegals | My Hero Academia: Vigilantes | Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12999.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Shirohiyo | Я белый свин-аристократ, ко мне верну�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12997.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12819.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Kusuriya no Hitorigoto (2025) | The Apothecary Diaries (2025) | Записки �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12614.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Kaijuu 8-gou: Hoshina no Kyuujitsu | Kaiju No. 8: Hoshina's Day Off | Кайдз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12229.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Inazuma Eleven: Reloaded – Soccer no Henkaku | Inazuma Eleven: Reloaded – Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11800.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11112.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E3C5CE013948A0ADF78FC8D0B8A78C5B9711D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820954   (8615) от 06.10.2025
-
-Sozai Saishuka no Isekai Ryokouki / A Gatherer's Adventure in Isekai / Путешествие коллекционера по другому миру [2025, TV, 1 из ?] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такеру Камищиро — обычный офисный служащий, которого в один прекрасный день призывают в мир меча и магии под названием Мадеус. Разумеется, он сразу же получает пачку полезных навыков, включающих невероятную силу и потрясающие магические способности. Но самое главное — он наделён силой «Поиска» различных ценных предметов.Жанр: приключения, фентези.Режиссер: Одака ЁсинориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3DAB5DE13099CF5938DBE5E0FFAE8238D0B98F
 ```
 
 https://mybot314.ru/tekegram_catalog/

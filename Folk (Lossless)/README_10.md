@@ -1,3 +1,473 @@
+###  Публикация: 1255153   (368216) от 16.10.2018
+
+Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, World & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reel 'n' Roll (5:01)
+ 02. Don't You Be the One (3:51)
+ 03. It'll Have to Wait (3:27)
+ 04. Long Night (5:15)(   Читать дальше...   )Жанр: Rock, Folk, World & CountryПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F2B0DB75B3082EA3180C67657569CA733D9894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255367   (366059) от 17.10.2018
+
+The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterlily (4:29)
+ 02. Miss Casey Medley (2:00)
+ 03. Byker Hill (2:47)
+ 04. Atlantic Blue (4:15)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADEF5E69A8BA163B7E38D410770AC51389486A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328533   (363108) от 30.09.2019
+
+Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lark (06:18)
+02. All Mirrors (04:42)
+03. Too Easy (02:57)
+04. New Love Cassette (03:26)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774461401C84D2746F094EA401E7F88DAC3AB57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257814   (343306) от 27.10.2018
+
+Trobar De Morte - The Silver Wheel (2012) 2015, Limited Edition, Numbered, Reissue [FLAC|Lossless|tracks + .cue] <Celtic, Darkwave, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mist of Avalon (3:58)
+ 02. Arianrhod (5:00)
+ 03. In the Garden of Serenity (3:22)
+ 04. The Silver Wheel (3:11)(   Читать дальше...   )Жанр: Celtic, Darkwave, Neofolk, MedievalПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DA66E5F97456CDD9E018C708C188F3DD70EB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257819   (343302) от 27.10.2018
+
+Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tracks + .cue] <Medieval, Acoustic, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Wood (3:07)
+ 02. Excalibur (4:01)
+ 03. The Harp of Dagda (3:14)
+ 04. Rise and Fall (2:49)(   Читать дальше...   )Жанр: Medieval, Acoustic, NeofolkПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3469EA1C1724036C595A55FE8A040E015A97A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257810   (343294) от 27.10.2018
+
+Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwave, Neofolk, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summoning the Gods (4:18)
+ 02. Idunn (4:37)
+ 03. The Wolf (3:25)
+ 04. Yggdrasil (4:40)(   Читать дальше...   )Жанр: Celtic, Darkwave, Neofolk, FolkПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF39645EB1C4FD3BBF9394CC175A5F7E93CA284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257826   (343293) от 27.10.2018
+
+Trobar De Morte - Legends Of Blood And Light (2008) Reissue, 2016 [FLAC|Lossless|tracks + .cue] <Modern Classical, Medieval, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Return (5:00)
+ 02. Talisman (4:11)
+ 03. Morrigan (4:36)
+ 04. In Nomine Filius Mortis (4:42)(   Читать дальше...   )Жанр: Modern Classical, Medieval, NeofolkПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD8297D5F7C5AA12C2C198344957CE718F0BD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260236   (314355) от 06.11.2018
+
+Janis Ian - The Bottom Line Encore Collection (Live album) (999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Me to You (3:29)
+ 02. Night Rains (3:31)
+ 03. I Would Like to Dance (3:25)
+ 04. Jesse (5:54)(   Читать дальше...   )Жанр: Pop, Folk, World, CountryПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD79B9BEA89E72456E7D84C01AD5A2EAFD1CC3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584448   (310400) от 03.12.2012
+
+Ансамбль БЛАГОВЕСТ - Славянский глас (2012) [FLAC|Lossless]<Folklore>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добрий вечiр тобi
+02. Баллада о 12 Разбойниках
+03. Вниз по матушке, по Волге
+04. Вдоль по Питерской
+05. Ах ты, степь широкая
+06. Дед Пахом, во кузнице
+07. Ой, горе, горе
+08. Вдоль да по речке
+09. Ой, сiвы конь бяжыць
+10. Черный ворон(   Читать дальше...   )Жанр: FolkloreПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470B13173163BCF560CF1D8624075AB51C002311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183291   (310088) от 13.11.2017
+
+Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - If I Could Make You My Own (3:22)
+2 - Just Say It Now (2:37)
+3 - Lovers On The Run (2:54)
+4 - Cold Waves (3:32)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D58347AC9BCF3C80A1D332D890E28F8CADDC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183283   (309958) от 13.11.2017
+
+Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - All the Trouble (5:41)
+02 - The Lonely, The Lonesome & The Gone (3:50)
+03 - He Called Me Baby (4:41)
+04 - Hollywood (4:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7D169093A6E1897F39FBECAAC8F81E637CBAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077001   (306787) от 28.11.2016
+
+Kris Kristofferson - Live At The Big Sur Folk Festival (2016) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306787.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. If You Don't Like Hank Williams (2:09)
+ 2. The Law Is For Protection Of The People (3:28)
+ 3. Band Introduction (1:28)
+ 4. The Pilgrim, Chapter 33 (3:27)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D680430182903BD13C16A335AF033929829815EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078011   (302640) от 30.11.2016
+
+Баттувшин (Battuvshin) - Душа кочевника - Nomad's Soul (2010) [FLAC|Lossless|image + .cue] <Ethnic, Instrumental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Мориной соло  (03:41) 
+02|  Намар  (04:31) 
+03|  Арбан таванай hар  (04:27) 
+04|  Аха эгч хоерни  (03:56) (   Читать дальше...   )Жанр: Ethnic, InstrumentalПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5F0DBC05FC5E53E495719C988BCE03D6883D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416798   (298177) от 09.12.2011
+
+Catherine MacLellan - Silhouette (2011) [FLAC|Lossless]<Acoustic/Indie/Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stealin'  03:26
+02. Keep On Fighting  05:19
+03. Now And Then  02:58
+04. Eastern Girl  04:18(   Читать дальше...   )Жанр: Acoustic/Indie/FolkПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423905   (297751) от 14.11.2020
+
+Faith Hill - Take Me As I Am (1993) Warner 9 45389-2 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me as I Am (3:18)
+ 02. Wild One (2:45)
+ 03. Just About Now (2:57)
+ 04. Piece of My Heart (4:01)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17BA697B040A0EB222653BDDC66FE6D046CB57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334960   (291130) от 31.10.2019
+
+Celtic Woman - The Magic of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Celtic, Female Vocal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Wish You a Merry Christmas (03:26)
+02. Angels We Have Heard On High (04:34)
+03. Do You Hear What I Hear (03:53)
+04. Deck the Halls (02:26)(   Читать дальше...   )Жанр: Folk, Celtic, Female VocalПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3DBD35D93142D98746737AC6E5A8837C176C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334792   (289198) от 01.11.2019
 
 Кирилл Богомилов - Русь Первозданная (2019) [FLAC|Lossless|tracks + .cue] <Folk. Instrumental>
@@ -6,7 +476,7 @@
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289198.jpg" />
 </div>
 
 
@@ -35,7 +505,7 @@ Clannad - The Real... Clannad (The Ultimate Collection) 3CD (2018) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285928.jpg" />
 </div>
 
 
@@ -64,7 +534,7 @@ Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284555.jpg" />
 </div>
 
 
@@ -93,7 +563,7 @@ Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284259.jpg" />
 </div>
 
 
@@ -122,7 +592,7 @@ Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278632.jpg" />
 </div>
 
 
@@ -151,7 +621,7 @@ Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277184.jpg" />
 </div>
 
 
@@ -180,7 +650,7 @@ Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271274.jpg" />
 </div>
 
 
@@ -209,7 +679,7 @@ VA - All American Country Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266153.jpg" />
 </div>
 
 
@@ -238,7 +708,7 @@ VA - A Very Joyful Bluegrass Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Cou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264283.jpg" />
 </div>
 
 
@@ -267,7 +737,7 @@ Lisa Stanley - Heart and Soul (2017) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263457.jpg" />
 </div>
 
 
@@ -281,470 +751,6 @@ Lisa Stanley - Heart and Soul (2017) [FLAC|Lossless|WEB-DL|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C6713A967C239FD6E899C96E9993DD7943DECD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191264   (263392) от 16.12.2017
-
-Eva Cassidy - Acoustic (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop, Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early Morning Rain (Acoustic) (4:06)
-02. Wayfaring Stranger (Acoustic) (3:05)
-03. Kathy's Song (Acoustic) (4:34)
-04. Wade In The Water (Acoustic) (2:36)(   Читать дальше...   )Жанр: Folk, Pop, JazzПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D2C59505D7D7DD9B3FF7F5E9803942AEB93237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838559   (260727) от 23.11.2025
-
-Willie Nelson - Workin' Man (Willie Sings Merle) (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Workin' Man Blues (5:17)
- 02. Silver Wings (5:58)
- 03. Tonight The Bottle Let Me Down (2:48)
- 04. Today I Started Loving You Again (3:24)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3C8BB74A800A74453DA2E5FF364DCC310C330C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838109   (257940) от 20.11.2025
-
-Danheim - Domadagr (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Domadagr (3:36)
-02. Skaldhakker (feat. Heldom)(3:39)
-03. Einherjar (3:10)
-04. Runar (4:19)(   Читать дальше...   )Жанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B33AA09B8D90D50C07D90854B3939E54AC7EF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838110   (257939) от 20.11.2025
-
-Danheim - Heimferd (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agermark (3:25)
-02. Brenhin Llwyd (3:01)
-03. Haukadalur (4:52)
-04. Heimferd (4:12)(   Читать дальше...   )Жанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7768DB549187161804F95DD15E48565B5AF83512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495389   (252736) от 13.05.2012
-
-VA - Украинские народные песни (2000) [FLAC|Lossless]<Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252736.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Паторжинский И. - Бандура (2:56)
-2. Шалаев А., Крылов Н. - Гопак (2:35)
-3. Петрусенко О. - Спать мени не хочеться (2:18)
-4. Захарченко Н. - Садок вишневый коло хаты (2:52)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083D35A08901DD07918225C0BF5A1D6BE6AD7D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623479   (245702) от 03.04.2023
-
-Uncle Noking - Время историй (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мёртвые приходят [00:05:05]
-02. Явления поздней весны (feat. Vivita) [00:04:02]
-03. В тумане [00:04:10]
-04. Время историй [00:10:59](   Читать дальше...   )Жанр: Dark neofolkПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0831A7768CA506CB84F71AB477BA201C88700546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622256   (245601) от 03.04.2023
-
-Teufelstanz - Camera Obscura (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Gordons
-02. Johnny I Hardly Knew Ya
-03. Dellum Down
-04. High Germany(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3731C3E314F83176A7AAB363998603971EDF64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622583   (243866) от 31.03.2023
-
-Помни Имя Своё - Ночь. Метель (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Acoustic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночь. Метель [00:03:52]
-02. Любить тебя, как будто в прорубь... [00:03:44]
-03. Стикс [00:07:15]
-04. Небо такое синее [00:04:54](   Читать дальше...   )Жанр: Dark Folk, AcousticПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E439694E240252664C006031447BEC2550C51FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623777   (242996) от 04.04.2023
-
-Restless Heart - Greatest Hits (1998) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No End To This Road  [03:23]
-02. Let the Heartache Ride  [03:38]
-03. (Back to the) Heartbreak Kid  [03:51]
-04. That Rock Won't Roll  [03:30](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE71D2DB856B6799E8A75F5B9DB5F411DCAA3880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541035   (242694) от 03.04.2022
-
-Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over and Over
-02. You're Gone
-03. Starfish Blues (Bottom of the Sea)
-04. Open up Your Mind(   Читать дальше...   )Жанр: Modern Hard Rock, Southern RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62800AE88428CE9CE7F0846DBF83D81CFE801BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624346   (242233) от 05.04.2023
-
-Инна Желанная (Inna Zhelannaya, Альянс, Farlanders, Сергей Старостин, Mari Boine, Сергей Калачев, Malerия, Вилы) - 17 Альбомов (1991-2022) 19CD [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рябина ( свадебный обряд, Белгородская область )
-02. Недоля ( свадебный обряд, Псковская область )
-03. Свет моя улица ( хороводная, Смоленская область )
-04. Лужок ( хороводная, Пермская область )(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB15E28C07E3147104C2683DD1BDFC7F670E4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637074   (240274) от 02.06.2023
-
-Reba McEntire - Read My Mind (1994) [FLAC|Lossless|tracks + .cue] <Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything That You Want (4:23)
-02. Read My Mind (4:04)
-03. I Won't Stand In Line (4:02)
-04. I Wish That I Could Tell You (3:18)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00: 38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0790EB4AE9DB87BC829E0603F7B41E02A98407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639005   (238475) от 12.06.2023
-
-Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive Rock, Neo-Classical, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_238475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saattue [00:11:09]
-02. Kesävihanta [00:04:51]
-03. Valkama [00:07:20]
-04. Rintamaan [00:03:34](   Читать дальше...   )Жанр: Nordic Folk, Progressive Rock, Neo-Classical, NeofolkПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635136   (232236) от 27.05.2023
-
-Василий Васин (Вася Васин) - Песни казаков (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Черный ворон [00:04:01]
-02. Ойся ты ойся [00:05:37]
-03. Из-за острова на стрежень [00:04:13]
-04. По Дону гуляет казак молодой [00:04:48](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9564700A1E3C7D4745353109B7BC7B2336B9E94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647520   (231510) от 19.07.2023
-
-Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I've Got To Say (3:04)
-02. Next In Line (3:07)
-03. Body And Fender Man (2:38)
-04. Love Me (3:16)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341646   (227411) от 30.11.2019
-
-Gene Autry's - Christmas Cracker (2009) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rudolph The Red Nosed Reindeer
-2. Nine Little Reindeer
-3. Jingle Bells
-4. Here Comes Santa Claus(   Читать дальше...   )Жанр: CountryПродолжительность: 00:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B384CD382E9C91593D0965F3AEDD72C0799075CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

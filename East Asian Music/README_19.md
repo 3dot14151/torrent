@@ -1,3 +1,264 @@
+###  Публикация: 707155   (197753) от 29.05.2023
+
+4minute - For Muzik (2009) [FLAC|Lossless]<KPop, JPop, Electropop, Dance, R&B, Hip-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  For Muzik   (1:25)
+02.  MUZIK   (3:45)
+03.  Hot Issue   (3:29)
+04.  What A Girl Wants   (3:26)(   Читать дальше...   )Жанр: KPop, JPop, Electropop, Dance, R&B, Hip-PopПродолжительность: 00:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123A88165866BDD10D6C54F910A9B051875EE1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589037   (190583) от 08.11.2022
+
+Life Awaits - Call Me Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Alt.Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Gloom [00:03:10]
+02. New World Sanity [00:04:00]
+03. Only Paranoid [00:03:30]
+04. Renegades [00:03:27](   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, Alt.RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2832911222141AE94C5B16724509AD88729F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589374   (189990) от 10.11.2022
+
+Hagane - Code ; 9021 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fly Infinitely (01:26)
+02 - GunRock (04:05)
+03 - BlackCult (05:11)
+04 - SuperVillan (06:35)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40BCDE350FB7E72E0956DE291452C8356E6570B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590473   (189125) от 13.11.2022
+
+Dark Mirror ov Tragedy - The Lord ov Shadows (2018) [FLAC|Lossless|image + .cue] <Symphonic Black, Death Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Chapter I. Creation of the Alter Self	(02:39)
+2.	Chapter II. Possession	(08:05)
+3.	Chapter III. The Annunciation in Lust	(13:26)
+4.	Chapter IV. Acquainted with the Nocturnal Devastation	(02:02)(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD07281B101E3AE7F44DB83C3205AE400A5D2106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590565   (188522) от 15.11.2022
+
+D-Mad Devil - One With the Darkness (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. What Will Save Me
+2. Already Infected (feat. Christian Grey)
+3. Holding On
+4. Hard to Survive(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021935761644F1FD0A4A0DF13906CE969DA5B216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663250   (186785) от 21.09.2023
+
+Chaos Control - The Legacy Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Legacy Within [00:04:41]
+02. Headbanger's Journey [00:03:43]
+03. Still Alive [00:05:30]
+04. I'm Back [00:05:06](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B222CDF4528A81637693F731EB3E665C55FB817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592194   (184466) от 21.11.2022
+
+Illusion Force - The World Soul (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eastern Wisdom
+02. Machination Utopia
+03. The Coming Tragedy
+04. The Force Of Illusion(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Power MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43651A2E0C86E5753171764419D859A15886B942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427467   (183122) от 28.11.2020
+
+Night Tempo - Japanese Pop Edit (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Future Funk, J-pop>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	 Mariya Takeuchi - Tell me, tell me (Night Tempo Edit) (3:58)
+2.	 Tatsuro Yamashita - Kiss kara Hajimeru Mistery (Night Tempo Edit) (3:36)
+3.	 Yurie Kokubu - I Wanna Be With You (Night Tempo Edit) (3:29)
+4.	 Junko Yagami - Telephone Number (Night Tempo Edit) (4:23)(   Читать дальше...   )Жанр: Electronic, Future Funk, J-popПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF1FFE2AD8B943D04047D456AEAA840DCD21251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595090   (176750) от 03.12.2022
+
+Nuclear Idiots - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titan [00:01:30]
+02. Cult [00:03:01]
+03. Damn [00:03:56]
+04. Flame (feat. cacophony) [00:03:43](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 2 CD, 01:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2255EAC8842385BB1CBEBEC6DCA71387C68DCC9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669392   (172067) от 20.10.2023
 
 Babymetal - Babymetal Begins - The Other One - Black Night & Clear Night (2023) The One Limited Edition, 2023, BMD Fox Records [FLAC|Lossless|tracks + .cue] <J-Metal, Modern Metal, Kawaii Me ...
@@ -6,7 +267,7 @@ Babymetal - Babymetal Begins - The Other One - Black Night & Clear Night (2023) 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172067.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ Dragon Guardian - Destiny of the Sacred Kingdom (2012) [FLAC|Lossless|image + .c
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169071.jpg" />
 </div>
 
 
@@ -61,7 +322,7 @@ Eizo Sakamoto - Speed Metal Show (1999) [WavPack|Lossless|image + .cue] <Heavy M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166743.jpg" />
 </div>
 
 
@@ -90,7 +351,7 @@ Marge Litch - Fantasien (1991) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166740.jpg" />
 </div>
 
 
@@ -118,7 +379,7 @@ Eizo Sakamoto - Shout Drunker (2002) [WavPack|Lossless|image + .cue] <Heavy Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166724.jpg" />
 </div>
 
 
@@ -147,7 +408,7 @@ Eizo Sakamoto - Metal icchokusen (2000) [WavPack|Lossless|image + .cue] <Heavy M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166719.jpg" />
 </div>
 
 
@@ -176,7 +437,7 @@ Eizo Sakamoto - Another Face (1998) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166716.jpg" />
 </div>
 
 
@@ -205,7 +466,7 @@ Moon Dancer - Moon Dancer (1979) Reissued 1997 [WavPack|Lossless|image + .cue] <
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166712.jpg" />
 </div>
 
 
@@ -234,7 +495,7 @@ EIZO Japan - EIZO Japan 2 (2009) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166706.jpg" />
 </div>
 
 
@@ -263,7 +524,7 @@ EIZO Japan - EIZO Japan 3 (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166688.jpg" />
 </div>
 
 
@@ -292,7 +553,7 @@ EIZO Japan - Super anime song - Legend of the 1990's (2010) [WavPack|Lossless|im
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166670.jpg" />
 </div>
 
 
@@ -320,7 +581,7 @@ Marge Litch - The Ring of Truth (1992) [WavPack|Lossless|image + .cue] <Power Me
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166607.jpg" />
 </div>
 
 
@@ -349,7 +610,7 @@ Earthshaker - Back to Nexus (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160841.jpg" />
 </div>
 
 
@@ -378,7 +639,7 @@ VA - Gangnam Style Compilation (2012) [MP3|~245 кб/с (V0)]<Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156314.jpg" />
 </div>
 
 
@@ -413,7 +674,7 @@ Passcode - Strive (2020) [MP3|320 Kbps] <Metalcore, Electrocore, Post Hardcore>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154439.jpg" />
 </div>
 
 
@@ -442,7 +703,7 @@ Nozomu Wakai's Destinia - Requiem For A Scream (2014) (Japanese Edition) [FLAC|L
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148798.jpg" />
 </div>
 
 
@@ -471,7 +732,7 @@ Damian Hamada's Creatures - The Old Testament in Hell Chapter 1-2 (2020) [MP3|32
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145918.jpg" />
 </div>
 
 
@@ -485,267 +746,6 @@ Damian Hamada's Creatures - The Old Testament in Hell Chapter 1-2 (2020) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5EA7B92F1A3365528314D7594D5DA44B37D932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722209   (145539) от 27.12.2020
-
-Haruka Nakamura - 6 Albums (2007-2013) [OGG|~320 kbps]<Ambient, Acoustic, Electronic, Folktronica>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamp feat. Nujabes 06:40
-02. AURORA 03:31
-03. soar feat. Substantial 04:37
-04. days 01:53(   Читать дальше...   )Жанр: Modern Classic, AcousticПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA764556F3F059C348FF2B89B69E8AAC9EE7229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590364   (138938) от 18.12.2012
-
-Haruna Luna - 3 сингла (2012) [MP3|320 кб/с]<J-Pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138938.jpg" />
-</div>
-
-
-###  Подробнее
-
-SinglesЖанр: J-PopПродолжительность: 00:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B21BCA24538F76B9E6F9B0DE2502B50BDB96D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591587   (135529) от 22.12.2012
-
-LAMA - 2 альбома, 3 сингла (2011-2012) [MP3|320 кб/с]<J-Pop, Electro>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135529.jpg" />
-</div>
-
-
-###  Подробнее
-
-AlbumsЖанр: J-Pop, ElectroПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111B0DB70FB896EA94B1612C6DC89AE944DF0DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593559   (135408) от 23.12.2012
-
-Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrumental, Relax>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135408.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:24) 01. Green The World
-(3:50) 02. A place in the heart
-(3:04) 03. The tree of Life new
-(3:35) 04. In the year 2012
-(3:53) 05. The Voice in the Jungle
-(3:15) 06. Secret of Paradise
-(3:08) 07. Forest Home and Sleepy Momo
-(3:48) 08. Thai Rice
-(3:48) 09. The Time Traveler
-(3:21) 10. First time I ever Saw this World(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE879427D2F93FD188A0724CFD462938FEA51F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682534   (131436) от 07.12.2023
-
-Manna - Chabako Trick (1979) [MP3|320 Kbps] <Electronic, City Pop, Disco, Funk, Synth-pop>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yellow Magic Carnival (3:13)
-02. 黒船 (3:42)
-03. 椰子の木陰で (3:06)
-04. ほろほろ草子 (4:08)(   Читать дальше...   )Жанр: Electronic, City Pop, Disco, Funk, Synth-popПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544439D15301878A4FC32344CBC04DF8620D66DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685372   (126618) от 22.12.2023
-
-Luna Sea - Mother (1994) 2023, avex trax [FLAC|Lossless|WEB-DL|tracks] <Art rock, Progressive rock, Gothic rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LOVELESS [00:05:40]
-02. ROSIER [00:05:32]
-03. FACE TO FACE [00:04:46]
-04. CIVILIZE [00:03:25](   Читать дальше...   )Жанр: Art rock, Progressive rock, Gothic rock, Punk, Hard rock, Alternative rock, Heavy metal, Post punk, ClassicalПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1988A196D97302D676A75ADE354A4B3088DD44CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686323   (126617) от 22.12.2023
-
-Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piano Solo (Etude Op.10, No.12) (Live - March 12, 2023) [00:01:39]
-02. Swan Song (Live - March 12, 2023) [00:08:04]
-03. Judgement Day (Live - March 12, 2023) [00:06:12]
-04. When Destinies Align (Live - March 12, 2023) [00:06:26](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 2 CD, 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDAB7AF19C4B3D1EF4952FC8F9FC3C9E7A0C657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689788   (124364) от 04.01.2024
-
-Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Porte de l'Enfer (Gate Of Hell) 6:53
-02. Stone Circle 5:07
-03. Karma 7:55
-04. Shippuu Jinrai 4:03Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D662FFDF77D14E7B6F189D17C520D3896CD7D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694177   (121301) от 23.01.2024
-
-Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hajimari / instrumental
-02. Gekokujo
-03. Dragon, Fly Free
-04. Raijin & Fujin(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02289F145027592019CB96FFCCD3EA2B16370AFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

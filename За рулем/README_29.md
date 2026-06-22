@@ -1,3 +1,113 @@
+###  Публикация: 1618388   (250007) от 11.03.2023
+
+Главная дорога (11.03.2023) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секреты выбора авто для всей семьи, наезд на пешехода без последствий и брачный заезд Дениса Никифорова.
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B47D665FE500B5886D0DA588D1E66241E44F2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833827   (247795) от 02.11.2025
+
+Первая передача на НТВ. Автомобильная передача (02.11.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покупка с нюансами: как перестраховаться и разглядеть изменения в конструкцию автомобиля б/у до того, как деньги окажутся у продавца?
+ Миг между «желтым» и «красным»: спорное ДТП во время маневра на перекрестке. Почему виновным оказался водитель, поворачивавший налево?
+ В «шишиге» как в квартире: как живется в машине с печкой, санузлом и полным приводом.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF74CE74280F117EC2E47BA491FC98EB63F118F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140756   (247744) от 07.06.2023
+
+Авто S.O.S. / Car S.O.S. (2015) HDTVRip [H.264/1080i-LQ] (сезон 3, серии 1-10 из 10) [AD]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите одну любимую, но изрядно потрепанную машину, прибавьте хозяина, нуждающегося в помощи, тайком увезите этот автомобиль в прекрасно оборудованную мастерскую, в течение трех недель сдабривайте его смазкой, краской и ноу-хау по авторемонту, а затем верните его ничего не подозревающему владельцу, приправив щедрой порцией сюрприза. Когда автомеханики Тим и Фазз, (   Читать дальше...   )Телекомпания: National Geographic ChannelsЖанр: телепередача, автомобилиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: серии по ~00:22:00Реклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A58B4BA35B66FEC1FAB36A4E3F8048FEB56237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833279   (246216) от 01.11.2025
+
+Главная дорога (01.11.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помощников ГАИ все больше. Как отменить штраф от народных инспекторов?
+ Никто не хотел уступать: разбор ситуации на дороге.
+ Готовим машину к зиме… в гастрономе! Андрей Федорцов и Денис Юченков нашли средство от ржавчины в бакалее, а фиксатор резьбы — в галантерее: смогут ли обычные продукты заменить автохимию и получится ли на этом сэкономить?
+ Сделано в школе: спорткар (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E0CE674DC99DFCE96F52D7A8C3C7DEC06918F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833280   (246215) от 01.11.2025
 
 Тест-драйв Ford Focus — Минтранс (01.11.2025) WEBRip [H.264/720p]
@@ -6,7 +116,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246215.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246049.jpg" />
 </div>
 
 
@@ -61,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245919.jpg" />
 </div>
 
 
@@ -90,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245886.jpg" />
 </div>
 
 
@@ -118,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245866.jpg" />
 </div>
 
 
@@ -145,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244890.jpg" />
 </div>
 
 
@@ -171,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244794.jpg" />
 </div>
 
 
@@ -197,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244765.jpg" />
 </div>
 
 
@@ -224,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244680.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243826.jpg" />
 </div>
 
 
@@ -278,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243627.jpg" />
 </div>
 
 
@@ -306,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243582.jpg" />
 </div>
 
 
@@ -335,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243412.jpg" />
 </div>
 
 
@@ -362,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243124.jpg" />
 </div>
 
 
@@ -388,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242832.jpg" />
 </div>
 
 
@@ -414,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242742.jpg" />
 </div>
 
 
@@ -441,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242670.jpg" />
 </div>
 
 
@@ -470,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242495.jpg" />
 </div>
 
 
@@ -497,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242173.jpg" />
 </div>
 
 
@@ -525,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241996.jpg" />
 </div>
 
 
@@ -552,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241600.jpg" />
 </div>
 
 
@@ -578,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241553.jpg" />
 </div>
 
 
@@ -592,111 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C92713A6F643AA25F4908B1A1574783E8BA1243E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630380   (241256) от 30.04.2023
-
-Первая передача на НТВ. Автомобильная передача (30.04.2023) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поселковый лихач дядя Коля со Ставрополья и его фокусы: как пьяного беспредельщика остановил сосед и что протрезвевший водитель потом сделал с «обидчиком»? Почему одних за убийство оставляют на свободе, а других за синяк отправляют в тюрьму?
- Законные меры: что делать, чтобы предотвратить трагедию из-за пьяного хулигана за рулем и самому при этом не попасть за решетку. (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B9FB51AC5AD081ADBDD5D5FA1A5F5E027DF57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635802   (240998) от 29.05.2023
-
-В погоне за классикой / Chasing Classic Cars (2008-2021) WEB-DLRip [H.264/1080p-LQ] (сезон 1-12) [обновляемая]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_240998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время просмотра программы зрители будут наблюдать за знатоком в области ретро автомобилей, а также за появлением новой жизни старых автомобилей. Их поиском реставрации и продаже на аукционах. Ведущим проекта стал легенда Уэйн Карини.Производство: Essex Television Group IncЖанр: документальный, телепередачаПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:44:00 - 00:22:00 каждая серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BFE46AD11233555356ADB6CB0979E972B08082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631527   (240954) от 06.05.2023
-
-Минтранс (06.05.2023) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_240954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A040053FDA1A34291894695E537DADCEA7EE5D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619897   (240907) от 18.03.2023
-
-Минтранс (18.03.2023) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1A00A046A3CC77E3BFF84ADAC907536329A192
 ```
 
 https://mybot314.ru/tekegram_catalog/

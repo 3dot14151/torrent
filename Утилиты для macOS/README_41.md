@@ -6,7 +6,7 @@ OS Cleaner Pro - Disk Cleaner 10.2.60 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230722.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230624.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Murus Pro Suite 1.4.22 (include Vallum 3.3.2) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230020.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ FoneDog iOS Unlocker 1.0.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229992.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Mirror for Smart TV apps by AirBeamTV 20191127 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229936.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Pastebot 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229258.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ RAR Extractor - The Unarchiver 8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229168.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Aquarium 4K – Live Wallpaper 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228946.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Password Vault Manager Enterprise 6.1.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228416.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Jaksta Screen Recorder 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228193.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Omni Remover 4.0.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227854.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Jump Desktop (RDP & VNC) 8.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226064.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Memory Clean 3 v1.0.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226032.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ SQLEditor 3 v3.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225997.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ MacClean360 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224035.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ DetectX Swift 1.0982 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223979.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Concealer 1.3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223412.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ oneSafe 2.4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222688.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Performance Index 64 Pro 4.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222349.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Roxio Toast Titanium 17 v17.3.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221788.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Folder Tidy 2.8.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221004.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ mSecure 3.5.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220908.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Adguard 2.5.1 Release[Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219894.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Tri-BACKUP Pro 9 v9.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219133.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ MacMagic 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_219020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219020.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Unite 4 v.4.5.0 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_218917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218917.jpg" />
 </div>
 
 

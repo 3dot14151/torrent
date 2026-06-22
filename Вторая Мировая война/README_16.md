@@ -1,55 +1,3 @@
-###  Публикация: 1650753   (224679) от 03.08.2023
-
-Забытый полководец. Теодор-Вернер Андреевич Свиклин (2019) WEB-DLRip [H.264]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теодор-Вернер Андреевич Свиклин – генерал-майор, который спланировал и блестяще реализовал одну из самых рискованных операций Великой Отечественной войны. Он лично сел в первый танк и возглавил наступление через лёд озера Ильмень, в результате которого, 15 января 1944 года немецкая оборона с южной стороны от Новгорода была прорвана. Успех операции Свиклина повлиял (   Читать дальше...   )Производство: Россия / "ТЕЛЕИНВЕСТ"Жанр: документальный, история, Великая Отечественная войнаРежиссер: Николай КорнеевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814BC51A5BF8560BDD9BF15DDA1FEB25A3436173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265751   (222654) от 13.12.2018
-
-Вторая мировая: Ад под водой (Подводный ад) / WW2: Hell under the Sea (2018) HDTV [H.264/1080p-LQ] (2 сезон, 1-6 серия из 6)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222654.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вторая мировая. Ад под водой» - это сериал, на основе реальных событий, картографически точно воспроизводящий разные эпизоды невидимой подводной войны, сопровождаемые драматичными рассказами о рейдах подводных патрулей во время Второй мировой войны. Экспертный анализ событий тех дней и видеоматериалы переплетаются с реконструкциями на основе воспоминаний участников (   Читать дальше...   )Производство: Канада, National GeographicЖанр: Документальный, флот, война, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 6 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56785F76BCCA278967A4690F16EF8B71EB6D6798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425449   (222230) от 20.11.2020
 
 Ступени Победы (2020) WEB-DL [H.264/1080p] (серии 1-16 из 16)
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222230.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221676.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221183.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221086.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218279.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216529.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215625.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214079.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214003.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211723.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211419.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211055.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210334.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209109.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208375.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207806.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207492.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207472.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207437.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206995.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206865.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203487.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202917.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202803.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4634ADE70B4EB8B01FEE2444FC0B9F9068438CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611768   (201702) от 06.03.2023
+
+Мир накануне катастрофы. XX век (2022) DVB [H.264] (серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный цикл Мир накануне катастрофы. XX век. Почему межвоенная Европа, в которой бурно развивалась экономика, культура, росло благосостояние населения, реализовывались разнообразные социальные программы, в итоге пришла к самой кровавой катастрофе в истории человечества? Как Германия из развитой демократической республики стала тоталитарным нацистским государством? (   Читать дальше...   )Производство: Россия, Студия Град (History Lab) по заказу АО «ЦТВ»Жанр: документальный, история, политикаРежиссер: Юрий СтариковСубтитры: Русские (Teletext, Sub 888)Продолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45857C8F112B9BD84DEF15C4CFB88F35F11D8D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620924   (200693) от 27.03.2023
+
+Вторая мировая война: Секреты с воздуха / World War II: Secrets from Above (2022) WEB-DL [H.264/720p] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мы летим над печально известными местами сражений Дня Д и Дюнкерка, парим над скрытыми нацистскими бункерами и скользим по затерянным линкорам и затонувшим кораблям — мы раскрываем секреты Второй мировой войны — совершенно по-новому.Производство: ВеликобританияЖанр: документальныйПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские, немецкие, испанские и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8376E4898A10845F3B8FC1DAF65C939673E23CEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

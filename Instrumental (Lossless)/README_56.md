@@ -6,7 +6,7 @@ Lucy Woodward - Til They Bang On The Door (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622798.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Othman Wahabi - Night Trippin' Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621643.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Stumble - The World Is Tough (2006) [FLAC|Lossless|image + .cue] <Blues, Ele
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621087.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blaa Trikaa - Part of My Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620199.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Andrew Thabah - In the Shadow of Your Love (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620195.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Larry Miller - Unfinished Business (2010) [APE|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619147.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Stumble - The Other Side (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619145.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dananja Aloysius - Passover (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618588.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Fran McGillivray Band - Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618578.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Cosy Cotton Band - Jealousy Is Taking Over (2022) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618486.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Doc Shredd - Fire in the Air (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618485.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dirty Hips - Crisis, what crisis ?!? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618477.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Borderhill Bay - Harmaa (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618133.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bluesbury - MMXXI (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618130.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ BlueTouch - The Music of Robert Johnson (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618121.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Joanne Le Blanc - Found & Lost (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_615492.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Blue Magic - Mystic Dragons (1976) [FLAC|Lossless]<Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_615416.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mississippi Heat - Let's Live It Up! (2010) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_613094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_613094.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Al Green - Listen: The Rarities (2000) [FLAC|Lossless|tracks + .cue] <Soul, R&B,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611416.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Michiru Akiyoshi - Mangestu (1991) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611413.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Jeff Plankenhorn - Soulslide (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611320.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Oscar Benton - Best Of (1998) Compilation [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611187.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ JvT Band - Bound (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609733.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Eliza Neals - No Frogs For Snakes (2008) [FLAC|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609613.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Eliza Neals - 10,000 Feet Below (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609601.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ Edgar Winter - Brother Johnny (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607548.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1821144   (29070) от 01.10.2025
+
+Жан-Луи Монсе, Ален Перно, Джонни Ривз | Большая книга Формулы-1. 80 лет шума и ярости (2024) [MP3, Александр Слуцкий]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29070.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Хуана Мануэля Фанхио до Льюиса Хэмилтона и Макса Ферстаппена, вы встретите здесь всех легендарных гонщиков, прислушаетесь к звуку двигателей и переживёте гениальные обгоны, роковые вылеты с трассы и внезапные повороты сюжета.
+Кроме того, вы встретитесь с людьми, находящимися в тени, которые воплощают в жизнь мечту о «Формуле-1»: директорами команд и механиками, (   Читать дальше...   )Жанр: Биографии, мемуары, история, спортИздательство: ЭксмоПродолжительность: 16:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B840287411B4A511AAB2664E5EF9DD98C6D0156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820988   (29045) от 01.10.2025
 
 Дарон Аджемоглу, Джеймс А. Робинсон | Узкий коридор (2021) [PDF, MP3, Владимир Овуор]
@@ -6,7 +33,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29045.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26248.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25087.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24316.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24307.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24280.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22261.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22144.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21135.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21133.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21097.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21047.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20822.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20160.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18421.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_17596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17596.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17553.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15334.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14298.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14103.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14100.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14099.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14095.jpg" />
 </div>
 
 
@@ -618,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13979.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13667.jpg" />
 </div>
 
 
@@ -655,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57499BD06DCFD5837E30D8244D93CA21503E835F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803891   (13356) от 26.06.2025
-
-Хэлфорд Маккиндер, Самюэль Хантингтон, Фернан Бродель | Ось мира. Последняя битва цивилизаций [Любовь Тернова (2025) [MP3, Любовь Тернова]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13356.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ось мира» («сердце мира») – основное понятие в геополитике, тесно связанное с «Хартлендом» («осевым пространством). Хэлфорд Маккиндер, один из создателей геополитики как науки, говорил: „Кто правит Хартлендом, тот господствует над всем миром“.
-Именно на данном пространстве расположены огромные залежи природных ресурсов, включая газ и нефть; именно здесь происходили (   Читать дальше...   )Жанр: Политология, публицистикаИздательство: АлисторусПродолжительность: 07:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF62AC5CF7A7EE8A018735649D6B320756805F8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

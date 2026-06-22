@@ -1,3 +1,108 @@
+###  Публикация: 1273489   (793989) от 06.01.2019
+
+George Carlin | Подкасты (1977-2008) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж Денис Патрик Карлин (12 мая 1937 - 22 июня 2008) - американский комик в жанре стэнд-ап камеди, актёр и писатель, обладатель четырёх премий «Грэмми» и премии Марка Твена. Автор 5 книг и более 20 музыкальных альбомов, снялся в 16 фильмах.
+Карлин известен за свою политическую проницательность, чёрный юмор, его лингвистические наблюдения, наблюдения в психологии, (   Читать дальше...   )Жанр: СтендапПродолжительность: 19:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62014173E9FBE37494F335110339655BA28CE5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274243   (793986) от 06.01.2019
+
+Алексей Решетун | Вскрытие покажет: Записки увлеченного судмедэксперта (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судебно-медицинский эксперт Алексей Решетун (более известный как жж-блогер mossudmed) знаком со смертью не понаслышке. Он имеет с ней дело каждый рабочий день вот уже 17 лет: собственно, ее причины и есть объект его изучения. А значит, ему лучше, чем кому бы то ни было, известно, почему мы умираем и что не надо делать, чтобы не попасть до времени на секционный стол. (   Читать дальше...   )Жанр: Нон-фикшнПродолжительность: 05:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D203D3E39A98538E5D600A2BF95441CC3A86D697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274233   (793870) от 06.01.2019
+
+Марк Мэнсон | Тонкое искусство пофигизма: Парадоксальный способ жить счастливо (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современное общество пропагандирует культ успеха: будь умнее, богаче, продуктивнее — будь лучше всех. Соцсети изобилуют историями на тему, как какой-то малец придумал приложение и заработал кучу денег, статьями в духе «Тысяча и один способ быть счастливым», а фото во френдленте создают впечатление, что окружающие живут лучше и интереснее, чем мы. Однако наша зацикленность (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 05:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC6E1F270753AC139647C30EE320A878ED3E906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274236   (793779) от 06.01.2019
+
+Рохит Бхаргава | Всегда ешьте левой рукой: А также перебивайте, прокрастинируйте, шокируйте. Неочевидные советы для успеха (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что написано в этой книге, прямо противоположно тому, что твердили вам годами родители, учителя, коллеги и начальники. «Прокрастинируйте больше. Доводите людей до слез. Освойте йодль». Вы вообще серьезно? На самом деле да. Эта книга наполнена парадоксальными и порой обескураживающими секретами успеха, о которых никто никогда не осмеливался вам рассказать. Но (   Читать дальше...   )Жанр: СаморазвитиеПродолжительность: 03:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73BD87C2E04ADC6FF227FA4D87893A67E4B1EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012516   (793581) от 01.05.2016
 
 Джон Килль | НЛО: Операция Троянский конь (2014) [MP3]
@@ -6,7 +111,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793581.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792179.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791440.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790872.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788805.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788798.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788790.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788775.jpg" />
 </div>
 
 
@@ -223,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786564.jpg" />
 </div>
 
 
@@ -250,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786130.jpg" />
 </div>
 
 
@@ -276,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785934.jpg" />
 </div>
 
 
@@ -302,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785278.jpg" />
 </div>
 
 
@@ -328,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784907.jpg" />
 </div>
 
 
@@ -356,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784507.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784366.jpg" />
 </div>
 
 
@@ -408,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780386.jpg" />
 </div>
 
 
@@ -434,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780219.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778050.jpg" />
 </div>
 
 
@@ -488,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776410.jpg" />
 </div>
 
 
@@ -515,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776396.jpg" />
 </div>
 
 
@@ -541,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776367.jpg" />
 </div>
 
 
@@ -567,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775804.jpg" />
 </div>
 
 
@@ -578,110 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D174FBA17CB534B36D3B6CECD41AA54F5FD158E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277577   (774945) от 22.01.2019
-
-Александр Прохоров | Русская модель управления (2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Александра Прохорова «Русская модель управления», аудиоверсию которой представляет студия АРДИС, вторгается в область отечественной управленческой мифологии. Что представляет собой русская модель управления? Как на практике использовать ее особенности? Какие черты нашей национальной модели менеджмента являются мифом, а какие – реальностью? В каких случаях и (   Читать дальше...   )Жанр: Книги по экономике, ПолитологияПродолжительность: 16:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5715338FE8418382D0215B097504195BC526606A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212902   (774216) от 14.03.2018
-
-Платон | Собрание сочинений в четырех томах [Том 1] (2013) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774216.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первый том Собрания сочинений Платона входят ранние диалоги философа, относящиеся к периоду формирования его учения. Идея тома в целом - прослеживание пути становления платонизма.Жанр: ФилософияПродолжительность: 44:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC5B22251980246A5BC7E8A4197CF9740233463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213103   (773094) от 15.03.2018
-
-Платон | Собрание сочинений в четырех томах [Том 2] (2013) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй том Собрания сочинений Платона входят шесть диалогов зрелого периода творчества философа (80-60-е годы IV в. до н.э.) ; их центральная проблематика - учение об идеях.Жанр: ФилософияПродолжительность: 27:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4227E60136F816E0AC89F8C8608E7F8E6200043A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213316   (771845) от 16.03.2018
-
-Платон | Собрание сочинений в четырех томах [Том 3] (2013) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771845.jpg" />
-</div>
-
-
-###  Подробнее
-
-В третий том Собрания сочинений Платона входят диалоги зрелого периода его творчества (в их числе - наиболее знаменитый диалог «Государство»), в которых диалектическое учение об идеях наполняется психологическим, эстетическим и социально-политическим содержанием.Жанр: ФилософияПродолжительность: 33:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC90FB6970C18625DAC513264B47461CB9B364B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

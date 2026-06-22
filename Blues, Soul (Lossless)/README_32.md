@@ -6,7 +6,7 @@ John Lee Hooker - Burnin' plus Plays And Sings The Blues (2014) Remastered [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887771.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ronnie Earl & The Broadcasters - Good News (2014) [FLAC|Lossless|image + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887764.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chris Rea - Blue Guitars II - Country Blues (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887351.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dwane Dixon - Black Satin Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885575.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885563.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Samantha Fish - Faster (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884454.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Johnnie Bassett & The Blues Insurgents - I Gave My Life To The Blues (1996) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883699.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Johnnie Bassett & The Blues Insurgents - Cadillac Blues (1998) [FLAC|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883637.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ The Jive Aces - Recipe For Rhythm (2008) [FLAC|Lossless|image + .cue] <Swing, Ju
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883405.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Full Fat - Most of What Follows is True (2014) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880278.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tall Grass Music - Complete 37 Studios Recordings (2010) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880261.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Shane Dwight Band - Come See Me (2003) [FLAC|Lossless|tracks + .cue] <Blues-Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880254.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Christone Kingfish Ingram - 662 (2021) [FLAC|Lossless|image + .cue] <Electric Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878823.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Mick Clarke - Blues It Up, Vol. 1-2 (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878821.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Mick Clarke - 2 Album (2011,2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878221.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Vargas Blues Band feat. Paul Shortino - Hard Time Blues (2016) [FLAC|Lossless|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877304.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Tim Boykin Blues Band - Tim Boykin Blues Band (2014) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876741.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ The Brett Cohen Band - Big Love (2012) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876737.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Ron Levy's Wild Kingdom - Green Eyed Soul (2003) [FLAC|Lossless|image + .cue] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876649.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Anthony Gomes - Sweet Stringing' Soul (2000) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876644.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alexis Korner - Blues (1999) Compilation [FLAC|Lossless|image + .cue] <Blues, Rh
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876640.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Fred Chapellier - Electric Fingers (2012) [FLAC|Lossless|tracks + .cue] <Electri
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876638.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Chris Rea - Blue Guitars I - Beginnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875853.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Akkerhaugen Raid - Nite Owl Method (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875833.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Bluhauz - Bluhauz (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875831.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Bobby Powell - Spread Your Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875829.jpg" />
 </div>
 
 

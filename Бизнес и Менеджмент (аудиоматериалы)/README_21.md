@@ -1,3 +1,58 @@
+###  Публикация: 1817823   (2958) от 13.09.2025
+
+Крис Макчесни, Джим Хьюлинг, Шон Кови | Как достичь цели. Четыре дисциплины исполнения (2018) [MP3, Андрей Курилов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководители редко разграничивают ежедневную срочную работу («вихрь неотложных дел») и стратегические цели, поскольку и то и другое жизненно необходимо для нормальной деятельности компании. Однако эти понятия кардинально различаются и, что гораздо важнее, соперничают за время, ресурсы, энергию и внимание. Если руководитель и его команда будут работать только в авральном (   Читать дальше...   )Жанр: БизнесИздательство: StorySide ABПродолжительность: 10:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53BDF9762A4640739DBC64E1B454B306D6913457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818056   (2767) от 14.09.2025
+
+Саидмурод Давлатов | Стать богатым может каждый. 12 шагов к обретению финансовой стабильности (2018) [MP3, Вадим Пугачев]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Причины прослушать эту аудиокнигу:
+1. Разорвите замкнутый круг. Перестаньте быть заложником расходов — научитесь заставлять деньги работать на вас 24/7.
+2. Создайте финансовую подушку. Освойте систему, которая защитит семью даже при потере основного дохода.
+3. Победите инфляцию. Применяйте инвестиционные принципы, чтобы доходы росли быстрее цен.(   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРАПродолжительность: 04:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E32A9791772A6D8634129CC34FC7096ACDD053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818204   (2596) от 15.09.2025
 
 Джон Уитмор | Коучинг. Основные принципы и практики коучинга и лидерства (2018) [MP3, Андрей Курилов]
@@ -6,7 +61,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2596.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2457.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2319.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2148.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1977.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1421.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1275.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1128.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_756.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_490.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_290.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1649426   (231011) от 27.07.2023
+
+Dynamic Wallpaper Engine 15.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Wallpaper Engine позволяет использовать живые обои на рабочем столе/экранной заставке. Он предоставляет тысячи живых обоев в Мастерской, потребляя при этом как можно меньше системных ресурсов. Это движок обоев для Mac.Тип издания: macOS SoftwareРелиз состоялся: 27.07.2023Разработчик: © 2020 WHBALZAC IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E006FE1D302D93865FC1692FFED7043AB76FB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648537   (231009) от 23.07.2023
+
+Adobe InCopy 2022 18.3 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
+Adobe InCopy  входит в состав Creative Cloud. Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2022Разработчик: © Adobe SystemsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A872C428F06CD040BC2C756A4E08BC1C396708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648289   (230999) от 22.07.2023
 
 Colibri 2.1.0 [En]
@@ -6,7 +59,7 @@ Colibri 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230999.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Librarian Pro 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230978.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ PullTube 1.8.5.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230973.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ VueScan Pro 9.8.12 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230951.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Lungo 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230939.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ System Dashboard Pro 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230926.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230922.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Boxy SVG 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230876.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ UninstallPKG 1.2.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230848.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ XnViewMP for Mac 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230827.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Cisdem Video Converter 7.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230798.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Pixelmator Pro 3.3.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230777.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ RAR Extractor Max-Unzip File 11.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230763.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ iBarcoder 3.14.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230759.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ CloudMounter 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230751.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ Live Wallpaper & Themes 4K Pro 17.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230739.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ VueScan Pro 9.8.13 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230720.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230713.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ Money Pro - Personal Finance 2.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230690.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ MacDroid Pro 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230684.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ PDF Reader Pro Edition 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230508.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ Adobe Bridge 2023 13.0.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230446.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229919.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ VueScan Pro 9.5.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229892.jpg" />
 </div>
 
 
@@ -622,60 +675,6 @@ VueScan — программа для работы со сканерами HP, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E431FA1DEED0EDF4BDEC6773B7709D645360C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424426   (229873) от 16.11.2020
-
-MarsEdit 4 v4.4.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3014ABD65BB17EF5C18026923490B4B3625F149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424368   (229831) от 16.11.2020
-
-iBoostUp Premium 8.4.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229831.jpg" />
-</div>
-
-
-###  Подробнее
-
-iBoostUp настраивает и оптимизирует ваш Mac, очищая ненужные файлы, фиксируя ваш жесткий диск, предоставляя рекомендации по эффективности, защищая вашу конфиденциальность, удаляя файлы cookie, показывая вам легкодоступную системную информацию и многое другое!
-
-iBoostUp Memory Booster позволяет вам просматривать подробную информацию о системной памяти и, возможно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: iBoostUp Pty LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE06B3414073E16166B2E6523B516C66A2CC788B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1712829   (112147) от 03.04.2024
+
+Конец Славы. Фильм о фильме (2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марюс Вайсберг, Павел Деревянко и их коллеги по площадке открывают секреты создания комедии «Конец славы».Производство: Россия / ООО "Он-оф Про"Жанр: документальныйРежиссер: Марюс ВайсбергУчастники: Павел Деревянко, Сергей Чирков, Дарья Урсуляк, Екатерина КлимоваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB9193A1F6DCC130333C99C6F0D104D6C455EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720431   (110299) от 03.05.2024
+
+Леонид Каневский. Народный артист (2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актер, телеведущий или… герой популярных мемов? А может — друг, которого знают все — от мала до велика? Леонид Каневский — артист, покоривший сердца миллионов зрителей. В чем секрет его успеха и почему уже много лет подряд он феноменально популярен? Вслед за Леонидом Семёновичем Каневским авторы фильма отправятся на сцены театров, съемочные площадки фильмов и программ. (   Читать дальше...   )Производство: Россия | «Free Motion»Жанр: ДокументальныйРежиссер: Арина ПрошинаУчастники: Леонид Каневский, Анна Березина, Наталья Каневская, Евгений Стычкин, Константин Хабенский, Игорь Верник, Леонид Ярмольник, Клара Новикова, Евгений Маргулис, Александр КаневскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8255C23F4CDA2D2C9258B0E0EEC244F0D7F4934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732730   (107444) от 26.06.2024
+
+ДК СССР. Экскурсия (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-13 из 13)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на все временные и идейные изменения, Дом культуры стал символом и наглядной репрезентацией всей советской культуры. Этот документальный сериал подробно раскроет историю данного феномена благодаря экспертам в области советского искусства. С помощью инфографики и экскурсий с кураторами направлений в ЦВЗ «Манеж» вы сможете узнать больше об изобразительном (   Читать дальше...   )Производство: Россия | «Территория культуры», «РОСИЗО»Жанр: Документальный, культура, искусствоРежиссер: Роман КаменскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A3C08B6C9436EC79D6B3AF2E0E058EF1869771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734329   (107151) от 03.07.2024
 
 Культура СССР (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-2 из 2)
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107151.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105175.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104377.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88656.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87221.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87033.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86679.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82883.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82467.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82025.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74006.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66484.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65570.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65236.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Bono: История примирения / Bono: Stories of Surrender (2025) WE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64557.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63911.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63899.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63199.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63194.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62447.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59156.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58051.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52698.jpg" />
 </div>
 
 
@@ -603,87 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1572F90C195EE7F3A1AA56B1AFF340727D04493A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928409   (52506) от 22.06.2024
-
-Виктор Цой: рождение легенды (2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52506.jpg" />
-</div>
-
-
-###  Подробнее
-
-День, когда оборвалась жизнь и родилась легенда…
-25 лет назад - 15 августа 1990 года погиб Виктор Цой.
-Впервые за 10 лет друзья Виктора Цоя и поклонники, ставшие знаменитыми, соберутся вместе и расскажут, как группе «Кино» удалось стать не только культурным феноменом Перестройки, но и голосом целого поколения.
-В фильме зрителя ждут эксклюзивные интервью: своими воспоминаниями (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: ДокументальныйПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6467740B4EF97EE2ADDB7EDDD9FF1F808B6498C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559995   (52421) от 23.06.2024
-
-Юрий Шатунов. Шипы белых роз (2013) HDTV [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52421.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 июня 2022 года не стало Юрия Шатунова... Истерики фанаток и восторженные крики толпы. До отказа заполненные стадионы. Миллионы поклонников по всему Советскому Союзу. Беспрерывные гастроли и несмолкающие овации. Так в конце восьмидесятых встречали группу «Ласковый май» и ее вокалиста Юру Шатунова. Ему было всего 16, когда он стал кумиром миллионов. По слухам, у (   Читать дальше...   )Производство: Россия, Первый каналЖанр: документальный, история, биографияРежиссер: Людмила СнигирёваЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A44B82893D126AFD83FBCBC29C06F2D0AA33DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519479   (52337) от 24.06.2024
-
-Союзмультфильм - 85 (2006-2022) DVB (серии 1-42 из ?) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52337.jpg" />
-</div>
-
-
-###  Подробнее
-
-85! Именно столько лет исполняется "Союзмультфильму" в 2021 году! Этот юбилейный проект – большое путешествие из грандиозного прошлого легендарной студии – через события, судьбы корифеев отечественной анимации, через самые знаковые и любимые образы и сюжеты мультфильмов – в настоящее. В день сегодняшний. Каждая серия цикла посвящена определенному этапу (   Читать дальше...   )Телекомпания: Россия / ТК "Культура"Жанр: Документальный, Искусство, ИсторияСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD168DF98D7D3630359D35B66113E63038792B00
 ```
 
 https://mybot314.ru/tekegram_catalog/

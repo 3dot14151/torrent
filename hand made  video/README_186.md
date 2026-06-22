@@ -1,3 +1,30 @@
+###  Публикация: 1808444   (10512) от 24.07.2025
+
+Билли Мэдисон / Billy Madison (1995) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великовозрастный балбес Билли Мэдисон, наследник невероятно богатого владельца сети отелей, проводит круглые сутки в разглядывании непристойных журнальчиков, поглощая пиво и устраивая идиотские розыгрыши.
+Правда, довольно скоро ему приходится взяться за ум: Мэдисон-старший сообщает Билли, что собирается передать бизнес подхалиму мистеру Гордону, и единственное условие, (   Читать дальше...   )Производство: США / Robert Simonds Productions, Universal PicturesЖанр: комедияРежиссер: Тамра ДэвисАктеры: Адам Сэндлер, Брэдли Уитфорд, Джош Мостел, Бриджит Уилсон, Норм МакДоналд, Марк Белцмэн, Ларри Хэнкин, Тереза Мерритт, Дина Платиас, Даррен МакГэвин и др.Перевод: Многоголосый (Lizard Cinema Trade, Первый Канал, СТС), двуголосый (Премьер Видео Фильм)Язык озвучки: Русский, английскийСубтитры: Русские, английские (SDH), (PGS)Продолжительность: 01:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8911B276CA3A02173B34834AF32009E3B298D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808632   (10415) от 25.07.2025
 
 Трансформеры: Восхождение Звероботов / Transformers: Rise of the Beasts (2023) BDRip [H265/2160p] [4K, SDR, 8-bit] [hand made Upscale AI]
@@ -6,7 +33,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10415.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10318.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10301.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10297.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10201.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10185.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10179.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10174.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10144.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10093.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10086.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10000.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9999.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9778.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9773.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9684.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9613.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9562.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9552.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9540.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9460.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9455.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9364.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9353.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ Pink Floyd - История легенды 2 (2017) DVDRip [H.264/1080p] [VO, ha
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9297.jpg" />
 </div>
 
 
@@ -651,35 +678,6 @@ Pink Floyd - История легенды 2 (2017) DVDRip [H.264/1080p] [VO, ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CC902598ED9FE42CB8C9434902A73B5A82B98E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275528   (9296) от 05.08.2025
-
-Pink Floyd - История легенды 3 (2017) DVDRip [H.264/1080p] [VO, hand made, upscale]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительная часть истории Pink Floyd разворачивается в период с 1982 по 2014 год. В фильме разобраны альбомы The final Cut, A Momentary Lapse of Reason, The Division Bell и The Endless River. Также фильм расскажет об уходе Роджера Уотерса из Pink Floyd, о его попытках остановить деятельность группы, об отчаянном сопротивлении этому Дэвида Гилмора, о том, как Дэвид (   Читать дальше...   )01. Learning to Fly
-02. The Fletcher Memorial
-03. Not Now John
-04. The Dogs of WarЖанр: Музыкальный, ДокументальныйРежиссер: Gemolin-Типичный меломанПеревод: русский одноголосый любительский (Gemolin)Субтитры: Русские (hardsub), только на некоторые фрагментыПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509B6D035464FF9766024FA9161BC0B85AD2CA28
 ```
 
 https://mybot314.ru/tekegram_catalog/

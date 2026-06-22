@@ -1,55 +1,3 @@
-###  Публикация: 1728651   (40505) от 13.10.2024
-
-Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pool Cleaning Simulator предлагает в увлекательной и необычной форме познакомиться с работой чистильщика бассейнов. Вы сможете удалить загрязнения, заменить фильтры, продезинфицировать и обеззаразить бассейн, используя различные инструменты и методы. Кроме того, вы сможете настроить свой автомобиль для чистки бассейнов и исследовать различные места с бассейнами разных (   Читать дальше...   )Тип издания: RepackРазработчик: Rubens Games, FreeMind S.A.Жанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB94C0C70DF80BD1C2AF27FBBB1F2B517036323F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754930   (40453) от 13.10.2024
-
-Retail Company Simulator (2024) [Ru/Multi] (1.0.55) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Retail Company Simulator помещает вас в гущу розничного хаоса. Вас ждет скромный магазин - чистый холст для вашего предпринимательского духа. Заключайте контракты с ведущими брендами, заполняйте полки и преображайте пространство. Компьютер станет вашим верным помощником, инструментом для распаковки коробок, расстановки товаров и определения цен. Рынок диктует, а (   Читать дальше...   )Тип издания: RepackРазработчик: Business TycoonЖанр: Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF4303BC8F8A5DFA1587359C80D18D8D7C8BA1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755347   (40326) от 15.10.2024
 
 Game Builder Tycoon (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -58,7 +6,7 @@ Game Builder Tycoon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40326.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0.15) Repack Fit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40295.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40145.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40005.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39997.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Townscaper (2021) [Ru/Multi] (1.2.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39783.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39521.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Northend Tower Defense (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39514.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39471.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39419.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.10.04c.standalone/dlc) License GOG [Co
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39148.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38857.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Riot Operator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38761.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.9.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38751.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38728.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38547.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38536.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Harvest Moon: The Winds of Anthos (2023) [Multi] (1.42/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38467.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.1.88) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38465.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ The Lost Village (2024) [Multi] (1.2.8/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38457.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ The Political Machine 2024 (2024) [En] (1.16/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38447.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38440.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ House Builder (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38348.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38325.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:045562CC6D7878D54A59F696A5CF26CA04365F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758782   (38311) от 04.11.2024
+
+Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждет большое приключение с Barbie™: Барби и Барби вместе пытаются спасти любимую достопримечательность Малибу - общественный центр Malibu Waves! Некогда процветающий центр теперь заброшен и находится на грани закрытия. Пришло время объединить усилия, чтобы вернуть любимому общественному центру былую славу.Тип издания: SceneРазработчик: Xaloc Studios, Casual Brothers Ltd.Жанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578E1F97B9E3CFFB0FE640F0D6C2F0C0AB4E30AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758762   (38293) от 04.11.2024
+
+Alchemist: The Potion Monger (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alchemist: The Potion Monger – это смесь причудливой головоломки и элементов ролевой игры! Скорее уйдите из собственной лаборатории, чтобы отправиться навстречу исследованиям обширного мира. Так чего же вы ждете? Превратитесь в ученика, которому предстоит освоить искусство алхимии в мире, где живут необычные антропоморфные существа. Причем все они максимально похожи (   Читать дальше...   )Тип издания: SceneРазработчик: Art Games Studio S.A.Жанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CE9A3ED05C76311D2FB6F3E6CA718A9FA06DA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 654590   (825078) от 10.05.2013
+
+CrunchBang 11 Waldorf (Легкий дистрибутив) [i486, i686, amd64] (3xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Филип Ньюборо (Philip Newborough) выпустил новую сборку CrunchBang Linux 11 (облегчённый дистрибутив на основе Debian) для разработчиков. Образы CrunchBang 'Waldorf' уже доступны.
+
+Базовой системой для CrunchBang Linux 11 Waldorf служит Debian 7 Wheezy, перешедший 4 мая в положение стабильной ветки. Разработка Waldorf велась более года, и в результате, по мнению разработчика, это лучший релиз CrunchBang Linux из когда-либо выпускавшихся. Новые образы включают наиболее существенные изменения с момента последнего релиза.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502366   (824630) от 16.10.2021
+
+Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: Сформировано первое корректирующее обновление дистрибутива Debian 11, в которое включены обновления пакетов, выпущенные за два месяца с момента релиза новой ветки, и устранены недоработки в инсталляторе. Выпуск включает 75 обновлений с устранением проблем со стабильностью и 35 обновлений с устранением уязвимостей. Из изменений в Debian 11.1 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39ABAA531B40989EAFD598A7BF4B58D5AC5A855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382268   (820510) от 10.05.2020
+
+Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 108 обновлений с устранением проблем со стабильностью и 53 обновления с устранением уязвимостей.
+
+Из изменений в Debian 10.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCE52BDD819CF25BC5F341A6E79426C53463BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382265   (820505) от 10.05.2020
 
 Debian GNU/Linux 10.4.0 + nonfree Buster [amd64] 4xDVD
@@ -6,7 +88,7 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820505.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ Slackware 14.2 RC2 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818995.jpg" />
 </div>
 
 
@@ -62,7 +144,7 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [i686] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817961.jpg" />
 </div>
 
 
@@ -92,7 +174,7 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [x86-64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815577.jpg" />
 </div>
 
 
@@ -122,7 +204,7 @@ Wifislax 4.12 [Аудит безопасности, хакинг] [x86, х64] 4.
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811301.jpg" />
 </div>
 
 
@@ -149,7 +231,7 @@ Kubuntu 16.04 LTS Xenial Xerus [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809354.jpg" />
 </div>
 
 
@@ -175,7 +257,7 @@ Mageia 3 [i586, x86-64] (3xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807690.jpg" />
 </div>
 
 
@@ -203,7 +285,7 @@ Mageia 3 DVD [x86-64] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807681.jpg" />
 </div>
 
 
@@ -231,7 +313,7 @@ KaOS Linux 2016.04 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807462.jpg" />
 </div>
 
 
@@ -257,7 +339,7 @@ Mageia 3 LiveDVD (KDE + GNOME) [i586, x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807399.jpg" />
 </div>
 
 
@@ -285,7 +367,7 @@ Mageia 3 DVD [i586] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807397.jpg" />
 </div>
 
 
@@ -313,7 +395,7 @@ Tor Browser 2.3.25-8 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807285.jpg" />
 </div>
 
 
@@ -339,7 +421,7 @@ Lubuntu 16.04 LTS Xenial Xerus  (Легкий дистрибутив) [i386, amd
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807183.jpg" />
 </div>
 
 
@@ -365,7 +447,7 @@ Parted Magic 2017.09.05 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805906.jpg" />
 </div>
 
 
@@ -383,6 +465,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884881   (805323) от 04.04.2015
+
+JonDo 0.9.76 [анонимный доступ в сети] [x86] DVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_805323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.76.  Устранены выявленные баги, обновлена пакетная база. Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. Firefox (Firefox+JonDoFox) предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A285D831FAB82072543E70E146FCD57726EE228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506101   (801356) от 29.10.2021
 
 Ctlos Linux Xfce 2.2.0 [x86-64] 1xDVD
@@ -391,7 +499,7 @@ Ctlos Linux Xfce 2.2.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801356.jpg" />
 </div>
 
 
@@ -419,7 +527,7 @@ Red OS 7.3 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801312.jpg" />
 </div>
 
 
@@ -448,7 +556,7 @@ Sabayon 16.04 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795445.jpg" />
 </div>
 
 
@@ -476,7 +584,7 @@ Antergos 18.12 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794862.jpg" />
 </div>
 
 
@@ -502,7 +610,7 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2018) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794853.jpg" />
 </div>
 
 
@@ -528,7 +636,7 @@ Ubuntu*Pack 18.04 LXDE (Lubuntu) (декабрь 2018) [i386 + amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794787.jpg" />
 </div>
 
 
@@ -554,7 +662,7 @@ Parted Magic 2018.01.08 [i686_amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794532.jpg" />
 </div>
 
 
@@ -580,7 +688,7 @@ Sabayon 16.05 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794486.jpg" />
 </div>
 
 
@@ -593,111 +701,6 @@ Sabayon 16.05 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:131C6D0221EA26E276FF478074626B45B32A00C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012724   (793264) от 01.05.2016
-
-Parted Magic 2016-04-26 [x86, x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic - дистрибутив на основе Linux, предназначенный для различных дисковых операций: очистка, восстановление, создание файловой системы, разбиение на разделы, клонирование, резервное копирование. Так же в дистрибутиве содержатся утилиты тестирования и диагностирования.
-Система является Live-версией, не требующий инсталляции. Загрузка возможна с CD, USB или (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B781F01873A995A65B134695687D197384D66325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386655   (793168) от 30.05.2020
-
-BlackArch Linux 2020.06.01 [Хакинг, аудит, безопасность] [x86_x64] 1xDVD + 1xNetinstallCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опубликованы новые сборки BlackArch Linux, специализированного дистрибутива для исследований в области безопасности и изучения защищённости систем. Дистрибутив построен на пакетной базе Arch Linux и включает около 2300 связанных с безопасностью утилит. Поддерживаемый проектом репозиторий пакетов совместим с Arch Linux и может использоваться в обычных установках Arch (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BF53E677C7E06DA7E8C79CB50DFAD14D1B12C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274648   (790875) от 10.01.2019
-
-Parted Magic 2019.01.03 [i686/amd64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0DC3EED6F02FD94BAC3D761F727B64065FAA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510392   (790143) от 18.11.2021
-
-Kali Linux 2021.3 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит безопасности, хакинг.
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790143.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 сентября 2021 состоялся релиз нового дистрибутива Kali Linux 2021.3, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9A9978B62D5E9A1C943F52021C5539EE2FC7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

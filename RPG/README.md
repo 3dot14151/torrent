@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1876863   (1073559) от 17.06.2026
+
+Nitro Gen Omega (2026) [Ru/Multi] (1.2.1) Repack FitGirl [Supporter Bundle]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество проиграло войну. Теперь пустоши заняты мятежным искусственным интеллектом и боевыми машинами, выслеживающими добычу. Вы и ваша команда наёмников боретесь за выживание, принимая контракты от последних оставшихся городов, построенных высоко над пустошью. Летайте по огромному открытому миру, усеянному поселениями, логовами машин, заданиями и неожиданными (   Читать дальше...   )Тип издания: RepackРазработчик: DESTINYbitЖанр: Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Португальский (Бразилия), Японский и другиеЯзык интерфейса: Русский, Английский, Португальский (Бразилия), Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B1E81CF582FCA840136329493DF3AE5FD5221E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876527   (1073514) от 
+
+Lords of the Fallen (2023) [Ru/Multi] (2.5.460/dlc) Repack seleZen [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lords of the Fallen приглашает игроков в мрачный мир фэнтези, где вы станете одним из легендарных Темных крестоносцев и будете бороться против бога-демона Адира. Lords of the Fallen - это эпическое приключение на огромной территории, которая в пять раз больше мира оригинальной игры. Адир терзал страну много веков, и теперь его нужно свергнуть снова. Пройдите по миру (   Читать дальше...   )Тип издания: RepackРазработчик: HEXWORKSЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D71CA6BCF394F2D96C603082AB26A5BDB2B5CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875640   (1072727) от 
 
 STARDUST: Wish of Witch (2026) [Ru/Multi] (1.0) Scene Tenoke
@@ -7,7 +59,7 @@ STARDUST: Wish of Witch (2026) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072727.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Romancing SaGa 2 (2017) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072678.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Rainbow Legends (2026) [Ru/Multi] (1.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072440.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ SaGa Frontier Remastered (2021) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071042.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Soulstone Survivors (2025) [Ru/Multi] (1.5c) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069737.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Fight Life Vanguard (2026) [Ru/Multi] (1.2.0.655) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069581.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Valor of Man (2026) [Multi] (1.1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069320.jpg" />
 </div>
 
 
@@ -181,6 +233,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868674   (1068144) от 01.05.2026
+
+Mass Effect (2008) [Ru/En] (1.2/dlc) Repack FitGirl
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1068144.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2148 году на Марсе были впервые обнаружены артефакты древней цивилизации. Десятилетия исследований спустя земные ученые смогли наконец полностью понять технологию инопланетян, что обеспечило серьёзный прорыв в технологическом развитии нашей планеты - пространство и время покорились человеку, стали возможны полёты к дальним звёздным системам. Человечество вышло (   Читать дальше...   )Тип издания: RepackРазработчик: BioWareЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6657BA6857E9A68B7FB333CDA9F5531A4DE0AC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868763   (1067743) от 02.05.2026
 
 Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack FitGirl [Super Deluxe Edition]
@@ -189,7 +267,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack FitGirl [Super Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067743.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Mass Effect 3 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067709.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack FitGirl [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067707.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Mass Effect 2 (2021) [Ru/Multi] (2.0.0.48602) Repack FitGirl [Legendary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067693.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Mass Effect (2021) [Ru/Multi] (2.0.0.48602/dlc) Repack dixen18 [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067682.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.06) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067159.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Look Outside (2025) [En] (2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067087.jpg" />
 </div>
 
 
@@ -363,6 +441,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867463   (1066954) от 25.04.2026
+
+Vampire: The Masquerade Redemption (2000) [Ru/En] (1.1) Repack R.G. ReCoding
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1066954.jpg" />
+</div>
+
+
+###  Подробнее
+
+До своего падения вы возглавляли крестовый поход против нечисти. Теперь вы сами стали вампиром – тем злом, с которым сражались. В мире Тьмы вам придется столкнуться со своим заклятым врагом – могущественным вампиром Вукодлаком. Ваше злобное противостояние начнется в средневековой Европе и не утихнет до наших дней. Цель преследования и вечной схватки – уничтожить (   Читать дальше...   )Тип издания: RepackРазработчик: Nihilistic SoftwareЖанр: Ролевая игра, Экшны, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D769DC66655F4C021F4B2718D82D1434209711B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866913   (1066484) от 22.04.2026
 
 Rise of the Ronin (2024) [Ru/Multi] (1.09.0.5/dlc) Repack HardwareMining
@@ -371,7 +475,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.5/dlc) Repack HardwareMining
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066484.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Weird RPG 2 (2026) [Ru/Multi] (1.0.37) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065699.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064762.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Ai Limit (2025) [Ru/Multi] (Build 22521250/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064424.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ tawarerumono: ZAN 2 (2026) [Multi] (22071867/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064302.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Hard
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063765.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326) Repack dixen18 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063602.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Across the Obelisk (2021) [Ru/Multi] (1.7.5/dlc) Repack Let'sРlay [Complete Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062933.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Across the Obelisk - это кооперативный рогалик с кар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4960C1F6FCD09CB7DF1AF14C478C8BDC8B3469C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861741   (1062884) от 27.03.2026
-
-Lost Soul Aside (2025) [Ru/Multi] (1.101/dlc) Repack HardwareMining [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в эпическое путешествие и спасите свою младшую сестру - а также все человечество - от загадочных межпространственных захватчиков из других измерений в игре Lost Soul Aside. Бросьте вызов грозным врагам и боссам-исполинам в этом невероятно стильном ролевом боевике, сочетая разные виды оружия и зрелищные комбо-атаки в яростных динамичных сражениях. Осваивайте (   Читать дальше...   )Тип издания: RepackРазработчик: Ultizero GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Японский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E6F473D8D4F30C1CC1D57DAE88ED8A9C78B309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861883   (1062765) от 28.03.2026
-
-Last Epoch (2019) [Ru/Multi] (1.4.0.1/dlc) Repack Let'sРlay [Ultimate Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062765.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Last Epoch вас ждут путешествия во времени, захватывающие подземелья, увлекательная настройка персонажей и бесконечные возможности повторного прохождения. Эта игра в жанре «ролевой экшен» понравится как опытным игрокам, так и новичкам. Путешествуйте в прошлое мира Этерры, сталкиваясь с темными империями, гневными богами и девственными землями, найдите способ (   Читать дальше...   )Тип издания: RepackРазработчик: Eleventh Hour GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE18365FFA08EB918982F126437BB90C8BA3564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861362   (1062541) от 25.03.2026
-
-Solasta: Crown of the Magister (2020) [Ru/Multi] (1.5.97/dlc) Repack Let'sРlay [Complete Collection]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062541.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Solasta вы управляете четырьмя героями, каждый из которых владеет набором уникальных навыков, призванных дополнять друг друга. Каждый герой делится своими мыслями о происходящем во время приключeния, делая каждый свой выбор и каждое действие частью истории. Игроки создают своих персонажей так же, как и в настольной игре, выбирая расу, класс, характер и распределяя (   Читать дальше...   )Тип издания: RepackРазработчик: Tactical AdventuresЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DCDEA7709AE4B4D34D954C99688BA7672672B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861115   (1062319) от 24.03.2026
-
-Wild West Legacy (2023) [Ru/Multi] (1.0.9747/dlc) Repack Other s [Digital Supporter Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте открытый мир вымышленного американского Среднего Запада и выживайте в его суровых условиях. Убедите других присоединиться к вам и управляйте постоянно растущими поселениями. Постройте дом с фермой и станьте легендой в Wild West Legacy. Подчините суровую природу. Выживите, противостоя стихиям. Постройте дом, организуйте хозяйство и убедите других поселенцев (   Читать дальше...   )Тип издания: RepackРазработчик: Moon Punch StudioЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4596AA2C47E2E20121BFC9755C1FED06195DB3D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

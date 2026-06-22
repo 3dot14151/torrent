@@ -1,4 +1,83 @@
 https://t.me/izofen
+###  Публикация: 1876830   (1073598) от 17.06.2026
+
+Sukeban Deka | Delinquent Detective | Виновный детектив [1991, OVA, 2 из 2] DVDRip 478p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малолетняя преступница Саки Асамия получает шанс выйти на свободу из тюрьмы для несовершеннолетних. Она не очень-то хочет покидать ставшую уже родной колонию, но директор заставляет её стать полицейским под прикрытием взамен на отмену смертного приговора для матери Саки. Теперь девушке предстоит раскрыть загадочные смерти учеников её школы, за которыми, возможно, (   Читать дальше...   )Производство: Sido Limited / シド・リミテッドЖанр: приключения, детектив, триллерРежиссер: Хирота ТакэсиПеревод: p1nokkioЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 2 эп. по 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EFA9ABB696D841B5792B3E665675DD535F58F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876832   (1073596) от 17.06.2026
+
+GTO | Great Teacher Onizuka | Крутой учитель Онидзука [1999, TV, 43 из 43] DVDRip 576p 10-bit raw+rus+ukr
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онидзука Эйкити («22 года, холост», - как он сам любит представляться) - настоящий ужас на двух колесах, член нагоняющей ужас на горожан банды мотоциклистов, решает переквалифицироваться в… школьного учителя. Ведь в любом учебном заведении полным-полно аппетитных старшеклассниц в коротеньких юбочках! Но чем глубже примеривший необычную роль хулиган окунается в перипетии (   Читать дальше...   )Производство: Studio Pierrot / studioぴえろЖанр: повседневность, комедия, драмаРежиссер: Абэ НориюкиПеревод: GTO TeamЯзык озвучки: японский, русский, украинскийСубтитры: русскиеПродолжительность: 1 эп. на 50 мин. + 42 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:740EF9011024A287DB92219C2518D96DA1A55F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876268   (1073125) от 
+
+Choujuu Densetsu Gestalt | Гештальт [1997, OVA, 2 из 2] DVDRip 480p HEVC raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073125.jpg" />
+</div>
+
+
+###  Подробнее
+
+История вращается вокруг таинственного и опасного острова G. Давным-давно могущественный бог Гештальт был изгнан на землю и нашёл пристанище на этом острове. Произносить его имя запрещено — люди настолько боялись низвергнутого бога, что считали его имя проклятием.
+Отец Оливье — священник, покинувший свой орден и отправившийся на остров G, чтобы выяснить правду, скрывающуюся (   Читать дальше...   )Производство: Tokyo Kids / 東京キッズЖанр: приключения, комедия, фэнтезиРежиссер: Ямасаки ОсамуПеревод: Сергей 'Nomad' РыгинЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 2 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9674A132826790037F7B4E141F4F615C0FB1FB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875179   (1072391) от 07.06.2026
 
 Genocyber | Дженосайвер | Генокибер [1994, OVA, 5 из 5] BDRip 576p HEVC 10-bit raw+rus+eng
@@ -7,7 +86,7 @@ Genocyber | Дженосайвер | Генокибер [1994, OVA, 5 из 5] BD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072391.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Vampire Hunter: The Animated Series | Night Warriors: Darkstalkers' Revenge | Н
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072092.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ Den'ei Shoujo Video Girl Ai | Video Girl Ai | Ай - девyшка с кассе
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072084.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071701.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Blue Seed Beyond | Blue Seed 2: Operation Mitama | Голубое семя 2: О
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071393.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Blue Seed | Голубое семя [1994, TV, 26 + 14] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071392.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ Monster | Монстр [2004, TV, 74 из 74] DVDRip 720p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071371.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Kyoushoku Soukou Guyver (2005) | Guyver: The Bioboosted Armor | Гайвер: Б
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070782.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ Mahou Shoujo ni Akogarete | Становясь волшебницей [2024, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070001.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ Elfen Lied | Эльфийская песнь [2004, TV 13 эп. + SP] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069102.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ School Days | Школьные дни [2007, TV 12 эп. + OVA 1-2] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068956.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ Hotaru no Haka / Grave of the Fireflies / Могила светлячков [198
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068810.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de | Бо�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066803.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ Lupin the IIIrd the Movie: Fujimi no Ketsuzoku | Люпен III: Бессмер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066797.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ Kuro Neko to Majo no Kyoushitsu | Чёрная кошка и класс ведь
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066243.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ Ichijouma Mankitsu Gurashi! | Жизнь в манга-кафе на одном 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066201.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065645.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика зака�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065356.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ Tsue to Tsurugi no Wistoria TV-2 | Меч и жезл Вистории [ТВ-2] 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065285.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065122.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065054.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 3rd Season | Orejihanki |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064775.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064723.jpg" />
 </div>
 
 
@@ -594,85 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62C3BA11917A4D6AC5E406DAD54FE8DFE474F839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864398   (1064701) от 17.04.2026
-
-Isekai Nonbiri Nouka 2 | Фермерская жизнь в ином мире [ТВ-2] | Farming Life in Another World 2 [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории.
-Бывший работник компании Мачио Хираку с 30-и лет валялся в больнице, не в силах справиться с болезнью. Но в 39 лет над ним смилостливился Бог из другого мира: вылечил, омолодил, дал кучу перков (Мачио решил не болеть, жить в спокойном месте, знать местные языки и быть фермером). Ну а в довершение Бог выдал Мачио «Универсальный фермерский инструмент», (   Читать дальше...   )Производство: Япония, студия Zero-GЖанр: повседневность, фэнтезиРежиссер: Курая РёитиЯзык озвучки: Русский закадровый (Red Head Sound), (Flowers Media)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3B7768D333B00A089EF6D4B8598BACEA453FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864312   (1064596) от 23.04.2026
-
-Я подружился со второй самой симпатичной девушкой в классе | Class de 2 Banme ni Kawaii Onnanoko to Tomodachi ni Natta | I Made Friends with the Second Prettiest Girl in My Class [2026, TV, 1 из 12 ...
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маэхара — парень вовсе не нелюдимый, скорее даже наоборот, да вот только друзей завести у него никак не получалось. К счастью, после перевода в новую школу ситуация изменилась: у него наконец появился человек, разделяющий его интересы! Правда, этим единомышленником оказалась мало того что девушка, да ещё и какая-то странная: она внезапно отменила планы с лучшей подругой, (   Читать дальше...   )Производство: Япония / Студия ConnectЖанр: Комедия, романтикаРежиссер: Татибана ХидэкиЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDABD8F7034627D9CD2108AC598D3BE01ED4BFC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864212   (1064475) от 08.04.2026
-
-Добро пожаловать в ад, Ирума [ТВ-4] | Mairimashita! Iruma-kun (2026) | Welcome to Demon School! Iruma-kun (2026) [2026, TV, 1 из 24] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирума — самый обыкновенный мальчишка: он любит веселиться и легко заводит новых друзей. Он бы и рад наслаждаться привычными школьными буднями, да только учебное заведение ему досталось специфическое — исключительно для демонов! Несмотря на то, что Ирума человек, он всё равно стал главной звездой и любимцем класса. Впрочем, оно и неудивительно, когда самый могущественный (   Читать дальше...   )Производство: Япония / Студия BN PicturesЖанр: комедия, фэнтезиРежиссер: Мориваки МакотоЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6BBB57DB5B2701BD2B0505DA369A5DF0BFFC45
 ```
 
 https://mybot314.ru/tekegram_catalog/

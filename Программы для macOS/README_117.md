@@ -1,3 +1,114 @@
+###  Публикация: 850697   (275850) от 16.12.2014
+
+Adobe Photoshop Lightroom 5.7.1 [Multi+Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Photoshop Lightroom предназначено для профессиональных фотографов и любителей и позволяющее быстро импортировать и обрабатывать изображения, а также управлять библиотекой фотографий.
+
+В пятой версии Lightroom компания разработала новые функции, такие как Smart Preview и Advanced Healing Brush, которые расширяют возможности полнофункциональной версии Photoshop (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 15 декабря 2014Разработчик: Adobe Systems IncПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Немецкий, Французский, Итальянский и др. (Русский - русификатор)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8291ED3979AFA70DBFD6696A325260C932FADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188060   (275747) от 01.12.2017
+
+Movavi Video Editor 5 Plus 5.1.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этой программе есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов.Тип издания: macOS SoftwareРелиз состоялся: 21.11.2107Разработчик: MovaviПоддерживаемая ОС: Mac OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B963223F9B9A69B042D8A56B9C2F061496911F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083305   (274973) от 15.12.2016
+
+MarkdownD 3.7.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274973.jpg" />
+</div>
+
+
+###  Подробнее
+
+MarkdownD - полнофункциональный редактор Markdown для OS X.
+Удобный редактор Markdown, что позволяет вставлять теги форматирования в свои документы с помощью легко доступных кнопок.
+
+MarkdownD предлагает возможность форматирования текстовых документов с помощью Markdown тегов без необходимости ручного ввода соответствующих тегов или беспокоиться о правильном синтаксисе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2016Разработчик: Romanysoft LABПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BECB39B0E6BDD23FA7D6E911FBEDFD79C78900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337348   (274895) от 10.11.2019
+
+VideoboxPro 1.5.4 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274895.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoboxPro позволяет Вам быстро и легко закачивать Flash-видео с большинства популярных видеосайтов в интернете. Так же программа позволяет конвертировать загруженные видео-ролики в родной формат Quicktime, тем самым позволяя просматривать их на Вашем Маке, iPod, iPhone или iTunes.
+
+Кроме QuickTime, VideoBox также поддерживает и другие форматы видео, в частности, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tasty appsПоддерживаемая ОС: macOS 10.9.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CDB1D82F3F7C153D1F336BAA29F595A76CDF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337332   (274889) от 10.11.2019
 
 VideoDuke 1.4 (250) [En]
@@ -6,7 +117,7 @@ VideoDuke 1.4 (250) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274889.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ MacBreakZ 5.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274850.jpg" />
 </div>
 
 
@@ -60,7 +171,7 @@ Themes for Keynote 5.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274844.jpg" />
 </div>
 
 
@@ -88,7 +199,7 @@ Templates Bundle for iWork 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274843.jpg" />
 </div>
 
 
@@ -117,7 +228,7 @@ Smart Converter Pro 2 v2.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274692.jpg" />
 </div>
 
 
@@ -144,7 +255,7 @@ EXIF Cleaner PRO 2.2.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274652.jpg" />
 </div>
 
 
@@ -170,7 +281,7 @@ AppLocker Pro (Password lock apps) 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274626.jpg" />
 </div>
 
 
@@ -198,7 +309,7 @@ WhatSize 6.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274524.jpg" />
 </div>
 
 
@@ -224,7 +335,7 @@ Boinx FotoMagico 5.5.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274509.jpg" />
 </div>
 
 
@@ -252,7 +363,7 @@ Cloud Outliner Pro 2 v2.5.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274196.jpg" />
 </div>
 
 
@@ -278,7 +389,7 @@ MindNode 5 v5.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274145.jpg" />
 </div>
 
 
@@ -306,7 +417,7 @@ Digital Sentry 1.4.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274140.jpg" />
 </div>
 
 
@@ -332,7 +443,7 @@ PDFelement 6 Pro - PDF & OCR v6.7.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273998.jpg" />
 </div>
 
 
@@ -358,7 +469,7 @@ Wondershare MobileTrans 6.9.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273912.jpg" />
 </div>
 
 
@@ -386,7 +497,7 @@ TinkerTool System 5 v5.98 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273857.jpg" />
 </div>
 
 
@@ -414,7 +525,7 @@ Adobe InCopy 2020 v15.0.0.155 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273711.jpg" />
 </div>
 
 
@@ -442,7 +553,7 @@ MetaMovie 2.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273693.jpg" />
 </div>
 
 
@@ -470,7 +581,7 @@ Image2Icon Pro 2.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273692.jpg" />
 </div>
 
 
@@ -496,7 +607,7 @@ Debit & Credit - Учет финансов 2.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273510.jpg" />
 </div>
 
 
@@ -522,7 +633,7 @@ Adobe InDesign 2020 v15.0.0.155 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273358.jpg" />
 </div>
 
 
@@ -548,7 +659,7 @@ Templates for Excel by GN 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273159.jpg" />
 </div>
 
 
@@ -574,7 +685,7 @@ Complete Anatomy 2018 + Courses 3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273155.jpg" />
 </div>
 
 
@@ -585,112 +696,6 @@ Complete Anatomy - подробнейший атлас анатомии чело
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BEAC342A1E3A99FA8E4E08F67EC8C8AF4DA01FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265862   (273038) от 29.11.2018
-
-SILKYPIX Developer Studio 8E v8.1.27.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273038.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio 8 имеет тот же механизм обработки изображений, что и более высокая версия Pro 8. Этот движок обработки изображений обеспечивает высокое разрешение с помощью «Natural sharp» и улучшает градацию при подсветке. Поэтому этот продукт достиг высокого качества изображения, такого как высокая цветоделение и превосходное шумоподавление. Кроме того, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2018Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52739422587942876916D8A85D32B057605F126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265729   (272973) от 29.11.2018
-
-AMS Ringtone Maker 2.0.0 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272973.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMS Ringtone Maker - самая быстрая, простая и мощная утилита для Mac для создания мелодий. Наслаждайтесь ими на устройствах iPhone, iPad, Apple TV и Android. Создайте свой собственный рингтон своей любимой музыки, не покупая.Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2018Разработчик: AMSПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD6B7C9E2E7560C8AB600CBCF10EAF83303A872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083807   (272486) от 17.12.2016
-
-Boardfish 1.0.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boardfish представляет собой приложение для раскадровки. Профессиональное решение для создания покадровой истории в производстве фильмов и не только.Тип издания: macOS SoftwareРелиз состоялся: 10 декабря 2016Разработчик: Mekajiki inc.Поддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A6670134DDAE5105E07237FBFA23B82A628A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189059   (272224) от 04.12.2017
-
-NightTone (Night light filter) 2.3.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272224.jpg" />
-</div>
-
-
-###  Подробнее
-
-NightTone делает ваш экран более удобным, приятным и здоровым, переключая цвета вашего дисплея на более теплую, приятную для глаз палитру. Это заставляет вас спать и чувствовать себя лучше. Он идеально подходит для здоровья каждого человека, особенно для людей с проблемами визуального восприятия, легкой чувствительности или дискомфорта.
-
-Синий свет монитора обманывает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2017Разработчик: Denk AlexandruПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B422CE3515194BF585FC76F360469788FA53F8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

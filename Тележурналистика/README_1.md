@@ -1,3 +1,111 @@
+###  Публикация: 1853703   (1056608) от 14.02.2026
+
+Живая еда с Сергеем Малозёмовым (14.02.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как еда влияет на фертильность? Команда программы разобралась в продуктах-афродизиаках и тех, которые помогут стать родителями.
+Как приготовить кисель дома? Чем готовые кисели из магазина отличаются от домашних и правда ли, что кисель из пакетика полезен?
+Может ли термокружка выделять ядовитые вещества?
+Американские ученые пришли к выводу, что кофе, какао и виноград (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E755B4F0B93E6777CB47FD0573D1835FA0DB2C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853256   (1056491) от 13.02.2026
+
+Королева шахмат / Queen of Chess (2026) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056491.jpg" />
+</div>
+
+
+###  Подробнее
+
+О талантливой шахматистке Юдит Полгар, которая борется со скепсисом, сексизмом, а также с чемпионом Гарри Каспаровым, стремясь войти в плеяду лучших.Производство: США / Moxie FilmsЖанр: документальный, биографияРежиссер: Рори КеннедиУчастники: Юдит ПолгарПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 01:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09971D8E92C2798CCBCBA2C1739A501577FCD536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853257   (1056490) от 13.02.2026
+
+Дело Люси Летби / The Investigation of Lucy Letby (2026) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые публикуемые кадры и новые свидетельства по делу Люси Летби, вызвавшему полемику: акушерка осуждена за причинение тяжкого вреда младенцам, приведшего к их гибели.Производство: Великобритания / ITN ProductionsЖанр: документальный, криминалРежиссер: Dominic SivyerУчастники: Lucy Letby, Danielle Stonier, Sarah, John Gibbs, Paul Hughes, Simon Blackwell, Dewi Evans, Maisie, Kim Pilling, Mark McDonaldПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 01:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B54E1F8DDF909B315D462FDFA180AD4AE9D199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852448   (1056027) от 07.02.2026
+
+Живая еда с Сергеем Малозёмовым (07.02.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сало: действительно ли его сочетание с алкоголем может довести до больницы, почему ханты едят олений жир с сахаром, а итальянцы выдерживают его в мраморных ваннах? Правда ли, что кусочек сала помогает в похудении и как найти хорошее сало на рынке?
+ Ред-флаги в общении с фитнес-тренерами! Команда программы вместе с диетологом и спортивным физиологом проверила самые (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A6DB92614C7525530E5F8766B5E283E2173796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852514   (1055985) от 07.02.2026
 
 Следствие вели... (07.02.2026) WEBRip [H.264/1080p]
@@ -6,7 +114,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055985.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055949.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055331.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054989.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054748.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053875.jpg" />
 </div>
 
 
@@ -172,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053618.jpg" />
 </div>
 
 
@@ -198,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051727.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051725.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050315.jpg" />
 </div>
 
 
@@ -278,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050263.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050156.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049550.jpg" />
 </div>
 
 
@@ -359,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049396.jpg" />
 </div>
 
 
@@ -387,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049328.jpg" />
 </div>
 
 
@@ -413,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048473.jpg" />
 </div>
 
 
@@ -441,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048335.jpg" />
 </div>
 
 
@@ -467,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048255.jpg" />
 </div>
 
 
@@ -494,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047542.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047531.jpg" />
 </div>
 
 
@@ -548,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047348.jpg" />
 </div>
 
 
@@ -575,7 +683,7 @@ NG. Лос-Анджелес 92. Беспорядки / LA 92 (2017) WEB-DL [H.26
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047167.jpg" />
 </div>
 
 
@@ -586,113 +694,6 @@ NG. Лос-Анджелес 92. Беспорядки / LA 92 (2017) WEB-DL [H.26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D771BAF3BC4A1EEA98E9558DDF77960A764630FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839860   (1046897) от 01.12.2025
-
-Убийство в море: Загадка семьи Карман / The Carman Family Deaths (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенью 2016 года мать и сын Карманы отправились на ночную рыбалку в Род-Айленде на своей лодке. Подруга Линды, матери Натана, не смогла с ней связаться и обратилась в полицию. Береговая охрана начала поиски, но безуспешно. Через восемь дней грузовое судно случайно заметило Натана, который в одиночку дрейфовал на спасательном плоту в открытом море. Фильм включает (   Читать дальше...   )Производство: США / Loki Films, Wired StudiosЖанр: документальный, криминал, триллерРежиссер: Йон МотскинУчастники: Нэйтан Карман, Мартин Миннелли, Чарльз Лапенна, John Chakalos, Evan Lubofsky, Mike IozziПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956BF02F0864977C1513580A6EC611E0C180EC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839708   (1046839) от 30.11.2025
-
-Чудо техники с Сергеем Малозёмовым (30.11.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые маски кибермошенников: курьеры, соседи, налоговая и даже друзья — как распознать угрозу и защитить свой смартфон?
- Мотоцикл без шлема: разработчики из Германии создали трехколесную конструкцию с креслом и крышей, соединив компактность скутера и защищенность автомобиля.
- Идеи героев фантастики Жюля Верна не умерли: в Японии планируют начать строить город на воде. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD55293CE8B8A47334605323961B8C0CB72E600D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839780   (1046783) от 30.11.2025
-
-Следствие вели... (30.11.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046783.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Уж замуж — невтерпеж». 1973 год, Тамбовская область, Рассказово. Убита пенсионерка, а вскоре еще одна. Что скрывала русская печка в доме погибшей? Неужели преступником была женщина? И какую роль в этом деле сыграли пальто и часы с кукушкой?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF36E8B013FEB13B5F42F089766D2E5B2228D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839552   (1046622) от 29.11.2025
-
-Живая еда с Сергеем Малозёмовым (29.11.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приправы — для картофеля, морковки по-корейски, шашлыка: как готовят миксы специй, правда ли, что они универсальны и подходят для разных блюд и безопасно ли приправлять еду всевозможными смесями? Команда «Живой еды» проверила упаковки специй из магазинов и с рынка — результаты экспертизы вас шокируют!
-Правда ли, что семена льна содержат опасный яд, стоит ли отказываться (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0225D1A4DE6AF0197D398EA3D84445B25C7E28B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

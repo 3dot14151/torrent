@@ -1,3 +1,59 @@
+###  Публикация: 1421758   (317662) от 05.11.2020
+
+Memory Clean 3 v1.0.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memory Clean - приложение для оптимизации памяти вашего Mac и лучше всего использовать утилиту после того как вы закончили интенсивное использование памяти (RAM) в приложении или игре.
+
+У каждого пользователя найдутся «тяжелые» приложения для работы которых не помешает небольшая уборка оперативной памяти. Даже работа с браузером порой может отнять приличное количество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54EDE925546B9574C89DCA6B8EC9A88DAC333F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421610   (317648) от 05.11.2020
+
+Bootstrap Studio 5.4.3 Lifetime Edition [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
+Он поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
+Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B71E0E573610B52725CD970409AC0DBED88C461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421641   (317573) от 05.11.2020
 
 Wondershare Recoverit 9.0.8.5 [En]
@@ -6,7 +62,7 @@ Wondershare Recoverit 9.0.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317573.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ Living Earth - Weather & Clock 1.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317570.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ TechSmith Snagit 2021.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317564.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ QuarkXPress 2020 16.1.2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317485.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ PDF Expert 2.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317411.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ PDF Expert 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317302.jpg" />
 </div>
 
 
@@ -169,7 +225,7 @@ Tower 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317195.jpg" />
 </div>
 
 
@@ -196,7 +252,7 @@ Comic Life 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317193.jpg" />
 </div>
 
 
@@ -222,7 +278,7 @@ Hides 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317167.jpg" />
 </div>
 
 
@@ -248,7 +304,7 @@ iExplorer 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317155.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ Carbon Copy Cloner 5.0.4 (5163) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317141.jpg" />
 </div>
 
 
@@ -305,7 +361,7 @@ Leaf - RSS News Reader 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316951.jpg" />
 </div>
 
 
@@ -334,7 +390,7 @@ DiskCatalogMaker 7.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316849.jpg" />
 </div>
 
 
@@ -361,7 +417,7 @@ Tidy Up 5 v5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316847.jpg" />
 </div>
 
 
@@ -387,7 +443,7 @@ TurboMosaic Pro 3.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316846.jpg" />
 </div>
 
 
@@ -413,7 +469,7 @@ Acorn 6 v6.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316845.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ Downie 3 v3.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316844.jpg" />
 </div>
 
 
@@ -469,7 +525,7 @@ DupeZap 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316843.jpg" />
 </div>
 
 
@@ -498,7 +554,7 @@ iTubeDownloader 6 v6.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316842.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ Vectoraster 7 v7.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316840.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ PrefEdit 4.3 (Build 191018) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316839.jpg" />
 </div>
 
 
@@ -581,7 +637,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.14.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316838.jpg" />
 </div>
 
 
@@ -609,7 +665,7 @@ JixiPix Chromatic Edges 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316837.jpg" />
 </div>
 
 
@@ -636,7 +692,7 @@ Geekbench 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316836.jpg" />
 </div>
 
 
@@ -650,58 +706,6 @@ Geekbench 5 предлагает обновленный интерфейс и р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C24F416B2AB5406CAF3E3F6633365161C35D9DFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332108   (316678) от 19.10.2019
-
-System Monitor 2.6  (build 191015)[En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316678.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Monitor - это приложение для панели меню macOS, предназначенное для незаметного информирования вас о деятельности вашего компьютера. Вы можете получать современные технические данные в любое время, такие как загрузка процесса, температура процессора, потребление основной памяти, пространство для хранения, активность диска, связь на сетевых интерфейсах и т. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2019Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02B7C9C414DF946B3FAA6CE5DBBCFC0AC231F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332030   (316677) от 19.10.2019
-
-Adguard 2.1.5 (626) nightly (CL - 1.5.84) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1209E0F88CE0D3D19AD886A7C594CBA2FFEB1EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

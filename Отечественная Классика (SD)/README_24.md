@@ -1,3 +1,56 @@
+###  Публикация: 345667   (648953) от 03.06.2011
+
+Ищите Женщину (1982) DVDRip (Реставрация "КП")
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648953.jpg" />
+</div>
+
+
+###  Подробнее
+
+- "При хорошей женщине и мужчина может стать человеком..."Жанр: Иронический детективРежиссер: Алла СуриковаАктеры: Софико Чиаурели, Леонид Куравлев, Александр Абдулов, Елена Соловей, Леонид Ярмольник, Сергей Юрский,
+Людмила Дмитриева, Елена Укращенок, Владимир Басов, Екатерина Васильева.Перевод: ОригинальныйПродолжительность: 02:25:34 (двухсерийный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EE0FF253AB6ADB80BC1F39745BB4E6027779FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318893   (647001) от 07.06.2015
+
+Метель (1964) DVDRip (реставрация КП)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДрамаРежиссер: Владимир БасовАктеры: Валентина Титова, Георгий Мартынюк, Олег Видов, Мария Пастухова, Сергей Папов, Нина Вильвовская, Николай Прокопович, Николай Бурляев, Сергей Плотников, Яков СмоленскийПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F4B2659DC28FAB2D34FAEC97298D035D269F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905160   (646892) от 07.06.2015
 
 Не может быть! (1975) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646892.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646545.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646319.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645412.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645020.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644657.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643174.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642957.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642582.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641973.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641812.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641390.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640632.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638683.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_638100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638100.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637470.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637157.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636784.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636319.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635916.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635412.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635028.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631870.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631749.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C1361810B9F3D329A3F3176A89D01467A751068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320259   (631518) от 03.06.2018
-
-Сережа (1960) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько историй из жизни очень маленького мальчика. Шестилетний Сережа постигает мир и проявляет себя при этом как самостоятельная личность - нежная, лиричная, мужественная и...очень одинокая. Но вот мама Сережи вышла замуж - и теперь у мальчика появился новый папа и лучший друг Коростылев, который помогает ему решать маленькие, но очень важные проблемы.Жанр: МелодрамаРежиссер: Георгий Данелия, Игорь ТаланкинАктеры: Боря Бархатов, Серёжа Метелицын, Сергей Бондарчук, Ирина Скобцева, Любовь Соколова, Василий Меркурьев, Павел Винник, Евгений КудряшовПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E016598C02FBC1E4C97AEECFB37542C2CC9D9127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682113   (630431) от 23.07.2013
-
-В городе С. (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630431.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести Антона Павловича Чехова "Ионыч". Фильм повествует о превращении молодого честолюбивого, полного планов и светлых мечтаний земского врача Старцева, поселившегося в губернском городе С, в скучного и уставшего от собственного благополучия доктора Ионыча.Жанр: ДрамаРежиссер: Иосиф ХейфицАктеры: Анатолий Папанов, Нонна Терентьева, Андрей Попов, Ольга Аросева, Игорь Горбачев, Лидия Штыкан, Алексей Баталов, Григорий Шпигель, Юрий Медведев, Леонид Быков, Георгий Юматов, Любовь Малиновская, Ия Саввина, Евгений Шутов, Степан Крылов, Рина Зелёная, Александр Борисов, Ольга Гобзева, Александр Орлов, Валентина Пугачева, Николай Сергеев, Алексей Смирнов, Роман Ткачук, (   Читать дальше...   )Продолжительность: : 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA9AA4C86657E5CCBB67AE1F5AB5773414BC9A28
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1101065   (897835) от 05.02.2017
+
+Лев Давыдычев | Жизнь и страдания Ивана Семенова, второклассника и второгодника (2014) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Жизнь и страдания Ивана Семенова, второклассника и второгодника» - это веселая история о неутомимом выдумщике, отчаянном фантазёре и мечтателе, второкласснике и второгоднике Иване Семёнове, который не любит учиться, но с которым постоянно случаются всевозможные происшествия и приключения.Жанр: Детская литератураПродолжительность: 02:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E09F341A05CB8EEB4FD631BF5CCA1309DB46414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101034   (897829) от 05.02.2017
+
+Эно Рауд | Муфта, Полботинка и Моховая борода (1, 2 книга из 4)  MP3 (1996) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Едва познакомившись, наши забавные герои — Моховая Борода, Полботинка и Муфта — отправились на встречу приключениям. Им предстоит проявить чудеса смекалки и изобретательности, чтобы избавить город от орды котов, прикормленных одной сердобольной старушкой. За эту книгу в 1974 году имя Э. Рауда было занесено в международный Почетный список Г.Х. Андерсена.Жанр: Детская литература, повесть-сказкаПродолжительность: 07:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037873D4B0F222D5AE6A08DF0FA94A7337DD2CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 295141   (896351) от 13.02.2011
 
 VA - Белые кораблики (2010) [MP3|128 kbps]<Детские песенки>
@@ -6,7 +58,7 @@ VA - Белые кораблики (2010) [MP3|128 kbps]<Детские песе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896351.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896053.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894609.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894002.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893040.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Aprelevka Sound Production | Басни и русские народные пе�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892920.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892432.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ VA - В гостях у сказки (2008) [MP3|320 kbps]<Детские пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892317.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892286.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892124.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891889.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891408.jpg" />
 </div>
 
 
@@ -334,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891283.jpg" />
 </div>
 
 
@@ -364,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891175.jpg" />
 </div>
 
 
@@ -393,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891101.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890176.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889111.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Baby Einstein - Classical Animals (2002) [MP3|192 kbps] <Классическа�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889018.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Baby Einstein - Baby Bach (2000) [MP3|192 kbps]<Классическая муз�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888929.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Baby Einstein - Baby Beethoven (2000) [MP3|192 kbps]<Классическая м
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888864.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ VA - Классическая музыка для детей. Музыкальн
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888797.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887662.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887217.jpg" />
 </div>
 
 
@@ -654,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887112.jpg" />
 </div>
 
 
@@ -668,62 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:092DD6CFECB2FAC921F350E1380508271E4E3B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494947   (885934) от 09.09.2021
-
-Людмила Петрановская | Большая книга про вас и вашего ребенка (2019) [MP3, Ксения Бржезовская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две книги в одной!
-«Тайная опора: привязанность в жизни ребенка»
-«Если с ребенком трудно»
-Эту аудиокнигу стоило бы прослушать всем родителям. И тем, кого заботит легкое недопонимание, и тем, кто уже было отчаялся найти общий язык с детьми. В ней мы собрали две книги в одной: «Тайная опора: привязанность в жизни ребенка» и «Если с ребенком трудно» – книги, которые (   Читать дальше...   )Жанр: Психология, воспитание детейПродолжительность: 11:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11DD95543C3573E619BFA7A8778A87E60C32BABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103290   (885811) от 12.02.2017
-
-Роберт Луис Стивенсон | Сокровища капитана Флинта (1996) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885811.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мюзикле «Сокровища капитана Флинта» за основу взят сюжет приключенческого романа Роберта Стивенсона «Остров сокровищ».01. Сокровища капитана Флинта. Часть 1 (21:47)
-02. Сокровища капитана Флинта. Часть 2 (19:11)Жанр: Мюзикл, аудиоспектакльПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9603D7124F0D5C88CC2FAEFB414B8DE0B4AACA31
 ```
 
 https://mybot314.ru/tekegram_catalog/

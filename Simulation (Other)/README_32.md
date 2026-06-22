@@ -1,55 +1,3 @@
-###  Публикация: 1774145   (30486) от 19.01.2025
-
-AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая и расслабляющая игра на пассивном управлении. Покупайте маленьких рыбок, медленно выращивайте их, продавайте или позвольте им зарабатывать для вас деньги! Затем покупайте морские темы, наполненные фантазией, сочетайте различных редких рыб, чтобы получить уникальный аквариум. Эпические рыбы могут вести своих сородичей в плавании по океану, а легендарные (   Читать дальше...   )Тип издания: SceneРазработчик: SunnyCitrusЖанр: Казуальные игры, СимуляторыЯзык озвучки: Русский, Английский, Немецкий, Японский и другиеЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1B4FA790D80F325F746721DDED3BCDB169F376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774152   (30478) от 19.01.2025
-
-Heart's Medicine - Hospital Heat (2017) [Ru/Multi] (1.0.0.9) Scene F4CG
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heart's Medicine - Hospital Heat - это долгожданное продолжение Heart's Medicine - Time to Heal, где вас ждет бесконечно трогательный и драматичный сюжет о жизни больницы, авторские мелодии, отлично проработанная анимация, затягивающий игровой процесс и очень, очень много любви к людям. Если вы любите игры, в которых главное - отличный сюжет, то можете быть уверены: (   Читать дальше...   )Тип издания: SceneРазработчик: Blue Giraffe, GameHouseЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740950   (30398) от 20.01.2025
 
 Love n Life: Lucky Teacher (2024) [Ru/Multi] (3.3.0/dlc) License GOG
@@ -58,7 +6,7 @@ Love n Life: Lucky Teacher (2024) [Ru/Multi] (3.3.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30398.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Tavern Master (2021) [Ru/Multi] (2.3/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30392.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Tin Can: Escape Pod Simulator (2022) [Ru/Multi] (1.0.0.7d) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30386.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Warlords Under Siege (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30193.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Vampire Therapist (2024) [Multi] (1.202) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30155.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Uncle Chop's Rocket Shop (2024) [Ru/Multi] (1.4.0:5875/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30029.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Cyber Manhunt 2: New World - The Hacking Simulator (2024) [Multi] (1.0.7) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29833.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Blacksmith Simulator (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29831.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ TrickShot Simulator (2025) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29622.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ JOY OF PROGRAMMING - Software Engineering Simulator (2024) [Ru/Multi] (1.0.0) Re
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29216.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Rock Star Life Simulator (2024) [Ru/Multi] (1.0) RePack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29064.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28343.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28339.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28321.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Garden In! (2023) [Multi] (1.4.5.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28113.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27990.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27781.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1272@67558/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27683.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27515.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27467.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27457.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27333.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Mini Airways (2024) [Ru/Multi] (0.11.3f1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27258.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27174.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F617D7ABDF4D447AFBE94DAC8D63BF314FF3C973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780614   (27159) от 19.02.2025
+
+Galactic Simulator (2025) [Ru/Multi] (0.2.1) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Galactic Simulator - это игра-кликер, основанная на парадоксе Ферми и теории Великого фильтра. Игроки могут моделировать эволюцию небесных тел и цивилизаций в галактике с точки зрения наблюдателя. Игра поддерживает многопользовательский режим. Игра поддерживает мультиплеерный режим. Создайте уникальную галактику с друзьями! Поддерживает таблицы лидеров, позволяя (   Читать дальше...   )Тип издания: RepackРазработчик: PENGCHENG ZHAOЖанр: Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA54D0D83D9C3318D2EC1F2CCC2613D562C0C59A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780599   (27090) от 19.02.2025
+
+Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.152s/dlc) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Строительство. Фермерство. Охота. Торговля. Быть владельцем ранчо - явно не самая простая работа. Думаете, вам по силам сделать захудалое семейное ранчо самым процветающим в округе? Тогда вперед, в провинцию - вас ждет симулятор в открытом мире с возможностью одиночной и многопользовательской игры! Семейное ранчо, некогда гордость и отрада вашего дедушки, переживает (   Читать дальше...   )Тип издания: RepackРазработчик: Toxic DogЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938C1104DBDFF51DBB05D7C7C0AFEBDE95B02CDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

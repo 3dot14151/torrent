@@ -1,3 +1,133 @@
+###  Публикация: 1266894   (268345) от 04.12.2018
+
+Проклятие монахини / The Nun  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в уединенном монастыре в Румынии совершает самоубийство молодая монахиня, расследовать происшествие Ватикан отправляет священника с туманным прошлым и послушницу на пороге невозвратных обетов. Рискуя не только жизнями, но и верой, и даже своими душами, они сталкиваются со злобной силой, принявшей облик демонической монахини, а монастырь становится полем ужасающей (   Читать дальше...   )Производство: США / Atomic Monster, New Line Cinema, The Safran CompanyЖанр: ужасы, триллер, детективРежиссер: Корин ХардиАктеры: Демиан Бишир, Таисса Фармига, Йонас Блоке, Бонни Ааронс, Ингрид Бису, Патрик Уилсон, Вера Фармига, Лили Тейлор, Шарлотта Хоуп, Сандра Телес, Аугуст МатуроПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, португальскиеПродолжительность: 01:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFF72509CB745A7148D6D5298B9D35C497CE52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267095   (267538) от 05.12.2018
+
+Операция «Финал» / Operation Finale (2018) BDRemux [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через 15 лет после окончания Второй мировой войны создаётся команда спецагентов, чтобы выследить Адольфа Эйхмана — печально известного сотрудника гестапо, отвечавшего за «окончательное решение еврейского вопроса».Производство: США, Automatik (as Automatik Entertainment), Metro-Goldwyn-Mayer (MGM)Жанр: Триллер, ДрамаРежиссер: Крис ВайцАктеры: Оскар Айзек, Бен Кингсли, Мелани Лоран, Лайор Раз, Ник Кролл, Майкл Аронов, Охад Кноллер, Грег Хилл, Торбен Либрехт, Майкл Бенжамин ЭрнандесПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085E47AD242FF5870E5C35B081E6CAA7CF1B080C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267260   (267335) от 05.12.2018
+
+Веном / Venom (2018) BDRip [H.264/1080p]  [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что если в один прекрасный день в тебя вселяется существо-симбиот, которое наделяет тебя сверхчеловеческими способностями? Вот только Веном — симбиот совсем недобрый, и договориться с ним невозможно. Хотя нужно ли договариваться?.. Ведь в какой-то момент ты понимаешь, что быть плохим вовсе не так уж и плохо. Так даже веселее. В мире и так слишком много супергероев! (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, 	Marvel Entertainment, Sony Pictures EntertainmentЖанр: Боевик, Фантастика, Триллер, УжасыРежиссер: Рубен ФляйшерАктеры: Том Харди, Мишель Уильямс, Марчелла Браджио, Вуди Харрельсон, Дженни Слейт, Риз Ахмед, Мак Брандт, Рон Сепас Джонс, Мишель Ли, Мелора УолтерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5279BC429BF1C88B23E253F49BC10C403965C569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190433   (266595) от 10.12.2017
+
+Цепной пёс / Bullet Head (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже у самого верного дела возможны разные варианты завершения. Матерые преступники, пытаясь по наводке обчистить полицейский склад, оказываются в ловушке с разъяренным сторожевым псом по кличке ДеНиро. Счастливый финал кажется все более призрачным…Производство: Болгария, США / Millennium Media, Nu Boyana Film Studios, Principato-Young EntertainmentЖанр: Криминал, Драма, ТриллерРежиссер: Пол СолетАктеры: Эдриан Броуди, Рори Калкин, Антонио Бандерас, Джон Малкович, Александра Дину, Кристина Сеговиа, Ори Феффер, Оуэн Дэвис, Велизар Бинев, Кит Д. ЭвансПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F74B41310D4A5F5C02EAE6B8CAE758516099E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267496   (266301) от 06.12.2018
+
+Веном / Venom (2018) BDRip [H.264/720p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что если в один прекрасный день в тебя вселяется существо-симбиот, которое наделяет тебя сверхчеловеческими способностями? Вот только Веном — симбиот совсем недобрый, и договориться с ним невозможно. Хотя нужно ли договариваться?.. Ведь в какой-то момент ты понимаешь, что быть плохим вовсе не так уж и плохо. Так даже веселее. В мире и так слишком много супергероев! (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, 	Marvel Entertainment, Sony Pictures EntertainmentЖанр: Боевик, Фантастика, Триллер, УжасыРежиссер: Рубен ФляйшерАктеры: Том Харди, Мишель Уильямс, Марчелла Браджио, Вуди Харрельсон, Дженни Слейт, Риз Ахмед, Мак Брандт, Рон Сепас Джонс, Мишель Ли, Мелора УолтерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русский (полные от Focs), АнглийскийПродолжительность: 01:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511F4245656F77418A5B9630CDAC575B5EC5CA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190933   (265768) от 11.12.2017
 
 мама! / mother!  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265768.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265640.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264988.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264882.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264801.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264420.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264413.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264347.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264342.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263828.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263675.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263381.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263355.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263018.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262742.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262716.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262431.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262375.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261879.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261857.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261726.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83156DC4C4BAEA4B86E4874059BFDB7FD7F1ABA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838961   (261573) от 26.11.2025
-
-Голубая луна / Blue Moon (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261573.jpg" />
-</div>
-
-
-###  Подробнее
-
-47-летний поэт-песенник Лоренц Харт вечером 31 марта 1943 года сидит в баре «Сарди» в день премьеры успешного мюзикла «Оклахома!», который написал его бывший партнёр Ричард Роджерс. Жизнь и карьера Лоренца пошли на спад, он начал злоупотреблять алкоголем, и этот мюзикл стал первым, который Ричард написал в дуэте с другим поэтом. Однако Харт пришёл в бар не только (   Читать дальше...   )Производство: США, Ирландия / Sony Pictures Classics, Cinetic Media, Concord OriginalsЖанр: драма, мелодрама, комедия, биография, история, музыкаРежиссер: Ричард ЛинклейтерАктеры: Итан Хоук, Маргарет Куолли, Бобби Каннавале, Эндрю Скотт, Giles Surridge, Патрик Кеннеди, Джона Лис, Саймон Делани, Дэвид Роул, Cillian SullivanПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A62FBE1D0EB4D56595C1B84B676D25661AFACEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838894   (261476) от 25.11.2025
-
-Бугония / Bugonia (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два молодых человека, одержимые теориями заговора, похищают высокопрофильную генеральную директоршу крупной компании, уверенные, что она — инопланетянка, намеренная уничтожить планету Земля.Производство: Ирландия, Великобритания, Канада, Корея Южная, США / Focus Features, Element PicturesЖанр: комедия, фантастикаРежиссер: Йоргос ЛантимосАктеры: Эмма Стоун, Джесси Племонс, Алисия Сильверстоун, Эйдан Делбис, Дж. Кармен Галиндес Баррера, Марк Т. Льюис, Ванесса Энг, Седрик Дюморне, Ставрос Халкиас, Мамма ЧерриПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A87D0F90B71FA43F48D5C6CC132E60984F9DBA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838244   (259877) от 21.11.2025
-
-Сны поездов / Train Dreams (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XX века. Лесоруб и железнодорожник Роберт Грейниер проводит многие месяцы вдали от дома на работе: он валит лес, укладывает шпалы и помогает строить мосты. Он становится свидетелем не только того, как жизнь и страна вокруг него меняются, но и того, какой ценой даются эти изменения простым рабочим и трудовым мигрантам.Производство: США / Black Bear, Kamala FilmsЖанр: драмаРежиссер: Клинт БентлиАктеры: Джоэл Эдгертон, Клифтон Коллинз мл., Фелисити Джонс, Альфред Синг, Дэвид Пол Олсен, Джон Патрик Лори, Chuck Tucker, Rob Price, Пол Шнайдер, Brandon LindsayПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE53453F2F3D2EB1C0C9463733CDC32A4F81CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838160   (258049) от 21.11.2025
-
-Семейный план 2 / The Family Plan 2 (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь, когда дни наемного убийцы Дэна остались позади, все, чего он хочет на Рождество, — это провести время со своими детьми. Но когда он узнает, что у его дочери свои планы, он заказывает семейную поездку в Лондон — ставит их всех под прицел неожиданного врага.Производство: США, Великобритания / Apple Original Films, Skydance ProductionsЖанр: боевик, комедия, семейныйРежиссер: Саймон Селлан ДжонсАктеры: Марк Уолберг, Мишель Монахэн, Кит Харингтон, Зои Маргарет Коллетти, Ван Кросби, Peter Lindsay, Theodore Lindsay, Реда Эльазуар, Сидсе Бабетт Кнудсен, Санджив БхаскарПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (forced, full, SDH)Продолжительность: 01:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE518AC8DD991097D41882F7C84BF6829DE4E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838040   (257791) от 20.11.2025
-
-Проблемы с шампанским / Champagne Problems (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исполнительный директор отправляется во Францию, чтобы до Рождества обеспечить приобретение известного бренда шампанского, но ее планы рушатся, когда она влюбляется в очаровательного парижанина, который, как выясняется, является сыном основателя компании.Производство: США / FullDawa Films, Grumpy EntertainmentЖанр: мелодрама, комедияРежиссер: Марк Стивен ДжонсонАктеры: Том Возничка, Минка Келли, Флула Борг, Завьер Сэмюэл, Мэйв Куртье-Лилли, Тибо де Монталембер, Астрид Ветналл, Митчелл Маллен, Шон Эмсинг, Floran RoyerПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A308C556803ADE4C21788571838EA69BE5AF9AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

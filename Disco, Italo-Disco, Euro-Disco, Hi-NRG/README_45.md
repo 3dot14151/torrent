@@ -6,7 +6,7 @@ Karen Silver - Hold On I'm Comin' (1979) LP [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141771.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Don Ray - The Garden Of Love (1978) LP (Sound from Cerrone) [MP3|320 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140728.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Calderon - Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139037.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Planet Italo Disco Vol. 7 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138991.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Cafe Puls Italo Hits '17 (2017) [MP3|320 Kbps] <Italo Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138838.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - I Love Tocata 80's (2012) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Hi N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138799.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138030.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Klaus Wunderlich - Wunderlich Pops 7 (1978) LP [MP3|320 Kbps] <Easy Listening, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137872.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Italo Disco Extended  Versions Vol. 10 - Italo Holiday (2018) [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137721.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Deborah Washington - Any Way You Want It (1978) LP [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137452.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Deborah Washington - Love Awaits (1979) LP [MP3|320 Kbps] <Electronic, Disco, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137443.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kameleon - Kameleon (1981) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131093.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tony Valor Sounds Orchestra - 2 Albums (1976, 1978) LP [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130095.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ozo - 4 Albums (1976-1982) LP Collection [MP3|320 Kbps] <Electronic, Reggae, Dub
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129598.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Den Harrow - Overpower (1985) Reissue, 1987, Baby Records [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122161.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Den Harrow - Day By Day (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122031.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Den Harrow - The Best Of Den Harrow (1989) [OGG Vorbis|480 Kbps] <Electronic, It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122029.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Witchcraft - Outside Inn (1979) LP [MP3|320 Kbps] <Disco, Funk / Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121697.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Linda Susan Bauer - Dynamite (1982) LP [MP3|320 Kbps] <Electronic, Funk Soul, Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119811.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mike Mareen - LP Dance Control (1985) Reissue, Remastered, 2022, Klaus Steiner S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117959.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Martin Stevens - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114659.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - That's Eurobeat Non-Stop Mix (1987) LP [MP3|320 Kbps] <Italo-Disco, Euro-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113358.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Modern Heroes - Magic-The 1st Album (2024) [MP3|320 Kbps] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112666.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Paul Jabara - The Third Album (1979) LP [MP3|320 Kbps] <Disco, Funk Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110115.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Mantus - Mantus (1980) LP [MP3|320 Kbps] <Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107855.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Cream & Sugar - Cream & Sugar (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107735.jpg" />
 </div>
 
 

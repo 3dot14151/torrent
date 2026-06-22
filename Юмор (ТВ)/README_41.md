@@ -1,3 +1,137 @@
+###  Публикация: 1667128   (177325) от 07.10.2023
+
+География Уральских Пельменей - Германия (06.10.2023) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь фанатки не упускают шанса спеть со своими кумирами. Здесь свидание в темноте проливает свет на личность. Здесь из второгодника в медалисты выходят за один урок. В новом выпуске «География Уральских Пельменей - Германия».Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева и др.Субтитры: ОтсутствуютПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEBD4CA7EE22A169FC3187702FFF0F7EADBBB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667095   (177307) от 07.10.2023
+
+Камеди Клаб / Комеди Клаб / Comedy Club (06.10.2023) WEBRip [H.264/1080p] (сезон 19, выпуск 14)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу, которое более чем за 15 лет своего существования изменило представление о юморе! Более 700 выпусков, тысячи номеров, миллионы шуток и зрителей по всему миру. Comedy Club — это всегда актуальные темы, эксперименты с юмором и топовые гости. Смотрите и смейтесь вместе с любимыми резидентами!
+В этом выпуске Comedy Club: Зураб Матуа, Андрей Аверин и Дмитрий Сорокин (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец, Андрей Бебуришвили и др.Субтитры: ОтсутствуютПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E52328829ADECB9F428AC3655ABA1732C6E6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667261   (177288) от 07.10.2023
+
+Женский Stand Up (2023.10.07) SATRip (сезон 5, выпуск 5)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Зоя Яровицына, Надежда Джабраилова, Александра Муратова, Мария Маркова, Сауле Юсупова, Маргарита Родина и др.Субтитры: ОтсутствуютПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6046DEB4D83BDF7B9749B67D7D7F93F83B4B4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429141   (177011) от 05.12.2020
+
+Азбука Уральских пельменей. Ф (04.12.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177011.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что осталось за кадром! Цикл выпусков с невошедшими миниатюрами и скетчами. А также самые смешные ляпы и оговорки!Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D630FBF488819381335A9637B76D0E214EBBE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667349   (176677) от 08.10.2023
+
+КВН-2023. Высшая лига. Летний Кубок (07.10.2023) WEBRip [H.264/720p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176677.jpg" />
+</div>
+
+
+###  Подробнее
+
+КВН-2023. Летний Кубок. Благодарим за гостеприимство город Пермь и его жителей!
+Команды: Сборная Пермского края, «Доктор Хаусс» (Могилев), «Имени меня» (Королев).
+Конкурсы: Приветствие, ситуационный конкурс, музыкальное домашнее задание.
+Жюри: Сергей Жилин, Сергей Светлаков, Алла Михеева, Вадим Галыгин, Екатерина Шпица, Александр Олешко.Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2C39BFA68B3316C40596FB730EA57888712D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667543   (176620) от 08.10.2023
 
 Лига городов (2023.10.08) SATRip (сезон 1, выпуск 4)
@@ -6,7 +140,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176620.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176593.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176592.jpg" />
 </div>
 
 
@@ -87,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176526.jpg" />
 </div>
 
 
@@ -113,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176499.jpg" />
 </div>
 
 
@@ -139,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176344.jpg" />
 </div>
 
 
@@ -165,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176099.jpg" />
 </div>
 
 
@@ -191,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175938.jpg" />
 </div>
 
 
@@ -217,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175565.jpg" />
 </div>
 
 
@@ -243,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175047.jpg" />
 </div>
 
 
@@ -269,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173356.jpg" />
 </div>
 
 
@@ -295,7 +429,7 @@ Stand Up (2023.10.13) SATRip (сезон 11, выпуск 4)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173345.jpg" />
 </div>
 
 
@@ -321,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173331.jpg" />
 </div>
 
 
@@ -347,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173315.jpg" />
 </div>
 
 
@@ -373,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173298.jpg" />
 </div>
 
 
@@ -399,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173155.jpg" />
 </div>
 
 
@@ -426,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173149.jpg" />
 </div>
 
 
@@ -452,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173140.jpg" />
 </div>
 
 
@@ -478,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Маски-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172160.jpg" />
 </div>
 
 
@@ -505,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171962.jpg" />
 </div>
 
 
@@ -531,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171871.jpg" />
 </div>
 
 
@@ -542,137 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73C046CCFFC9217722FB274724D73D4772EA3833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670560   (171861) от 21.10.2023
-
-География Уральских Пельменей - Таиланд (20.10.2023) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь тотальное невезение помогает выигрывать миллионы. Здесь учитель наводит порядок не только в школе. Здесь звезды шоу-бизнеса зажигаются в обычной качалке. В новом выпуске «География Уральских Пельменей - Таиланд».Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева и др.Субтитры: ОтсутствуютПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D92AF8808616E81CFB4BCEF189B60EC06E092A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670543   (171837) от 21.10.2023
-
-Камеди Клаб / Комеди Клаб / Comedy Club (20.10.2023) WEBRip [H.264/1080p] (сезон 19, выпуск 16)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу, которое более чем за 15 лет своего существования изменило представление о юморе! Более 700 выпусков, тысячи номеров, миллионы шуток и зрителей по всему миру. Comedy Club — это всегда актуальные темы, эксперименты с юмором и топовые гости. Смотрите и смейтесь вместе с любимыми резидентами!
-В этом выпуске Comedy Club: Дмитрий Ксенофонтов про Анну Асти, Андрей (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец, Андрей Бебуришвили и др.Субтитры: ОтсутствуютПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033E95ACDE627CB5B2F834D71A4233C9F50ADD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670699   (171827) от 21.10.2023
-
-Женский Stand Up (2023.10.21) SATRip (сезон 5, выпуск 7)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Зоя Яровицына, Надежда Джабраилова, Александра Муратова, Мария Маркова, Сауле Юсупова, Маргарита Родина и др.Субтитры: ОтсутствуютПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3719889A56299711D38FA7EDA3392D4A6E2F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670935   (171639) от 22.10.2023
-
-Лига городов (2023.10.22) SATRip (сезон 1, выпуск 6)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171639.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD49F346D9E4773F052F78AEC8984F295AC00002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671143   (171303) от 24.10.2023
-
-Однажды в России (2023.10.23) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: ЮморУчастники: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FE6B4CABCC9B6E1AABBE2ADAEC72CC3ADA94E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

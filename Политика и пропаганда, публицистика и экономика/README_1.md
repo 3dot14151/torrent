@@ -1,3 +1,109 @@
+###  Публикация: 1478678   (1010143) от 20.06.2021
+
+Агитпроп. Киссинджер наоборот (20.06.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дипломатический поединок Путина и Байдена публику не впечатлил. Ни нокаута, ни нокдауна, ни даже просто пропущенных ударов. Да собственно, вообще никаких ударов. Два часа за закрытыми дверями, две раздельные пресс-конференции. И ведь не скажешь - “победила дружба”. Но практически никаких новостей, кроме возвращения послов и продления СНВ3. Что это было вообще?Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4A041DDFC7ADB7788DB03BDD1F98B29A03FD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482691   (1007427) от 09.07.2021
+
+Агитпроп. Мао не покажется! (05.07.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007427.jpg" />
+</div>
+
+
+###  Подробнее
+
+КПК — крупнейшая в мире правящая партия и крупнейшая партия, исповедующая социалистические принципы хотя бы на словах. Можно предъявлять к ней множество претензий, но если судить о празднике на площади Тяьнаньмынь по-обывательски, то и здесь невозможно не заметить разницу между молодыми лицами рабочих, учителей, врачей, военных и да, бюрократов, и обрюзгшими, перепомаженными, (   Читать дальше...   )Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FA8C31ACD3DA1B5901A886B0DB93610A4B44DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483772   (1006646) от 15.07.2021
+
+Агитпроп. Поиграем в стратегию? (11.07.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикация обновленной стратегии национальной безопасности России привела в равное возбуждение и либеральную оппозицию, и придворных патриотов.
+
+Первые ужаснулись завинчиванию гаек и бряцанию оружием. Вторые - наоборот, пришли в восторг от того и от другого. Документ из 44 страниц едва ли достоин такой реакции. Но обратить на него внимание все же стоит. Не потому, (   Читать дальше...   )Производство: Россия, Авторский блог Константина Семина «Агитация и Пропаганда»Жанр: ПолитикаСубтитры: ОтсутствуетПродолжительность: 00:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40517F27146128969A8F35A64039D8C914D4635E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484762   (1005926) от 21.07.2021
+
+Это случилось в Америке (2020) DVB [H.264] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня Америка переживает глубочайший раскол в обществе, который то и дело вспыхивает беспорядками – насилием, погромами и мародерством. Страна пытается пересмотреть свою историю и найти виновных в мучающих ее проблемах. Одни называют это очищением, другие – культурной революцией, ведущей в пропасть. Но кто эти революционеры, какие цели они перед собой ставят, и (   Читать дальше...   )Производство: Россия, ВГТРК Россия-1Жанр: Документальный, аналитическийРежиссер: Татьяна АрхипцоваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:45:45+00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371476EA979B7D37DAF65F8152341DD871F9A157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487379   (1003859) от 04.08.2021
 
 537 голосов / 537 Votes (2020) WEB-DLRip
@@ -6,7 +112,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003859.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003404.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003123.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003114.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1003110.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001420.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997151.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992323.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985238.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982644.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972189.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970993.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969835.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966771.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966685.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965781.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963712.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963439.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962615.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962522.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962295.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958425.jpg" />
 </div>
 
 
@@ -569,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFCFC6530EE53757F12159044F9666D959F415F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360742   (957781) от 17.02.2020
-
-Изобретатель: Жажда крови в Силиконовой Долине / The Inventor: Out for Blood in Silicon Valley (2019) WEBRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о взлёте и сокрушительном падении Элизабет Холмс. В какой-то момент её считали одной из самых успешных женщин планеты. Холмс основала компанию Theranos, заявившую о революционных достижениях в области анализов крови. Она оценивалась в 9 млрд долларов, однако впоследствии выяснилось, что выдающиеся результаты, будто бы достигнутые Холмс, на самом деле не соответствуют (   Читать дальше...   )Телекомпания: HBOЖанр: ДокументальныйПеревод: Многоголосый профессиональныйПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1442D708C98FB9E1945591ACE264F0955A149B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980184   (957458) от 28.01.2016
-
-Время покажет с Петром Толстым (28.01.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957458.jpg" />
-</div>
-
-
-###  Подробнее
-
-В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035945712F97F9ACAF70747035EEED205C18740E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980565   (956383) от 29.01.2016
-
-Время покажет с Петром Толстым (29.01.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956383.jpg" />
-</div>
-
-
-###  Подробнее
-
-В студии программы "Время покажет"  обсуждают взаимоотношения России и Запада. "Опасна, агрессивна, воинственна" - это мнение о России журналистов американского телеканала CNN и европейского командования вооруженных сил США. Особенно пугает Запад наше ядерное оружие и быстрорастущий военно-промышленный комплекс. Поэтому сдерживание военного потенциала (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654401DC8F079C122FA4F71D8360EDCEF71599D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980928   (954649) от 30.01.2016
-
-Постскриптум с Алексеем Пушковым (30.01.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: Россия - Египет: возрождение партнёрства. Вернутся ли туда российские туристы? От Ливанова до Грефа - что происходит с нашим образованием, и что ещё с ним предлагают сотворить? В погоне за ускользающим лидерством - отправят ли США свои войска в Сирию? Живая история - Путин о большевиках и Ленине. А также... Украина: как Киев торпедирует минские соглашения?Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39D517671FA33E22B903AD90ACA14C7F1A81B84
 ```
 
 https://mybot314.ru/tekegram_catalog/

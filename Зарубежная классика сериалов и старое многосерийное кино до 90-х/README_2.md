@@ -1,3 +1,30 @@
+###  Публикация: 1301229   (571987) от 21.05.2019
+
+Графиня де Монсоро / La dame de Monsoreau (1971) DVDRip [H.264] (серии 1-7 из 7) Film Prestige, ЦТ СССР
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция конца XVI века, царствование короля Генриха Третьего, могущественное лотарингское семейство де Гизов надеется возвести на трон его брата, герцога Анжуйского. Но королевский шут Шико, умный и проницательный человек, находится в курсе всех интриг и заговоров.
+Приближенный герцога Анжуйского, лучшая шпага королевства отважный граф де Бюсси вступает в серьезный (   Читать дальше...   )Производство: Франция / TELECIPЖанр: Драма, Приключения, ИсторическийРежиссер: Янник АндреиАктеры: Карин Петерсен, Николя Зильбер, Дени Манюэль, Мишель Кретон, Жерар Бернер, Франсуа Мэтр, Мария Мерико, Жан-Луи Брус, Мирей Одибер, Даниэль Дерваль и др.Перевод: Многоголосый закадровый, профессиональный (Film Prestige, ЦТ СССР)Субтитры: русскиеПродолжительность: ~ 00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDC5D9FE7A5B62D0F6A959056DAA134A6519F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 267325   (532858) от 10.08.2015
 
 Фронт без пощады / Front ohne Gnade (1984) DVDRip (сезон 1, серии 1-11 из 13) (Stalk) (обновляемая)
@@ -6,7 +33,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532858.jpg" />
 </div>
 
 
@@ -24,6 +51,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 372416   (521939) от 06.08.2011
+
+Возвращение Шерлока Холмса / The Return of Sherlock Holmes (1986-1988) DVDRip
+
+>>След.
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_521939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новым этапом в холмсианском кинематографе, ставшим его грандиозной эрой, стали фильмы с Джереми Бреттом (Jeremy Brett) в роли Шерлока Холмса и Дэвидом Берком (David Burke), а затем Эдвардом Хардвиком (Edward Hardwick) в роли доктора Уотсона, снятые Британским телевидением в период с 1984 по 1994 гг. и включившие 41 серию. Для большинства поклонников Шерлока Холмса (   Читать дальше...   )Жанр: Детектив, ПриключенияРежиссер: Питер Хэммонд, Дэвид КарсонАктеры: Джереми Бретт, Эдвард Хардвик, Розали Уильямс, Колин Дживонс, Дэнис Лилл, Эрик Портер, Патрик Ален, Джеймс Бри, Роберт Эдди, Робин Хантер, Джон Оттепель, Киран Шах, Дерек Дедман, Рональд ЛэйсиПеревод: Многоголосый закадровыйПродолжительность: ~50-51 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7AE6797ED391AE7A3420316138688CAF2B8FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 898478   (521236) от 17.08.2015
 
 Твин Пикс / Twin Peaks (1990) HDRip (сезон 1, серии 1-4 из 8) AlexFilm (обновляемая)
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521236.jpg" />
 </div>
 
 
@@ -50,6 +103,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377061   (508902) от 18.08.2011
+
+Сёгун / Shogun (1980) DVDRip [сезон 1, 4 серии]
+
+>>След.
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_508902.jpg" />
+</div>
+
+
+###  Подробнее
+
+XVI век. Английское судно терпит крушение у берегов Японии. Выжившие члены экипажа, среди которых лоцман Джон Блэкторн, попадают в плен. Могущественный князь Торанага берет Блэкторна, знающего географию, математику и военное дело, под свою опеку. Шаг за шагом англичанин постигает суровые самурайские законы, учит японский язык, вникает в абсолютно чуждую европейцу (   Читать дальше...   )Жанр: Драма, приключения, военный, историяВ ролях: Ричард Чемберлен, Тосиро Мифунэ, Ёко Симада, Фрэнки Сакаи, Алан Бадел, Дэмиен Томас, Джон Рис-Дэвис, Владек Шейбал, Юки Мэгуро, Хидэо Такамацу, Нобуо Канэко, Hiromi Senno, Майкл Хордерн, Джордж Иннес, Леон Лиссек, Эдвард Пил, Эрик Ричард, Стив Убельс, Стюарт МакКензи, Джон Дж. Карни, Ian Jentle, Нил МакКарти, Уильям Морган Шеппард, Мика Китагава, Сэйдзи Миягути, (   Читать дальше...   )Перевод: 1. Многоголосый закадровый, телеканал "Домашний"(sample)
+ 2. Многоголосый закадровый, ОРТ (sample)Формат: MatroskaПродолжительность: 8:46:23  Серия 1: 2:17:34
+Серия 2: 2:07:28
+Серия 3: 2:08:45
+Серия 4: 2:12:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932644   (507819) от 30.08.2015
 
 Масада (Крепость отчаянных) / Masada (1981) DVDRip [H.264] (сезон 1, серии 1-4 из 4) Наследие
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507819.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504008.jpg" />
 </div>
 
 
@@ -110,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503141.jpg" />
 </div>
 
 
@@ -136,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501958.jpg" />
 </div>
 
 
@@ -163,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492185.jpg" />
 </div>
 
 
@@ -189,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474502.jpg" />
 </div>
 
 
@@ -215,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471423.jpg" />
 </div>
 
 
@@ -241,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464359.jpg" />
 </div>
 
 
@@ -267,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454168.jpg" />
 </div>
 
 
@@ -294,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447781.jpg" />
 </div>
 
 
@@ -320,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441387.jpg" />
 </div>
 
 
@@ -346,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436713.jpg" />
 </div>
 
 
@@ -374,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409156.jpg" />
 </div>
 
 
@@ -400,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408584.jpg" />
 </div>
 
 
@@ -428,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394592.jpg" />
 </div>
 
 
@@ -454,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383146.jpg" />
 </div>
 
 
@@ -481,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375979.jpg" />
 </div>
 
 
@@ -507,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_362413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_362413.jpg" />
 </div>
 
 
@@ -533,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361059.jpg" />
 </div>
 
 
@@ -559,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360317.jpg" />
 </div>
 
 
@@ -585,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356286.jpg" />
 </div>
 
 
@@ -596,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E2FFBEA3A4BF3A2A0C8675558AEDC3C8C5A3BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416471   (352826) от 22.10.2020
-
-Луи Фейад. Фантомас / Fantomas (1913-1914) DVDRip (фильмов 5 из 5) [VO]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352826.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному авантюрному роману Марселя Аллена и Пьера Сувестра.
-Легкое, примитивное, развлекательное чтиво превратилось в аналогичный фильм. Правда, фильм, ввиду недостаточной "технологичости" производства, оказался почти полностью лишен динамики. Тем не менее, стоит отметить, что Фейяд преотлично вычленил главную фишку романа. Его Фантомас, таинственный (   Читать дальше...   )Производство: Франция, GaumontЖанр: Криминал, драма, немое киноРежиссер: Луи ФейадАктеры: Рене Наваро, Эдмунд Бреон, Жорж Мельхиор, Рени Карл, Джейн Фабер, Андре Вольберт, Надьер Мейлар, Иветт Андрейор, Андре ЛюгеПеревод: Одноголосый любительский (Ivanov)Субтитры: Французские интертитры (закадровый перевод по русски)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582F6ACEFCFD98388AC52CA372774BF9417D18F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579290   (338578) от 26.09.2022
-
-Герои Хогана / Hogan's Heroes (1966-1967) BDRemux [H.264/1080p] (сезон 2, серии 1-30 из 30) Дольский
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о группе американских военнопленных, заключенных в немецкий концлагерь во время Второй мировой войны. Товарищами по несчастью руководит изобретательный полковник Хоган, который даже будучи в плену, находит множество возможностей саботировать врага. Комендант лагеря полковник Клинк хочет только одного — чтобы у него не было проблем с начальством. (   Читать дальше...   )Производство: США / Bing Crosby Productions, Bob Crane EnterprisesЖанр: комедия, военныйРежиссер: Джин Рейнольдс, Эдвард Х. Фельдман, Брюс БилсонАктеры: Джин Рейнольдс, Эдвард Х. Фельдман, Брюс Билсон, Марк Дэниелс, Боб Суини, Ховард Моррис, Ричард Кинон, Джерри Лондон, Роберт Батлер, Джон Рич, Ирвинг Дж. МурПеревод: Авторский (Дольский)Язык озвучки: русский, английскийСубтитры: английские, немецкиеПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64D9D2D19B890D0CD3EE98D5438FFF136A827A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259276   (334140) от 17.11.2010
-
-Спрут / La piovra (1984-1992) TVRip (сезоны 1-6)
-
->>След.
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334140.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшой сицилийском городке убивают начальника уголовного розыска Маринео. Кажется, что это преступление мафии. В тот же день становится известно еще об одной смерти. Покончила с собой маркиза Печчи Шалойя.
-На место убитого комиссара назначают Коррадо Каттани, опытного полицейского, который переезжает на Сицилию с женой и дочерью. Расследуя убийство предшественника, (   Читать дальше...   )Жанр: Криминал, Мелодрама, СемейныйРежиссер: Дамиано Дамиани (1), Флорестано Ванчини (2), Луиджи Перелли (3-6)Актеры: Микеле Плачидо, Джулиана Де Сио, Франсуа Перье, Алэн Кюни, Франциско Рабаль, Мари Лафоре, Луиджи де Филиппо, Ремо Жирон, Пьер Ванек, Поль Гуэр, и др.Перевод: Русский МногоголосыйПродолжительность: 36 серий примерно от 60 до 100 минут
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

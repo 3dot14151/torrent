@@ -1,3 +1,55 @@
+###  Публикация: 1083059   (275419) от 14.12.2016
+
+Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.3/dlc) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уходите от страшилищ и охотников по древним руинам. Играйте за Эйба из Oddworld в ремейке классики PlayStation - Abe's Oddysee. Эйб был счастливым полотером на мясной фабрике Oddworld, но узнал секретный план босса: делать из рабов мясные закуски RuptureFarms Tasty Treats. Теперь Эйб спасается от мясорубки. Побег с бойни - лишь начало одиссеи!Тип издания: LicenseРазработчик: Just Add WaterЖанр: Arcade (Platform), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A61A4CA3896F1B5642C47588829FF9D4B6CB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083138   (275342) от 14.12.2016
+
+GUILTY GEAR Xrd -REVELATOR (2016) [En/Ja] (1.0.8767/dlc) License CODEX [Complete Edition]
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спрайтовый файтинг с богатой родословной и до недавнего времени бывший эксклюзивом для приставок и игровых автоматов. Действие игры происходит в будущем, во времена, когда люди научились оперировать магией и применять ее в военных целях. Но все пошло не так, как планировалось: теперь придется сражаться с измененными людьми и уничтожать их.Тип издания: LicenseРазработчик: Arc System WorksЖанр: Action, FightingЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791EDD3FB4BB71514340A2CC0A1F170E47972DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082472   (274187) от 15.12.2016
 
 Filthy Lucre (2016) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +58,7 @@ Filthy Lucre (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274187.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ TY the Tasmanian Tiger (2016) [Multi] (1.00.1295) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273168.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (2006) [En] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273084.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273001.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ West of Loathing (2017) [En] (1.11.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272858.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ RUINER (2017) [Ru/Multi] (1.05b) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271883.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271684.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ SYNTHETIK: Legion Rising (2018) [Ru/Multi] (21.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271681.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270710.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Super Lucky's Tale (2018) [Ru/Multi] (2827966/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269837.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268430.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Flashback (2018) [Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266292.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ D1896 (2019) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265956.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Double Dragon: Neon (2014) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265624.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Rocket League (2015) [Ru/Multi] (1.56/dlc) License PLAZA [Game of the Year Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265488.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Beat Cop (2017) [Ru/Multi] (1.1.744) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263639.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Masters of Anima (2018) [Ru/Multi] (1.0.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263475.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Okami HD (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263321.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Trine Anthology (2009-2015) [Ru/Multi] (1.09/2.12/2.01/1.11) Repack R.G. Мех�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262971.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Alien Shooter + Expansions / Alien Shooter: Начало вторжения (200
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262367.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Star Wars: Starfighter (2002) [En/Sp/It] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262031.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0.0.13948/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262006.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261545.jpg" />
 </div>
 
 
@@ -604,65 +656,13 @@ Trolls [En] (Repack) 1992 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260890.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Не принося ничего принципиально нового в стан классических платформеров, Trolls - просто ещё одна качественная и красочная аркада начала 90-х, когда это было актуально. Я не сказал, что игра непростительна к среднему нерасторопному игроку? Ну и ладно.Тип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838529   (260851) от 23.11.2025
-
-OlliOlli (2022) [Ru/Multi] (1.0/dlc) License GOG [World Rad Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260851.jpg" />
-</div>
-
-
-###  Подробнее
-
-OlliOlli World – это новый лихой экшен-платформер на тему скейтбординга с непревзойдённой индивидуальностью. Гоняйте по живому и яркому миру Рэдландии в поисках заветной Гнарваны и загадочных скейтерских богов, попутно знакомясь с колоритными персонажами и выполняя грайнды, эйры и прочие трюки.Тип издания: LicenseРазработчик: Roll7Жанр: Экшны, Спорт, ПлатформерЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22A75A7E6D466286131B7B6793ABF356C2F61CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502947   (259099) от 28.05.2012
-
-Rampart [En] (RePack) 1992 | RG Games (Pilotus)
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замок на безлюдном побережье периодически подвергается нападкам агрессоров с моря. Чтобы защититься от вторженцев, он обведён плотной стеной, а в гарнизоне дежурят несколько орудий. Отличившийся оборонитель продолжит отстаивать государеву землю в других краях, а проигравшему отрубят всё, что выше шеи. Казалось бы просто. Но увы, так только кажется. Замок должен обязательно быть обнесён каменным валом, чтобы противостоять дальнейшим вылазкам противника. Поэтому, откуда-то сверху на землю падают шести- и менее угольные блоки, которыми и можно латать дыры в обороне. Но дело тем не ограничивается - на зелёных равнинах неподалёку стоят и другие укреплённые сооружения. Если окружить их стеной, то появится новый плацдарм для размещения орудий.Тип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash

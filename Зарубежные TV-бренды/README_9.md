@@ -1,3 +1,29 @@
+###  Публикация: 981548   (951245) от 01.02.2016
+
+BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 5]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нигде не скрыться (Равнины) / Nowhere to HideВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332CD5D68D90FBDAFFCBCBBFE070F2BF9323C904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362178   (950628) от 22.02.2020
 
 PBS Nature. Бегемоты - жизнь в воде / Hippos: Africa's River Giants (2020) WEB-DL [H.264/1080p] (сезон 38, серия 10)
@@ -6,7 +32,7 @@ PBS Nature. Бегемоты - жизнь в воде / Hippos: Africa's River G
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950628.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949024.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948540.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948487.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947725.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_946651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946651.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ BBC: Бессмертный Египет с Джоанн Флетчер / Immort
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945668.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945350.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ BBC: Планеты. Ледяные миры / Nova: The Planets: Ice Worlds (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944947.jpg" />
 </div>
 
 
@@ -235,6 +261,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763352   (942475) от 09.01.2017
+
+NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 1-11 из 11]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_942475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Игры разума приглашает вас в путешествие в мир интерактивных игр и тестов, которые помогут вам понять, как устроен ваш мозг. По-настоящему умопомрачительные эксперименты протестируют то, как ваш мозг воспринимает окружающий мир. Исследуя внимание, страх, убеждение и принятие решений, Игры разума заставляет вас задуматься о собственном мозге. Ведь именно (   Читать дальше...   )Телекомпания: National Geographic ChannelЖанр: ДокументальныйРежиссер: Трей Нельсон, Джереми Кроуэлл, Майкл НигроПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471CA5DBF2FB9C76C45689264645F164DE0C1951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091725   (941201) от 10.01.2017
 
 Мифы Древней Греции. Как они появились? (2010) HDTVRip [H.264/720p]
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941201.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940905.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939860.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Discovery. Розетта: столкновение с кометой (В пог
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939207.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936203.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936193.jpg" />
 </div>
 
 
@@ -391,6 +443,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285052   (935956) от 20.01.2011
+
+NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (2010) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_935956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фашисткой Германии были созданы одни из самых разрушительных видов оружия на земле. Огромные пушки, высокотехнологичные ракеты и передовые реактивные истребители. Fritz X - прообраз современной "умной бомбы", была совершенно секретной бомбой Адольфа Гитлера. Завеса тайны скрывает один из последних секретов Второй мировой войны. Могла ли бомба нацистов изменить ее исход? В этом фильме немецкие и американские авиационные эксперты воскресят новаторское оружие Третьего рейха. Они проведут смелый эксперимент в глубине калифорнийской пустыни - сбросят две модели высокоточной бомбы нацистов...Жанр: ДокументальныйПеревод: Профессиональный (полное дублирование) + Профессиональное (одноголосое)Формат: AVIПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822006CC7EEC7BEDEDBE03E793BAB2E33FCECB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093350   (935165) от 14.01.2017
 
 Египет. В поисках Тутанхамона (2005) IPTVRip [H.264]
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935165.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ BBC: Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 6
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935127.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Discovery: Вселенная Стивена Хокинга: Инопланет�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934254.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931648.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ PBS: Мир Дикой Природы / Wild World (2011-2012) DVB (2-й сез�
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930262.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ PBS: Мир Дикой Природы / Wild World (2010) DVB (1 сезон, с�
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930256.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Discovery: Грандиозное ограбление / Mega Heist (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930155.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929681.jpg" />
 </div>
 
 
@@ -597,86 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98442B4EAB80A3737C42F8CA4E3A44A102963E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094681   (929033) от 18.01.2017
-
-Сказание о динозаврах / Dinotasia (2012) WEB-DL [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Время - это не просто река, это целый безбрежный океан, который отделяет нас от прошлого. С помощью этого фильма зрители могут пересечь его и заглянуть туда, где не ступала нога человека. Миллионы лет назад не было ни поэтов, ни художников - только искусство выживания, единственное мастерство, которому в те времена можно было научиться... Один из самых наших любимых (   Читать дальше...   )Телекомпания: Flatiron Film CompanyЖанр: Документальный, анимация, динозавры, палеонтологияПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1F66B543670666DD9CEA0FD6AE6EA2EE46CC9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986865   (928792) от 15.02.2016
-
-Техногеника. Саяно-Шушенская ГЭС (2016) HDTVRip [720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_928792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации.
-Наш (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0AFF88C8928D5A66F64B72151DFDDE98767845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987050   (927631) от 16.02.2016
-
-Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 01) [IdeaFilm]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927631.jpg" />
-</div>
-
-
-###  Подробнее
-
-"The Explosion Special"
-Насколько реальны киношные мифы о взрывах? Секретный агент МакГайвер спасает людей от взрыва почтового фургона заполнив его жидким бетоном. СВП (судно на воздушной подушке) безопасно проходит по минному полю. Смотрите в последнем сезоне!«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - IdeaFilmСубтитры: ОтсутствуютПродолжительность: ~ 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE738706D8D9505361A01E5DB95BC7D02A6F56CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

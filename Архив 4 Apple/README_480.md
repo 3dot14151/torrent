@@ -1,3 +1,55 @@
+###  Публикация: 1337986   (271697) от 13.11.2019
+
+WebToLayers 1.1.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271697.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebToLayers преобразует веб-сайты в документы Photoshop. Другими словами, приложение позволяет создавать скриншоты веб-страниц, сохраняя каждый элемент в отдельном слое. Приложение сэкономит вам много времени при перепроектировании или улучшении существующих веб-страниц.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2019Разработчик: Jeremy VizziniПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A497DD7CD6247FE5C21F8E9EC1B12F40931202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337992   (271676) от 13.11.2019
+
+MP3 Gain 4 v4.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271676.jpg" />
+</div>
+
+
+###  Подробнее
+
+MP3 Gain для Mac - это простой инструмент, разработанный специально для регулировки и нормализации громкости аудиофайлов (mp3, wma и т.д.). Он автоматически нормализует громкость аудиофайлов и регулирует громкость звуковых дорожек без потерь. Он выполняет статистический анализ, чтобы определить, насколько громко файл на самом деле звучит для человеческого уха.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043A3BA643CC4771F629A04E3D5BDBBFE2D591AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337957   (271661) от 13.11.2019
 
 Do Your Data Recovery Professional 7.2 [En]
@@ -6,7 +58,7 @@ Do Your Data Recovery Professional 7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271661.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Path Finder 9.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271660.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Zoc Terminal 7.24.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271659.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Wondershare Filmora 9 v9.2.10.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271657.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Waltr 2 v2.6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271634.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ iMazing 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271633.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ DaisyDisk 4.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271593.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Exposure X5 5.0.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271583.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271581.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ Sketch 60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271580.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ TokenLock 4.69 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271526.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ Swinsian 1.12.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271451.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ Together 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271447.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ Bartender 3.1.12 Beta (fixed) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271427.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ SMARTReporter 3.1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271373.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ Mountain Duck 1.6.3.5079 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271368.jpg" />
 </div>
 
 
@@ -440,7 +492,7 @@ Waltr 2 v2.6.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271347.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ UninstallPKG 1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271272.jpg" />
 </div>
 
 
@@ -495,7 +547,7 @@ iExplorer 4.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271268.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ Mate Translate (мгновенный переводчик) 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271215.jpg" />
 </div>
 
 
@@ -551,7 +603,7 @@ BetterZip 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271201.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Microsoft Office Standard 2019 v16.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271105.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Display Maestro 2 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271047.jpg" />
 </div>
 
 
@@ -636,7 +688,7 @@ Quiver: The Programmer's Notebook 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271008.jpg" />
 </div>
 
 
@@ -650,60 +702,6 @@ Quiver — это записная книжка, специально созда
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABD269A563AC0B2068078C446DC1F11E89AE0096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266106   (270996) от 01.12.2018
-
-Contacts Journal CRM 1.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Contacts Journal CRM представляет собой мощный инструмент, который превратит ваши деловые и личные отношения: сохранять заметки о важных встречах, создавать пользовательские поля контактов, и возможность приложить важные документы для каждого из ваших контактов. Доступно на Mac, iPhone и iPad, с бесшовной iCloud синхронизацией на всех устройствах.
-
-До тех пор пока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2018Разработчик: zaal LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF518DCE7975DBC5017E0CC2E6FC8F5C607120E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338133   (270684) от 14.11.2019
-
-File Cabinet Pro 7.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270684.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Cabinet Pro - файловый менеджер строки меню Mac OS. Программа позволяет быстро перейти к нужным файлам, не загружая рабочий стол. Открыть, переместить, переименовать, сжать, добавить теги, удалить, копировать и многое другое, все из строки менюбар. Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Writes All Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC27757446FF9D8991B08DD63556BCF7E2E4540C
 ```
 
 https://mybot314.ru/tekegram_catalog/

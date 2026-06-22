@@ -1,3 +1,57 @@
+###  Публикация: 1186857   (284743) от 26.11.2017
+
+PullTube 0.10.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещенном на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.
+
+PullTube предлагает Вам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2017Разработчик: MyMixAppsПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD915FC24FB3C7A26EAD097653FC79A07036185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081314   (284741) от 09.12.2016
+
+Hazel 4.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 ноября 2016Разработчик: Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667D2BB13A7EF0C5A68595D385B19575101B1C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263695   (284681) от 21.11.2018
 
 Cookie 5 v5.9.3 [Multi]
@@ -6,7 +60,7 @@ Cookie 5 v5.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284681.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ RightFont 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284680.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ BusyContacts 1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284679.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ BusyCal 3 v3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284673.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ iCollections 4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284669.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Carbon Copy Cloner 4.1.12 (4485) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284641.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ BlueHarvest 6.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284640.jpg" />
 </div>
 
 
@@ -201,7 +255,7 @@ Jump Desktop (RDP & VNC) 8.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284508.jpg" />
 </div>
 
 
@@ -228,7 +282,7 @@ PhoneRescue for Android 3.6.0 20180503 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284504.jpg" />
 </div>
 
 
@@ -254,7 +308,7 @@ PhoneRescue for IOS 3.7.2.20180929 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284503.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ JetBrains RubyMine 2018.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284335.jpg" />
 </div>
 
 
@@ -306,7 +360,7 @@ Camtasia v2018.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284333.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ Dead Effect 2 (2016) [En] [macOS WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284288.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ Two Point Hospital v.1.6.22002 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284207.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ WiFi Explorer Pro 1.3.2 (16) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284081.jpg" />
 </div>
 
 
@@ -416,7 +470,7 @@ TotalFinder 1.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284061.jpg" />
 </div>
 
 
@@ -444,7 +498,7 @@ Hands Off! 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283501.jpg" />
 </div>
 
 
@@ -471,7 +525,7 @@ Charles Web Debugging Proxy 3.11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283337.jpg" />
 </div>
 
 
@@ -499,7 +553,7 @@ Multitouch 1.7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283052.jpg" />
 </div>
 
 
@@ -527,7 +581,7 @@ Ghostnote 2 v2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282966.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ Alfred 3 Powerpack 3.7.1 (942)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282952.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ MacX Video Converter Pro 6.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282911.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ Aiseesoft Mac Video Enhancer 9.2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282889.jpg" />
 </div>
 
 
@@ -638,7 +692,7 @@ PowerPhotos 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282887.jpg" />
 </div>
 
 
@@ -649,59 +703,6 @@ PowerPhotos - позволяет разбить ваши изображения 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2BAB8850B1EFE81D85B93B5BC9FFC86A69594C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264092   (282879) от 22.11.2018
-
-Ethernet Status 1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая утилита, для проверки состояния вашего Ethernet/WiFi соединения, прямо из строки меню. Утилита добавляет аккуратную иконку в строку меню, с помощью которой вы можете получить наиболее полную информацию о состоянии вашего соединения: IPv4, IPv6, Mac-адрес, локальный и внешний IP и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 12.07.2018Разработчик: AppYogi SoftwareПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8B0F3F47B8C3107C189A2CF404D2E611C55838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081574   (282813) от 10.12.2016
-
-Waltr 2 v2.0.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282813.jpg" />
-</div>
-
-
-###  Подробнее
-
-WALTR 2 — революционный способ передачи файлов в любых форматах на iPhone, iPad и iPod
-Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 декабря 2016Разработчик: Softorno Inc .Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D45B21F518BB679F6195CDACD2093C8A4F6349D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1481859   (1008006) от 05.07.2021
+
+Wannalisn v3.5.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wannalisn - бесплатное приложение для изучения английского языка, которое помогает тренировать навыки аудирования и произношения с помощью упражнений на аудирование и мини-видеоклипов из популярных фильмов, сериалов и песен.
+Wannalisn также является лучшим приложением для изучения английского языка, чтобы выучить наиболее часто используемые английские слова, идиомы (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 22 июня 2021 г.Разработчик: Wannalisn SLПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF18E1ABD5EC0B32750A31E03CB82665F769E261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481917   (1007991) от 05.07.2021
 
 GPS Camera with latitude and longitude v1.9.6 [En]
@@ -6,7 +33,7 @@ GPS Camera with latitude and longitude v1.9.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007991.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Document Viewer v3.3 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007984.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ KISS Launcher 3.16.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007846.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ F-Stop Gallery Pro 5.3.24 Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007588.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Kuji Cam 2.21.29 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007576.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Power Shade: Notification Panel & Quick Settings 18.1.0 Mod by Mixroot, mak7im01
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007572.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ TickTick: Менеджер задач, Органайзер и Календар�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007363.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ WeNote - Заметки, задачи, напоминания и календа�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007255.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляем
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007248.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007138.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Eon Music Player Pro 5.5.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007125.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007078.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ Shadow Fight 2 v2.14.0 + v2.10.1 (Mod) [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007065.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ Get aCC_e55 1.1.50 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006696.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ Correct spelling v11.0 [En] - English learning app
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006475.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ Measure Map v1.2.23 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006229.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ Blokada - AD Blocker for Android v5.14.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006208.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006184.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ Picture Fish - Fish Identifier v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005439.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ File Converter v12.1.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005432.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ Photo Translator v8.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005415.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ Alien Shooter Anthology [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005135.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005064.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004968.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004525.jpg" />
 </div>
 
 
@@ -650,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C148F5953669B8DE599B61D7A1575FCC3C018D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517955   (1003098) от 06.01.2020
-
-Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изображения [Rus]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позволяет добавлять водяные знаки в изображения. Так вы можете быстро вставить свой текст или логотип в изображение, настроить размер, прозрачность, другие параметры, затем сохранить и загрузить его, например, на интернет-блог.
-Поддерживает работу на планшетниках.Тип издания: ПираткаРелиз состоялся: 06.01.20Разработчик: AndroidVillaПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C2273AEBC41E5DF7B49FAA7F729D0C68DCA5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

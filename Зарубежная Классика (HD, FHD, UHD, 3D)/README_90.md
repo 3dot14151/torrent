@@ -1,3 +1,55 @@
+###  Публикация: 590881   (135892) от 21.12.2012
+
+Парни и куколки / Guys and Dolls  (1955) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время действия — Нью-Йорк, 1920-ые годы. Главные персонажи — игроки, букмекеры и их свита с одной стороны и вездесущий полицейский, который идет прямо по их следу — с другой. Натан Детройт — организатор «Игры по-крупному». Его задача найти место, где соответствующая публика могла бы спокойно сыграть. Ставки как всегда высоки, азартных игроков много, вот только где найти место, чтобы полиция не узнала об игре, хотя бы до утра… Натану подвернулась возможность арендовать безопасный гараж, но хозяин гаража требует задаток в 1000 долларов. Таких денег Натан не имеет. Пораскинув мозгами, он решает выиграть их в споре. Он знает человека — Ская Мастерсона, готового держать пари на что угодно. Натан предлагает ему пари на 1000 долларов — уговорить девушку слетать со Скаем поужинать на Кубу… Известный донжуан Скай принимает пари, уверенный, что ни одна девушка не откажет ему. Натан указывает Скаю на сестру Армии спасения Сару Броун. И уже уверенный в своем выигрыше, так как Сара Броун — это неприступная крепость добродетели, (   Читать дальше...   )Жанр: Мелодрама, комедияРежиссер: Джозеф Лео МанкевичВ ролях: Марлон Брандо, Джин Симмонс, Фрэнк Синатра, Вивиан Блейн, Роберт Кейт, Стабби Кэй, Джонни Сильвер, Шелдон Леонард, Дэнни Дэйтон, Джордж Э. Стоун, Режис Туми, Веда Энн Борг, Мэри Алан Хокансон, Кэй Е. Кьютер, Степлтон Кент, Барбара Брент, Янн Дарлин, Мэдлин Дарроу, Пэт Шиэн, Ларри Томас, Сандра Уорнер, Соня УорнерПеревод: Многоголосый закадровыйПродолжительность: 02:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E361F9662AC78528C2B5ED157EEAE2D16841C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592106   (135536) от 22.12.2012
+
+Египтянин / The Egyptian (1954) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет, XIV век до нашей эры. Страной правит фараон Аменхотеп IV, решивший изменить религию многобожия на поклонение единому божеству Атону. Культ Атона не был принят ни священнослужителями, ни жителями Египта и вызвал огромное негодование. В это же время Синух, молодой египтянин, выбирает профессию врача, и волею судьбы назначается лекарем самого фараона. Он становится невольным участником дворцовых интриг, заговоров и предательств... Решение экранизировать роман Мики Валтари, написанный с множеством научных деталей, наверняка потребовало определенной смелости, так как материал не давал возможностей для длинных, зрелищных прогонов. Книга рассказывает странную и необычную историю на фоне экзотического и в то же время резко реалистичного Египта 33 столетия тому назад. Жил тогда фараон, который верил в одного Бога, и врач, которому блеснул свет великой истины, и он пытался жить в соответствии с этим. На декорации и костюмы были выделены большие деньги — 4,2 млн долларов, и древней Египет ожил, оправдывая вложения. (   Читать дальше...   )Жанр: Драма, историяРежиссер: Майкл КертисВ ролях: Джин Симмонс, Виктор Мэтьюр, Джин Тирни, Майкл Уайлдинг, Белла Дарви, Питер Устинов, Эдмунд Пурдом, Джудит Эвелин, Генри Дэниелл, Джон Кэрредин, Карл Бентон Рейд, Томми Реттиг, Ричард Аллан, Майкл Ансара, Дон Блэкман, Джордж Честер, Анджела Кларк, Эдмунд Кобб, Генри Корден, Карл «Убийца» Дэвис, Мими Гибсон, Лео Гордон, Майкл Грэйнджер, Егиш Арут, Йен МакДональдПеревод: Многоголосый закадровый, Двухоголосый закадровыйПродолжительность: 02:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76E973EB511A7FD2E1DC18406668BBA91DE6EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592109   (135258) от 23.12.2012
 
 Легенда о потерянном  / Legend of the Lost (1957) [720p] BDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135258.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134889.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134829.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134751.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134496.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134102.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134042.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134003.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133908.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133769.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133432.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133428.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132812.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132573.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132354.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132296.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131772.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131763.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131335.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131274.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130955.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130672.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130563.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130210.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B88B8201F1CD8F55615B11593973141FD75CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517855   (130179) от 19.01.2022
-
-Порт де Лила: На окраине Парижа / Porte des Lilas (1957) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130179.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Рене Фале «Окружная железная дорога (Большое кольцо)» («La Grande Ceinture»). Действие происходит на окраине Парижа в убогом квартале с поэтическим названием "Сиреневые ворота". Здесь обитают двое друзей - никчемный лежебока Жюжю, живущий за счет старой матери, и человек по прозвищу Артист, зарабатывающий на жизнь пением в кафе. Однажды, скрываясь (   Читать дальше...   )Производство: Франция, Италия /  Cinétel, Filmsonor S.A., Rizzoli Film S.p.a., S.E.C.A.Жанр: экранизация, драма, мелодрама, криминалРежиссер: Рене КлерАктеры: Пьер Брассёр, Жорж Брассенс, Анри Видаль, Дани Каррель, Раймон Бюссьер, Габриель Фонтан, Амедеи, Аннет Пуавр, Ален Буветт, Алис ТиссоПеревод: Дублированный, многоголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: английские, французские (SDH)Продолжительность: 01:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6441CDB56A2B32FAB7010B3DD37BA1BD058CC3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517880   (130166) от 19.01.2022
-
-Бедность и благородство / Miseria e nobilta (1954) WEB-DL [H.264/1080p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феличе Шошаммокка - писарь и Паскуале - фотограф живут со своими семьями, еле сводя концы с концами, не всегда имея возможность даже пообедать. Но случается так, что молодой маркиз Эудженио влюбляется в балерину Джемму. И вот незадача: несмотря на то, что Джемма - дочь разбогатевшего повара, Эудженио, не может открыться в своей любви отцу и к тому же он в ссоре с (   Читать дальше...   )Производство: Италия / Excelsa FilmЖанр: комедияРежиссер: Марио МаттолиАктеры: Тото, Софи Лорен, Энцо Турко, Долорес Палумбо, Джанни Кавалери, Франка Фальдини, Карло Кроччоло, Лиана Билли, Джузеппе ПореллиПеревод: Одноголосый любительский (Andre1288)Язык озвучки: Русский, ИтальянскийСубтитры: английскиеПродолжительность: 01:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B32E4BCA463CBB5514BAF746A33B1B9A2E8815
 ```
 
 https://mybot314.ru/tekegram_catalog/

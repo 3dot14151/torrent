@@ -6,7 +6,7 @@ VA - 80s Forever (The Greatest Pop Hits) (2006) [OGG Vorbis|480 Kbps] <Rock, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21331.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The All Time Greatest Love Songs Of The 60's, 70's, 80's & 90's Volume II (
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21253.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Pop Legends (2000) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21138.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Best Of The 90s (2016) 2 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21130.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Classic Road Trip Songs 100 Hits (2025) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20394.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Eurovision Song Contest - Turin 2025 (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19577.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17867.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Shirley Bassey - The Singer: Classic and Undiscovered Gems 1962-79 (2025) [MP3|3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15032.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Classic Soul Music (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14925.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lady Gaga - Mayhem (2025) [MP3|320 Kbps] <Pop, Dance-Pop, Art Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3900.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sheena Easton - The Definitive 12" Singles, 1983-1987 (2025) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2932.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sophie Ellis-Bextor - Perimenopop (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2768.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Miley Cyrus - Something Beautiful (2025) Deluxe Edition, 2025, MCEO Inc. [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1985.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Damiano David - FUNNY little FEARS (DREAMS) (2025) [MP3|320 Kbps] <Pop, Pop Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1569.jpg" />
 </div>
 
 

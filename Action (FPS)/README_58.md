@@ -1,3 +1,29 @@
+###  Публикация: 1812289   (7943) от 14.08.2025
+
+Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с друзьями окунитесь в стремительный многопользовательский шутер Abyssus. Сражайтесь на великолепных, созданных вручную уровнях в этом приключении в жанре «упрощенного рогалика», которое проверит ваши тактические навыки на прочность. Используйте мощное оружие, питаемое силой глубин, и оснастите его древними технологиями, чтобы получить преимущество над врагами. (   Читать дальше...   )Тип издания: RepackРазработчик: DoubleMoose GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1DA9E100395369776B2FAFC2C35044BCBDA8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812482   (7827) от 15.08.2025
 
 Call of Duty Modern Warfare III (2023) [Ru/En] (10.4.23098619) Repack Other s
@@ -6,7 +32,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4.23098619) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7827.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7826.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Impaler Gold (2022) [Ru/Multi] (1.1.653) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7799.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7784.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack Decepticon [Campaig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7778.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Wizordum (2023) [En] (1.0.09.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7608.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2 Update 1 Build 2708229) Repac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7567.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Call of Duty Modern Warfare III (2023) [Ru/Multi] (10.4/10.24) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7375.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7362.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (HotFix 3/dlc) Licen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7162.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Blood West (2023) [Ru/Multi] (4.5.1 rc1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7158.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6962.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6726.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.0) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6704.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6702.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Beyond Citadel (2025) [En] (0.99b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6485.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6332.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Wanterlude [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6164.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6046.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6037.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enha
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6030.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Enemy Front (2014) [Ru/Multi] (1.0/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5628.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5591.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.11) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5553.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5403.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA0C285C77B2F41809A35FBBDBC15E30F2313CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815608   (5030) от 31.08.2025
-
-No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая научная фантастика, ее многообразие и неповторимый дух приключений, оживают в творении студии Hello Games. No Man’s Sky – игра, отличающаяся невероятным размахом и амбициями. Вам предстоит исследовать бесконечную вселенную, открывать бесчисленные уникальные планеты и знакомиться с невиданными прежде формами жизни.Тип издания: RepackРазработчик: Hello GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D26F8CEDCCDC54CCB5DBFD662B90FF221F8750F
 ```
 
 https://mybot314.ru/tekegram_catalog/

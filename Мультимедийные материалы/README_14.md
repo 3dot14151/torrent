@@ -1,3 +1,30 @@
+###  Публикация: 595088   (132476) от 28.12.2012
+
+DVD приложение к журналу "Хакер" №01 (168), 2013 [unpacked]
+
+>>Мультимедийные материалы
+>>Приложения к журналам
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132476.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Хакер" – это журнал помогающий читателю освоить современные компьютерные технологии, программирование, скрытые возможности программ и оборудования, знакомит с компьютерной историей, людьми, повлиявшими на развитие компьютерной индустрии. Причем делает это с юмором, простым языком. Наша задача – помочь молодежи освоиться в мире IT-технологий, поддержать и развить их увлечение компьютерами.
+Журнал Хакер - один из самых популярных журналов, посвященный искусству хакерства, интересным статьям для самообразования, информации о том, что необходимо знать каждому пользователю компьютера. Главное отличие от других изданий - манера подачи материалов. Журналисты Хакера объясняют сложные вещи простым языком, с юмором и молодежным сленгом. Единственным исключением является рубрика ВЗЛОМ, которая рассчитана на более серьезных специалистов, материалы в этой рубрике подаются более углубленно с множеством технических подробностей и терминов.Жанр: DVD приложение к журналу (раздача каталогами)Формат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174481250E8E488E32B7FFCD47BA721D49E3EE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692381   (122593) от 16.01.2024
 
 Фонд «Математические этюды» (Математический институт им. В. А. Стеклова РАН) | Вестник Опытной Физики и Элементарной Математики (2018) [ISO]
@@ -6,7 +33,7 @@
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122593.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122587.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122413.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122226.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121952.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116792.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Stepik, Аватар пользователя Руслан Клуб дедов-�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116151.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115646.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Stepik, Александр Шибаев | Многозадачность в Pyth
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115277.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115259.jpg" />
 </div>
 
 
@@ -282,7 +309,7 @@ Stepik, Алексей Лобзов | Docs as Code: Пишем тексты ка
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115225.jpg" />
 </div>
 
 
@@ -311,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89923.jpg" />
 </div>
 
 
@@ -339,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89636.jpg" />
 </div>
 
 
@@ -367,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89085.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88275.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ NoName | Защита флешки [2012] [EXE]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88004.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ DVD приложение к специальному выпуску журнал
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87236.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85768.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ DVD-приложение к журналу Upgrade Special №3-4 [март-ап
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85501.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85017.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82437.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82167.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79513.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79209.jpg" />
 </div>
 
 
@@ -686,7 +713,7 @@ Encyclopaedia Britannica Ultimate Suite [ENG] [2012] [ISO]
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77002.jpg" />
 </div>
 
 
@@ -706,32 +733,6 @@ Encyclopaedia Britannica Ultimate Suite [ENG] [2012] [ISO]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B31A7BFF161F5C590438CC3F4BBCE2014C6883A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452840   (76380) от 15.02.2012
-
-[Турецкий] Rosetta Stone - Turkish уровни 1-3 (ver. 3) [2007, ISO]
-
->>Мультимедийные материалы
->>Иностранные языки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rosetta Stone® - это проверенное, эффективное и простое решение для изучения иностранного языка. Новая технология распознавания речи, интуитивно-понятный процесс обучения, и имитация жизненных ситуаций способствует простому и результативному изучению турецкого языка.2007Жанр: Иностранные языкиФормат: ISO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6624F53A017DE26EBF12DA793D7F936184C656
 ```
 
 https://mybot314.ru/tekegram_catalog/

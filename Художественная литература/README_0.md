@@ -1,3 +1,85 @@
+###  Публикация: 1874236   (1071784) от 01.06.2026
+
+Светлана Буслаева | Славянский бестиарий. Кто прячется в лесах, болотах и полях (2026) [FB2]
+
+>>Художественная литература
+>>Историческая проза, Мифы и Легенды, Фольклор
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в таинственный мир славянской мифологии, где духи и чудовища населяли леса и болота. Эта книга раскрывает загадки древних существ и их связь с традициями, страхами и силой природы. Идеальное чтение для любителей легенд и славянской культуры!
+
+Древней верой славян испокон веков было язычество, где сверхъестественное незримо соседствовало с человеком и (   Читать дальше...   )Жанр: Мифология, фольклорИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9AB6D067B54CBEEE365B7F19F3F96432338AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874298   (1071745) от 01.06.2026
+
+Арно Штробель | Приложение (2020) [FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071745.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас в телефоне есть приложение. Оно делает ваш дом безопасным. Но не только оно знает, где вы живете…
+Врач Хендрик и его невеста Линда переезжают в дом мечты. Он оснащен умной системой безопасности «Adam»: камеры, сканеры сетчатки, полное управление со смартфона. Абсолютная защита.
+Но вернувшись с ночного дежурства, Хендрик находит дом пустым. Линда исчезла. Нет (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: S. Fischer VerlagФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1201E92E39410748BA0EF205B6686D40692A1E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1874394   (1071690) от 02.06.2026
+
+Алим Тыналин | Сборник произведений [98 книг] (2019-2026) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алим Тыналин пишет историческую прозу, альтернативную историю, попаданческие циклы, военно‑приключенческие романы, а также детективы и производственные драмы. Его книги — это всегда герой, заброшенный в прошлое, который меняет эпоху через действие, ремесло, службу или экономику.Жанр: Альтернативная история, Попаданцы, Боевик, Приключения, Детективная фантастикаИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86038EAC1FE6B5ABAA2110CFD28632516C99B22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873812   (1071655) от 31.05.2026
 
 Книжная серия | Антология зарубежного детектива (Витовт) [41 книга] (2021) [FB2]
@@ -6,7 +88,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071655.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071654.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071650.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071647.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071645.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071643.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071642.jpg" />
 </div>
 
 
@@ -188,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071638.jpg" />
 </div>
 
 
@@ -214,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071637.jpg" />
 </div>
 
 
@@ -240,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071634.jpg" />
 </div>
 
 
@@ -266,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071632.jpg" />
 </div>
 
 
@@ -292,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071631.jpg" />
 </div>
 
 
@@ -318,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071630.jpg" />
 </div>
 
 
@@ -344,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071629.jpg" />
 </div>
 
 
@@ -370,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071628.jpg" />
 </div>
 
 
@@ -396,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071627.jpg" />
 </div>
 
 
@@ -422,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071626.jpg" />
 </div>
 
 
@@ -448,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071593.jpg" />
 </div>
 
 
@@ -474,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071592.jpg" />
 </div>
 
 
@@ -502,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071588.jpg" />
 </div>
 
 
@@ -528,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071587.jpg" />
 </div>
 
 
@@ -554,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071586.jpg" />
 </div>
 
 
@@ -582,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071585.jpg" />
 </div>
 
 
@@ -594,88 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F9648357FB56E765C0E14CB30385377CAD6CA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874023   (1071584) от 31.05.2026
-
-Книжная серия | Новые Герои (Эксмо) [160 книг] (2010-2018) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия современной российской приключенческой фантастики, посвящённая «попаданцам». Причём в серии нет ограничения на жанр — герои могут попасть и в фэнтезийную вселенную, и в далёкое прошлое, и в космическое пространство.Жанр: Боевая фантастика, Боевое фэнтези, ПопаданцыИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10F4DDCE8999DD522159981DB225852D504391B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874021   (1071583) от 31.05.2026
-
-Книжная серия | Библиотека приключений продолжается [49 книг] (1993-1997) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071583.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1993—1995 годах московское издательство «Диамант» выпустило серию Библиотека приключений продолжается.
-Примерно в эти же годы (1993-1997) ярославское издательство «Нюанс» выпускало похожую серию, которая называлась Новая библиотека приключений.
-В сериях печатались приключенческие романы советских и зарубежных авторов.Жанр: Фантастика, ПриключенияИздательство: Диамант, НюансФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7423C88645309E4702179019F764DD5DF459A5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1874020   (1071582) от 31.05.2026
-
-Книжная серия | Настоящая фантастика [43 книги] (2010-2022) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия научной фантастики московского издательства «Снежный ком». Открыта в 2010 году.
-
-«НФ — это не только Настоящая Фантастика, это ещё и общепринятое сокращение для замечательного словосочетания «Научная Фантастика». Это означает, что в серию не попадает ничего, что было бы связано с необъяснимыми и прочими сверхъестественными явлениями. Однако и понятие «научная» (   Читать дальше...   )Жанр: Научная Фантастика, Социальная фантастика, Космическая фантастика, Детективная фантастика, Боевая фантастика, Стимпанк, ТриллерИздательство: Вече, Снежный Ком МФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116B3104FFE80922E492BF2F23FB344246BB4543
 ```
 
 https://mybot314.ru/tekegram_catalog/

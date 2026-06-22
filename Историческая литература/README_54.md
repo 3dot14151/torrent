@@ -1,3 +1,107 @@
+###  Публикация: 1044802   (563685) от 21.08.2016
+
+Владимир Павлов и др. | Дальневосточные путешествия и приключения. №11 (1984) [FB2, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцатый выпуск содержит разнообразные материалы, преимущественно путевые очерки, рассказывающие о давних и недавних путешествиях, экспедициях, походах по дальневосточной земле, о примечательных для туриста уголках Приамурья, Приморья, Северо-Востока. Особый раздел посвящен пограничным районам. Здесь воскрешаются эпизоды, связанные со становлением пограничной (   Читать дальше...   )Жанр: Путешествия и География ИсторияФормат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C96A52F94376856E516DA94E071192C269FDD1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152778   (563624) от 24.07.2017
+
+С. В. Ключарев | Крестьянская нищета и финансово-экономическая система С. Ю. Витте (1906) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Резко критическая полемическая брошюра. Автор указывает, что хозяйство крестьян слабо не потому, что у них земли мало, а потому, что их хозяйство ведется слабо, приводя в сравнение развитые страны. Причину всех бед автор усматривает в заградительных таможенных пошлинах. Мысли Ключарева в чем-то верны, в чем-то неверны, но книга в целом интересна и содержит интересно (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE6A1C5EC3A58E19C711CB5A807DDF3053BD549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152982   (563598) от 24.07.2017
+
+М. М. Малкин | Гражданская война в США и царская Россия (1939) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор этой книги, использовав архивные и печатные источники, дает на основе подробную характеристику русско-американских отношений в период гражданской войны в США (1861-1865 гг.). Этот вопрос автор излагает на фоне международного положения того времени, хода гражданской войны в США и борьбы европейской демократии против попыток интервенции в США.Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DCBFCB77936AFDC70B54F63AC00F98DCB16B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044991   (561814) от 22.08.2016
+
+Григорий Щедрин и др. | Дальневосточные путешествия и приключения. №10 (1982) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561814.jpg" />
+</div>
+
+
+###  Подробнее
+
+В материалах 10-го выпуска воскрешаются яркие страницы героической эпохи открытий и исследований на восточной окраине России и в прилегающих морях, одиссеи путешественников прошлого. Рассказано о беспримерном беспосадочном перелете советских авиаторов из Москвы в Америку, о санных спасательных экспедиция» в Арктике, о романтических изыскательских тропах старого и (   Читать дальше...   )Жанр: Путешествия и География ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28EA762D53F2928DB91FBF72242EBDCDA6173631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045019   (561678) от 22.08.2016
 
 Евгений Абалаков | На высочайших вершинах Советского Союза (1963) [FB2]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561678.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561669.jpg" />
 </div>
 
 
@@ -62,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560997.jpg" />
 </div>
 
 
@@ -91,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560314.jpg" />
 </div>
 
 
@@ -117,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559573.jpg" />
 </div>
 
 
@@ -144,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557988.jpg" />
 </div>
 
 
@@ -170,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557982.jpg" />
 </div>
 
 
@@ -198,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557842.jpg" />
 </div>
 
 
@@ -224,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557470.jpg" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557364.jpg" />
 </div>
 
 
@@ -278,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557335.jpg" />
 </div>
 
 
@@ -304,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557017.jpg" />
 </div>
 
 
@@ -331,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556982.jpg" />
 </div>
 
 
@@ -359,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556616.jpg" />
 </div>
 
 
@@ -385,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556564.jpg" />
 </div>
 
 
@@ -413,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555905.jpg" />
 </div>
 
 
@@ -439,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554751.jpg" />
 </div>
 
 
@@ -467,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554529.jpg" />
 </div>
 
 
@@ -495,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553316.jpg" />
 </div>
 
 
@@ -521,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553199.jpg" />
 </div>
 
 
@@ -547,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552474.jpg" />
 </div>
 
 
@@ -573,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552417.jpg" />
 </div>
 
 
@@ -584,117 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB9F7978C80508C862C399AE228A4D3B9A91CA8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046922   (551182) от 28.08.2016
-
-А. С. Бубнов | Статьи и речи о народном образовании (1959) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551182.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены важнейшие статьи и речи А. С. Бубнова за период с 1929 по 1936 г., посвященные строительству советской школы. В них затрагиваются вопросы всеобщего обязательного обучения, трудового воспитания, политехнического образования и др., отражается определенный этап в развитии народного образования в СССР.Жанр: История, политология, педагогика, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB7511DEF32720181055B0A318C70DB2F90405E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046640   (550873) от 28.08.2016
-
-В. С. Сергеев | Очерки по истории древнего Рима [2 книги] (1938) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В работе В. С. Сергеева «Очерки по истории древнего Рима» дается систематическое изложение истории Рима от основания города до падения Римской империи. Большая часть работы написана на основании изучения источников.
-
-Книга является пособием к университетскому курсу.
-(   Читать дальше...   )Жанр: История, политология, культурология, искусство, археология, экономика, этнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2B3D58A09C28A20EE00D712F7C507ABC8104F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047522   (549160) от 30.08.2016
-
-В. Колоколкин, С. Моносов | Что такое Термидор (1928) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимательное отношение к опыту исторического развития, трезвый учет и трезвая оценка этого опыта издавна составляют одну из самых сильных и самых замечательных сторон большевизма.
-
-Нельзя стать настоящим большевиком, следовательно, нельзя подняться до уровня передовых представителей рабочего класса, не изучая, не переваривая и не используя в интересах непосредственной (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AFCF196DB9692A6681B09C9E5D22B43A82801B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047301   (548984) от 30.08.2016
-
-Андрей Зубов (ред.) | История России. XX век. Как Россия шла к ХХ веку. От начала царствования Николая II до конца Гражданской войны (1894–1922). Том I (2016) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – первая из множества современных изданий – возвращает русской истории Человека. Из безличного описания «объективных процессов» и «движущих сил» она делает историю живой, личностной и фактичной.
-
-Исторический материал в книге дополняет множество воспоминаний очевидцев, биографических справок-досье, фрагментов важнейших документов, фотографий и других живых (   Читать дальше...   )Жанр: ИсторияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DC58C730F939F9BC30FD6CCAF3298F5D7B9841
 ```
 
 https://mybot314.ru/tekegram_catalog/

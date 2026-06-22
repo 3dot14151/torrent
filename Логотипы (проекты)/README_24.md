@@ -1,3 +1,110 @@
+###  Публикация: 900512   (667508) от 22.05.2015
+
+Проекты - VideoHive - Abstract Lines Logo - 11224044 [AEP]
+
+>>След.
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в АЕ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B66E69FE6908DC51C71631CA9D1AE63AED3C761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137641   (666403) от 27.05.2017
+
+Проекты - Text from Text [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текст либо лого, собирающиеся из слов.
+Область применения не ограничена. Например, название туристического агентства, составленное из названий стран и городов; школы, класса - из фамилий учеников и т.д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940DCAB90A85DF3E213B9C076FACFFD04EF57776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 900761   (666259) от 23.05.2015
+
+Проекты - VideoHive - Earth Logo Epic Opener V2 - 11022966 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотореалистичный эпичный полёт вокруг Земли и ваш логотип на фоне тени от планеты.
+Проект включает в себя камеру виртуальный сцены для отслеживания объекта или фона и световой слой, который соответствует движению Солнца – все они легко могут быть изменёны. Музыка не включена в состав проекта.
+Простая видеоинструкция поможет в его модификации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7928E609012E27EC7A1B0AADF9B8EF48210B3BF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224398   (665764) от 10.05.2018
+
+Проекты - VideoHive - Wide Logo Reveal Pack - 7045874 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665764.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 варианта логотипаФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BEDE1454E3FC351ADE11833E85038CA6210CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138235   (665119) от 28.05.2017
 
 Проекты - VideoHive - Logo Reveal - 19747199 [AEP]
@@ -6,7 +113,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665119.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662902.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658771.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653168.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651123.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650779.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650768.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650767.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ VideoHive - Logo In Nature Bundle - 4263373 [AEP]
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649767.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649437.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649226.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649123.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648837.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648831.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648736.jpg" />
 </div>
 
 
@@ -402,7 +509,7 @@ VideoHive – Butterflies Logo Reveal - 3282067 [AEP]
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647803.jpg" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647369.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647061.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645571.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645499.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645444.jpg" />
 </div>
 
 
@@ -558,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645439.jpg" />
 </div>
 
 
@@ -569,110 +676,6 @@ Clean Flip Logo - простой, элегантный, чистый показ 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:380A2611B41370AC98856624CB18CE83BABB83A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032342   (645335) от 07.07.2016
-
-Проекты - VideoHive - Magical Particles Vortex Logo Reveal - 5086083 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D011C7BDAB4B364402EEB18AD3EC619FD135C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032633   (643263) от 08.07.2016
-
-Проекты - VideoHive - Carbon Turbo Text & Logo - 16579011 [AEP]
-
->>След.
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Turbo Text & Logo - стильная, дорого выглядящая, плавная анимация в темных тонах, которая способна приковать вниманием любого зрителя. Сделайте презентацию вашего логотипа или торгового знака запоминающимся - пусть это вызывает высокую репутацию у потребителей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F428A44AC143093A63386F48F1482F1506FAC630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906728   (643090) от 09.06.2015
-
-Проекты - VideoHive - Sparkles Rain Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E30537AC7227FBDB6EE4CC804677773AF3ADAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033007   (641598) от 09.07.2016
-
-Проекты - VideoHive - Shatter - 1945628 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shatter - "разрушительный" проект для вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600AC84EDDDB815D44EF7428A05F272EB95BD2C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Jesse Pitela | Курс по созданию огня и дыма с плаги
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387291.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Jesse Pitela | Курс Для Начинающих по Симуляции Жи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387264.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jesse Pitela | Курс для начинающих по созданию зап
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387148.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Jesse Pitela | Курс по созданию продвинутых крупн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387146.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Max Twain | Bad Cat (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387116.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Max Twain | NOIRE (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386963.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Max Twain | Mystic (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386955.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Max Twain | Global Wedding (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386822.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Max Twain | Джоконда (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386821.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Max Twain | Workshop (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386816.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Max Twain | Daz3D (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386814.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Max Twain | Pro Retoucher. Fatalism NEON (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386812.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Max Twain | Fatalism ART (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386808.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Max Twain | Pro Retoucher. Fatalism START 2020 PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386704.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Alkis Escobedo | Освещение и рендеринг с помощью V-Ra
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385384.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ ArtistHunt School | 25 курсов по рисованию (2020) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384724.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ The Gnomon Workshop, Maxime Deleris | Visual FX for Games (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383548.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383155.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Udemy, Nikolay Naydenov | Demon Huntress in Blender Course (2022) PCRec [EN / EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383147.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382883.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Chris Thomas | Particle Flow Fundamentals 4: Tests, Forces & Collisions (2004) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381422.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Chris Thomas | Particle Flow Fundamentals 3: Operators 2 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381418.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Chris Thomas | Particle Flow Fundamentals 5: Practical Examples (2004) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381325.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Chris Thomas | Particle Flow Fundamentals 2: Operators 1 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381267.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Chris Thomas | Particle Flow Fundamentals 1: Principles and Workflow (2004) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381023.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Wayne Hollingsworth | Введение в Maya Fluid Effects. Часть 2 /  In
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380896.jpg" />
 </div>
 
 

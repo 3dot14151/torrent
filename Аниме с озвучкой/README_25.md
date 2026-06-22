@@ -1,3 +1,85 @@
+###  Публикация: 1535313   (686011) от 06.03.2022
+
+Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова пузырятся подобно газировке [2021, Movie] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686011.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В своё семнадцатое лето я встретил тебя».
+Черри всегда носит наушники и с большим трудом сходится с людьми. Все чувства, что не может выразить, он вкладывает в своё главное увлечение — хайку. Смайл надевает маску, чтобы скрыть крупные передние зубы, из-за которых ей приходится носить брекеты. Она ведёт популярный видеоблог про поиски «милоты».
+Паренёк, который испытывает (   Читать дальше...   )Производство: Signal MD / シグナル・エムディ, Sublimation / サブリメイションЖанр: романтика, повседневностьРежиссер: Исигуро КёхэйПеревод: Ольга Цяцька, OkanaTsoyЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B8780FD4B586468914112DF5E304AEA24040F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946340   (685766) от 24.06.2016
+
+Gakusen Toshi Asterisk / The Asterisk War / Боевая академия города Астериск [2015, TV, 24] HDTV 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир изменился. Тотальные войны и атомные бомбы ушли в прошлое, зато Инверсия, великая перемена, породила Генестелл – детей, одаренных магическими способностями. Они быстрее, сильнее, выносливее за счет использования маны, но это еще не все – отдельные гении могут исцелять, ставить барьеры, оживлять големов и даже заглядывать в будущее. Самым уважаемым в любой стране, (   Читать дальше...   )Производство: Япония, A-1 Pictures Inc.Жанр: Приключения, Романтика, ЭттиРежиссер: Оно МанабуСубтитры: Полные, отключаемые (Внутренние) | RusПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646963C992C965350CEFB507168E547365A88C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535790   (682007) от 08.03.2022
+
+Senpai ga Uzai Kouhai no Hanashi | My Senpai Is Annoying | Мой сэмпай раздражает! [2021, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682007.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной торговой компании продавщице Футабе Игараси удалось продержаться на уважаемой работе почти два года благодаря руководству своего старшего коллеги - Харуми Такеды. Однако из-за невысокого роста Игараси Такеда часто дразнит ее и обращается с ней как с ребенком, из-за чего Игараси постоянно раздражается из-за его выходок.
+
+Несмотря на это, Игараси замечает надежность (   Читать дальше...   )Производство: Студия Doga Kobo / 動画工房Жанр: романтика, комедияРежиссер: Ито РётаЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A352FE7CFB6D974B940E741C28C31387778B25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023311   (671566) от 01.07.2016
 
 Ushio to Tora / Усио и Тора TV-2 [2016, TV, 13] HDTV 720p rus
@@ -6,7 +88,7 @@ Ushio to Tora / Усио и Тора TV-2 [2016, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671566.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ Big Order / Приказ свыше [2016, TV, 10] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671564.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671556.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ Mayoiga / The Lost Village / Пристанище потерянных [2016, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669744.jpg" />
 </div>
 
 
@@ -111,7 +193,7 @@ Bishoujo Senshi Sailor Moon R: The Movie / Sailor Moon R: The Movie - Promise of
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669688.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ Re-Kan! / Ре-Кан! [2015, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668808.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? / А ты думал, что дев
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668690.jpg" />
 </div>
 
 
@@ -190,7 +272,7 @@ Gake no ue no Ponyo / Рыбка Поньо на утесе [2008] BDRip 720p ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665542.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ Howl's Moving Castle / Ходячий замок [2004] BDRip 384p raw + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665539.jpg" />
 </div>
 
 
@@ -243,7 +325,7 @@ Ao no Exorcist: Kyoto Fujouou Hen / Синий Экзорцист: Нечест�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660799.jpg" />
 </div>
 
 
@@ -270,7 +352,7 @@ Mitsuboshi Colors / Трехцветные звездочки [2018, TV, 12 ep] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658498.jpg" />
 </div>
 
 
@@ -296,7 +378,7 @@ Slow Start / Медленный старт [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658456.jpg" />
 </div>
 
 
@@ -322,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656834.jpg" />
 </div>
 
 
@@ -348,7 +430,7 @@ Ansatsu Kyoushitsu: Second Season / Assassination Classroom: Second Season / К�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652943.jpg" />
 </div>
 
 
@@ -374,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651251.jpg" />
 </div>
 
 
@@ -400,7 +482,7 @@ Garo: Guren no Tsuki / Garo: Crimson Moon / Гаро: Кровавая луна 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651030.jpg" />
 </div>
 
 
@@ -426,7 +508,7 @@ Rescue Me! / Возьми меня! [2013, OVA, 1ep] BDrip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649313.jpg" />
 </div>
 
 
@@ -453,7 +535,7 @@ Hai-Furi / Haifuri / High School Fleet / Морская школа [2016, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649002.jpg" />
 </div>
 
 
@@ -479,7 +561,7 @@ Kiznaiver / Кизнайвер [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647079.jpg" />
 </div>
 
 
@@ -505,7 +587,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644322.jpg" />
 </div>
 
 
@@ -531,7 +613,7 @@ Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из шк
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644321.jpg" />
 </div>
 
 
@@ -558,7 +640,7 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644319.jpg" />
 </div>
 
 
@@ -584,7 +666,7 @@ Sword Art Online: Alicization / Мастера меча онлайн: Алиси
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640484.jpg" />
 </div>
 
 
@@ -595,84 +677,6 @@ Sword Art Online: Alicization / Мастера меча онлайн: Алиси
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A90DCB34FC3C992736C7513E8FF5CD9B8EAD29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523393   (640360) от 05.04.2022
-
-Контратака женщины-полицейского | Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod [2022, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маи Кавай работает в полиции, и это занятие ей не очень-то по душе. Служба ей порядком осточертела. Но когда она решает уйти, судьба подбрасывает приятный сюрприз: новой начальницей в отделении становится Сэйко Фуджи — женщина, удивительная во всех отношениях, настоящий пример для подражания! Проработав какое-то время под ее руководством, Кавай понимает: кажется, (   Читать дальше...   )Жанр: Комедия, повседневность, сэйнэнРежиссер: Сато ЮдзоЯзык озвучки: Русский двухголосый, закадровыйСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C7566827184AFCC57A774D6D9E5D7171A098AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006091   (639352) от 10.07.2016
-
-Seisen Cerberus / Шестой Цербер [2016, TV, 13] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается на континенте под названием Кунааан, где поддерживается неустойчивый баланс сил между тремя государствами — Священным царством Амория, королевством Ишльфен и королевством Ванродис. Мир крайне хрупок: стоит одной из сторон потерять хоть толику могущества, как весь континент окажется погружен в хаос войны. Однако на Кунааане существует и четвёртая (   Читать дальше...   )Производство: Япония, Bridge / ブリッジЖанр: ПриключенияРежиссер: Кондо НобухироПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CAC876C5DE84CD22C7D49D79E978274851AC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907273   (637003) от 12.06.2015
-
-Bakuretsu Tenshi / Burst Angel / Ангелы Смерти [2004, TV, 24 + 1 эп.] BDRip 1080p raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее, год 20XX. Токио все больше погружается в хаос преступности и жестокости. Чтобы хоть как-то сохранить порядок, правительство разрешает обычным гражданам носить оружие. Но даже специально созданное полицейское спецподразделение РАПТ не в силах защитить людей, живущих в постоянном страхе. Кто может спасти раздираемый насилием, обреченный город? Только ангелы. (   Читать дальше...   )Производство: Япония, Gonzo DigimationЖанр: приключения, комедия, меха, эттиРежиссер: Охата КойтиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Формат: mp4Продолжительность: 25 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40ED28E5009FDDB37EAF42784E09A29ECDF1EC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,229 @@
+###  Публикация: 580695   (340453) от 26.11.2012
+
+Suzi Quatro (vol.1) (2012) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can The Can - Top Of The Pops '73
+02. 48 Crash - Disco '73
+03. Daytona Demon - Disco '74
+04. All Shook Up - Happy Days '77(   Читать дальше...   )Жанр: Музыка, Glam rockПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387BF82BB32027BA1A4BFC98EF2BA9C255FF55CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580696   (340347) от 26.11.2012
+
+Suzi Quatro (vol.2) (2012) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakdown - RockPop '79
+02. Don't Change My Luck - Kenny Everett Show '79
+03. Evie - RockPop '79
+04. He's A Sports PA - BBC TV Editors tape '79(   Читать дальше...   )Жанр: Музыка, Glam RockПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F751150B49AAD01429555010F9C98EA695308F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580474   (340212) от 26.11.2012
+
+Leanna Decker - Killer (2011) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D7882F68EB9AF6631E0F1AC7975F4C9886219E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580258   (339611) от 26.11.2012
+
+Сборник видеоклипов / Millenium Застольная (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_339611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Золотое Кольцо - Я сама любовь
+02 В.Сердючка - Тук тук тук
+03 Н.Королёва и А.Цекало.Ти ж мене пiдманула
+04 Белый день - Дарья
+05 Золотое Кольцо - Напилася я пьяна
+06 А.Пугачёва - Миллион алых роз
+07 София Ротару - Одна калина
+08 В.Добрынин - Не сыпь мне соль на рану
+09 Ой снег, снежок (Караоке)
+10 Балаган Лимитед - Гори, гори ясно(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB722541A20C070BDF722DE0D57221E9C913A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581467   (338054) от 27.11.2012
+
+Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487F68EBF8F45263BBBB775ED2EBA6BE0C5E0988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581469   (337927) от 27.11.2012
+
+DJ Sub - Resident Evil VS Silent Hill (Dubstep video Mix) (2012) [H.264] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DubstepПродолжительность: 00:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57768CC4CC4206727FF252DD3649CF8ED187011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581465   (337699) от 27.11.2012
+
+DVJ Bazuka - Breakin (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro HouseПродолжительность: 00:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5041FB9D116A4EE2924A956EF5784A654AFF3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954788   (336896) от 09.11.2015
+
+VA - Осенний марафон № 203 / Видеоклипы (Дискотека с размахом № 2) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (08.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Amira - Останови эту ночь (Премьера!) (00:03:10)
+02. David Guetta ft. Sia and Fetty Wap - Bang My Head (Official Video) (00:03:33)
+03. Enya - So I Could Find My Way (Official Video) (00:04:25)
+04. Jess Glynne - Take Me Home (Official Video) (00:04:32)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Alternative, Chill OutПродолжительность: 01:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D93412983FD35869BBD634A350AA84010B587A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416369   (335342) от 30.10.2020
 
 Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клипа) <Nu-Metal> [PR]
@@ -6,7 +232,7 @@ Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клип�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335342.jpg" />
 </div>
 
 
@@ -33,7 +259,7 @@ VA - Осенний марафон № 204 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330833.jpg" />
 </div>
 
 
@@ -62,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_328686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_328686.jpg" />
 </div>
 
 
@@ -88,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328500.jpg" />
 </div>
 
 
@@ -114,7 +340,7 @@ VA - Осенний марафон № 205 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326391.jpg" />
 </div>
 
 
@@ -143,7 +369,7 @@ Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322590.jpg" />
 </div>
 
 
@@ -169,7 +395,7 @@ The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322306.jpg" />
 </div>
 
 
@@ -195,7 +421,7 @@ VA - Осенний марафон № 206: Дискотека с размахо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321245.jpg" />
 </div>
 
 
@@ -224,7 +450,7 @@ Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321147.jpg" />
 </div>
 
 
@@ -250,7 +476,7 @@ Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321142.jpg" />
 </div>
 
 
@@ -276,7 +502,7 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320966.jpg" />
 </div>
 
 
@@ -302,7 +528,7 @@ Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320949.jpg" />
 </div>
 
 
@@ -328,7 +554,7 @@ Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320760.jpg" />
 </div>
 
 
@@ -354,7 +580,7 @@ Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320737.jpg" />
 </div>
 
 
@@ -380,7 +606,7 @@ The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320526.jpg" />
 </div>
 
 
@@ -406,7 +632,7 @@ Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320380.jpg" />
 </div>
 
 
@@ -432,7 +658,7 @@ Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319004.jpg" />
 </div>
 
 
@@ -461,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315360.jpg" />
 </div>
 
 
@@ -472,230 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC9AFA3C5BB1BCCB78FFC51AD2F89BCFC5928850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582574   (314869) от 01.12.2012
-
-Сборник клипов - VA - Various Music part. 37 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~07:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBE23CB8B673DE6DADE675B2798432DB2466215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182434   (314216) от 11.11.2017
-
-Ленинград / Вояж (2017) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая группа «Ленинград» и ее лидер, любитель крепкого словца Сергей Шнуров, представили клип к композиции "Вояж"Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C63562C8C127F9B53309060F366E5FB5129D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182274   (314087) от 11.11.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 7) (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Серия видеомиксов популярных клипов 90-х годов - седьмая часть, заключительная. Энергичная танцевальная музыка в стиле Eurodance, Techno и Hardcore. Танцуем под легендарную музыку 90-х!
-- Разбивка по трекам отсутствует.Ramirez – El Gallinero
-The Prodigy – Out Of Space
-Captain Jack – Captain Jack
-JX – You Belong To Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8F1F4E573D33FD9A55B0E4E9061568C5B6C5DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583465   (312868) от 02.12.2012
-
-Не Мощные - No Fake (Uncensored) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FBE30D957A21723404294FF39870565424215A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582787   (312669) от 02.12.2012
-
-Сборник видеоклипов / Millenium Застольная 2 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_312669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Золотое Кольцо - Течёт ручей
-02 В.Сердючка - Хоп,Хоп,Хоп
-03 Леонсия Эрденко - Солнышко
-04 Владимир и Марина Девятова - Я огонь, ты вода
-05 Филипп Киркоров - Зайка моя
-06 Напилася я пьяна(караоке)
-07 Кабриолет - За твои глаза
-08 Kaya - Bellydance
-09 М.Муромов - Яблоки на снегу
-10 На На - Увезу тебя я в тундру(   Читать дальше...   )Продолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6DE62ACEC1CD6F0FB16E1E14C5619556B10C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182872   (312197) от 12.11.2017
-
-Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADEBBCAB191BFCAA8C9264F11E162321C96CD44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959508   (311924) от 26.11.2015
-
-Selena Gomez - Good For You (2015) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская актриса и певица Селена Гомес (Selena Gomez) покорила интернет клипом к новой композиции Good For You. Изначально трек был записан при участии известного рэпера A$AP Rocky. Но для съемок видео певица выбрала урезанную и чуть менее откровенную версию сингла.Жанр: PopПродолжительность: 00:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D10AA81B05B8514119BB42F0FF49F713A4E670F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959990   (311754) от 26.11.2015
-
-VA - Осенний марафон № 207: Коктейль Хит Новинок (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (26.11.2015) поп. новинки зарубежной, русской и украинской эстрады. Не пропустите, держите новые треки.01. 5sta Family - Метко (Премьера!) (00:03:24)
-02. Alexandra Stan - I Did It, Mama! (Official Video) (00:03:48)
-03. Amure - Dolphins (Official Video) (00:06:39)
-04. Assia Ahhatt - Prelude of Joy (Official Video) (00:04:18)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, Electronic, SynthpopПродолжительность: 01:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7507029A6FF9E470CAD9DEBE11FF43B534C438
 ```
 
 https://mybot314.ru/tekegram_catalog/

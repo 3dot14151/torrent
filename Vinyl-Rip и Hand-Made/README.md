@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1876690   (1073566) от 17.06.2026
+
+VA - Golden Guitar Magic (1969) 5 x LP, Box Set, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Classical, Easy Listening, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Guitar
+A1 Wayne Moss - How High The Moon
+A2 Wayne Moss - Bye Bye Blues
+A3 Chet Atkins - South(   Читать дальше...   )Жанр: Jazz, Pop, Classical, Easy Listening, Folk, CountryПродолжительность: 03:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFFE6E2F48867D0EB03E8E210D9D992CE13C217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876540   (1073476) от 
+
+Funeral - Studio Albums (9 releases) (1995-2025) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Funeral — норвежская метал-группа, образованная в 1991 году1995 - Tragedies
+2002 - In Fields of Pestilent Grief
+2006 - From These Wounds
+2008 - As the Light Does the ShadowЖанр: Doom MetalПродолжительность: 09:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0211E454F546B5934D313AAA7F0C08C983668F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875929   (1072946) от 
 
 The Contradiction - Studio Albums (3 releases) (2013-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal, Djent, Math Metal>
@@ -7,7 +65,7 @@ The Contradiction - Studio Albums (3 releases) (2013-2026) handmade [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072946.jpg" />
 </div>
 
 
@@ -27,6 +85,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875959   (1072918) от 
+
+Oceans of Slumber - Studio Albums (7 releases) (2013-2024) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oceans of Slumber - прогрессив-метал группа из Хьюстона, штат Техас, США.2013 - Aetherial
+2015 - Blue (EP)
+2016 - Winter
+2018 - The Banished Heart(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 06:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976953C0796A1FC6D087F072D4D3DF3FFFD320C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875580   (1072673) от 
 
 Sarcasm (Sweden) - Studio Albums (6 releases) (2016-2026) handmade [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Blackened Death Metal>
@@ -35,7 +122,7 @@ Sarcasm (Sweden) - Studio Albums (6 releases) (2016-2026) handmade [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072673.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - That Old-Time Religion (1975) Box Set, 8 x LP, Compilation [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072672.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Avulsed - Studio Albums (10 releases) (1996-2025) handmade [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072089.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071951.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Easy Listening Country (1982) Box Set, 8 x LP [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071950.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Empire Of Disease - Studio Albums (4 releases) (2019-2026) handmade [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071876.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Canopy - Studio Albums (4 releases) (2004-2010) handmade [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071875.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Elegant Weapons - Studio Albums (2 releases) (2023-2026) handmade [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071874.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071716.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ The Fixx - Phantoms (1984) [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <Electro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071553.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Alphaville - The Breathtaking Blue (1989) [FLAC 24/96|Vinyl-Rip|Lossless|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071552.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Eurythmics - 1984 (For The Love Of Big Brother) (1984) [FLAC 24/96|Vinyl-Rip|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071460.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ The Fixx - Shuttered Room (1982) [FLAC 24/96|Vinyl-Rip|Lossless|image + .cue] <E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071459.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071458.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ The Fixx - React (1987) [FLAC 24/96|Lossless|Vinyl-Rip|image + .cue] <Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071457.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ The Fixx - Reach The Beach (1983) Vinyl-Rip [FLAC 24/96|Vinyl-Rip|Lossless|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071456.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Astralborne - Studio Albums (2 releases) (2020-2023) handmade [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071436.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ Corrosion Of Conformity - Studio Albums (11 releases) (1984-2026) handmade [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070996.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ Shade Empire - Studio Albums (6 releases) (2004-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070703.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ Becoming the Archetype - Studio Albums (6 releases) (2005-2022) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070597.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Shadows Fall - Studio Albums (8 releases) (1997-2012) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070467.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ VA - Country Harmony. 16 Star Couplings (1982) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070284.jpg" />
 </div>
 
 
@@ -654,94 +741,6 @@ A4 Moe Bandy And Joe Stampley - Honky Tonk Man(   Читать дальше...  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FD18D4D2A7DE0A56A0B8C7DAC7E635B9CCE4549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872073   (1070225) от 20.05.2026
-
-After The Burial - Studio Albums (6 releases) (2006-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metalcore/Deathcore/Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070225.jpg" />
-</div>
-
-
-###  Подробнее
-
-After the Burial — американская метал-группа из города Миннеаполис, штат Миннесота, сформированная в 2004 году.2006 - Forging A Future Self
-2008 - Rareform
-2010 - In Dreams
-2013 - Wolves Within(   Читать дальше...   )Жанр: Progressive Metalcore/Deathcore/DjentПродолжительность: 04:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF2DED4DCDA1AE27362F0F0F8D2AAC5DEC91D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872230   (1070117) от 21.05.2026
-
-James Last - East Meets West (1977) UK Tour '78, Limited Edition 2LP Set [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Folk, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Country And Western Dance Party
-A1 Orange Blossom Special
-A2a Irish Washerwoman
-A2b Gary Owen(   Читать дальше...   )Жанр: Jazz, Folk, Easy ListeningПродолжительность: 01:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E52DC8F6CE99C7545BED80E4A2A0B51D6572013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871695   (1070000) от 18.05.2026
-
-Thyrfing - Studio Albums (8 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Viking/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thyrfing - шведская блэк/фолк/викинг-метал группа, образованная в 1995 году в Стокгольме.
-Название группы происходит от королевского меча Тирфинг из скандинавской мифологии.1998 - Thyrfing
-1999 - Valdr Galga
-2000 - Urkraft
-2002 - VansinnesvisorЖанр: Viking/Black MetalПродолжительность: 06:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69293696A0B29D0C5F5AEC4D525D16DDD2CDD2CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

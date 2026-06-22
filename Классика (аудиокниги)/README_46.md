@@ -1,3 +1,57 @@
+###  Публикация: 1671906   (171043) от 26.10.2023
+
+Антон Чехов | Попрыгунья (Радиоспектакль) (2013) [MP3, Лидия Сухаревская, Борис Кордунов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Театр FM с Мариной Багдасарян, Гостелерадиофонд.
+Радиоспектакль в постановке Театра-студии киноактера (Центральная студия киноактера).
+Доходов титулярного советника и врача Осипа Ивановича Дымова, служащего в двух больницах одновременно ординатором и прозектором, едва хватает на покрытие расходов жены – Ольги Ивановны, помешанной на талантах и знаменитостях (   Читать дальше...   )Жанр: Русская литература, классика, драмаИздательство: Запись эфира Радио «Культура»Продолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9B2C23CCDA656104CA8E3005FF265511555169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671905   (171036) от 26.10.2023
+
+Антон Чехов | Пьесы (2002) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171036.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокниге представлены пьесы «Дядя Ваня», «Вишнёвый сад» и «Три сестры». Современникам А.П. Чехова эти пьесы казались необычными. Они отличались от привычных драматических форм. В них не было казавшихся необходимыми завязки, кульминации и, строго говоря, драматического действия как такового. «Люди только обедают, носят пиджаки, а в это время решаются их судьбы, (   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: Студия «АРДИС»Продолжительность: 06:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDDD086191DB74A59033889D59DFBDDD5474475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 394057   (170724) от 26.10.2023
 
 Александр Грибоедов | Горе от ума. Молодые супруги. Студент (2006) [MP3, Илья Прудовский]
@@ -6,7 +60,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170724.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170715.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170710.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170696.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170653.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170645.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170617.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170603.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170411.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169913.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169869.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169823.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169762.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169750.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169739.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169723.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168920.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168801.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168761.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168731.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168723.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168714.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168255.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168199.jpg" />
 </div>
 
 
@@ -641,59 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3EC56272F261D370D6DD25296491928F3DE0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672716   (168069) от 29.10.2023
-
-Александр Блок | Стихотворения и поэмы (2005) [MP3, Евгений Киндинов, Геннадий Бортников и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Блок – крупнейший русский поэт, один из основоположников символизма. Образ России, отождествленный с матерью, занимает центральное место в творчестве поэта. Блок не представлял своей жизни без родной страны, любил ее природу, народ, пытался разгадать ее душу, понять настоящее и определить будущее. Боль за нее не давала ему покоя, его терзали смутные предчувствия (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: ИДДКПродолжительность: 02:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17514571C55B040F6073E1A6E498BE6F51DD232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326681   (167654) от 29.10.2023
-
-Марина Цветаева | Вольный проезд (2004) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: XX век. Русская проза. Проза Серебряного Века.
-Марина Ивановна Цветаева (1892–1941) – русский поэт и прозаик. «Вольный проезд» – автобиографическая проза, превратившаяся в летопись событий 1917–1923 гг. Политики в книге нет: есть страстная правда, правда холода, голода, гнева, хроника кошмара, записанная будничным, подчас чуть ли не веселым пером.Жанр: Русская литература, классика, проза, очеркИздательство: Студия «АРДИС»Продолжительность: 11:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27665B9583C849D65E9FC600FBA7CEBD292BE6F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

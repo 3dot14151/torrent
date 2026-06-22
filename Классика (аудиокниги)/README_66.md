@@ -1,3 +1,59 @@
+###  Публикация: 327819   (121082) от 25.01.2024
+
+Антуан де Сент-Экзюпери | Цитадель (2006) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Зарубежная проза.
+Антуан де Сент-Экзюпери (1900–1944)  – французский писатель, военный летчик.
+«Все мои предыдущие произведения – лишь проба пера» – говорил Сент-Экзюпери о «Цитадели» о своём самом своеобразном и возможно, самом гениальном произведении.
+В этом незавершенном философском романе причудливо переплелись мотивы притчи и военной прозы, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 21:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90592C022B82BED86184152CB1A8984ECDA8A1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694411   (121003) от 25.01.2024
+
+Лев Толстой | Утро помещика (2017) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
+«Утро помещика» – автобиографический рассказ Л.Н. Толстого. Девятнадцатилетний князь Нехлюдов после проведенных в деревне летних каникул, решает оставить учебу в университете и посвятить свою жизнь заботе о судьбах крестьян. У молодого помещика был составлен целый (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: StorySide ABПродолжительность: 02:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84944006F88E4FA3AE9ACF19F41883753337075E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694406   (120992) от 25.01.2024
 
 Лев Толстой | Хаджи-Мурат. Страницы повести (2006) [MP3, Николай Губенко]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120992.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120965.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120859.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120790.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120301.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120216.jpg" />
 </div>
 
 
@@ -167,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120199.jpg" />
 </div>
 
 
@@ -196,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120197.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120186.jpg" />
 </div>
 
 
@@ -252,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120094.jpg" />
 </div>
 
 
@@ -280,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120091.jpg" />
 </div>
 
 
@@ -307,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120063.jpg" />
 </div>
 
 
@@ -334,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120030.jpg" />
 </div>
 
 
@@ -362,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119893.jpg" />
 </div>
 
 
@@ -389,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119861.jpg" />
 </div>
 
 
@@ -416,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119792.jpg" />
 </div>
 
 
@@ -443,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119700.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119699.jpg" />
 </div>
 
 
@@ -498,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119674.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119673.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119386.jpg" />
 </div>
 
 
@@ -582,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119383.jpg" />
 </div>
 
 
@@ -610,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119331.jpg" />
 </div>
 
 
@@ -639,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119327.jpg" />
 </div>
 
 
@@ -651,60 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C5BCDA0D450E508B678A13770C6E9341FFD7001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696904   (119302) от 04.02.2024
-
-Василий Шукшин | Рассказы (2013) [MP3, Илья Прудовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию сборник избранных рассказов замечательного советского писателя, драматурга и кинорежиссера Василия Макаровича Шукшина (1929–1974).
-Прочитано по изданию: М., Художественная литература, 1979 г.Жанр: Классика советской прозы, рассказИздательство: Нигде не купишьПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05A53F28FED62C72F04F00BD7A084AB3CD83A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356272   (119269) от 05.02.2024
-
-Велимир Хлебников | Творения (2006) [MP3, Вадим Максимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Велимир (Виктор Владимирович) Хлебников (1885–1922) – уникальное явление в русской культуре. Поэт, прозаик, теоретик и исследователь искусства, мыслитель, математик, орнитолог, он во многом опередил свое время. Его гениальные прозрения не укладывались в рамки современной ему науки, гениальные стихи – в рамки существовавших литературных (   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: Студия «АРДИС»Продолжительность: 04:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B130E6F56201063742BBEC93FD122AC9435291
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1130054   (158004) от 23.12.2017
+
+Shadow Warrior 2 (2016) [Ru/Multi] (1.1.13/dlc) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Warrior 2 - продолжение ниндзя-шутера Shadow Warrior, являющегося в свою очередь ремейком знаменитой игры 1997 года. Издавать игру будет компания Devolver Digital, разработчиком выступает польская студия Flying Wild Hog. В нем повествование ведется от лица Вана, однако внешне ниндзя будут выглядеть по-разному. В перерывах между миссиями герои смогут приобретать (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F97E61F591A08D7A38B11585725BE396540FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942958   (157239) от 21.12.2016
 
 Alien: Isolation (2014) [Ru/En] (1.0/upd9/dlc) Repack R.G. Механики [Digital Deluxe Edition]
@@ -6,7 +32,7 @@ Alien: Isolation (2014) [Ru/En] (1.0/upd9/dlc) Repack R.G. Механики [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157239.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Dying Light: The Following (2016) [Ru/En] (1.15.0/dlc) Repack R.G. Механи�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156245.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Remain (2016) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155103.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.5.13528/dlc) Repack xatab [Collector'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154569.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0/upd9/dlc) Repack Other s [Collection Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153371.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Infliction (2018) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153029.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Duke Nukem 3D (1996) [En] (1.5) License GOG [Atomic Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152746.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Alien: Isolation (2014) [Ru] (1.0/upd9/dlc) Repack =nemos= [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151962.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/En] (rc2) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150809.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/Multi] (rc2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150805.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150756.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150707.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Straya (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149840.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147769.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Boiling Point: Road to Hell (2023) [Multi] (130759) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146379.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Boiling point: Road To Hell / Xenus: Точка кипения (2005) [Ru] (2.2/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146325.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ BioShock Remastered (2016) [Multi] (1.0.122872) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146116.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Deadfall Adventures (2013) [Ru/En] (1.0.0.16352/dlc/tr) Repack =nemos= [Digital 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146102.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Call of Duty: Black Ops (2010) [Ru/Multi] (0.305-05.125430.1/dlc) License PLAZA 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145616.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145605.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145577.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144242.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Return to Castle Wolfenstein (2001) [En/Ge] (1.41) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143529.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Stary (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143465.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ BioShock™ 2 Remastered (2016) [Multi] (1.0.122864) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143373.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ BioShock 2 идеально сочетает взрывную динамику �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDF5039B898AF0268A9275F4D6B8D5FAC4BF5BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087815   (141907) от 29.12.2016
-
-Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кайл Катарн, наёмник Альянса Повстанцев, давно знал, что его отца убили имперские прихвостни. Но он понятия не имел, что его отец был джедаем. Однако вскоре Кайл узнаёт, что существует некая Долина Джедаев, которая может наделить всякого Силой. Конечно, Ситы тоже положили на неё глаз. Ведь, чтобы обрести Силу, надо долго медитировать, нужны годы тренировки, а тут (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasArts EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5A8D26887C6035DE00925F01E6BF2119E4E2E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

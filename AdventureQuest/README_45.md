@@ -1,3 +1,135 @@
+###  Публикация: 1413733   (407051) от 05.10.2020
+
+Runaway 3: A Twist of Fate (2011) [En] (2.0.0.9) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторые говорят, что Брайан сошел с ума и ловит чертей. Другие утверждают, что он впал в бешенство и кого-то убил. Третьи клянутся, что все еще хуже: он стал бомжом и бродит, неприкаянный, по холодным и темным улицам Нью-Йорка. Четвертые уверены, что он греется на солнышке где-то на Гавайях. Джина, девушка Брайана, сделает все что угодно, лишь бы найти его и доказать (   Читать дальше...   )Тип издания: LicenseРазработчик: Pendulo StudiosЖанр: Приключение, Экшн, ДетективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AE7269B78B823E87F9A80E7E78CC144086B22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168782   (404662) от 25.09.2017
+
+Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simon the Sorcerer 3D (также известна как Simon 3D) - компьютерная игра в жанре квеста, разработанная компанией Headfirst Productions для платформы Windows и выпущенная компанией Adventure Soft 26 апреля 2002 года. Сюжет игры продолжает историю, оборвавшуюся в конце Simon the Sorcerer II: The Lion, the Wizard and the Wardrobe, и начинается спустя немного времени (   Читать дальше...   )Тип издания: LicenseРазработчик: Headfirst ProductionsЖанр: Приключение, От третьего лица, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61361A9BA6D129FB106ED62D4358E2F5654D5DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169487   (402891) от 27.09.2017
+
+Danganronpa V3: Killing Harmony (2017) [En/Ja/Ch] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Danganronpa V3: Killing Harmony — предстоящая визуальная новелла, принадлежащая к серии Danganronpa и разрабатываемая Spike Chunsoft. Это третья основная игра, которая одновременно является и сиквелом, и чем-то новым.Тип издания: LicenseРазработчик: Spike ChunsoftЖанр: Adventure, Quest, NovellaЯзык озвучки: Английский, ЯпонскийЯзык интерфейса: Английский, Японский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F18C611EE5A98309B54D7A0D10D7BA2765920A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564686   (401687) от 24.10.2012
+
+Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En] (Repack/1.0-1.20) 2003-2011 | R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чёрное зеркало — это название родового поместья семьи Гордон в Англии, куда после 12-летнего отсутствия возвращается Сэмюэл Гордон. Он покинул родовое гнездо сразу после смерти своей жены, которая погибла при пожаре в одной из частей поместья. И вот теперь, снова в Чёрном зеркале несчастье — Уильям Гордон, дед Сэмюэла, покончил жизнь самоубийством. Но Сэмюэл не верит в то, о чём его уверяют обитатели поместья и полиция, он уверен, что эта смерть не случайна. Страдая от ночных видений, кошмаров и провалов в памяти, Сэмюэл пытается найти виновника смерти своего деда, потому что убийства в поместье продолжаются.
+
+Подозревая каждого из обитателей поместья (вдову Уильяма, старшего сына, прислугу), Сэмюэл начинает распутывать тайну семейства Гордонов. Для этого он даже отправляется в Уэльс к дальним родственникам Уильяма, путешествует по различным подземельям и катакомбам, находит спрятанного в психиатрической клинике родственника. Все найденные им улики указывают на то, что убийства совершает кто-то из своих. Но с каждым днём живых подозреваемых становится всё меньше и меньше.(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: Английский / РусскийЯзык субтитров: Английский / РусскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F02E2AC229FDEC1EA1DEF8C2BCB131D4CF5D18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144191   (398263) от 02.10.2017
+
+RiME (2017) [Ru/Multi] (1.04) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури. Вы встретите диких животных, обнаружите заброшенные руины, и увидите гигантскую башню, которая так и манит подойти поближе. (   Читать дальше...   )Тип издания: LicenseРазработчик: Tequila WorksЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E302CDAFE6F98D47061ABAE6C380731754C97B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171502   (396407) от 04.10.2017
 
 Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
@@ -6,7 +138,7 @@ Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396407.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Alter Ego (2010) [Ru] (1.07) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394556.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ Forgotten Land (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391652.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1 202) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391034.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ Artania (2017) [Ru/Multi] (1.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389473.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ Artania (2017) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389469.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ Exorcise The Demons (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386562.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386127.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ Deponia Dilogy / Дилогия Депонии [Ru/En] (RePack/1.3/1.1.4) 2012 |
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384669.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ Manual Samuel (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384151.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ Loco Parentis (2019) [Ru/En] (1.0.0.4242) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380364.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378323.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ The Train / Поезд (2013) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377913.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ The Light / Свет (2012) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377907.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ Teenagent (1994) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376124.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ Palmyra Orphanage (2019) [Ru/En/Ch] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376065.jpg" />
 </div>
 
 
@@ -425,7 +557,7 @@ The First Tree (2017) [Ru/Multi] (1.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375853.jpg" />
 </div>
 
 
@@ -451,7 +583,7 @@ Little Big Adventure 2 (1997) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375349.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ Lucid Dream (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374495.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374114.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ Painted Memories (2016) [En/Tr] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373040.jpg" />
 </div>
 
 
@@ -540,136 +672,6 @@ Painted Memories — это приключенческая игра, в кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E4FE5983F28EE7E88C0C15C129869CF0F7C584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292124   (372297) от 11.09.2022
-
-The Long Dark (2017) [Ru/Multi] (2.02) License GOG [Episodes 1-4]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372297.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark – это хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма. Главной вашей задачей будет выжить как можно дольше, чтобы выяснить что же произошло с миром и как он изменился...Тип издания: LicenseРазработчик: Hinterland Studio Inc.Жанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091A02552BCFA792E938C5C4DD4FC756F89C9EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176329   (371245) от 21.10.2017
-
-Dummy Life (2017) [En] (1.0.0.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371245.jpg" />
-</div>
-
-
-###  Подробнее
-
-DUMMY LIFE - игра-головоломка из научной фантастики. Играйте за CYPH3R - тестового андроида, специализирующегося на взломе. Манипулируйте такими устройствами, как камеры наблюдения, защитные двери, движущиеся платформы, нажимные пластины, телерепортеры, лазерные ловушки и другие роботы, чтобы помочь вам в побеге.Тип издания: LicenseРазработчик: Flying RainЖанр: Adventure, Puzzle, 3D, 3rd PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A6346DB892D0200C35EBA6FCEE158053298BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176314   (371241) от 21.10.2017
-
-The Inner World - The Last Wind Monk (2017) [Ru/Multi] (96894D) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решайте головоломные загадки в мире, полном тайн, и спасите семью флейтоносов! Их династия присматривала за Аспозией веками. Втайне они наполняли этот игрушечный мир светом и жизнью. Но когда это стало известно, то на семью начались гонения. Эмиль, торговец разным хламом, убедил аспозийцев, что флейтоносы якшаются с темными силами. Остановить злодея Эмиля может только (   Читать дальше...   )Тип издания: LicenseРазработчик: Studio FizbinЖанр: Adventure, PuzzleЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBEB0FC3C382DF947736E44CAD2CC220292B2AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055661   (370456) от 05.11.2016
-
-Virginia (2016) [Ru/Multi] (1.02/upd2) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Virginia — триллер от первого лица про маленький городок со скелетом в шкафу. В роли начинающего агента ФБР Анны Тарвер вы попытаетесь разыскать пропавшего мальчика. Вместе с опытным агентом Марией Гальперин вы отправитесь в городок Кингдом в округе Бёрджесс, Вирджиния, где бесследно пропал мальчик. Скоро Анна столкнется с конфликтом интересов, выяснит мотивы участников (   Читать дальше...   )Тип издания: RepackРазработчик: Variable StateЖанр: Adventure, 3D, 1st PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE0966F1632D81E4F7BA5312A66286BE72BB14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254923   (370273) от 15.10.2018
-
-MIAZMA or the Devil's Stone (2018) [En] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джонатан Хант, американский журналист, решает поселиться в Венгрии. Его предыдущие приключения снискали ему репутацию успешного следователя резонансных и необычных случаев.На этот раз, по приглашению Института ядерных исследований, Хант должен пролить свет на странное исчезновениеТип издания: LicenseРазработчик: Private Moon StudiosЖанр: FMV Quest, AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0B5C8B0255C16BF190040A064ACB8276033C04
 ```
 
 https://mybot314.ru/tekegram_catalog/

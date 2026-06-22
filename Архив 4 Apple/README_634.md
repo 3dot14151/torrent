@@ -1,3 +1,59 @@
+###  Публикация: 967460   (158681) от 20.12.2015
+
+Dash 3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash  - браузер документации и примеров кода
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2015Разработчик: Bogdan PopescuПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD87777C209A36F8436236CF668BCDAC2B01BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967419   (158648) от 20.12.2015
+
+iStatistica 1.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158648.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStatistica - подробный монитор системных ресурсов для OS X.
+В программу входит виджет для Notification Center и меню статистики в области часов. Просто откройте Notification Center, чтобы увидеть подробную статистику по загрузке памяти, процессора, диска или посмотреть карту сети и скорость передачи данных.
+
+*** Загрузите iStatistica Sensors плагин с www.imagetasks.com (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 декабря 2015Разработчик: Andrey TsarkovПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4F25095B2B2D8FBE3F5818ABEA7836708D42F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967354   (158640) от 20.12.2015
 
 Super MP3 Converter 6.1.19 [En]
@@ -6,7 +62,7 @@ Super MP3 Converter 6.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158640.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Noiseless CK (Pro) 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158618.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ Alien Skin Software Photo Bundle Collection (upd 19.12.2015) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158552.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ Typeeto 1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158488.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ Reflector 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158425.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ PhoneClean Pro 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158407.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ Aurora HDR Pro 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158382.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ AirServer 6.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158376.jpg" />
 </div>
 
 
@@ -216,7 +272,7 @@ Boom 2 v1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158176.jpg" />
 </div>
 
 
@@ -243,7 +299,7 @@ Movavi Video Editor Plus 2021 v21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157927.jpg" />
 </div>
 
 
@@ -269,7 +325,7 @@ Skynet 2019.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157915.jpg" />
 </div>
 
 
@@ -295,7 +351,7 @@ Big Mean Folder Machine 2 v2.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157890.jpg" />
 </div>
 
 
@@ -323,7 +379,7 @@ Hydra 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157881.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ Finder Windows 1.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157879.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ Polarr Photo Editor Pro 5.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157871.jpg" />
 </div>
 
 
@@ -405,7 +461,7 @@ Separation Studio 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157838.jpg" />
 </div>
 
 
@@ -431,7 +487,7 @@ uDock 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157836.jpg" />
 </div>
 
 
@@ -457,7 +513,7 @@ DaVinci Resolve Studio 12.5.4 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157801.jpg" />
 </div>
 
 
@@ -486,7 +542,7 @@ Weedcraft Inc. 1.3 (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157795.jpg" />
 </div>
 
 
@@ -514,7 +570,7 @@ TG Pro (Temperature Gauge Pro) 2.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157780.jpg" />
 </div>
 
 
@@ -541,7 +597,7 @@ Things 3 v3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157770.jpg" />
 </div>
 
 
@@ -569,7 +625,7 @@ Cinemagraph Pro 2.8.3 (build 223) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157655.jpg" />
 </div>
 
 
@@ -595,7 +651,7 @@ Path Finder 2149 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157653.jpg" />
 </div>
 
 
@@ -621,7 +677,7 @@ Mellel 4.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157624.jpg" />
 </div>
 
 
@@ -634,58 +690,6 @@ Mellel предлагает специальные инструменты для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2A91DDF39863831BE5803C845FB569ED1EFD348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194237   (157586) от 24.12.2017
-
-Audirvana Plus 3.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2017Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BBADFDA72339EED28665D2D8BBEC6D4B93C84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346334   (157447) от 20.12.2019
-
-Project Hospital 1.1.17753 (2018) [Multi/Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте выдающимся врачом, амбициозным архитектором и успешным менеджером одновременно. Спроектируйте собственную больницу, настроив все мелочи или использовав один из предустановленных вариантов, чтобы сразу приступить к лечению больных.Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: Oxymoron GamesПоддерживаемая ОС: macOS 10.11 и вышеЖанр: Стратегии, менеджментЯзык озвучки: Не требуетсяЯзык интерфейса: Русский, английский, немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229CA66143D122E4682EEB27A5BAA45D85966D46
 ```
 
 https://mybot314.ru/tekegram_catalog/

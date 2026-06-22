@@ -1,3 +1,263 @@
+###  Публикация: 1493876   (13528) от 25.06.2025
+
+VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13528.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком космосе, на одном из звездолетов в VVVVVV происходит странная авария. Корабль собирается пройти через измерение, но вследствие неполадок, телепорт ошибается. Вся команда оказывается разделена и раскидана по разных порталах. На космолете остается только навигатор Виолетта, с которой связывается герой - командор Виридиан. Он отправляется к своему кораблю, (   Читать дальше...   )Тип издания: LicenseРазработчик: Terry CavanaghЖанр: Экшны, Головоломка, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAC84F235F696E7B849E0A9797B7C3C9F18ADBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049445   (13520) от 25.06.2025
+
+Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам никогда не хотелось поучаствовать в событиях, происходящих во вселенной Звездных Войн? Да не просто в роли какого-то отдельного пилота или пусть даже джедая, а в роли стратега, планирующего защиту заснеженной базы повстанцев или, наоборот, строящего новую Звезду Смерти? Star Wars: Rebellion дает вам такую возможность. События игры происходят сразу после четвертого (   Читать дальше...   )Тип издания: LicenseРазработчик: Coolhand InteractiveЖанр: Strategy (Real-time, Grand strategy)Язык озвучки: Английский, Немецкий, ИспанскийЯзык субтитров: Английский, Немецкий, ИспанскийЯзык интерфейса: Английский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C344B5F28E6216060712649D0E73E131567437B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803897   (13410) от 26.06.2025
+
+Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как первая видеоигра вселенной Вархаммер, Shadow of the Horned Rat не просто переносит известную настольную игру в виртуальную реальность, а дарит нам совершенно новую удивительную историю. Комбинируя более 25 видов разных боевых единиц, вы можете собрать и возглавить собственную уникальную армию на полях сражений Старого Мира. Также вы вправе выбирать, следовать (   Читать дальше...   )Тип издания: LicenseРазработчик: MindscapeЖанр: Стратегия в реальном времениЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91689FE556B59F95794CCA156D322EAA9EAD67AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804240   (13221) от 28.06.2025
+
+Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возрождение легендарной серии шутеров с видом от первого лица и элементов хоррора. Оригинальная игра предлагала поучаствовать в схватке Ада и Рая и пропитать землю демонической кровью. Ради встречи с любимой в Раю главный герой брал в руки ствол и шёл превращать монстров в безжизненную кашу - а ведь порой на пути встречалась нечисть исполинских размеров. Стрелять (   Читать дальше...   )Тип издания: RepackРазработчик: People Can FlyЖанр: Шутер от первого лица, ХоррорЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEE63BE1887AA31FB436BFB95F06F3D4B26B0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804284   (13219) от 28.06.2025
+
+Far Cry (2004) [Ru] (1.40) Repack EXROW
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Far Cry - захватывающий шутер с видом от первого лица. Вы - Джек Карвер, владелец небольшой чартерной компании, сдающей в аренду лодки в тропическом государстве Микронезия. Ваше темное прошлое осталось позади, а будущее сулит только удовольствия - вы получаете задание сопровождать молодую амбициозную журналистку Валери Константин на остров Кабату. На первый взгляд, (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: Шутер от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD62E4D44E4320D38EE19AB65C7C31BD3E46D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780036   (13203) от 28.06.2025
+
+Manhunt (2004) [Ru] (1.1) Repack EXROW
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты просыпаешься в панике, оглушенный собственным дыханием. Ты должен бежать, спрятаться, выжить. Таковы кровавые и жестокие правила этой игры. Америка полна мрачных индустриальных городков, где царит вседозволенность. В Карцер-сити ценят только острые ощущения, самое сильное из которых - игра с человеческой жизнью. Ее жертвой может стать кто угодно. На сей раз не (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшен от третьего лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B0B3664E2B5B03D07CEF34C35A350B7B9F9F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804246   (13187) от 28.06.2025
+
+Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тау - относительно молодая, но очень амбициозная раса, мощная и прекрасно оснащенная технически. Благодаря боевому духу солдат и тактическому таланту главнокомандующих империя Тау успешно проводит космическую экспансию, захватывая новые территории, что, естественно, приводит к вооруженным конфликтам с другими, более старыми расами.Тип издания: LicenseРазработчик: KujuЖанр: Шутер от первого лицаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0382F342CB42A1EC75516EF2D4704C3056E2561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804271   (13155) от 28.06.2025
+
+Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиентка ослепительно красива. И готова на все, лишь бы доказать, что ее отец умер не своей смертью, хотя все указывает на суицид. Ну а детектив Текс Мерфи готов почти на все, чтобы оплатить счета за аренду. В ходе расследования Текс сталкивается с ужасной тайной. Команда высококлассных специалистов создает нечто неслыханное. И теперь каждый из них обречен на гибель. (   Читать дальше...   )Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключение, От первого лица, ДетективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1EA50BA19C89AC801975CA58613289C68FC3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806381   (11766) от 12.07.2025
+
+Провинциальный игрок 2 / Возвращение игрока (2004) [Ru] (1.01) License Акелла [16+]
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение угарной приключенческой игры рассказывающей о новых приключениях крутого парня по имена Арт Билли. Во второй части великолепной игры Арт Билли, отдыхая на Гавайях, получает важное дело от главы мафиозной группировки, который поручил ему отправится в Нью-Козюки и найти некого шулера. По дороге в Нью-Козюки Билли встречает светловолосую девушку по имени (   Читать дальше...   )Тип издания: LicenseРазработчик: Gershwin Research GroupЖанр: КвестыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB704DA609CD2133A5995F2D1E9D8FE53816A9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766090   (11011) от 19.07.2025
+
+Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прыгайте в кресло пилота межзвездного грузовика и вперед. Бороздите просторы вселенной, перевозите грузы, чистить трассы от космического мусора и сделайте состояние на торговле космическим мусором, заводить друзей и врагов среди космических дальнобоев. И пусть на пыльных тропинках далеких планет останутся ваши следы! И помните: в этом симуляторе звездного дальнобойщика (   Читать дальше...   )Тип издания: RepackРазработчик: Monster and MonsterЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808258   (10503) от 24.07.2025
 
 X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
@@ -6,7 +266,7 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10503.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9794.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9614.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9606.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9581.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ OpenSCP (2025) [Ru/En] (01.05) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9368.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8693.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8460.jpg" />
 </div>
 
 
@@ -214,7 +474,7 @@ Emergency: Fighters for Life (1998) [En] (1.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8133.jpg" />
 </div>
 
 
@@ -240,7 +500,7 @@ Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | P
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7006.jpg" />
 </div>
 
 
@@ -266,7 +526,7 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6218.jpg" />
 </div>
 
 
@@ -292,7 +552,7 @@ The Blackwell Legacy (2006) [En] (4.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6212.jpg" />
 </div>
 
 
@@ -318,7 +578,7 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5024.jpg" />
 </div>
 
 
@@ -344,7 +604,7 @@ Emperor of the Fading Suns / Император Угасающих Звезд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4731.jpg" />
 </div>
 
 
@@ -370,7 +630,7 @@ A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4685.jpg" />
 </div>
 
 
@@ -396,7 +656,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4336.jpg" />
 </div>
 
 
@@ -407,84 +667,6 @@ PowerSlave (1996) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E179E003E0FAB7050A9B8E82D44C30C08ED2252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817786   (3032) от 13.09.2025
-
-STORROR Parkour Pro (2025) [En] (0.1 Hotfix) Repack Let'sРlay [Early Access]
-
->>Win Старые Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3032.jpg" />
-</div>
-
-
-###  Подробнее
-
-STORROR Parkour Pro - это игра о паркуре, которая использует передовую систему анимации, сочетающую захват движения и физику для создания реалистичного и аркадного геймплея. Действие игры развернется на Собачьем острове (Isle of Dogs) в Ист-Энде Лондона, а геймеры смогут насладиться лучшим в своем классе многопользовательским опытом паркура в открытом мире.Тип издания: RepackРазработчик: Hole in the Sleeve Game StudiosЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СпортЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DE78C86FD6ACCA1892177EDBA752F995C43F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635727   (2849) от 14.09.2025
-
-The Blackwell Unbound (2007) [En] (4.5) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1973 год. Звук одинокого саксофона дрейфует над набережной острова Рузвельта, в то время как серия аварий наносит ущерб строительной площадке в центре города. Граждане Манхэттена не обращают внимания на эти события, не говоря уже о том, что они взаимосвязаны. Лорен Блэквелл и её духовный наставник Джоуи Мэллоун – единственные, кто верит в то, что происходит нечто (   Читать дальше...   )Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключение, Квест, ДeтективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A7378ABE23C3DA15BD1F652A6EC86FCB0D41B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820711   (323) от 28.09.2025
-
-Seal of Evil (2006) [En] (1.06) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_323.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Seal of Evil разворачивается в закатные годы периода Сражающихся царств в китайской истории (476–206 гг. до н. э.). Это неспокойное время знаменует собой распад самой долгоживущей из всех императорских династий, Чжоу. Из борьбы и хаоса появляется дворянин, обладающий неукротимым духом и бескомпромиссным видением будущего: Ин Чжэн, правитель государства Цинь. (   Читать дальше...   )Тип издания: LicenseРазработчик: Object Software LimitedЖанр: Экшны, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8511C3156E84C1AF545C5729CA4D6E39AD36634F
 ```
 
 https://mybot314.ru/tekegram_catalog/

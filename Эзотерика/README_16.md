@@ -1,3 +1,29 @@
+###  Публикация: 1308846   (553514) от 16.06.2019
+
+Грант Вёрче, Мелисса Вёрче | Ангелы любви. Как обрести и сохранить идеальные отношения (2018) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас хочет найти настоящую любовь: свою «вторую половинку» и надежного спутника жизни или сохранить на всю жизнь уже существующие прекрасные отношения с любимым человеком. Супруги Грант и Мелисса Вёрче расскажут вам, как получить поддержку и помощь Ангелов любви, хранителей гармоничных союзов, как создавать и поддерживать здоровые отношения при помощи различных (   Читать дальше...   )Жанр: Психология и эзотерикаПеревод: Л. ВарзацкаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C01784D4FCF480BFB9F959D3233046496C6762A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 815178   (553214) от 22.08.2014
 
 Эдгар Кейси | Моя жизнь провидца. Потерянные мемуары (2014) [DJVU]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553214.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552259.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551435.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547199.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539322.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537498.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537345.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535793.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534985.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534165.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532170.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531904.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531663.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531637.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531185.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530058.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529965.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528976.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528513.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528402.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527215.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525964.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523695.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523165.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522760.jpg" />
 </div>
 
 
@@ -659,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4FB108D8F9674E9825452D38A15AEFC87DE6B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928690   (520501) от 18.08.2015
-
-Мринал Гупта | Как быть счастливым всегда. 128 советов, которые избавят вас от стресса и тревоги (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каковы слагаемые счастья? С чего начать, чтобы жизнь стала радостной, активной и наполненной смыслом? Что мешает отражать атаки ежедневных стрессов? В этом бесценном сборнике практических советов вы найдете ответы на вечные вопросы, которые обязательно помогут вам изменить свою жизнь к лучшему.
-Главная особенность книги в том, что ее можно читать с любой страницы. (   Читать дальше...   )Жанр: самосовершенствованиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBDB071E341041CFDBE936379656DCB754796EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

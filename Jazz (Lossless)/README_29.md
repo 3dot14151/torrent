@@ -6,7 +6,7 @@ Bobby Scott - The Compositions Of Bobby Scott (1955) Remaster, 2014, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955169.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John Lee & Gerry Brown - Bamboo Madness (1974) Remaster, 2015, Solid Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955168.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sam Rivers Quartet - Lazuli (1989) Remaster, 2015, Solid Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955167.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Erroll Garner - The Complete Concert By The Sea (1955) 3CD, 2015, Legacy[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955161.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Willie Martinez La Familia Sextet - Family (2005) Cuch Be Witcha[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954049.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Warren Wolf - Incredible Jazz Vibes (2005) M&I Jazz[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954047.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sonny Rollins - Old Flames (1993) Milestone[FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954038.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pink Martini - Je Dis Oui! (2016) [FLAC|Lossless|image + .cue] <Pop-Jazz, World 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953670.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charlie Parker - Now's The Time (2005) 10CD Set /Germany 2005; Documents 222921/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953285.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lou Donaldson - Cosmos (1971) Remaster, 2014, Universal[FLAC|tracks+.cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951748.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lee Morgan - Indeed! (1956) Remaster, 2015, Universal[FLAC|tracks+.cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951695.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jacques Loussier - Plays Bach (1993) /1996 Telarc/ [FLAC|Lossless]<Jazz, Bop, Pi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951311.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Riccardo Del Fra - Chet Visions (2019) 2CD, Cristal Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951183.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nat Adderley Quintet - Workin': Live In Subway, Vol. 1 (1992) Remaster, 2016, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950865.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Andy Bey & The Bey Sisters (1964-1965) 2000, Prestige[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950863.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hank Mobley - Dig Dis (1960) 2CD, 2011, Not Now Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950859.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Paul Smith - Brazilian Detour (1966) Remaster, 2013, Warner [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950790.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Chico Hamilton Trio - Introducing Freddie Gambrell (1958) Remaster, 1991, Toshib
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950789.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Woody Herman - Memorial: The 40th Anniversary Carnegie Hall Concert (1988) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950788.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lee Morgan - The Sidewinder (1963) Remaster, 2013, Universal[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950780.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pat Martino - Remember: A Tribute To Wes Montgomery (2006) Blue Note[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950766.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - A Groovy Kind of Sax (1995) авторская раздача [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950654.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ben Webster & Dexter Gordon - Swiss Radio Days Jazz Series: Baden 1972, vol.10 (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950436.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Shorty Rogers - Courts The Count (1954) Remaster, 2014, Sony Music[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950186.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Gary Bartz - Shadows (1991) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950143.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Deborah Brown - Jazz 4 Jazz (1988) Remaster, 2015, Timeless Records[FLAC|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950138.jpg" />
 </div>
 
 

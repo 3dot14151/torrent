@@ -1,3 +1,59 @@
+###  Публикация: 1272366   (144524) от 27.12.2018
+
+Qbserve 1.81 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отслеживание рабочего времени с комфортом.
+Qbserve в автоматическом режиме отслеживает время потраченное на работу и помогает повысить производительность. Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
+
+Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: QotoQotПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B2F7A104F7100371CDAE2828B008EF875D2BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969976   (144519) от 28.12.2015
+
+Марсианин / The Martian (2015) WEB-DL [1080p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
+Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, Украинские, Английские (полные, отключаемые)Продолжительность: 2:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8639FC690DBFD03EA9C7D951325FA7688DE0370E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435628   (144468) от 28.12.2020
 
 Do Your Data Recovery Professional 8.0 [En]
@@ -6,7 +62,7 @@ Do Your Data Recovery Professional 8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144468.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ EdgeView 4.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144383.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ WonderPen 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144374.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ Nevercenter CameraBag Photo 2024.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144362.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ Dash 7.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144352.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144347.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ BatchOutput PDF 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144327.jpg" />
 </div>
 
 
@@ -193,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144323.jpg" />
 </div>
 
 
@@ -220,7 +276,7 @@ NCH DreamPlan Plus 8.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144312.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ Dropshare 5 v.5.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144306.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ Clipboard Manager 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144252.jpg" />
 </div>
 
 
@@ -304,7 +360,7 @@ FoneDog Toolkit for Android on Mac 2.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144229.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ FonesGo Location Changer for Mac 6.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144165.jpg" />
 </div>
 
 
@@ -356,7 +412,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144058.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ ColorWell 7.3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144049.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ Xliff Editor 2.9.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144034.jpg" />
 </div>
 
 
@@ -436,7 +492,7 @@ Invisible 2.5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144021.jpg" />
 </div>
 
 
@@ -463,7 +519,7 @@ SyncTime 3.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144010.jpg" />
 </div>
 
 
@@ -489,7 +545,7 @@ Native Instruments Komplete Kontrol 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143995.jpg" />
 </div>
 
 
@@ -515,7 +571,7 @@ Adguard 1.5.3 (435) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143983.jpg" />
 </div>
 
 
@@ -542,7 +598,7 @@ Hides 5.6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143981.jpg" />
 </div>
 
 
@@ -568,7 +624,7 @@ PullTube 1.8.5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143977.jpg" />
 </div>
 
 
@@ -594,7 +650,7 @@ Finder Windows 1.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143959.jpg" />
 </div>
 
 
@@ -620,7 +676,7 @@ Vidmore Video Fix for Mac 1.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143954.jpg" />
 </div>
 
 
@@ -631,58 +687,6 @@ Vidmore Video Fix for Mac 1.0.6 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CB43F00B0AF6C79CFD65E156860935698FC9517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678558   (143947) от 22.11.2023
-
-Native Instruments Kontakt 7.7.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2023Разработчик: © 2022 Native Instruments GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E38BA9803D4E9AF77184033500CFCFCC97C967B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520316   (143934) от 27.12.2021
-
-Stats 2.6.25 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 26.12.2021Разработчик: © 2021 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D90FD9C74018178030089E8DA820F48ED1CF155
 ```
 
 https://mybot314.ru/tekegram_catalog/

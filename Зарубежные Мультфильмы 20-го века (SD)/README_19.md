@@ -1,3 +1,29 @@
+###  Публикация: 1763962   (35224) от 04.12.2024
+
+Анастасия / Anastasia (1997) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анастасия — дочка последнего русского царя Николая, погубленного зловещим Распутиным. Ей удается спастись, добраться вместе с бабушкой до переполненного вокзала и… потеряться в толпе. Проходит десять лет. Анастасия стала взрослой красавицей и теперь хочет попасть в Париж. Сможет ли царевна осуществить задуманное? Ведь Распутин уже поднялся из своей могилы…Производство: США / Twentieth Century Fox, Fox Animation Studios, Twentieth Century Fox AnimationЖанр: мультфильм, мюзикл, фэнтези, драма, приключения, семейныйРежиссер: Дон Блут, Гари ГолдманАктеры: Мег Райан, Джон Кьюсак, Келси Грэммер, Кристофер Ллойд, Хэнк Азария, Бернадетт Питерс, Кирстен Данст, Анджела Лэнсбери, Рик Джонс, Андреа МартинПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английские (отдельно)Продолжительность: 01:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3090E95050823CE746D2E1E33EBD08EC272D6C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 335520   (34149) от 15.12.2024
 
 Звероферма (Скотный двор) / Animal Farm (1954) DVDRip
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34149.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32397.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31287.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30860.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30179.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30152.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30120.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24139.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19690.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_799.jpg" />
 </div>
 
 

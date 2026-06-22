@@ -1,3 +1,223 @@
+###  Публикация: 1158712   (489615) от 17.08.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 5) (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Пятая часть серии видеомиксов популярных клипов легендарных 90-х. Полное погружение в мир танцевальной музыки в стиле Eurodance, Hip-Hop и EDM (электронная музыка)! Вспоминаем и наслаждаемся музыкой 90-х!
+- Разбивка по трекам отсутствует.Queen ft. David Bowie – Under Pressure (Rah Mix)
+Mousse T. ft. Hot ‘n’ Juicy – Horny ‘98
+Army Of Lovers – Crucified
+New Kids on the Block - Step By Step(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6217677E2711FD20FFCA3EE75AF82F01FF23B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937141   (489563) от 14.09.2015
+
+VA - Осенний марафон № 189 / Видеоклипы (Самые Танцевальные Зарубежные Хиты) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (13.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexi Blue - Royalty (Official Video) (00:03:55)
+2. Amure - Horses (Official Video) (00:05:15)
+3. Bankrupt - Bipolar Bear (Official Video) (00:02:47)
+4. Betty Blue - Acolo sus (Official Video) (00:03:17)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Indie, RockПродолжительность: 01:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0053B4741D028DE2E55F1AE607F7C220F753A5F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382268   (489113) от 03.09.2011
+
+Виа Гра - Стоп! Снято! (1993) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_489113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~Продолжительность: Клипы: 00:44:38,  Презентация альбома: 00:44:27
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE52413B2C54D32EC2A2EAD1E5D39EABE138FE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544820   (487700) от 09.09.2012
+
+MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9D772DD47C3F25018C44E522CAB826AB56A1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544823   (487697) от 09.09.2012
+
+Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9416E27CA3676B3FE08A4A5371B224C264AAC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544847   (486785) от 09.09.2012
+
+Сборник клипов - VA - Various Music part. 33 (2012) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCAADBA704C14CA39D401C58986D576B225522F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382477   (486504) от 04.09.2011
+
+Animusic HD (2010) BDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Wayne Lytle/Уэйн ЛитлАктеры: animationПеревод: ОтсутствуетПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062E45360A908C66C19F996661B7FACC08E2E88B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937969   (483720) от 17.09.2015
+
+VA - Осенний марафон № 190 / Видеоклипы (Осенний Листопад Русских Хитов) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (16.09.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Lori! Lori - Брось меня (ПРЕМЬЕРА!) (00:04:47)
+2. Romadi - Я не играю в любовь (ПРЕМЬЕРА!) (00:04:10)
+3. Stereopulse - Любовь не дура (ПРЕМЬЕРА!) (00:03:35)
+4. Александр Марцинкевич - Королева (ПРЕМЬЕРА!) (00:04:24)(   Читать дальше...   )Жанр: Pop, Chanson, Hip-HopПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35647FE76DECA5FE50BB7779152701410FEB58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822218   (479770) от 18.09.2014
 
 I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
@@ -6,7 +226,7 @@ I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479770.jpg" />
 </div>
 
 
@@ -35,7 +255,7 @@ VA - Осенний марафон № 191 / Видеоклипы (Коктей�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479676.jpg" />
 </div>
 
 
@@ -64,7 +284,7 @@ The Beatles - документальные ролики из ремастери�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479593.jpg" />
 </div>
 
 
@@ -90,7 +310,7 @@ Colonia - Laz za laz (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478713.jpg" />
 </div>
 
 
@@ -116,7 +336,7 @@ Igor Garnier feat. Malena - Feel Desire (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478696.jpg" />
 </div>
 
 
@@ -142,7 +362,7 @@ DJ VJ Magrao Videomix Volume 10 (2011) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478526.jpg" />
 </div>
 
 
@@ -177,7 +397,7 @@ Nikita - Avocado (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478379.jpg" />
 </div>
 
 
@@ -203,7 +423,7 @@ PEZET - Supergirl (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478280.jpg" />
 </div>
 
 
@@ -229,7 +449,7 @@ VA - Осенний марафон № 192 /  Видеоклипы (Сборни
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473086.jpg" />
 </div>
 
 
@@ -258,7 +478,7 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472731.jpg" />
 </div>
 
 
@@ -287,7 +507,7 @@ Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472726.jpg" />
 </div>
 
 
@@ -316,7 +536,7 @@ Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471962.jpg" />
 </div>
 
 
@@ -342,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469518.jpg" />
 </div>
 
 
@@ -368,7 +588,7 @@ Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469420.jpg" />
 </div>
 
 
@@ -394,7 +614,7 @@ Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467982.jpg" />
 </div>
 
 
@@ -423,7 +643,7 @@ Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467961.jpg" />
 </div>
 
 
@@ -452,7 +672,7 @@ Secret - Poison (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467683.jpg" />
 </div>
 
 
@@ -478,7 +698,7 @@ MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467674.jpg" />
 </div>
 
 
@@ -489,232 +709,6 @@ MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADEB27F771F800363F459902DB3342CCFB8988ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548586   (467209) от 18.09.2012
-
-DJ King Serenity feat. Boonty Rayne Swagger - Body Dance (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B76D6B9B20CA9DB56CCAC6D17EA8A94ABD1F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703041   (465825) от 23.09.2013
-
-Beat Club - Progressive Times - Vol 6. 1971-72 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucifer's Friend - Ride The Sky
-02. Warhorse - Ritual
-03. Frumpy - Take Care Of Illusion
-04. Fleetwood Mac - Dragonfly(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452DD195556A2771DC78517003453EE898A801CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940046   (464299) от 26.09.2015
-
-VA - Осенний марафон № 193 / Видеоклипы (Презент Русских Новинок) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (23.09.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Emin - Забыть тебя (ПРЕМЬЕРА!) (00:04:37)
-2. Laura Grig - Про любовь (ПРЕМЬЕРА!) (00:03:46)
-3. Stacy - Не делай мне больно (ПРЕМЬЕРА!) (00:03:35)
-4. Ustinova - Когда мы уйдём (ПРЕМЬЕРА!) (00:03:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA098C31EEF857B7917C768FDB9F6A760C2CE4EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703115   (462962) от 24.09.2013
-
-Ляпис Трубецкой - Месяц (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462962.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 сентября на сайте журнала Rolling Stone состоялась премьера клипа группы «Ляпис Трубецкой» под названием «Месяц». Одноименная песня войдет в первый белорусскоязычный альбом «Ляписов» «Грай», который будет презентован 30 ноября большим сольным концертом в Вильнюсе.
-«Месяц» – это очередная работа украинского клипмейкера Александра Стеколенко, который плотно сотрудничает (   Читать дальше...   )Жанр: RockПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BA6C9260470EBD7D833723303D67F59D689665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941426   (462055) от 27.09.2015
-
-VA - Осенний марафон № 194 / Видеоклипы (Зарубежный Коктейль Танцевальных Новинок) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (27.09.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Alexander Brown ft. Jack Savoretti - Jack In A Box (Official Video) (00:03:31)
-2. Carina Dahl - Champions (Official Video) (00:03:40)
-3. Cassadee Pope - I Am Invincible (Official Video) (00:03:33)
-4. Chris Brown - Liquor Zero (Explicit Version) (Official Video) (00:09:30)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Electronic, SynthpopПродолжительность: 01:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B5BD27EDF567644DF0DD6335989210468B6189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059305   (461385) от 04.10.2016
-
-Robbie Williams - Party Like A Russian (2016) WEB-DL [MPEG-4/1080p-LQ]
-
->>След.
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский певец Робби Уильямс объяснил, почему песня Party Like A Russian из его нового альбома посвящена русской гулянке.
-«Частью британского самовосприятия является поголовная вера в то, что мы самые лучшие в веселье, да и многие страны думают так о себе. Но не существует такой вечеринки, как русская вечеринка», — говорится в ответе Уильямса.
-30 сентября певец (   Читать дальше...   )Жанр: Pop, Dance, BritpopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C51827DA30455500910C67D230DDADF03B92BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703143   (461351) от 25.09.2013
-
-Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Highway Star
-02. Curved Air - Back Street Luv
-03. Canned Heat - Big City
-04. Deep Purple - No, No, No(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE55149788FE0D04E75C285B380754338948578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703774   (461254) от 25.09.2013
-
-Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin' Blues - Livin' Blues Boogie
-02. Nazareth - Morning Dew
-03. Atomic Rooster - Break Through
-04. Guru Guru - Oxymoron(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E41BC1703639272C2EA8432A6C724A804B70D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

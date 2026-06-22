@@ -1,3 +1,55 @@
+###  Публикация: 1730063   (53341) от 14.06.2024
+
+Star Stuff (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Stuff – сыграйте роль инженера Михи, который только устроился на завод по производству звезд и уже сейчас должен включиться в работу, чтобы фабрика продолжала производство, ведь иначе вселенную ждет погибель. Вам будут помогать роботы, которых можно запрограммировать на выполнение определенных задач. Всего вас ждет более 100 разнообразных задач и головоломок, (   Читать дальше...   )Тип издания: SceneРазработчик: Ánimo Games StudioЖанр: Приключенческие игры, Казуальные игры, СтратегииЯзык субтитров: Английский, Немецкий, Японский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Японский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC23AE57D29E12999F7FFBD548308676B992F2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730055   (53334) от 14.06.2024
+
+Wander Hero (2023) [Multi] (1.0.240608) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wander Hero - это увлекательный карточный рогалик, в котором сталкиваются приключения и стратегия! Оставьте позади рутину повседневной жизни и отправляйтесь в двухмерное путешествие по фантастическому миру. Возьмите на себя роль капитана наемников и проведите свою команду тщательно отобранных напарников через случайно возникающие подземелья и города. Но дело не только (   Читать дальше...   )Тип издания: SceneРазработчик: Dimension TravlerЖанр: Инди, RPG, СтратегииЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CF15A919F10B118A867B7C1607BD4F798594B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719887   (53261) от 15.06.2024
 
 Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
@@ -6,7 +58,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53261.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53258.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53184.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53126.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53097.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Whacking Hell! (2024) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53056.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Pinball M (2023) [Multi] (1.0.4/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53052.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53025.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Redout II (2) (2022) [Ru/Multi] (1.3.1/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52956.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ DNF Duel (2022) [Multi] (1.81/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52822.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52648.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52456.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52430.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52386.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ CRYMACHINA (2023) [Multi] (1.2.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51579.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Hunt the Night (2023) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51543.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Messy Up (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51483.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ KUNAI (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51151.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ FlashBack 2 (2023) [Multi] (20240521) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51146.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51003.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ FlashBack 2 (2023) [Ru/Multi] (20240627) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50875.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Valfaris (2019) [Ru/Multi] (1.1) License GOG [Digital Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50726.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Godrop (2024) [Ru/Multi] (1.34/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50682.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Splatter - Zombiecalypse Now (2024) [Ru/Multi] (1.2_gog) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50635.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Splatter - Zombiecalypse Now – top-down шутер с интересной к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E09EE49FE2312767A797D36CFEB54CD8E2393021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677863   (50414) от 11.07.2024
-
-FlashBack 2 (2023) [Multi] (1.00) Repack dixen18
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flashback 2 отправляет геймеров в умопомрачительное путешествие по научно-фантастической/киберпанковской вселенной, изобилующей действиями и приключениями. Действие происходит в 22 веке, в будущем, где сеттинг Объединенных Миров простирается по всей Солнечной системе, но сталкивается с серьезной угрозой вторжения Морфов, возглавляемых печально известным генералом (   Читать дальше...   )Тип издания: RepackРазработчик: Microids Studio Paris, Paul CuissetЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659AC585107B3641E3A3BF6C73EA5FC9686FE206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724598   (50390) от 11.07.2024
-
-SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0.1.0) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50390.jpg" />
-</div>
-
-
-###  Подробнее
-
-SAMURAI WARRIORS 4 DX - слэшер, предлагающий не только с головой погрузиться в период Сэнгоку, но и сыграть в нем ключевую роль за счет своих непревзойденных боевых навыков. Вам предстоит перенестись в один из самых жестоких периодов в истории Японии, чтобы доказать свое превосходство и привести выбранных героев к победе, будь то в сюжетной кампании или дополнительных (   Читать дальше...   )Тип издания: SceneРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: ЭкшеныЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA2DD766B8B14636EF310F63F7535BB6CCCB2B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

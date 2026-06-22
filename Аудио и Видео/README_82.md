@@ -1,3 +1,424 @@
+###  Публикация: 1521109   (766183) от 01.01.2022
+
+VA - Vocal Trance Classics 2021 (2021) [AAC|~337 Kbps] <Trance, Vocal Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaimo K, Sue Mclaren - The Treasure Of Your Heart (Radio Edit) (3:22)
+02. Nitrous Oxide, Katty Heath - Neverending Dawn Of You (Cold Rush Edit) (4:15)
+03. Sneijder, Cate Kanell - Letting Me Go (Stargazers Remix) (3:22)
+04. Ferrin & Morris, Hysteria! - Horizon (Alan Morris Remix) (3:11)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6E775A1C15219D23984FEA2A2AE7E6AD72FE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521341   (766181) от 01.01.2022
+
+VA - Odd Echoes, Vol. 3 (2020) [AAC|~339 Kbps] <Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Ljekaj, Marc Grabber - Arcane (8:25)
+02. Adamant (IT) - Leviathan (6:20)
+03. Alex Preda - Be Free (6:49)
+04. Solayre - The Sea (7:57)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F673777102F47EA77ECA88052F063949DCCD3CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126285   (766072) от 17.04.2017
+
+Зверопой / Sing (2016) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое животное мечтает стать звездой. Слониха, баран, бык, и даже хрюшка, буквально все рвутся к славе. Кто знает, кому улыбнется капризная фортуна и чей портрет украсит завтра обложки глянцевых журналов. Все как у людей...Производство: США, Великобритания, ЯпонияЖанр: Мультфильм, драма, комедия, семейный, музыкаРежиссер: Кристоф ЛурделеАктеры: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт Дженнингс, Питер СерафиновичПеревод: Дублированный (Лицензия)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1EC712A25B4A8D46AB2F6AE02BD95D1A12E2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279276   (766039) от 29.01.2019
+
+Цвет денег / The Color of Money (1986) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрому Эдди, виртуозному игроку в бильярд, нет равных за зеленым столом. Для других это развлечение, для него — серьезная работа и большие деньги. У него появляется конкурент, новичок Винс, у которого есть все, что нужно для победы: талант, везение и поддержка обворожительной подруги, но ему не хватает почерка мастера.
+Эдди становится его наставником и учит восходящую (   Читать дальше...   )Производство: США / Touchstone Pictures, Silver Screen Partners IIЖанр: Драма, СпортРежиссер: Мартин СкорсезеАктеры: Пол Ньюман, Том Круз, Мэри Элизабет Мастрантонио, Хелен Шейвер, Джон Туртурро, Билл Коббс, Роберт Эджинс, Элвин АнастасияПеревод: Дублированный, профессиональный многоголосый, авторский одноголосыйСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 01:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3142EFEFCC937037A31B4077BFC881F10345C7BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279417   (765867) от 29.01.2019
+
+Репродукция / Replicas (2018) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый учёный-биолог теряет в автокатастрофе свою семью. Одержимый желанием вернуть к жизни жену и детей, он преступает законы научной этики и самой природы.Производство: СШАЖанр: Фантастика, триллерРежиссер: Джеффри НачманоффАктеры: Киану Ривз, Элис Ив, Эмили Элин Линд, Эмджей Энтони, Джон Ортис, Томас Миддлдитч, Эмбер Таунсенд, Няша Хатенди, Ария Лайрик Либу, Эмбер РивераПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63594D2D1018BD8F1228D24D0E294FA224B60B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214209   (765742) от 20.03.2018
+
+Темные времена / Darkest Hour (2017) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765742.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о первом и решающем шаге Уинстона Черчилля на посту премьер-министра Великобритании, получившего власть при чрезвычайных обстоятельствах. Успехи нацистской армии взбудоражили британское сообщество, но вопреки давлению и страху других политиков Черчилль отказывается идти на соглашение с Гитлером.Производство: США, ВеликобританияЖанр: Драма, военный, биография, историяРежиссер: Джо РайтАктеры: Гари Олдман, Кристин Скотт Томас, Бен Мендельсон, Лили Джеймс, Рональд Пикап, Стивен Диллэйн, Николас Джонс, Сэмюэл Уэст, Дэвид Скофилд, Ричард ЛамсденПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8340B3237E1065DDE08867EE07513F23E42C7A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214145   (765664) от 20.03.2018
+
+Темные времена / Darkest Hour (2017) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765664.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о первом и решающем шаге Уинстона Черчилля на посту премьер-министра Великобритании, получившего власть при чрезвычайных обстоятельствах. Успехи нацистской армии взбудоражили британское сообщество, но вопреки давлению и страху других политиков Черчилль отказывается идти на соглашение с Гитлером.Производство: США, ВеликобританияЖанр: Драма, военный, биография, историяРежиссер: Джо РайтАктеры: Гари Олдман, Кристин Скотт Томас, Бен Мендельсон, Лили Джеймс, Рональд Пикап, Стивен Диллэйн, Николас Джонс, Сэмюэл Уэст, Дэвид Скофилд, Ричард ЛамсденПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Русские,  АнглийскиеПродолжительность: 02:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D577719D7ED7BD7A89BB2968FD92B45F9ECE47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521428   (765389) от 02.01.2022
+
+VA - Monada Gems: Mentis Excessus (2021) [AAC|~330 Kbps] <Organic House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M.ONDE - Hava (Madonna Moha Remix) (6:53)
+02. Intiche, Rokaya - Optic Mystic (7:16)
+03. Unam - Pleiadians (8:01)
+04. Goro (SY) - Sawadee (6:54)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 02:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C075AE66F4798DFB15464FACB3CA0F11213E7A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521423   (765388) от 02.01.2022
+
+VA - Aurea 5 (2021) [AAC|~317 Kbps] <Organic House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound of ATEM - Open Corners (7:11)
+02. Dare - Fragility (5:07)
+03. Gili Eidelson - Bamidbar (5:22)
+04. Tadej Jaki - Minerale (8:51)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D55920A30E069DA695E0F45490CD62C96C250C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521419   (765387) от 02.01.2022
+
+VA - Aurea 3 (2020) [AAC|~321 Kbps] <Organic House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serkan Eles - Heart (6:50)
+02. Mikasi Project, Zainab Lax - Namida (7:28)
+03. Seventh Soul - Haji (6:01)
+04. Unam - Pleiadians (8:01)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9805ABDA9FE1EE49400DAF4D9BBD2BC8C21B4D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521418   (765386) от 02.01.2022
+
+VA - Aurea 2 (2020) [AAC|~318 Kbps] <Organic House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Urucum - Ride the Snake (6:09)
+02. Bado - Dreamride (5:59)
+03. Tolga Maktay - Zuhur (8:10)
+04. ZebraCak3 - Deseos (8:23)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0634E5B1157096454AB843979DCA75E818C70DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521369   (765385) от 02.01.2022
+
+VA - Parousia 2 (2019) [AAC|~311 Kbps] <Organic House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mujia & Tajo - Lost in Thoughts (6:36)
+02. Riyoon, Sedef Benzon - Wonderbox (7:51)
+03. Echoel, Metatext - d.u.b. (7:44)
+04. Ni Made Nur - Endless World (4:16)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 03:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFD15043216F2397875DAA0DD4AD7BC7829E7A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521422   (765384) от 02.01.2022
+
+VA - Aurea 4 (2021) [AAC|~307 Kbps] <Organic House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hexound - Shadow Work (6:49)
+02. Sergey Nomad - Shadow (6:27)
+03. Goro (SY) - Sawadee (6:54)
+04. Nandão - Power (6:29)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E3C9A6B2C3792D0F89D2DD5BB3E201398411A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521346   (765383) от 02.01.2022
+
+VA - Odd Echoes, Vol. 5 (2021) [AAC|~341 Kbps] <Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fur Coat, Alfa Romero - Inherited Earth (6:50)
+02. Adamant - Winter Days (5:31)
+03. Baime - Hilda (6:13)
+04. Aacht, Esoteric Circle - Parasite (6:08)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500F9A2A59E2031F4C4AB652A9997BF5AB5DB5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521349   (765382) от 02.01.2022
+
+VA - Lost & Found Reflections 2021 (2021) [AAC|~344 Kbps] <House, Progressive House, Melodic House & Techno>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cornucopia - Dragons in Paradise (7:36)
+02. Guy Mantzur - My Wild Flower (8:35)
+03. Budakid - Silent Summer (6:26)
+04. Chicola - Todas Las Palabras (7:52)(   Читать дальше...   )Жанр: House, Progressive House, Melodic House & TechnoПродолжительность: 01:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB20D1441C7A74D49EBA29623230F634FC7E384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521427   (765381) от 02.01.2022
 
 VA - Monada Gems: Sonus Terrarum (2021) [AAC|~308 Kbps] <Organic House, Deep House>
@@ -6,7 +427,7 @@ VA - Monada Gems: Sonus Terrarum (2021) [AAC|~308 Kbps] <Organic House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765381.jpg" />
 </div>
 
 
@@ -35,7 +456,7 @@ VA - Parousia 4 (2021) [AAC|~325 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765380.jpg" />
 </div>
 
 
@@ -64,7 +485,7 @@ VA - Parousia 3 (2020) [AAC|~326 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765379.jpg" />
 </div>
 
 
@@ -93,7 +514,7 @@ VA - Aurea (2019) [AAC|~311 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765378.jpg" />
 </div>
 
 
@@ -122,7 +543,7 @@ VA - Parousia (2018) [AAC|~333 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765377.jpg" />
 </div>
 
 
@@ -151,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765344.jpg" />
 </div>
 
 
@@ -177,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765340.jpg" />
 </div>
 
 
@@ -203,7 +624,7 @@ VA - Monada Gems: Tranquillus (2021) [AAC|~313 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765303.jpg" />
 </div>
 
 
@@ -232,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765281.jpg" />
 </div>
 
 
@@ -258,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765250.jpg" />
 </div>
 
 
@@ -284,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764824.jpg" />
 </div>
 
 
@@ -295,429 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D1659CD1C517087A544DEA0082A43C47530991D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214451   (764823) от 21.03.2018
-
-Убить Гюнтера / Killing Gunther (2017) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764823.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире профессиональных убийц существует свой рейтинг, и на его вершине находится некто Гюнтер. Никто не знает, как он выглядит, и где его найти, но совершенно точно известно, что с ним лучше не связываться. Киллер Блейк решает поправить иерархию и любой ценой уничтожить легендарного Гюнтера, для чего собирает команду наёмников со всего света — хакера, взрывника, (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедияРежиссер: Таран КиллэмАктеры: Таран Киллэм, Ханна Саймон, Бобби Мойнахан, Пол Бриттейн, Арнольд Шварценеггер, Питер Келамис, Аарон Ю, Коби Смолдерс, Эллисон Толман, Стив БачичПеревод: Многоголосый закадровый (iTunes)Субтитры: АнглийскиеПродолжительность: 01:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24D455476F5999986280B259C1215DCF6EDE366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521582   (764509) от 03.01.2022
-
-VA - Best of Fokuz 2021 (2021) [AAC|~308 Kbps] <Drum & Bass>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melinki - Time & Time Again (5:24)
-02. Rezilient - Higher (Surreal Remix) (4:30)
-03. Valiant Emcee, Cyber Posix, Winslow - Never Too Late (Winslow Remix) (4:57)
-04. Bcee - Crystal (4:50)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEAA4E4812E33F29D654DE8286820651BEFD1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521580   (764508) от 03.01.2022
-
-VA - Chill House Traveller, Vol. 1 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Moroder - Tony's Theme (Scarface) (6:27)
-02. Arman Behdad, Pamela Pankotsch - Sweet Fragrance of the Rose (The Event Haze Remix) (4:43)
-03. Luke Kay - Rush (3:06)
-04. Nale - Nevermind (Dub Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D76D22D0701C290251346F6AC061025A9DC8153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521604   (764507) от 03.01.2022
-
-Apartment House - Number Pieces (2021) [AAC|~269 Kbps] <Chamber Music, Indeterminacy>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five (5:07)
-02. Five² (5:07)
-03. Five⁵ (5:06)
-04. Fourteen (20:05)(   Читать дальше...   )Жанр: Chamber Music, IndeterminacyПродолжительность: 05:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D2F0A67AEF76CFBA4A7D4A3AD8CAC465D70060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521570   (764506) от 03.01.2022
-
-VA - XTR Records Best (2020) [AAC|~318 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Koi (8:29)
-02. Mainterm - Reunited (6:44)
-03. Furia - Trappist (7:13)
-04. Mainterm - Trumpet of the Gods (7:17)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 09:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84FE56479EBB6BE848A43085D05AB7EB3CD1118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521585   (764505) от 03.01.2022
-
-VA - Cosmic Lounge (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Bar - Imagine the Whole World for Us (1:52)
-02. Cool Beach - Slow Dance (1:51)
-03. Karl Lark - A Bouquet of Flowers for You (2:45)
-04. Richard Le Monde - The Lake of Lugano (2:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C41A84D3DA59AF07C612207AE935CDE564DD35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521551   (764504) от 03.01.2022
-
-VA - Furia present Authentic XTR Records, Vol. 03 (2021) [AAC|~323 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Jump into the Dark (4:02)
-02. Mainterm - Cloud Surfing (6:02)
-03. Furia - Lose Your Love (4:23)
-04. Mainterm - Eternity (6:25)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 02:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7F4993E289151111A49BD0C962FC7368666B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521571   (764502) от 03.01.2022
-
-VA - XTR Records Best 2021 (2021) [AAC|~324 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Runner (Teenage Mutants Remix Edit) (4:42)
-02. Furia - Close My Eyes (5:20)
-03. Mainterm - Reunited (6:44)
-04. Furia - Jump into the Dark (4:02)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 08:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6BA215C3EADAD3A817FDA9C685703864D2EF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521584   (764426) от 03.01.2022
-
-VA - Figura X-MAS 2022 (2021) [AAC|~324 Kbps] <Melodic House & Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aramitt, Allisha - Red Eyes (5:30)
-02. Echoplays - Human Soul (6:28)
-03. E-Space - Orion (Extended Mix) (5:14)
-04. Artem Kazantsev - Stardust (6:22)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C246439780EF33F69FA850015248C1647D8E17E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521549   (764420) от 03.01.2022
-
-VA - Furia present Authentic XTR Records, Vol. 02 (2020) [AAC|~326 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Butterfly (8:06)
-02. Mainterm - Reunited (Furia Remix) (7:48)
-03. Cowlam - Avalanche (6:26)
-04. Furia - Metamorphosis (7:34)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F595835E33C4ED1099311A62A9BB68BE48ABBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521547   (764414) от 03.01.2022
-
-VA - Furia present Authentic XTR Records, Vol. 01 (2020) [AAC|~340 Kbps] <House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Furia - Trappist (7:13)
-02. Furia - Hoag (8:34)
-03. Miguel Ante - Stardust (Furia Remix) (6:55)
-04. Furia - Koi (Ioan Gamboa Remix) (7:25)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 02:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1C4019A151DC4FF14E53281CFBE0B11A8E40F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126739   (764397) от 19.04.2017
-
-Зверопой / Sing (2016) BDRip [480p] iPod
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764397.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг, баран Эдди, устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: СШАЖанр: Мультфильм, комедия, семейный, музыкаРежиссер: Кристоф ЛурделеАктеры: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: Дублированный (Лицензия)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419E10CB3953AC9AF21C26D9934D3BDE2167FB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126685   (764393) от 19.04.2017
-
-Зверопой / Sing (2016) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764393.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг, баран Эдди, устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: СШАЖанр: Мультфильм, комедия, семейный, музыкаРежиссер: Гарт ДженнингсАктеры: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: Дублированный (Лицензия)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378056EFE2FC7FC373ADE71727C996E64A24DFBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106161   (764331) от 19.04.2017
-
-Sylver - Turn The Tide (2000), Release Germany CD, Maxi Single, M4A / AAC, 320 kbps (Tracks), Lossy, (Electronic, Trance)
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Turn The Tide (Radio Edit) 4:05
-2 - Turn The Tide (CJ-Stone Radio Edit) 3:29
-3 - Turn The Tide (The Original Mix) 8:00
-4 - Turn The Tide (Airscape Remix) 7:24(   Читать дальше...   )Жанр: Electronic, TranceФормат: M4AПродолжительность: 00:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68788389634B6F9BC59152AEA8FF8B826E9DEA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279894   (764310) от 31.01.2019
-
-Богемская рапсодия / Bohemian Rhapsody (2018) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чествование группы Queen, их музыки и их выдающегося вокалиста Фредди Меркьюри, который бросил вызов стереотипам и победил условности, чтобы стать одним из самых любимых артистов на планете. Фильм прослеживает головокружительный путь группы к успеху благодаря их культовым песням и революционному звуку, практически распад коллектива, поскольку образ жизни Меркьюри (   Читать дальше...   )Производство: Великобритания, США / GK Films, New Regency Pictures, Queen Films Ltd.Жанр: Драма, Биография, МузыкаРежиссер: Брайан СингерАктеры: Рами Малек, Люси Бойнтон, Гвилим Ли, Бен Харди, Джозеф Маццелло, Майк Майерс, Эйден Гиллен, Том Холландер, Аллен Лич, Аарон МакКаскер, Эйс Бхатти, Прия Блэкберн, Дермот МерфиПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), украинские (Forced, full), английские (SDH, SDH Colored)Продолжительность: 02:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6AD6C47218A8067EC7BBF11CA8A4A3D7A61907
 ```
 
 https://mybot314.ru/tekegram_catalog/

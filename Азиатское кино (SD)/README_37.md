@@ -1,3 +1,81 @@
+###  Публикация: 718587   (459491) от 10.09.2020
+
+Орудие смерти / A-i-deul... (2011) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальной истории — нераскрытом убийстве, известном в Корее под названием «исчезновение лягушачьих детей». В 1991 году пять учеников начальной школы сказали своим родителям, что собираются наловить лягушек на близлежащей горе. Они никогда не вернулись домой.Производство: Корея ЮжнаяЖанр: Триллер, криминал, драмаРежиссер: Ли Гю МанАктеры: Пак Ён У, Рю Сын Рён, Сон Дон Иль, Сон Чжи Ру, Ким Ё Чжин, Пак Пён Ын, Ким Гу Тхэк, Ми-хён Пак, Ли Сан Хи, Ток-чжэ ЧжоПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99CFF5745C51EE5E8916D45DC2BD2CB8E8DAE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568600   (459323) от 09.08.2022
+
+Киллер-хранитель / Киллер: Девчонка должна умереть / Deo killeo: jukeodo doeneun ai / The Killer (2022) WEBRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный в прошлом наемный киллер Уи-ганг теперь примерный семьянин. Когда его жена уезжает в отпуск, то просит любимого мужа оказать небольшую услугу — присмотреть за 17-летней дочерью подруги. Юн-Джи очень наивная и беспечная девочка, которая не должна попасть в беду. Но когда Юн-Джи похищают, Уи-ганг понимает, что ему придется вспомнить свое прошлое и встать (   Читать дальше...   )Производство: Южная Корея, Ascendio, iHQЖанр: боевикРежиссер: Чхве Джэ-хунАктеры: Чан Хёк, Брюс Хан, Ли Со-ён, Ли Сын-джун, Пан Ын-джон, Чха Тхэ-хёнПеревод: Многоголосый любительский (АрхиAsia) | Присутствует ненормативная лексикаЯзык озвучки: Русский, корейскийСубтитры: АнглийскиеПродолжительность: 01:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1CC7A235EF8791C81CB9101B5A08AF486A8943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321459   (458648) от 24.08.2019
+
+Золотой сон / Goldeun seulreombeo (2018) HDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный курьер Ким Гон-у попадает в неприятности, связанные с могущественным человеком. Парня считают виновным в покушении на кандидата в президенты, и теперь за ним охотится полиция и спецназ.Производство: Южная Корея, Zip CinemaЖанр: Драма, триллер, боевикРежиссер: Но Дон-сокАктеры: Кан Дон-вон, Хан Хё-джу, Ким И-сон, Ким Сон-гюн, Ким Дэ-мён, Ю Джэ-мён, Юн Ге-сан, Пэк Пон-ги, Чон Со-мин, Ли Джун-хёкПеревод: Многоголосый закадровый, любительский (STEPonee)Субтитры: Английские (внешние)Продолжительность: 01:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B1F420348C6A6F19DD3EFFA1C3E97110E57F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408438   (455750) от 12.09.2020
 
 Око фортуны / Forutuna no hitomi / Fortuna's Eye (2019) HDRip [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455750.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455411.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452189.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_448616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448616.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448590.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448020.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447364.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446294.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445709.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445574.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443718.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442865.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440639.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439330.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438424.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437492.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437342.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436131.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436128.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436079.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435966.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433736.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433630.jpg" />
 </div>
 
 
@@ -592,86 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:868D41264934DF9EBF8C183B7825DEDB9D2449EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410680   (433622) от 22.09.2020
-
-Исчезнувшее время: Мальчик, который вернулся / Ga-lyeo-jin si-gan / Vanishing Time: A Boy Who Returned (2016) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, в полнолуние в лесу появляется пещера, а в пещере лежит яйцо волшебного монстра. Кто в эту пещеру зайдёт да яйцо разобьёт, у того монстр съедает время. 13-летняя Су-рин с отчимом переезжают жить на остров. Мама девочки умерла, а с новым папой отношения не клеятся. С одноклассниками тоже найти общий язык не удаётся, зато девушка знакомится с мальчиком Сон-мином, (   Читать дальше...   )Производство: Южная Корея, Barunson E&A, Showbox Entertainment, Showbox/MediaplexЖанр: Фэнтези, фантастика, детектив, драма, мелодрамаРежиссер: Ом Тхэ-хваАктеры: Щин Ын-су, Кан Дон-вон, Ли Хё-джэ, Ким Хи-вон, Квон Хэ-хё, Ким Дан-юль, Чон У-джин, Ом Тхэ-гу, Пак Чон-хван, Пак Чин-уПеревод: Многоголосый профессиональный (Тиллит Стайл)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073DCAE660C19E21BD157C01BD592F9823D15461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450089   (433468) от 22.09.2020
-
-Любимое уравнение профессора / Hakase no aishita sushiki (2006) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433468.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о добром и щедром профессоре, 10 лет назад попавшим в автомобильную аварию, после которой в его памяти стали удерживаться события не более чем 80 минут. В его жизни появляются два человека: домработница и ее десятилетний сын Рут.
-Со временем они начинают понимать красоту, скрытую в цифрах, их завораживает любовь профессора к математике. Мало-помалу они начинают (   Читать дальше...   )Производство: ЯпонияЖанр: Драма, Мелодрама, СемейныйРежиссер: Такаси КоидзумиАктеры: Акира Тэрао, Эри Фукацу, Таканари Сайто, Хидэтака Ёсиока, Рурико Асаока, Хисаси Игава, Рёя Абэ
-Shô Abe, Takayasu Andô, АритомиПеревод: Одноголосый (D.I.M.)Субтитры: отсутствуютПродолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625D97D66B0B0CFF3262F95BD4593A51D844038A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571203   (433239) от 21.08.2022
-
-Красный воробей / The Red Sparrow (2022) WEBRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй половине 21 века разгорелся ожесточенный конфликт между людьми и искусственным интеллектом. Героиня Йи Ни приняла решение судьбы и повела армию роботов на решающую битву с могущественной группировкой Рон. Йи Ни — робот-гуманоид, рожденный в «Инциденте 2060 года», и единственная надежда помешать Группе Ронов захватить человеческую расу.Производство: Китай / The Deep Visual EffectsЖанр: Фантастика, боевикРежиссер: Цзи ЧжичжунАктеры: Ли Мэн, Цзи Чжичжун, Чжу Хун, Цзян Чжэньхао, Хуан Яо, Хань Цунцун, У Яньлинь, Тун Ху, Ло Лэй, Ли ЧжунжуйПеревод: Многоголосый любительский (Head Pack Films)Субтитры: Китайские, английские (хардсаб)Продолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB177AF776C65E13360E74998202BAC8CEC59A7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

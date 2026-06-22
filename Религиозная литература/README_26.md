@@ -1,3 +1,56 @@
+###  Публикация: 1007083   (823477) от 14.04.2016
+
+Ковчег (изд.) | Великий канон преподобного Андрея Критского с переводом на русский язык (2012) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823477.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Преизряднейший таинник покаяния», каковым именем Святая Церковь достойно ублажает творца Великого канона преблаженного пастыря Критской Церкви святого Андрея, собрав в этом каноне воедино события ветхозаветной и новозаветной истории от падения праотца Адама до Вознесения Христова, излагает их в духе глубокого сердечного сокрушения, с необыкновенным искусством прилагая (   Читать дальше...   )Жанр: Богослужение, молитваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA300FB2684D0D47FCBA31C0A071FBE634767A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007096   (823396) от 14.04.2016
+
+дьякон Григорий (писарь) | Остромирово евангелие [1056-1057 гг.] (2013) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остромирово Евангелие — древнейшая русская рукописная книга, написанная в середине XI века. Ценнейший памятник старославянского языка русского извода. Рукопись хранится (с 1806 года) в Российской национальной библиотеке (шифр F.п.I.5.).
+Евангелие-апракос, написанное крупным красивым уставом, причем размер букв постепенно возрастает к концу книги (от 5 мм до 7 мм). (   Читать дальше...   )Жанр: ЕвангелиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53B98C0045CC85A42FE3E46990EC6A442347FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990237   (823142) от 14.04.2016
 
 Александр Мень | История религии. В поисках Пути, Истины и Жизни [VII Томов] (1991-1992) [PDF]
@@ -6,7 +59,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823142.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823124.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822990.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822892.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821906.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821424.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821231.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821206.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ World Bible Translation Center (изд.) | Библия. Современный 
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821201.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821170.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821015.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820905.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819649.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819542.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819370.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819252.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819245.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818943.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817702.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817639.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817588.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817587.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817585.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817584.jpg" />
 </div>
 
 
@@ -628,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:800D2C093D37A540765D783BF9565C213491DA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196028   (817581) от 06.01.2018
-
-Н. С. Гордиенко (общ. ред.) | Православие: Словарь атеиста (1988) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот словарь призван познакомить пропагандистов атеизма с тер минами и понятиями, встречающимися в практике воспитательной рабо ты с последователями православия. Читатели найдут в нем сведения о  вероучении, социальной доктрине, культе, формах и методах деятельно сти церковных организаций этого религиозного направления.
-
-Адресуется пропагандистам, (   Читать дальше...   )Жанр: История, политология, религиоведение, словарьФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EA62E465BA72947269876DED84F982DFC6D889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196827   (817575) от 06.01.2018
-
-М. Брикнер | Страдающий бог в религиях древнего мира (1923) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В интересной книге М. Брикнера собраны краткие сведения об умирающем и воскресающем спасителе в восточных религиях (Вавилон, Финикия, М. Азия, Греция, Египет, Персия). Брикнер выясняет отношение восточных религий к христианству, проводит аналогии между древними религиями и христианством. Из данных взятых им из истории религий, Брикнер делает соответствующие выводы, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AF60A74D1F78A038FF085DCADEC0D189244844
 ```
 
 https://mybot314.ru/tekegram_catalog/

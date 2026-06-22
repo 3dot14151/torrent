@@ -1,3 +1,33 @@
+###  Публикация: 1640442   (196981) от 17.06.2023
+
+Фотография - Фотоконкурс The Big Picture (2014-2023 года) [PNG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196981.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента своего основания в 2014 году BigPicture был признан одним из лучших в мире конкурсов по охране дикой природы и охране природы.
+В данной подборке представлены фотографии победителей и финалистов конкурса с 2014 по 2023 года в номинациях: «Водная жизнь», «Наземная дикая природа», «Крылатая жизнь», «Пейзажи, водные пейзажи и флора», «Искусство природы», «Человек/Природа», (   Читать дальше...   )Формат: PNGРазрешение файлов: The Big Picture - 2014: 855х855 - 1403х891
+The Big Picture - 2015: 937х855 - 1280х855
+The Big Picture - 2016: 855х855 - 6016х4016
+The Big Picture - 2017: 855х855 - 1591х2385(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5F6B85656B6D6490BFA618EB38F78272958B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642521   (196434) от 27.06.2023
 
 Фотография - Фотоконкурс Drone Photo Awards (2018-2023 года) [PNG]
@@ -6,7 +36,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196434.jpg" />
 </div>
 
 
@@ -37,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195103.jpg" />
 </div>
 
 
@@ -67,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194278.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187315.jpg" />
 </div>
 
 
@@ -120,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187020.jpg" />
 </div>
 
 
@@ -151,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179599.jpg" />
 </div>
 
 
@@ -177,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177961.jpg" />
 </div>
 
 
@@ -203,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177946.jpg" />
 </div>
 
 
@@ -230,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_177187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177187.jpg" />
 </div>
 
 
@@ -257,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176285.jpg" />
 </div>
 
 
@@ -283,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176232.jpg" />
 </div>
 
 
@@ -309,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175508.jpg" />
 </div>
 
 
@@ -335,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175471.jpg" />
 </div>
 
 
@@ -361,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175407.jpg" />
 </div>
 
 
@@ -387,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174766.jpg" />
 </div>
 
 
@@ -413,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174747.jpg" />
 </div>
 
 
@@ -439,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174719.jpg" />
 </div>
 
 
@@ -465,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174111.jpg" />
 </div>
 
 
@@ -491,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174064.jpg" />
 </div>
 
 
@@ -517,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174052.jpg" />
 </div>
 
 
@@ -543,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174034.jpg" />
 </div>
 
 
@@ -569,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172952.jpg" />
 </div>
 
 
@@ -598,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172760.jpg" />
 </div>
 
 
@@ -626,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172756.jpg" />
 </div>
 
 
@@ -654,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172585.jpg" />
 </div>
 
 
@@ -667,32 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E14EEA38DD8717E25356725C9A4F47C4AAE2BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669836   (172434) от 18.10.2023
-
-Фотография - Фотограф года дикой природы 2020 [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский музей естествознания подвел итоги самого престижного в мире фотоконкурса Wildlife Photographer of the Year 2020 («Фотограф дикой природы-2020»). И в этом году мы наблюдаем настоящий триумф России. Прежде всего впервые за полувековую историю конкурса Гран-при взял наш соотечественник. Всемирно известный фотограф Сергей Горшков (кстати, он еще и многолетний (   Читать дальше...   )Формат: PNGРазрешение файлов: 1536x2048 - 2560x2302
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B50C6FE57BA1747ADE1205349203BB9BF2D5E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

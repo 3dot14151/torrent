@@ -1,3 +1,32 @@
+###  Публикация: 883702   (810860) от 01.04.2015
+
+Hollywood Undead - Day Of The Dead (2015) Best Buy Edition [MP3|320 кб/с]<Alternative Rock, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Usual Suspects
+02. How We Roll
+03. Day Of The Dead
+04. War Child(   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3363D11C6ECB75D57C35DBC70B09F19A08F8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009542   (810157) от 21.04.2016
 
 Bazzookas - Ska.World (2016) [MP3|320 кб/с] <Ska, Altertative>
@@ -6,7 +35,7 @@ Bazzookas - Ska.World (2016) [MP3|320 кб/с] <Ska, Altertative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810157.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Royal Nature - Arcane (2016) [MP3|320 Kbps] <Alternative Rock, Electronic Indie 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809273.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tonight Alive - Underworld (2018) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808399.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Agnostic Front - The American Dream Died (2015) [MP3|320 кб/с]<Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807198.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Nothing More - Nothing More (2013) Deluxe Edition [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806286.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nothing More - The Stories We Tell Ourselves (2017) [MP3|320 Kbps] <Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806278.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Disturbed - 6 альбомов (2000-2010) [MP3|320 кб/с]<Alternative & Nu-me
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804834.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Heisskalt - Vom Stehen Und Fallen (2014) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804692.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Evans Blue - Letters from the Dead (2016) Not On Label, US [MP3|320 Kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804424.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Body Count - Bloodlust (2017) [MP3|320 Kbps] <Rapcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803280.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ The Letter Black - Pain (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801778.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ H.E.R.O - H.E.R.O (2016) EP [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801768.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Fall Out Boy - M A N I A (2018) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800132.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Limp Bizkit - Still Sucks (2021) [MP3|320 Kbps] <Nu Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799927.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ What The Blood Revealed - EP 1 (2007) [MP3|320 Kbps] <post-rock, post-metal, ins
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799676.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ What The Blood Revealed - EP 2 (2009) [MP3|320 Kbps] <post-rock, post-metal, ins
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799673.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Falling In Reverse - Coming Home (2017) [MP3|320 Kbps] <Alternative Rock, Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799148.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Locomotora - This Very Holding Back (2013) [MP3|320 Kbps] <post-rock, instrument
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798876.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ John 5 aka John William Lowery + Side Projects (L.A. Rats, Red Square Black, Two
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792618.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Dangerkids - Blacklist_ (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792492.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ The Hardkiss - Perfection Is a Lie (2017) [MP3|320 kbps] <Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792324.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Nicole Atkins - Italian Ice (2020) [MP3|320 Kbps] <Female Vocal, Pop, Singer-Son
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790675.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Mai Lan - Autopilote (2018) Wagram Music / Cinq 7 [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789922.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Brothers Till We Die - Collection (2014-2019) [MP3|320 Kbps] <Beatdown Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787408.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Covet - Technicolor (2020) [MP3|320 Kbps] <Post-Rock, Instrumental>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786596.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Covet - Technicolor (2020) [MP3|320 Kbps] <Post-Rock, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68D5C1B1CD504C38A64BE7EED36D9036408C91F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388683   (786591) от 07.06.2020
-
-Martin Grech - Hush Mortal Core (2020) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maelstrom Spark (05:53)
- 02. Auras Awol (07:24)
- 03. Hush Mortal Core (03:39)
- 04. Mothflower (06:10)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8524588A2D87A2F1BFC89D88AFBD26E1AC7393D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1540620   (650590) от 31.03.2022
+
+Placebo - Never Let Me Go (2022) Remixes [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrounded By Spies (Timo Maas / André Winter "Smack The Spies" Extended Remix) (7:35)
+02. Surrounded By Spies (Richard Norris Bag on the Platform Mix) (6:33)
+03. This Is What You Wanted (Digital 21 & Stefan Olsdal Remix) (5:34)Жанр: Alternative, Indie RockПродолжительность: 00:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794DFEECC5225459D8C196BA9221F9F8908BD79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291793   (650487) от 27.03.2019
 
 Jenny Lewis - On The Line (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -6,7 +34,7 @@ Jenny Lewis - On The Line (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650487.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Bad Omens - The Death Of Peace Of Mind (2022) [FLAC|Lossless|tracks + .cue] <Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650468.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Muse - Drones (2015) [FLAC|Lossless]<Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648948.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Rise Against - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Punk Rock,  Melodic 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648368.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_647888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647888.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ Algiers - Algiers (2015) [FLAC|tracks|Web-DL] <Post-Punk, Indie, Experiemental, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647548.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ From Ashes To New - The Future (2018) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646704.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ Blink-182 - California (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645691.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ Zebrahead - Brain Invaders (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645182.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ Hole - Celebrity Skin (1998) [WavPack|Lossless|image + .cue] <Grunge, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643910.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ And the Kids - When This Life Is Over (2019) [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643387.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ From Ashes To New - Day One (2016) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643140.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ H.E.R.O. - Alternate Realities (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643129.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Ska-P - Game Over (2018) [FLAC|Lossless|tracks + .cue] <Ska, Ska-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643127.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Landmvrks - 5 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks|tracks + .cue] <Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643122.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ Hoobastank - Push Pull (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643062.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Adult Mom - Soft Spots (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642974.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ The Afghan Whigs - In Spades (2017) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642972.jpg" />
 </div>
 
 
@@ -528,7 +556,7 @@ Jon Spencer & The Hitmakers - Spencer Gets It Lit (2022) [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641216.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ Pillow Queens - Leave The Light On (2022) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641087.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ Iggy Pop - Preliminaires (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641048.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ Nickelback - Feed The Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640787.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639994.jpg" />
 </div>
 
 
@@ -673,7 +701,7 @@ Deftones - The Very Best Of The Deftones (2015) [FLAC|tracks + .cue]<Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639541.jpg" />
 </div>
 
 
@@ -702,7 +730,7 @@ Warmduscher - At The Hotspot (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639244.jpg" />
 </div>
 
 
@@ -716,35 +744,6 @@ Warmduscher - At The Hotspot (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A7199F0D8AE4072C59455EF5907E7425967A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293158   (639207) от 02.04.2019
-
-David Gray - Gold In A Brass Age (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sapling (03:26)
-02. Gold in a Brass Age (04:20)
-03. Furthering (04:32)
-04. Ridiculous Heart (04:00)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C9462CED3A4D546406D0671BB455CB238A4307
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Mashiro-iro Symphony: The Color of Lovers / Белоснежная симфон�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465501.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Ore, Twintail ni Narimasu. | Gonna Be the Twin-Tail!! | Я, два хвоста 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464094.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463950.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kurokami The Animation | Black God | Тёмная богиня [2009, TV, 23 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463936.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Gekijouban Hibike! Euphonium / Sound! Euphonium The Movie / Играй, эуфо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463889.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Danganronpa 3 Zetsubou Hen | Danganronpa 3: The End of Hope's Peak High School -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463613.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Gundam G no Reconguista / Гандам: Возвращение на G [2014, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461677.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Shokugeki no Souma / Food Wars! Shokugeki no Soma / Кулинарные пое�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461586.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Monster Musume no Iru Nichijou / Everyday Life with Monster Girls / Повсед
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459354.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Prison School / Школа-тюрьма [2015, TV, 12 из 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459351.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Watashi ga Motenai no wa Dou Kangaete mo Omaera ga Warui! / WataMote / Не мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457574.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Non Non Biyori Repeat / Прекрасные деньки [2015, TV, 12] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457280.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kami nomi zo Shiru Sekai: Megami Hen / The World God Only Knows: Goddesses Arc /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453213.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ore Monogatari!! / My Love Story!! / Моя история! [2015, TV, 24] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452993.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Kin`iro Mosaic / Golden Mosaic / Золотая Мозаика [2013, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450545.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Maoyuu Maou Yuusha / Archenemy and Hero / Герой при заклятом в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_444414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444414.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Gangsta. | Гангстеры [2015, TV, 12] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444226.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Anime de Wakaru Shinryounaika | Comical Psychosomatic Medicine | Комична�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444063.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп: Алиса в саду
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443154.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441502.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Phantasy Star Online 2: Episode Oracle | Звёздная фантазия он�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439778.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Island | Остров [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439038.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Jitsu wa Watashi wa / Правда в том, что я... [2015, TV, 13] HDTVri
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437320.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Danganronpa Kibou no Gakuen to Zetsubou no Koukousei The Animation [2013, TV, 13
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436858.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436834.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434916.jpg" />
 </div>
 
 

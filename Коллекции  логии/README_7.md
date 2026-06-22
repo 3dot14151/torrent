@@ -1,3 +1,57 @@
+###  Публикация: 509708   (673908) от 12.06.2012
+
+Филадельфийский эксперимент (Секретный эксперимент) / The Philadelphia Experiment (1984-1993) DVDRip [H.264] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673908.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мае 1943 года на американской военной базе была проведена операция, которая вошла в историю под названием "Филадельфийский эксперимент". Это был совершенно секретный проект, который позволял быстро решить исход второй мировой войны.
+Но произошла катастрофа: часть людей погибла, часть сошла с ума, несколько человек перенеслись во времени на сорок лет вперед. (   Читать дальше...   )Производство: СШАЖанр: Фантастика, ПриключенияРежиссер: Стивен КорнуэллАктеры: Брэд Джонсон , Марджин Холден , Геррит Грам , Кристиан Граас , Сирил О'Рейлли , Джеффри БлейкПеревод: Профессиональный многоголосый, профессиональный двуголосый, авторский одноголосый (А.Михалёв)Субтитры: РусскиеПродолжительность: 01:41:14 + 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E48DA84EAC8F4A247AF38275A88EF21AADB3B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798116   (672853) от 20.06.2014
+
+Лара Крофт: Расхитительница гробниц [Дилогия] / Lara Croft: Tomb Raider [Diology] (2001, 2003) BDRip [H.264/720p-LQ]  [Hi10P]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй серии приключений прекрасной расхитительницы гробниц Лары Крофт география действия становится ещё обширней и экзотичней. Ларе предстоит побывать в Греции, Кении, Танзании, Гонконге и Китае, и, разумеется, не для того, чтобы оценить местные красоты.
+ Она будет противостоять злодею-интеллектуалу Чену Ло, возглавляющему китайский преступный синдикат. Ло, искусный (   Читать дальше...   )Производство: США, Германия, Япония, ВеликобританияЖанр: Фэнтези, Боевик, Триллер, ПриключенияРежиссер: Ян де БонтАктеры: Анджелина Джоли, Джерард Батлер, Киаран Хиндс, Крис Барри, Ноа Тейлор, Джимон Хунсу, Тиль Швайгер, Саймон Ям, Теренс Йин, Даниэль КальтаджиронеПеревод: Дублированный, Многоголосый, Двухголосый, Авторский x2Язык субтитров: Русский (Надписи), Русский, АнглийскийПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6847F60D5D5C247F0672B5D738B905D131772E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796679   (672847) от 20.06.2014
 
 Трилогия жизни / Il trilogy della vita (1970 - 1974) BDRip [H.264/720p] [PR]
@@ -6,7 +60,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672847.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671727.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669118.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667206.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665042.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661902.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661862.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_661141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661141.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_659963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659963.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657432.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655324.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653488.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651616.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650720.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646193.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_640991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640991.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640720.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638890.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634948.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634627.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631408.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631108.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_628445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628445.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_624927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624927.jpg" />
 </div>
 
 
@@ -629,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337857   (624926) от 23.06.2017
-
-Двойная рокировка (Трилогия)/ Infernal Affairs (Trilogy)/ Mou gaan dou I-II-III (2002-2003) [720p] BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624926.jpg" />
-</div>
-
-
-###  Подробнее
-
-После роковой перестрелки, отправившей к праотцам Яна и инспектора Би, Лау не находит себе места. Внутреннее полицейское расследование полностью подтвердило рассказанную им версию, но Лау неспокойно — случайно узнав о том, что в управлении еще могли остаться стукачи Сэма, он задается целью отловить их всех, до единого. Одним из наиболее вероятных подозреваемых является (   Читать дальше...   )После убийства руководителя Триады, его сын Хоу, ранее не интересовавшийся делами отца, неожиданно объявляет о своем намерении занять его место. Полиция оказывается не готовой к такому повороту событий, обретя в лице нового мафиози грозного и неуловимого противника.
-Теперь все надежды возлагаются на молодого полицейского Чэн Вин Яня, который рискуя жизнью проникает (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Вэй Кеунг Лау (Wai-keung Lau), Сиу Фай Мак (Siu Fai Mak)Актеры: Тони Лун Чювай (Tony Leung Chiu Wai), Энди Лау (Andy Lau), Леон Лаи (Leon Lai), Чэнь Даомин (Daoming Chen), Келли Чен (Kelly Chen), Энтони Вонг Чау-Санг (Anthony Wong Chau-Sang), Эрик Цан (Eric Tsang), Сэмми Чэн (Sammi Cheng), Карина Лау (Carina Lau), Эдисон Чен (Edison Chen)Субтитры: Русские, АнглийскиеПродолжительность: 1:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7011C5D17989A47886D308266013A647869C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676279   (623069) от 24.06.2017
-
-Двойная рокировка / Mou gaan dou / Infernal Affairs (2002, 2003) BDRemux [1080p] [Трилогия / Trilogy]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это настоящий психологический боевик с захватывающим сюжетом, способным держать в напряжении всего фильма. Именно по этому фильму M. Скорцезе снял "Отступники" с Леонардо Дикаприо, Джеком Николсоном и Мэттом Деймоном в главных ролях.Производство: Basic Pictures / Media Asia Films Ltd / Гонконг, КитайЖанр: Боевик, Криминал, Триллер, Детектив, ДрамаРежиссер: Вэй Кеунг Лау, Сиу Фай МакАктеры: Энди Лау, Тони Люн Чу Вай, Энтони Вонг Чау-Санг, Эрик Цан, Келли Чен, Сэмми Чэн, Эдисон Чен, Шон Юе, Элва Хсиао, Чэпман То, Карина Лау, Френсис Нг, Ху Цзюнь, Танг Чо «Джо» Чунг, Генри Фонг, Питер Нгор, Леон Лай, Чэнь ДаоминПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:40:48 | 01:59:27 | 01:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7807F039716032F767C1810D0ADC8116023B6024
 ```
 
 https://mybot314.ru/tekegram_catalog/

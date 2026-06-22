@@ -1,3 +1,29 @@
+###  Публикация: 1353028   (1022341) от 06.04.2021
+
+Modern Combat 4: Zero Hour 1.2.3e [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern Combat 4: Zero Hour - новая сюжетная линия популярного экшена на Андроид от компании Gameloft. В этой игре используется новый движок Havok, разработанный специально для мобильных устройств. Отличительной особенностью его является возможность реализовать очень качественную и реалистичную графику, в чем вы сами сможете убедится скачав игру.Тип издания: Graphic Mode + Mod (Unlimited Money)Релиз состоялся: 25.06.2019Разработчик: Gameloft SEПоддерживаемая ОС: Android 4.4+Жанр: Экшены, шутерыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25227F10940619A9E96CAA3D1986AA9557B21B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974028   (1022328) от 06.04.2021
 
 Perfect365 One-Tap Makeover v8.57.17 [Ru/Multi] - создание виртуального макияжа и редактирования фото (обновляемая)
@@ -6,7 +32,7 @@ Perfect365 One-Tap Makeover v8.57.17 [Ru/Multi] - создание виртуа�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022328.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Color Grab (Color Detection) 3.9.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022266.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Alarm Clock Pro 2.9.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022242.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022236.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ aCalendar - Android Calendar 2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022235.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ MiXplorer 6.54.2-Silver Mod by VERGIL777, Mr. Ricatto [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022224.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Partitions Backup & Restore 2.3.0 Mod by mrfrost475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022073.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Moises v1.3.1 Premium [Ru] - Муз. платформа с ИИ + удалите
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021884.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ English Grammar in Use v1.11.40 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021844.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Dog Scanner v10.2.10-G [Ru] – Идентификация породы соба
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021777.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Cat Scanner v10.2.10-G [Ru] – Идентификация породы коше
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021758.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021751.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Talkao Translate - Перевести голос и словарь v314.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021744.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Investing v6.6.5 [Ru] - биржа, инвестиции, акции, финан
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021680.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ REVER - Motorcycle GPS, Route Planner & Discover v5.0.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021615.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Perfectly Clear v4.3.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021590.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021583.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ Lapse It • Time Lapse • Pro v4.70 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021575.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Scan & Translate+ Text Grabber v4.3.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021556.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021520.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ QS Английский язык v1.10 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021276.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021173.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ FIMO - Analog Camera v2.12.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021161.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ Stoxy PRO v5.5.0 [Ru/Multi] - Акции, Индексы, Фьючерсы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021155.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ DiagScan v3.1 [Ru] - сброс кодов ошибок elm327 и расшифр
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021130.jpg" />
 </div>
 
 
@@ -664,35 +690,6 @@ DiagScan позволяет вам считать коды ошибок чере
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DE344A7DCE924DC0C7D3B1B7811D2C14F3B0ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442039   (1021073) от 14.04.2021
-
-KMPlayer Plus v31.04.120 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Функция медиаплеера
-Воспроизведение видео высокой четкости: HD, 4K, 8K, UHD, Full HD.
-Настройка цвета: изменение яркости, контрастности, оттенка, насыщенности, информации о гамме
-Масштабирование видео: Увеличьте масштаб и переместите видео, которое вы смотрите.(   Читать дальше...   )Тип издания: Пиратка (Plus Paid)Релиз состоялся: 12 апреля 2021 г.Разработчик: PANDORA.TVПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67E976A15299B7AB2891D9B8766DFA71081C1A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

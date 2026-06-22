@@ -1,3 +1,32 @@
+###  Публикация: 1199084   (801853) от 15.01.2018
+
+Горные лыжи. Кубок мира 2017–2018. Аделбоден (Швейцария). Женщины. Слалом 2-я попытка (07.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801853.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 января 2018 года, воскресенье. 14:15 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Краньска Гора (Словения).
+Женщины. Слалом 2-я попыткаТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEC5FC24C76CA934B9DFB980606BA6A6B69065A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199078   (801852) от 15.01.2018
 
 Горные лыжи. Кубок мира 2017–2018. Аделбоден (Швейцария). Женщины. Слалом 1-я попытка (07.01.2018) HDTV [H.264/720p] [hand made 50fps]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801852.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801851.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801850.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801273.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801269.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801240.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801149.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801098.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800714.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800639.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800634.jpg" />
 </div>
 
 
@@ -315,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800632.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800631.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800614.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800582.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800458.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ Cкелетон. Кубок мира 2017-2018. 6-й Этап. Альтенбе�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800457.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ Cкелетон. Кубок мира 2017-2018. 6-й Этап. Альтенбе�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800456.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ Cкелетон. Кубок мира 2017-2018. 6-й Этап. Альтенбе�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800455.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800454.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800453.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800452.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799835.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799828.jpg" />
 </div>
 
 
@@ -688,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799695.jpg" />
 </div>
 
 
@@ -701,35 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:541F8BA038B6F84556CB22A04FA17A42FB149002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121685   (799694) от 03.04.2017
-
-Баскетбол. Кубок Европы 2016-2017. Финал. 1-й матч. Валенсия (Испания) – Уникаха (Испания) (28.03.2017) IPTV [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799694.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 марта 2017, вторник. 21:30 МСК
-Кубок Европы 2016-2017. Финал. 1-й матч
-Валенсия (Валенсия, Испания) – Уникаха (Малага, Испания)
-Стадион: Фуэнте де Сан-Луис (Валенсия, Испания), 8500 зрителей (94 % при вместимости 9000)(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A017E6EEFB4DBE0F3D58BF992EB916486F33A2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

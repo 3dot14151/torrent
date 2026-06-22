@@ -6,7 +6,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18758.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ XENOBREAKERS: Classic Tower Defense (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18750.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18729.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18570.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18361.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.3.0/dlc) Repack Wanterlude
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18272.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10457) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17999.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ LEGO Bricktales (2022) [Ru/Multi] (2.0 r21673) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17843.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mini Settlers (2024) [Ru/Multi] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17757.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17746.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (20250324) Scene SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17465.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17356.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16451.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Megaquarium (2018) [Ru/Multi] (4.2.5g/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16330.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Kingdoms and Castles (2017) [Ru/Multi] (123r6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16328.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Terraformers (2022) [Ru/Multi] (1.6.21/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16177.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16168.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16045.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Farm Together 2 (2024) [Ru/Multi] (Build 18675684/dlc) Repack FitGirl [Soundtrac
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15870.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Sims 4 (2014) [Ru/Multi] (1.115.216.1030/dlc) Repack Other s [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15713.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Caves of Qud (2015) [En] (2.0.210.20/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15712.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ InfraSpace (2021) [Ru/Multi] (1.52.450) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15329.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (1.1010742/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15323.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15287.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Death and Taxes (2020) [Ru/Multi] (1.2.59) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14891.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.4.7/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14282.jpg" />
 </div>
 
 

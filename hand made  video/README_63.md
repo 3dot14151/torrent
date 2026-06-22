@@ -1,3 +1,29 @@
+###  Публикация: 1167010   (418723) от 19.09.2017
+
+Пираты Карибского моря: Мертвецы не рассказывают сказки / Pirates of the Caribbean: Dead Men Tell No Tales (2017) BDRip [H.264/1080p-LQ] [handmade 16:9]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исчерпавший свою удачу капитан Джек Воробей обнаруживает, что за ним охотится его старый неприятель, ужасный капитан Салазар и его призрачные пираты. Они только что сбежали из Дьявольского треугольника и намерены уничтожить всех пиратов, включая Джека. Поможет спастись лишь могущественный артефакт — трезубец Посейдона, который дарует своему обладателю полный контроль (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: фэнтези, боевик, комедия, приключенияРежиссер: Хоаким Роннинг, Эспен СандбергАктеры: Джонни Депп, Кира Найтли, Кая Скоделарио, Дэвид Уэнэм, Орландо Блум, Джеффри Раш, Брентон Туэйтс, Хавьер Бардем, Голшифте Фарахани, Стивен ГрэмПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (форсированные, полные), английские (полные)Продолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4F0A6A914FC9BD740D0D1AD5D2EC5794A1AC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 831403   (418602) от 15.10.2014
 
 Грань будущего / Edge of Tomorrow (2014) BDRip [1080p] 3D [Горизонтальная анаморфная стереопара] [hand made 60fps]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418602.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417646.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416096.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416074.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Mylene Farmer - Stade de France (2009) BDRip [1080p] [hand made 60fps]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415535.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415459.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414539.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410782.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409574.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409451.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409153.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408329.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407510.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407325.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407314.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406617.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401300.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401205.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398337.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397291.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396311.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394417.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392469.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390786.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389556.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB1E8EFB6956BA8B083149A27E5731FAFAB3DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252979   (387221) от 07.10.2018
-
-Человек-муравей и Оса / Ant-Man and the Wasp (2018)  BDRip [H.264/1080p] [handmade 16:9]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скотт Лэнг, известный также как Человек-муравей, уже заслужил право оказаться в команде Мстителей. Но желание быть ближе к дочери удерживает его в родном Сан-Франциско — до тех пор, пока доктор Хэнк Пим, создавший когда-то изменяющий размеры своего владельца чудо-костюм, не призывает Скотта присоединиться к новой опасной миссии. А помогать в противостоянии с коварным (   Читать дальше...   )Производство: США / Marvel Studios Inc.Жанр: фантастика, боевик, приключенияРежиссер: Пейтон РидАктеры: Пол Радд, Эванджелин Лилли, Майкл Пенья, Уолтон Гоггинс, Бобби Каннавейл, Джуди Грир, Ти Ай, Давид Дастмалчян, Ханна Джон-Кэймен, Эбби Райдер ФортсонПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FDA5EE7B274DD0FB6E453D47B2F6213E72F40E
 ```
 
 https://mybot314.ru/tekegram_catalog/

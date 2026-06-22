@@ -1,3 +1,133 @@
+###  Публикация: 745854   (966823) от 15.01.2014
+
+Астрал: Глава 2 / Insidious: Chapter 2 (2013) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_966823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Ламберт стремится раскрыть тайну, из-за которой они оказались в опасной связи с миром духов…Производство: США, Blumhouse Productions, Entertainment One, FilmDistrictЖанр: Ужасы, ТриллерРежиссер: Джеймс ВанАктеры: Патрик Уилсон, Роуз Бирн, Лин Шэй, Тай Симпкинс, Барбара Херши, Стив Култер, Ли Уоннелл, Энгус Сэмпсон, Эндрю Эстор, Хэнк ХаррисПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8C74E46EDEB0DBFAB4F15F98CF276CF9DF62F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620187   (966337) от 17.02.2013
+
+Возможности карьеры / Career Opportunities (1991) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работать ночным сторожем в огромном супермаркете, где можно врубить музыку на всю громкость, наесться всякой всячины от пуза, кока-колы напиться на всю оставшуюся жизнь, а потом в пустом торговом зале до самого утра кататься на роликовых коньках, — может ли быть мечта прекраснее, если тебе лет 16-17 и ты представления не имеешь, чем заняться в ближайшем будущем? (   Читать дальше...   )Жанр: КомедияРежиссер: Брайан Гордон /Bryan GordonАктеры: Фрэнк Уэйли /Frank Whaley/, Дженнифер Коннелли /Jennifer Connelly/, Дермот Малруни /Dermot Mulroney/, Барри Корбин /Barry Corbin/,Перевод: Одноголосный закадровыйСубтитры: нетФормат: AVIПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC497D95188459B0F02B9591AFAB8AD96CA132D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977191   (966328) от 20.01.2016
+
+Черная месса / Black Mass (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина расскажет об Уайти Булджере, знаменитом бостонском гангстере, который 16 лет находился в бегах и был арестован в июне 2011 года в Санта-Монике. Булджер, которому уже за 80, обвинялся в рэкете, был замешан в 19 убийствах и в то же время работал информатором на ФБР. Чтобы не попасть за решетку, он исчез в 1995 году и 16 лет успешно скрывался от правосудияПроизводство: США / Cross Creek Pictures, Le Grisbi Productions, Infinitum Nihil, Free State Pictures, Head Gear Films, Metrol Technology, RatPac-Dune Entertainment, Ridgerock Entertainment Group, Vendian EntertainmenЖанр: Драма, криминал, биография, экранизацияРежиссер: Скотт КуперАктеры: Джонни Депп, Джоэл Эдгертон, Бенедикт Камбербэтч, Кевин Бэйкон, Джесси Племонс, Питер СарсгаардПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC22703A4A9B422F656EA57D351690223B99DA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977189   (966322) от 20.01.2016
+
+Черная месса / Black Mass (2015) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина расскажет об Уайти Булджере, знаменитом бостонском гангстере, который 16 лет находился в бегах и был арестован в июне 2011 года в Санта-Монике. Булджер, которому уже за 80, обвинялся в рэкете, был замешан в 19 убийствах и в то же время работал информатором на ФБР. Чтобы не попасть за решетку, он исчез в 1995 году и 16 лет успешно скрывался от правосудияПроизводство: США / Cross Creek Pictures, Le Grisbi Productions, Infinitum Nihil, Free State Pictures, Head Gear Films, Metrol Technology, RatPac-Dune Entertainment, Ridgerock Entertainment Group, Vendian EntertainmenЖанр: Драма, криминал, биография, экранизацияРежиссер: Скотт КуперАктеры: Джонни Депп, Джоэл Эдгертон, Бенедикт Камбербэтч, Кевин Бэйкон, Джесси Племонс, Питер СарсгаардПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECDE4B74698D016213472B515B67FA9298BE5A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619772   (966266) от 17.02.2013
+
+Влюбленная женщина / Rubbeldiekatz (2011) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незадачливый актёр театра Алекс по стечению обстоятельств получает главную женскую роль в крупном голливудском фильме. Всё осложняется ещё больше, когда он проводит ночь со своей будущей партнёршей по фильму Сарой и влюбляется в неё…Жанр: КомедияРежиссер: Детлев БукАктеры: Маттиас Швайгхефер, Александра Мария Лара, Детлев Бук, Максимилиан Брюкнер, Денис Москитто, Макс фон Тун, Макс Гиерманн, Санни Меллес, Сюзанна Борман, Милан ПешельПеревод: Профессиональный (одноголосый)Продолжительность: 01:53:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977180   (966262) от 20.01.2016
 
 Приговорённые 2: Охота в пустыне / The Condemned 2 (2015) HDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966262.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966258.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965944.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965931.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965898.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965893.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965536.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965534.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965357.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965304.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965006.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964990.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964975.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964935.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964910.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964887.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964884.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964879.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964878.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964876.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964874.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:512B4D816FAA9EC8A3233DE7728DC7C8AD050844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359035   (964871) от 11.02.2020
-
-Спрячь бабушку в холодильнике / Metti la nonna in freezer (2018) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая художница Клаудия держит на плаву свою мастерскую только благодаря бабушкиной пенсии. И когда старушка умирает, Клаудии ничего не остается, как скрыть этот факт, чтобы продолжать получать деньги. Но девушку начинает преследовать дотошный и неподкупный полицейский Симоне, обожающий свою работу. Что же привлекло его внимание — сама Клаудия или ее «скелет в (   Читать дальше...   )Производство: Италия / Indigo Film, Rai CinemaЖанр: КомедияРежиссер: Джанкарло Фонтана, Джузеппе СтазиАктеры: Фабио Де Луиджи, Мириам Леоне, Люсия Оконе, Марина Рокко, Франческо Ди Лива, Сьюзи Лауде, Карло Лука Де Руджиери, Маурицио Ломбарди, Эрос Паньи, Барбара БушеПеревод: Многоголосый профессиональный (iTunes)Субтитры: отсутствуютПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DF19CE0E6E30BB55A8BE313EC0D95DCBD54ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977563   (964659) от 22.01.2016
-
-Спасибо, доктор Рей / Merci Docteur Rey (2002) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томаса, молодого американского студента, живущего в Париже со своей матерью оперной дивой, приглашает по телефону па вечеринку незнакомый мужчина. Приняв приглашение, молодой человек узнает, что «по правилам игры», он должен следить за встречей незнакомца и его приятеля. Томас приходит незаметно спрятавшись, наблюдает за проходящим. Вечеринка заканчивается трагически-жестоким (   Читать дальше...   )Производство: Франция, США / Eat Your Soup Productions, Merchant Ivory ProductionsЖанр: КомедияРежиссер: Эндрю ЛитвакАктеры: Дайэнн Уист, Джейн Биркин, Станислас Мерхар, Бюль Ожье, Ванесса Рэдгрейв, Карим Салах, Дидье Фламан, Рошди Зем, Натали Ришар, Дэн Херцберг, Джерри ХоллПеревод: Двухголосый закадровыйПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F985BBFBAAC383D9EC556C1040BEE691BECD8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978107   (964436) от 22.01.2016
-
-Сделай меня счастливым! / Fais-moi plaisir! (2014) DVDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ариан убеждена, что её спутник жизни Жан-Жак, мечтает о другой женщине. Чтобы спасти свои отношения, она просит его об авантюре с той самой женщиной, думая, что это будет лучшим способом, чтобы освободиться. Когда Жан-Жак отправляется к этой даме, которую он едва знает, он ещё не ведает, что ему будет нужна дочь президента Республики.Производство: ФранцияЖанр: КомедияРежиссер: Эмманюэль МуреАктеры: Эмманюэль Муре, Жюдит Годреш, Дебора Франсуа, Фридерик Бель, Жак Вебер, Дэни Брийян, Микаэль Гудин, Фридерик Эпо, Фридерик Нидермайер, Карин ВенталоПеревод: Любительский одноголосый (Михаил Темнов)Субтитры: ОтсутствуютПродолжительность: 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE97995DFCF70AEBCF71852950BAB7BE2150181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977532   (964414) от 22.01.2016
-
-Паранормальное явление 5: Призраки / Paranormal Activity: The Ghost Dimension (2015) HDRip [H.264] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодые супруги Райан и Эмили, и их 6-летняя дочь Лейла переезжают в довольно симпатичный и тихий дом. В гараже они находят видеокамеру и коробку кассет. Но они даже не подозревали, что они увидят, когда заглянут в объектив камеры...Производство: США / Blumhouse Productions, Paramount PicturesЖанр: УжасыРежиссер: Грегори ПлоткинАктеры: Крис Дж. Мюррэй, Бриттани Шоу, Айви Джордж, Дэн Гилл, Оливия ТейлорПеревод: Дублированный (iTunes)Субтитры: русские (полные + форс), английские (Full + SDH)Продолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5451725458AF26750EDB19D4DA3055920ECB3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977958   (964284) от 22.01.2016
-
-Спасти рядового Райана / Saving Private Ryan (1998) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Джон Миллер получает тяжелое задание. Вместе с отрядом из восьми человек Миллер должен отправиться в тыл врага на поиски рядового Джеймса Райана, три родных брата которого почти одновременно погибли на полях сражений. Командование приняло решение демобилизовать Райана и отправить его на родину к безутешной матери. Но для того, чтобы найти и спасти солдата, (   Читать дальше...   )Производство: США / Paramount Pictures, DreamWorks SKG, Amblin Entertainment, Mutual Film Corporation, Mark Gordon ProductionsЖанр: Боевик, Драма, ВоенныйРежиссер: Стивен СпилбергАктеры: Том Хэнкс, Том Сайзмор, Эдвард Бёрнс, Барри Пеппер, Адам Голдберг, Вин Дизель, Джованни Рибизи, Джереми Дэвис, Мэтт Дэймон, Тед Дэнсон, Пол Джаматти, Деннис Фарина, Джорг Стэдлер, Макс Мартини, Дилан Бруно, Дэниэл Серкера, Деметри Горицас, Йен Портер, Гари Сефтон, Джулиан Спенсер, Стив Гриффин, Уильям МаршПеревод: Дублированный, профессиональный (многоголосый закадровый) x4, авторский (одноголосый закадровый) x4Язык субтитров: Русский, АнглийскийПродолжительность: 02:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6005D05032162E0BAE464FA87542C78A2D62595
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1395710   (753551) от 11.07.2020
+
+Большое австралийское приключение (Кимберли) / Coast Australia (2013) HDTV [H.264/1080i] (сезон 1, серия 1)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большое приключение начинается. Это страна, остров и континент одновременно, журналист Нил Оливер приглашает совершить путешествие длиной 60 000 километров вдоль побережья Австралии.Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, познавательный, путешествияРежиссер: Приа ВисвалингамПеревод: Двуголосый закадровый, профессиональный (ТПО Ред Медиа)Субтитры: отсутствуютПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634911D644C72C080431846C0BFB96D60D6969C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395734   (753539) от 11.07.2020
 
 Большое австралийское приключение (Тасмания) / Coast Australia (2017) HDTV [H.264/1080i] (сезон 1, серия 4)
@@ -6,7 +32,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753539.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752640.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Вырастая во Вселенной [5 из 5] / Growing Up in the Uni
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752288.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752142.jpg" />
 </div>
 
 
@@ -120,7 +146,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_752131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752131.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751826.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751824.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751820.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751692.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ BBC. Horizon: Война против науки / A War On Science (2006) DVBRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750647.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ BBC: Величайшие явления природы (эпизоды 1-6 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750310.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ BBC: Суперстая / Swarm: Nature's Incredible Invasions (Megaschwaerme. D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749819.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ BBC: Горькое озеро / Bitter Lake (2015) Web-DLRip [H.264/720p] [EN /
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749620.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ BBC: Сокрытые миры / Hidden Kingdoms (2014) BDRip [H.264/1080p] (С�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749094.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748662.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748586.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748583.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ BBC: Глубина / Deep Blue (2003) [720p]BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748582.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748153.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ BBC: Жизнь на земле / Life on Earth (1979) BDRip [H.264/720p-LQ] (Э
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747488.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747055.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ BBC: Что такое свет / Light Fantastic (2004)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746588.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746533.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745900.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745130.jpg" />
 </div>
 
 
@@ -656,33 +682,6 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9BC54ED3EE3F64B82EC478BC75983FBEF3EB6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342856   (745124) от 04.05.2014
-
-BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одиноки ли мы во вселенной? За последнее время люди многое узнали о планетах и звездах Солнечной системы. Известны их размеры, вес и состав, расстояние от каждой планеты до Солнца, а современные астрономические приборы, такие, как радиотелескопы и космические зонды, позволили сделать ряд гипотез о возникновении звезд.
-Сериал ВВС «Планеты» приглашает вас в невероятное (   Читать дальше...   )Производство: Великобритания / A+E Networks, British Broadcasting Corporation (BBC)Жанр: документальныйРежиссер: Дэвид МакНабПеревод: Профессиональный двухголосыйСубтитры: отсутствуютПродолжительность: 8 х ~ 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662B0336A701A79FE59E0BD8B49337C70F45398F
 ```
 
 https://mybot314.ru/tekegram_catalog/

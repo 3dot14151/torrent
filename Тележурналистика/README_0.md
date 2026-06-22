@@ -1,3 +1,115 @@
+###  Публикация: 1864695   (1065144) от 
+
+Живая еда с Сергеем Малозёмовым (11.04.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чука против морской капусты: что вкуснее — популярный салат из водорослей чука с ореховым соусом или привычная с детства морская капуста, и где на самом деле больше пользы? Команда «Живой еды» провела большую дегустацию, чтобы выяснить, какой из салатов выберет народное жюри, и проверила в лаборатории, в каком из них больше соли.
+Стоит ли переплачивать за мясной (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8575ECD6F71667DCDB33BA5845BAFDF75BA831F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864868   (1065020) от 12.04.2026
+
+Чудо техники с Сергеем Малозёмовым (12.04.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие гаджеты помогут красиво сфотографировать Луну и разглядеть кольца Сатурна из окна многоэтажки?
+В честь года Лошади в Китае выпустили робота-коня.
+Шведская изобретательница придумала «стул-вешалку» для одежды.
+И хочется, и колется! Правда ли, что сыворотки и патчи с микроиглами работают как фотошоп? Команда программы рассмотрела под микроскопом популярные средства (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58AA2B575D732BDD4E4BEBF7E1AA5BA4B31A1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864942   (1064938) от 13.04.2026
+
+British Movietone (2026) WEBRip [H.264] [EN]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "British Movietone" @BritishMovietone / UCHq777_waKMJw6SZdABmyaA по состоянию на 12 апреля 2026 года.
+
+British Movietone является одним из крупнейших в мире архивов кинохроники, охватывающим период с 1895 по 1986 год.
+(   Читать дальше...   )Производство: ВеликобританияЖанр: документальный, история, телепередача, хроникаЯзык озвучки: АнглийскийПродолжительность: 1930:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047287AEE87AB6F30CCF7F40DC468C23CF79303F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862058   (1064389) от 28.03.2026
+
+Живая еда с Сергеем Малозёмовым (28.03.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему в России так популярна грузинская кухня? Как с помощью хинкали узнают пол будущего ребенка? Какие национальные грузинские блюда полезны для здоровья, а из-за каких можно набрать лишний вес?
+ Сергей Малозёмов составил рейтинг морской рыбы по содержанию омега-3. Что вкусного и полезного можно приготовить из этой рыбы? Правда ли, что чем рыба дороже, тем она лучше? (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EC1A39237501EBFA98553EDF0B0717A8630F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862127   (1064354) от 28.03.2026
 
 Следствие вели... (28.03.2026) WEBRip [H.264/1080p]
@@ -6,7 +118,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064354.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064269.jpg" />
 </div>
 
 
@@ -61,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063443.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063429.jpg" />
 </div>
 
 
@@ -115,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063314.jpg" />
 </div>
 
 
@@ -144,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062126.jpg" />
 </div>
 
 
@@ -172,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062070.jpg" />
 </div>
 
 
@@ -198,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061927.jpg" />
 </div>
 
 
@@ -225,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061045.jpg" />
 </div>
 
 
@@ -253,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060921.jpg" />
 </div>
 
 
@@ -280,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060855.jpg" />
 </div>
 
 
@@ -306,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060222.jpg" />
 </div>
 
 
@@ -335,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060006.jpg" />
 </div>
 
 
@@ -361,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059833.jpg" />
 </div>
 
 
@@ -389,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059094.jpg" />
 </div>
 
 
@@ -415,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059012.jpg" />
 </div>
 
 
@@ -444,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058833.jpg" />
 </div>
 
 
@@ -471,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057902.jpg" />
 </div>
 
 
@@ -497,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057901.jpg" />
 </div>
 
 
@@ -526,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057821.jpg" />
 </div>
 
 
@@ -555,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057133.jpg" />
 </div>
 
 
@@ -581,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056979.jpg" />
 </div>
 
 
@@ -595,114 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0941C5627430F20331A7DE707D65E4A1623C5CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853703   (1056608) от 14.02.2026
-
-Живая еда с Сергеем Малозёмовым (14.02.2026) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как еда влияет на фертильность? Команда программы разобралась в продуктах-афродизиаках и тех, которые помогут стать родителями.
-Как приготовить кисель дома? Чем готовые кисели из магазина отличаются от домашних и правда ли, что кисель из пакетика полезен?
-Может ли термокружка выделять ядовитые вещества?
-Американские ученые пришли к выводу, что кофе, какао и виноград (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E755B4F0B93E6777CB47FD0573D1835FA0DB2C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853256   (1056491) от 13.02.2026
-
-Королева шахмат / Queen of Chess (2026) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056491.jpg" />
-</div>
-
-
-###  Подробнее
-
-О талантливой шахматистке Юдит Полгар, которая борется со скепсисом, сексизмом, а также с чемпионом Гарри Каспаровым, стремясь войти в плеяду лучших.Производство: США / Moxie FilmsЖанр: документальный, биографияРежиссер: Рори КеннедиУчастники: Юдит ПолгарПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09971D8E92C2798CCBCBA2C1739A501577FCD536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853257   (1056490) от 13.02.2026
-
-Дело Люси Летби / The Investigation of Lucy Letby (2026) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые публикуемые кадры и новые свидетельства по делу Люси Летби, вызвавшему полемику: акушерка осуждена за причинение тяжкого вреда младенцам, приведшего к их гибели.Производство: Великобритания / ITN ProductionsЖанр: документальный, криминалРежиссер: Dominic SivyerУчастники: Lucy Letby, Danielle Stonier, Sarah, John Gibbs, Paul Hughes, Simon Blackwell, Dewi Evans, Maisie, Kim Pilling, Mark McDonaldПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (full, SDH)Продолжительность: 01:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B54E1F8DDF909B315D462FDFA180AD4AE9D199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852448   (1056027) от 07.02.2026
-
-Живая еда с Сергеем Малозёмовым (07.02.2026) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сало: действительно ли его сочетание с алкоголем может довести до больницы, почему ханты едят олений жир с сахаром, а итальянцы выдерживают его в мраморных ваннах? Правда ли, что кусочек сала помогает в похудении и как найти хорошее сало на рынке?
- Ред-флаги в общении с фитнес-тренерами! Команда программы вместе с диетологом и спортивным физиологом проверила самые (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A6DB92614C7525530E5F8766B5E283E2173796
 ```
 
 https://mybot314.ru/tekegram_catalog/

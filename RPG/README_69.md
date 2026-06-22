@@ -1,3 +1,107 @@
+###  Публикация: 1642993   (27667) от 14.02.2025
+
+Noob - The Factionless (2023) [Multi] (20250124) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помогите неодею Бастеру, берсерку Дреку, картоманту Мэй и элементалисту Логсу получить максимальный уровень и легендарный класс в MMORPG Horizon! Сражайтесь с сотнями чудовищ и исследуйте фантастические миры, чтобы ваша гильдия заняла достойное место в игре Horizon наряду с легендарными гильдиями Нубов, Справедливости, Победителей и Мастеров игры. Но предстоящие (   Читать дальше...   )Тип издания: LicenseРазработчик: BlackPixel Studio, Olydri GamesЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, Французский, Итальянский, НемецкийЯзык интерфейса: Английский, Французский, Итальянский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F498CAECA85A964941E96DC25CF8C08C3A7540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779774   (27567) от 15.02.2025
+
+Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Живые земли, загадочный остров, полный приключений и опасностей! Avowed - фэнтезийная ролевая игра с видом от первого лица, разработанная знаменитой студией Obsidian Entertainment. Ее действие разворачивается в мире Эоры, уже знакомом игрокам по серии Pillars of Eternity. Живые земли - это остров, где в воздухе гудит древняя магия, растения могут (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B706DC4B8E689CD3213D70CF84D3DE176A741477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775062   (27527) от 15.02.2025
+
+Few Nights More (2025) [Ru/Multi] (1.0.0214) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Few Nights More предлагает уникальное сочетание управления замком и пошаговых боевых действий. Завоевывайте замки и заявите о своем праве по рождению! Боритесь за свое место в этом мире. Восстановите потерянные руины, сделайте их сильнее и защитите их от врагов. После того как вы соберете свои силы, переходите к завоеванию новых территорий и, в конце концов, заявите (   Читать дальше...   )Тип издания: RepackРазработчик: Aeterna LudiЖанр: Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155809B1DA0A6A00A12C8822798E63359C398D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762609   (27496) от 16.02.2025
+
+Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.12.16.01) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Robin Hood - Sherwood Builders – это приключенческая ролевая игра с элементами градостроительства, в которой вам предстоит воплотиться в классического героя, борющегося с тиранией и несправедливостью, царящими в Шервуде. В роли Робина вы будете сражаться, охотиться, созидать, воровать у богатых и, конечно же, помогать местным жителям, чтобы противостоять шерифу Ноттингема (   Читать дальше...   )Тип издания: RepackРазработчик: MeanAstronautsЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0861F04AA10DC576A6FFDA94C0DB65FD622AE12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640752   (27482) от 16.02.2025
 
 Grim Dawn (2016) [Ru/Multi] (1.2.1.5a/dlc) Repack dixen18
@@ -6,7 +110,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.5a/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27482.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27450.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26936.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26736.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack Wanterlude [Game of the Year Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26726.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26655.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26546.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26544.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ SKALD: Against the Black Priory (2024) [En] (Skald Modding Tool/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26431.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26345.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26223.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Techno Banter (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26191.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Hogwarts Legacy (2023) [Ru/Multi] (1117238 Build 10461750/dlc) Repack dixen18 [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26118.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Trinity Fusion (2023) [Multi] (2.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26100.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26011.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25992.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25978.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Terra Memoria (2024) [Multi] (2024.6.10a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25932.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25919.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Outward (2022) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25890.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ METRO QUESTER (2023) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25871.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Dream Tactics (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25839.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Dream Tactics - это стратегическая ролевая игра, п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A63893099468888294E841178CC625C058A52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772278   (25804) от 04.03.2025
-
-The Rangers In The South (2025) [Ru/Multi] (1.2.0) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25804.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Rangers in the South — это pixelart action roguelike rpg, действие которого происходит в прекрасном мире 2.5D, вдохновленном классикой SNES. Очищайте земли, создавайте сотни персонажей с уникальными стратегиями и умениями, сражайтесь с ордами врагов, исследуйте разные биомы, процедурно генерируемые подземелья и получайте уникальные предметы!Тип издания: RepackРазработчик: DPA StudiosЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02B7136742F461BF8EFDD22F4A1FBA567BE6BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718434   (25803) от 04.03.2025
-
-Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p27.1/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eiyuden Chronicle: Hundred Heroes – это увлекательный фентезийный экшн, в котором пользователю предстоит сыграть за 100 персонажей и провести их через мир истерзанный войнами. Игрок может сам создавать свои отряды из 3-х героев, исходя из собственных предпочтений. Ведь каждый из них обладает своим оружием и уникальными боевыми или поддерживающими способностями.Тип издания: LicenseРазработчик: Rabbit & Bear StudiosЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:462C318156C41627A98A18A529907F4857672C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783148   (25789) от 04.03.2025
-
-Shift'n Slay (2025) [Ru/Multi] (1.00.00) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shift’n Slay – пошаговый тактический рогалик на стероидах, где ты шаг за шагом прорываешься через киберпанковый ад, пытаясь разорвать временную петлю, созданную корпоративными ублюдками. Каждый ход – это пазл, каждая атака – смертоносная цепочка разрушений. Ошибки не прощаются. Враги не стоят на месте, а твои ресурсы ограничены. Здесь не получится просто прожать (   Читать дальше...   )Тип издания: RepackРазработчик: DREBOT game studioЖанр: Ролевые игры, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14B874C7F188BADAE6C0D4F703DFB83D5961F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783268   (25685) от 05.03.2025
-
-Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая полноценная экшен-RPG в серии игр Final Fantasy. Мрачное фантастичное приключение, в котором судьбу мира решат айконы и управляющие ими доминанты. Узнайте историю Клайва Розфилда - воина, получившего титул "Первого Щита Розарии" и поклявшегося защищать своего младшего брата Джошуа, доминанта Феникса. Нашему герою предстоит пережить трагедию, после (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C31974B0DC6EDD6AE8326CA7408E32B4FEB0788
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1667621   (126366) от 24.12.2023
+
+Паладин издалека [ТВ-2] | Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of Rust Mountain [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переродившись в другом мире, Уилл, памятуя о прошлых ошибках, стал другим человеком, выбрал нелёгкую стезю паладина и стал служить богине света. Два года миновало с тех пор, как он покинул Город Мёртвых. Ему исполнилось 17, и дел у нашего героя невпроворот, ведь теперь он не просто странствующий воин, но и лорд всего Лихолесья. А тут ещё и приходят дурные вести: (   Читать дальше...   )Производство: Япония / Студия OLM, Sunrise BeyondЖанр: приключения, фэнтези, экшенРежиссер: Иванага АкираЯзык озвучки: Русский многоголосый закадровый, Японский
+- Crowley, Hoopoe, Renie (AniLibria.TV)Субтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DEFE9901F5BB201B6D5BE39E6404605DB0DB820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686839   (126295) от 24.12.2023
+
+Иные ниндзя | Низкоквалифицированный ниндзя | Under Ninja [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126295.jpg" />
+</div>
+
+
+###  Подробнее
+
+После Второй мировой войны союзники создали в Японии особое агентство для борьбы с терроризмом и насилием в Тихоокеанском регионе. Для решения своих задач это агентство стало нанимать профессиональных убийц — ниндзя, которые изначально были призваны следить за безопасностью в государстве. Спустя десятилетия организация разрослась до невероятных размеров: сейчас под (   Читать дальше...   )Производство: Япония / Студия Tezuka ProductionsЖанр: ПриключенияРежиссер: Кувабара СатосиЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Arato, Derenn, NastyhaGrizli (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475F2AF718DD3C34019D382D78509272AD28FA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686866   (126253) от 24.12.2023
+
+Девушка и её сторожевой пёс | Мой телохранитель | Ojou to Banken-kun | A Girl & Her Guard Dog [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делает пятнадцатилетняя внучка босса якудзы, когда ей выпадает шанс улизнуть из окружения головорезов и поступить в обычную школу? Конечно же, пользуется им! Но какой нормальный босс мафии оставит свою любимую внучку без охраны? Вот и приходится двадцатишестилетнему мужику, приставленному к ней, ложью да взятками убеждать всех, что он — самый обычный старшеклассник. (   Читать дальше...   )Производство: Япония / Студия Project No.9Жанр: РомантикаРежиссер: Такамото ЁсихироЯзык озвучки: Русский двухголосый, закадровый; Японский
+- Frederica Izzard, JazzJack (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4CD9E2CE8ADFC9210A046093377F655C527573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823403   (125794) от 11.10.2025
 
 Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | Скaзaниe oб oбручaльных кoльцaх [ТВ-2] | Tales of Wedding Rings [TV-2] [2025, TV, 01 из 12] WEBRip 1080p rus+raw
@@ -6,7 +87,7 @@ Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | �
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125794.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125721.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125613.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125547.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125476.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125446.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125373.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Сил
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125344.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125342.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125278.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125224.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125206.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125082.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125052.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124931.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124598.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не мо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124566.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124444.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124275.jpg" />
 </div>
 
 
@@ -516,7 +597,7 @@ Scott Pilgrim Takes Off | Скотт Пилигрим жмёт на газ [2023
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124261.jpg" />
 </div>
 
 
@@ -542,7 +623,7 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123888.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123364.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Mi | Эта глупая свин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123119.jpg" />
 </div>
 
 
@@ -605,84 +686,6 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Mi | Эта глупая свин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D14A52110275DBC945638C3446E86755B33A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691981   (122996) от 14.01.2024
-
-Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непризнанный школой владыка демонов [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды могущественный Король Демонов Тирании Анос Вольдигод пожертвовал собой во имя установления мира между расами, решив переродиться через пару тысяч лет. И его план удался: реальность, в которой он очнулся, действительно стала куда более мирной. Правда, и её жители, не обременённые постоянными войнами, стали куда слабее и забыли многие простейшие заклинания, (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, фэнтезиРежиссер: Онума СинЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E64528DB35B5B1686BD7B6ACCADFE9E357F418C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490620   (122472) от 17.01.2024
-
-Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Атака титанов [ТВ-4, часть 1] [2020, TV, 16 из 16] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря усилиям Легиона Разведки остров Парадиз освобожден от гнёта гигантов. За стенами и правда оказался Океан. Раньше Эрен верил, что это будет последней преградой на пути к свободе. Но реальность оказалось жестокой. За океаном жителей стен ждет новый враг — Марлийцы, что населяют континент к западу от Парадиза. Грядет новое противостояния, Легиону Разведки (   Читать дальше...   )Производство: студия MAPPAЖанр: приключения, фэнтези, драмаРежиссер: Хаяси ЮйтироЯзык озвучки: Японский, русский (DEEP, AniLibria, Jam Club, NewComers, Wakanim)Субтитры: Русские (Crunchyroll, Firegorn Team)Продолжительность: 16 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9972B070EABE7F8E5700651312F38949F222C464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667988   (122429) от 17.01.2024
-
-Семья шпиона 2 | Spy x Family Season 2 [2023, TV, 12 из 12] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122429.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках своей миссии по спасению мира от надвигающегося конфликта, агенту Сумраку пришлось взять на себя роль добропорядочного семьянина и познать на собственной шкуре все прелести и тяготы семейной жизни. Несносная дочка-телепат Аня и красавица жена Йор, работающая наёмной убийцей, не перестают добавлять нашему герою проблем. Мало того, теперь в их квартире поселился (   Читать дальше...   )Производство: Япония /Жанр: приключения, комедияРежиссер: Фурухаси КадзухироЯзык озвучки: Русский любительский двухголосый (Субтитры: Русские (Надписи (по умолчанию); YakuSub; SovetRomantica; Alvakarp; Crunchyroll)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBD3982126F5636FD6EB9F96A3E3592A8DEF693
 ```
 
 https://mybot314.ru/tekegram_catalog/

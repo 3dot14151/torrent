@@ -7,7 +7,7 @@ CYBERPORTAL // X  1.0.1 Mod by STR_BYPASS [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064484.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060082.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Telegram for Android 9.3.2 (3023) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046404.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Telegram for Android 9.3.3 (3026) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045984.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Garmin: Дороги России Топо 6.41 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045785.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Vivaldi for Android 5.6.2868.36  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043893.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043796.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Taskito v1.0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043667.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ POWER SPIDER - Ultimate Superhero Game v2.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043063.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ No Humanity v7.0.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043049.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Dentures and Demons 2 v1.0.42 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042263.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Music Maker Jam v6.10.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041980.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Forest: Будь сосредоточенным v4.29.3 Mod by ZackModz [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041663.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ZArchiver v0.9.4 Pro [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041473.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ InShot v1.902.1394 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041361.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Epic Heroes War: Shadow Lord Stickman - Premium v1.11.3.445 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040540.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039768.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038912.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Telegram for Android 9.4.4 (3142) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038781.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038743.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ WABox - Toolkit For WhatsApp v2.1 [Ru/Multi] (обновляемая)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038685.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Garmin: Дороги России ТОПО 6.35 (FID 3332 + FID 4594) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038638.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ The Wild Darkness v1.1.08 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037667.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Total Commander v3.20 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037365.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Acode - code editor | FOSS 1.1.15.141 Paid + Opti-Lite Mod [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037187.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ MixNote NotePad Notes v1.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037168.jpg" />
 </div>
 
 

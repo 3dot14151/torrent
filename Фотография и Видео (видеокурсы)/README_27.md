@@ -1,3 +1,32 @@
+###  Публикация: 1703251   (115257) от 28.02.2024
+
+Ирина Климова | Видеокурс для рукодельниц (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновлённый курс 2024г с акцентом на Клипы ВК.
+16 поток
+Одно хорошее видео может изменить всё!
+Видео - популярный формат контента. Это не только формат мастер-классов, но и интервью с мастером, рекламные ролики, видео-уроки, видео-обзоры и видео-отзывы. А ещё это сторис с видео, Клипы и прямые эфиры.(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 06:48:19Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34BD361090860A4A2D7539A30A0CB860073FA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708581   (62186) от 22.03.2024
 
 Максим Добрый | Univer W4. Как снять всю свадьбу (Lite) (2023) WEB-DL [RU]
@@ -6,7 +35,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62186.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Juliagraule, Юлия Грауле | Онлайн-курс по фотограф
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61793.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ LiveClasses, Виталий Бужан | Калибровка мониторов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61559.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Photoshop Easy, PiXimperfect | The Ultimate Online Photoshop Course (2022) WEB-D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59576.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56848.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56620.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Базов
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55552.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Продв
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55550.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51371.jpg" />
 </div>
 
 
@@ -257,7 +286,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51362.jpg" />
 </div>
 
 
@@ -285,7 +314,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51336.jpg" />
 </div>
 
 
@@ -312,7 +341,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51231.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51230.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46775.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ Annie Leibovitz | Annie Leibovitz Teaches Photography (2017) WEB-DL [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27998.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Udemy, Евгений Курилов | Premiere pro для фрилансера 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27908.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Udemy, Intellezy Trainers | Adobe Premiere Pro Essentials - Beginner (2025) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27039.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Udemy, Udit Gala | Blender Masterclass: Camera Tracking & VFX Combined (2025) WE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24950.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ fxphd, Doug Hogan | The Nuke Unfiltered Series (2024) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24820.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ David Dubnitskiy School - The Secrets of Masterful Erotic Photography - Renault 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24503.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Peter Coulson Photography - In The Garden With Stefania (2024) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19639.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15201.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ LiveClasses, Дмитрий Ларионов | Подготовка монтаж
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15175.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13629.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12917.jpg" />
 </div>
 
 
@@ -671,32 +700,6 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9B3FE316C765F4568DF248512E06B69C423029D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806422   (11627) от 13.07.2025
-
-Filmmakers Academy, Shane Hurlbut | DIY Lighting Tips and Tricks (2021) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите осветить как в Голливуде, но, к сожалению, у вас нет денег на покупку или даже аренду профессионального освещения? Не проблема — «Советы и хитрости по самостоятельному освещению» — это курс, на котором Шейн Хёрлбат, член Американского совета по освещению, объясняет, как эффективно использовать светильники и приборы, которые обычно продаются в ближайшем магазине (   Читать дальше...   )Производство: Filmmakers AcademyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 02:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF89EB01C9049650497AE716E467AA8BA80B3263
 ```
 
 https://mybot314.ru/tekegram_catalog/

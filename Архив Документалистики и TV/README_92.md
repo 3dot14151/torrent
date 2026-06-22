@@ -1,3 +1,32 @@
+###  Публикация: 1125379   (772118) от 14.04.2017
+
+Футбол. Лига Европы УЕФА 2016-2017. 1/4 финала. 1-й матч. Андерлехт (Бельгия) – Манчестер Юнайтед (Англия) (13.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772118.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 апреля 2017, четверг. 22:05 МСК
+Лига Европы УЕФА 2016-2017. Плей-офф. 1/4 финала. 1-й матч
+Андерлехт (Брюссель, Бельгия) – Манчестер Юнайтед (Манчестер, Англия)
+Стадион: Констант ван ден Сток (Брюссель, Бельгия), вместимость: 28063(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3DBB792F28AE8B334222ABBD6EC64DAAECDEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125350   (772117) от 14.04.2017
 
 Футбол. Лига Европы УЕФА 2016-2017. 1/4 финала. 1-й матч. Аякс (Нидерланды) – Шальке-04 (Германия) (13.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772117.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772116.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772114.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772113.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772094.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771841.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771840.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771757.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771755.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771753.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771751.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771749.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771746.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771744.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771742.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771738.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771736.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771720.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ NGW: Рыбалка на гигантов / Fishing for Giants (2017) HDTV 1080i
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771706.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ AMA Supercross Championship: Salt Lake City (21.06.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771527.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770673.jpg" />
 </div>
 
 
@@ -603,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770547.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770544.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770483.jpg" />
 </div>
 
 
@@ -687,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770431.jpg" />
 </div>
 
 
@@ -698,34 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F7BE5BF205E1D4D8E0213E8DD1959E39EC32346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016241   (770389) от 14.05.2016
-
-Формула 1. Гран-При Испании. 1, 2, 3-ая свободная практика (2016) HDTVRip [H.264/720p] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трасса "Барселона-Каталунья" (кат. Circuit de Barcelona-Catalunya, ранее известна как "Каталунья-Монтмело"), располагается в Испании в 20 километрах к северу от Барселоны в Монтмело - входит в провинцию Барселона в составе автономного сообщества Каталония. Используется для гонок Формулы-1, гонок Серии GP2, MotoGP, GT и других гоночных серий по (   Читать дальше...   )Телекомпания: МАТЧ! АренаЖанр: Чемпионат Мира, АвтоСпорт, "открытые колеса"Продолжительность: 1 СП: 01:37:11
-2 СП: 01:39:50
-3 СП: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23826780B9C76B0761B87B72A3AFFA3795FE9127
 ```
 
 https://mybot314.ru/tekegram_catalog/

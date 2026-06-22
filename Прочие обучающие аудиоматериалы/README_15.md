@@ -1,3 +1,110 @@
+###  Публикация: 1225240   (661737) от 14.05.2018
+
+Андрей Остальский | Краткая история денег (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно, самый захватывающий триллер «всех времен и народов» – история денег – в увлекательном изложении Андрея Остальского, главного редактора (2001–2009) Русской службы Би-би-си.
+В утилитарности есть огромный плюс: она помогает понять, что функции денег выстраиваются в пирамиду, в основе которой – функция обмена, и на ней, как на мощном фундаменте, стоят все остальные. (   Читать дальше...   )Жанр: Образовательная литератураПродолжительность: 09:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F379ACBEB29273D3C26E751B33A8B13B91B2B960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225347   (660713) от 15.05.2018
+
+Екатерина Шульман | Практическая политология. Пособие по контакту с реальностью (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Екатерина Шульман – политолог, кандидат политических наук, преподаватель Российской академии государственной службы и народного хозяйства, специалист по проблемам законотворчества, постоянный колумнист газеты «Ведомости», автор книги «Законотворчество как политический процесс» и автор многих других электронных и печатных изданий.Жанр: Политология, ПублицистикаПродолжительность: 08:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8754F7FC1FDC79009CC748500E94CD0E6EFAF772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508712   (659807) от 02.06.2017
+
+Александр Смулянский | Лакан-ликбез и другие семинары (2010-2017) [MP3, WMA] [Обновлено 01.06.2017]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Смулянский - философ, исследователь критической и политической мысли.
+Лакан-ликбез - серия продолжающихся семинаров (2010-2017), посвящённых основным положениям Лакана, которые проходят в С-Пб. на разных площадках (Философское кафе, Музей Фрейда, Порядок слов и др.). Здесь наиболее систематично представлена аудиоверсия.
+В раздачу входят не только Лакан-ликбез, (   Читать дальше...   )Жанр: Семинары
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079530F1FF55F5B94B3A527542A67E32664BF90A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225542   (659748) от 16.05.2018
+
+Джон Рескин | Этика пыли (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659748.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Этика пыли» (1866) – трактат британского арт-критика, писателя и социального мыслителя Джона Рёскина, выполненный в форме платоновских диалогов старого профессора и учениц. Этот необычный текст служит своего рода введением в проблему кристаллизации, структурной формы, присущей предметному миру, окружающему нас, и содержит в себе мысли Рёскина о системе образования, (   Читать дальше...   )Жанр: Культурология ФилософияПродолжительность: 07:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5A9AA3E2B4162E8EC7414A2625CE9E3D818A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 215596   (652880) от 03.07.2010
 
 Владимир Малявин | Китайская цивилизация (2007) [MP3]
@@ -6,7 +113,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_652880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652880.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652195.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650911.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650589.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642838.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642826.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642722.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641479.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ Natalia F | Подкасты (2017-2019) [MP3]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641191.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641068.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640656.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640622.jpg" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639277.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638949.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638144.jpg" />
 </div>
 
 
@@ -405,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637112.jpg" />
 </div>
 
 
@@ -431,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636872.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628262.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628257.jpg" />
 </div>
 
 
@@ -510,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628139.jpg" />
 </div>
 
 
@@ -536,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628119.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623528.jpg" />
 </div>
 
 
@@ -575,111 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F43857DF136EE01907BBF9779BF04D6CE9BE96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145151   (623510) от 24.06.2017
-
-Константин Бакшт | Управление временем (2015) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проблема нехватки времени знакома каждому. Как сделать так, чтобы успевать и работать, и отдыхать, и общаться с семьей, и веселиться с друзьями? А ведь время – единственный невосполнимый ресурс. Потраченные деньги можно вернуть, а прошедшее время – никогда. Именно поэтому умение управлять своим временем – один из важнейших факторов, влияющих на повышение качества (   Читать дальше...   )Жанр: СамосовершенствованиеПродолжительность: 02:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC23E06003CC860DFBE40283812F118A158E520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230072   (618798) от 10.06.2018
-
-Сет Cтивенс-Давидовиц | Все лгут. Поисковики, Big Data и Интернет знают о вас всёx (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди склонны преувеличивать и не договаривать, опросы не показывают всей картины, исследования недостаточно репрезентативны ‒ в общем, лгут все… Кроме Big Data! Перед вами сенсационная книга о том, как при помощи больших данных и современных технологий можно узнать всю подноготную современного общества. Автор этой книги, специалист Google по Data Science, выяснил, (   Читать дальше...   )Жанр: Интернет, Научно-популярная литератураПродолжительность: 09:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F28DD3B510FD98B218777A6B55FDEF5B138885F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037692   (612128) от 25.07.2016
-
-Елена Колесникова | Простое цветоводство (2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ухоженные зеленые растения украшают дом, поглощают вредные вещества и создают атмосферу уюта. Но на то они и "ухоженные", то есть требуют особого внимания. Цветоводство для вас - это что-то ужасно сложное и требует огромных затрат времени и сил? Авторы книги позволят вам исполнить давнюю мечту о "цветущем" подоконнике, на котором будут стоять (   Читать дальше...   )Жанр: PастениеводствоПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69CE55590D6FC2AF4DC0E8E069CB4D5EA029B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037135   (612012) от 25.07.2016
-
-Руслан Жуковец | За завесами света (2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суфии говорят, что человека отделяют от Истины три тысячи завес – полторы тысячи завес Тьмы и полторы тысячи завес Света. Тот, кто сможет избавиться от всех завес, обретает ничем не омрачённое видение Истины.
-В этой книге автор подробно раскрывает основные вопросы теории и практики суфизма. Книга написана на основе собственного мистического опыта. Автор доступным (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 04:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8470B643B98FD6E59296BBCD6293146102A3D281
 ```
 
 https://mybot314.ru/tekegram_catalog/

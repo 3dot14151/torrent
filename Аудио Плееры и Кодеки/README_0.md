@@ -6,7 +6,7 @@ FxSound 1.2.6.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056450.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.6.1.0 RePack (& Portable) by KpoJIuK
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054345.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 5.40.2703 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050382.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FxSound 1.2.5.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050090.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIMP 5.40.2703 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049888.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Spotify 1.2.77.352 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047724.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ FxSound 1.2.4.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047445.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AIMP 5.40.2700 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046950.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Luminant Music Ultimate 2.3.2 RePack (& Portable) by elchupacabra [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002879.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945444.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Clementine 1.3.1 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852437.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DensPlay 2.3.4 [Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825907.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Resonic Player 0.9.3b Build 1806 + Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763400.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Bug head Emperor (Infinity blade) 7.23 Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713070.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Angel's Vox 1.7.8.231 Portable by portable-rus [Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557430.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ DSP pack 1.46 (Winamp / Aimp) RePack by elchupacabra [Ru/En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530092.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Winyl 3.3.1 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369975.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ FxSound Enhancer 13.025 RePack by elchupacabra [Ru/En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334042.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315335.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Winamp Pro | Lite 5.666 Build 3516 Final [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284987.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ AIMP 5.40.2700 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261713.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Spotify 1.2.76.286 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261541.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ FxSound 1.2.3.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_261316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261316.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AIMP 5.40.2699 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257795.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AIMP 5.40.2699 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256778.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ AIMP 5.40.2698 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256635.jpg" />
 </div>
 
 

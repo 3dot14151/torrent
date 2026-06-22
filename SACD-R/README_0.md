@@ -6,7 +6,7 @@ Fourplay - Energy (2008) [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R]<Smooth Jazz>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404404.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388996.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Genesis - ...Calling All Stations... (1997) Europe/2007 Reissue [FLAC 5.1 24/88,
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387809.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acou
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387342.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387222.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Los Angeles Guitar Quartet - LAGQ’s Guitar Heroes (2004) [DST 5.1, 2.0 1bit/28
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387218.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Meat Loaf - Bat Out Of Hell (1977) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Hard Ro
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387197.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Los Angeles Guitar Quartet - Spin (2006) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387069.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Los Angeles Guitar Quartet - LAGQ Latin (2002) [DSD 2.0 / DST 5.1|1bit/2822,4kHz
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386908.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Kodo - One Earth Tour Special (2003) [DSD 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_386899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_386899.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Bob Dylan - Limited Edition Catalog Box Set (2003 Remaster) (1963-2001) [DST 5.1
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386777.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Dead Can Dance - SACD Box Set (2008 MFSL Remaster) (1984-1996 (2008)) [DST 2.0 1
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386769.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Yello - Toy (2016) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Pop>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386261.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Robert Plant and The Sensational Space Shifters - Carry Fire (2017) [DSD 2.0|282
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346191.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Luca Mannutza Trio - Airegin (2021) Japanese Edition  [DSD64 2.0|1bit/2822,4kHz 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326188.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Uriah Heep - Magic Night /Live at Astoria Theatre, London/ [DST 2.0, 5.1 1bit/28
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319528.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Celine Dion - A New Day Has Come (2002) [DSD 5.1 1bit/2822,4kHz|SACD-R] <Pop>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318734.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Claire Martin - Too Darn Hot! (2002) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Vocal
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309586.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Rainbow - Rising (1976) /2011 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Heavy m
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300046.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Russ Ballard - Russ Ballard (1984)  [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292863.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Dire Straits - Love Over Gold  (1982) SHM-SACD /2011/ [DSD 2.0 1bit/2822,4kHz |S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287369.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Queen - 5 альбомов (1973, 1974, 1975, 1976 & 2011) [DSD 2.0 1bit/2822,4k
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257055.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) Remastered, 2021, Pink Floyd Rec
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249634.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Cl
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243610.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ John Di Martino's Romantic Jazz Trio - So In Love (2015) [DSD64 2.0|1bit/2822,4k
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236491.jpg" />
 </div>
 
 
@@ -791,7 +791,7 @@ XueFei Yang - Romance de Amor (2006) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230204.jpg" />
 </div>
 
 

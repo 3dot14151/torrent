@@ -1,3 +1,55 @@
+###  Публикация: 1750978   (104136) от 22.09.2024
+
+Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104136.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роли таинственного и могущественного «Хранителя Земли» с железным глазом и гипер-энергетической лазерной рукой, вам нужно спасти население Земли и сделать её безопасной для будущих поколений (и, разумеется, покрасоваться перед дамочками). Поскольку вы обладаете потрясающими способностями и талантом, несомненно, было бы невозможно разрушительному вторжению cмертоносных (   Читать дальше...   )Тип издания: SceneРазработчик: MediatonicЖанр: Экшены, Казуальные игры, ИндиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37E6388BCEA720018243B49E38B32D2636F00BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770026   (100562) от 30.12.2024
+
+Steel Rain (2015) [Multi] (1.9.0b) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steel Rain - уникальная инди-игра, которая в равной степени совмещает в себе три жанра - горизонтальный шутер, стратегию и RPG. В промежутках между сражениями, Вы сможете строить и развивать свою собственную колонию, изучая новые технологии. Добавьте к этому десяток разноплановых уровней, эпичные сражения с боссами и множество технологий и улучшений, которые предстоит (   Читать дальше...   )Тип издания: LicenseРазработчик: PolarityFlow, Adrian ZinggЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Португальский, Бразильский ПортугальскийЯзык интерфейса: Английский, Немецкий, Португальский, Бразильский Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735C87CC5ABDB9B970B2D365118B8BBA48F0CDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770040   (100559) от 30.12.2024
 
 Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
@@ -6,7 +58,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100559.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0.0.10/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91315.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) R
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91222.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Bomber-Mario (P) [En] 2010
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87445.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Deadly 30 (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87277.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87201.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Coloropus (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84609.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Big Fish Legend / Легенда о большой рыбе (L) [Ru] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84146.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83777.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 200
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83328.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ And Then There Were None / И не осталось никого... (L) [Ru/En] 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83114.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80068.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80049.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79658.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Turtle Odyssey 2 / Одиссея Черепашки 2 (P) [Ru] 2007
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79639.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Space Lines (L) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79566.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1 b5457/dlc) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71039.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Speedollama (2024) [Ru/Multi] (1.3.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69467.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Villages & Dungeons (2025) [Ru/Multi] (10033/dlc) Repack Let'sРlay [Crystal Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63889.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Chambers (2024) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62785.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Repack Decepticon
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62601.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62515.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ The Weird Dream (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62064.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Montezuma's Revenge (2020) [En] (1.32) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61166.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Montezuma's Revenge - это забавное путешествие в серд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5B24DB189357643F37393038C373BE222D1ACD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715997   (59827) от 13.04.2024
-
-CD 2: Trap Master (2024) [Ru/Multi] (1.0.2) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59827.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 2: Trap Master - инновационный геймплей, в котором два разных жанра органично сочетаются в одном интересном приключении. В этой динамичной истории вы становитесь на место опытного мастера ловушек, которому поручено защищать свои алтари от неумолимых волн загадочных существ. Суть геймплея заключается в настройке личного арсенала, состоящего из набора ловушек и (   Читать дальше...   )Тип издания: RepackРазработчик: ACE EntertainmentЖанр: Казуальные игры, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский и другиеЯзык интерфейса: Русский, Английский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F976EFCCDD64D881DAEC9D77E7696F862C1E4667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693262   (59461) от 17.04.2024
-
-Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.4f0) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turnip Boy Robs a Bank - это забавный двухмерный приключенческий экшен. Мальчик-репка вернулся, и он привел с собой свою печально известную банду "Маринованная банда", чтобы захватить Ботанический банк. Это не обычное ограбление - ждите неожиданностей, когда вы будете выбивать заложников, сражаться с охранниками и элитными отрядами вегетарианцев и грабить (   Читать дальше...   )Тип издания: SceneРазработчик: Snoozy KazooЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Итальянский, Французский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCEEF253D64E1687D2ECB74BAE0A6E63CE2E1D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

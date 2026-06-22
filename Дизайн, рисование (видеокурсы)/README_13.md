@@ -6,7 +6,7 @@ CG Cookie, Kent Trammell | Создание реалистичного пром�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014110.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014073.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Jason Scheier | Composition 101 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013989.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013921.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013913.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Jason Scheie | Visual Development for Animation (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013827.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ John Park | Introduction to Vehicle Design - The Basics (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013802.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Creative Shrimp | Реалистичное освещение в Blender 2.76-2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013769.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Matthias De Muylder | Marvelous Designer For Concept Art (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013760.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Creative Shrimp | Космические визуальные эффекты: С
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013755.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Sjoerd de Jong | Materials: Essential Concepts (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013494.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Michael Pavlovich | ZBrush 2018 Image Based Lighting (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013464.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Marek Okon | Part Two: Illustrating Colossus (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013369.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Maciej Kuciara | Environment for Video Games: Production Illustration (2014) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013335.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Jake Parker | How To Draw Everything (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013315.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Trevor Kerr, Chad Ashley | Guide to Redshift (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013175.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Rich Nosworthy | learn Redshift for Cinema 4D: V02 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013166.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Udemy, Mrawan Hussain | Создание реалистичного BMW 507 от
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013152.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Terryl Whitlatch | Creature Anatomy (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013135.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012936.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012924.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Digital tutors, Delano Athias | Introduction to Animation in Maya (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012864.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Dice Tsutsumi и Robert Kondo | Painting with Light and Color (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012862.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Daniel Arriaga | Characters for Animated Film (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012861.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Sam Nielson | Fundamentals of Lighting (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012817.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Stephen Silver | Fundamentals of Character Design (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012813.jpg" />
 </div>
 
 

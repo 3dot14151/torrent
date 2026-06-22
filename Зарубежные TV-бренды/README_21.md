@@ -1,3 +1,83 @@
+###  Публикация: 1116703   (822317) от 20.03.2017
+
+Discovery. Техногеника. Царь-Бомба (2017) HDTVRip [H.264/720p-LQ] (Сезон 2, серия 13 из 13)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822317.jpg" />
+</div>
+
+
+###  Подробнее
+
+В октябре 1961 года Советский Союз явил миру самое разрушительное оружие, когда-либо созданное человечеством – термоядерную бомбу. Автор проекта, будущий правозащитник и гуманист Андрей Сахаров выполнил поставленную задачу блестяще: мощность бомбы в 100 Мегатонн обеспечивала не только выжженную землю на площади в несколько сотен тысяч квадратных километров, но и (   Читать дальше...   )Телекомпания: Discovery Channel РоссияЖанр: Документальный, История, ТелепередачаПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88440CC5F3A33421136773413D4036EBEB695C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382048   (822187) от 09.05.2020
+
+NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2020) WEB-DLRip [H.264/720p-LQ] (сезон 20, серии 1-10 из 10) [PR]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реконструкция реальных воздушных катастроф,
+интервью с авиационным специалистами и
+очевидцами происшествий.Производство: Канада,  Cineflix Productions, Galaxie Productions, NF Inc.Жанр: документальный, история, реальное ТВ, драма, криминалРежиссер: Tim WolochatiukПеревод: Одноголосый, профессиональный, закадровый. Студия «Велес»Язык озвучки: русскийСубтитры: нетПродолжительность: каждая серия ~00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338E4C20CA3CE9670643FC53819EF7E5FD20444F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940556   (821958) от 20.03.2017
+
+Атлантика: Самый необузданный океан на Земле / Atlantic: The Wildest Ocean on Earth (2015) BDRip [H.264/720p] (сезон 1, серии 1-3 из 3) AlexFilm
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за мощных течений, жестоких ураганов и подводных вулканов Атлантический океан невероятно богат и разнообразен, но выжить, приняв его вызов, в нём очень не просто. Новый документальный фильм BBC рассказывает о самом необузданном из всех океанов планеты Земля.Производство: Великобритания / BBC Natural History, National Geographic TelevisionЖанр: документальныйРежиссер: Эндрю Мюррэй, Дэн РиисАктеры: Киллиан Мёрфи, Колин Форд, Рени Годфри, Йоахим Якобсен, Кирстен Якобсен.Перевод: Двухголосый закадровый, профессиональный - AlexFilmОзвучка: Владимир Курдов, Татьяна МанетинаПродолжительность: ~00:59:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557F3026BE243187C60D7DA463D80AF8330CEBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475507   (821481) от 10.04.2014
 
 BBC: Чудеса Солнечной системы / Wonders of the Solar System (2010) BDRip [H.264/1080p] (сезон, серии 1-5 из 5)
@@ -6,7 +86,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821481.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ BBC: Парк извращенцев / Pervert Park (2014) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820974.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ BBC: Факты о вымирании видов с Дэвидом Аттенб�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820971.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ BBC: 9/11. Я там был / 9/11: I Was There (2021) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820961.jpg" />
 </div>
 
 
@@ -116,7 +196,7 @@ NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819260.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ BBC Horizon: Вкусная еда без вреда для планеты / Fea
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819248.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819162.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ BBC: Содержанки: настоящая цена спонсорских о
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819087.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ BBC. Панорама: Неонацизм в Германии. Новая вол
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818801.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818774.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818561.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ Discovery: Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818527.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817592.jpg" />
 </div>
 
 
@@ -354,7 +434,7 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817504.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ History Channel. Островное помешательство Гитлера 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817461.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ History Channel. Наследие кельтов / The Celtic Legacy (2011) HDTV
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817454.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817132.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ NGW: Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817090.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ Discovery. Северная Америка / North America (2013) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816993.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ BBC. "Испанка". Грипп, унесший 50 миллионов жизн
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816943.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816857.jpg" />
 </div>
 
 
@@ -563,7 +643,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815852.jpg" />
 </div>
 
 
@@ -589,7 +669,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815280.jpg" />
 </div>
 
 
@@ -600,84 +680,6 @@ NG: Секреты гробницы Христа: специальный реп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0FFECEFE6494F8A82B197EB85BDAE2B888533EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 826153   (814797) от 13.05.2020
-
-Выход через сувенирную лавку / Exit Through the Gift Shop (2010) HDTVRip [H.264/1080p-LQ] [VO]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм об уличном искусстве, с участием Бэнкси, Шеппарда Фейри и многих других именитых художников.Жанр: ДокументальныйПеревод: Одноголосый профессиональный (Прыг-Скок)Субтитры: ОтсутствуютПродолжительность: 01:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206035BE3A64965AC3D1C10B0B7B2AC9DF0C9532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382854   (814675) от 13.05.2020
-
-BBC. Полиамория: Любовь без границы / Louis Theroux's Altered States: Love Without Limits (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серия 1 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814675.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение сотен лет романтические отношения в западном обществе основывались на идее моногамии: два человека вместе навсегда. Но почти половина американских браков заканчивается разводом, возможно, традиционная модель больше не подходит для этой цели. В фильме «Любовь без границ» Луис отправляется в Портленд, штат Орегон, в сердце движения, стремящегося переписать (   Читать дальше...   )Производство: Великобритания, BBC Studios Documentary Unit, British Broadcasting Corporation (BBC)Жанр: ДокументальныйРежиссер: Аррон ФеллоузПеревод: Двуголосый профессиональный (BBC News - Русская служба)Субтитры: ОтсутствуютПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDFB9DB382CD5DFC1CE755CB8C366FC3CADB2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504293   (813844) от 22.10.2021
-
-Discovery. Аполлон: найденные видео / Apollo: The Forgotten Films (2019) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцатого июля 1969 года миллионы людей смотрели, как Нил Армстронг творил историю, совершая «гигантский скачок для всего человечества» по поверхности Луны. Но за этой известной съемкой стоит неизвестная история, которую теперь можно услышать со слов восьми выживших космонавтов «Аполлона»: пилота командного модуля «Аполлона-11» Майка Коллинза и сотрудников, работавших (   Читать дальше...   )Производство: США, Великобритания, Arrow International Post Production, Arrow Media, Clean Cut Productions, Science ChannelЖанр: Документальный, история, космосРежиссер: Дункан КоппПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170BA0619D48CC59068C7983D20E8339058AD47D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 825089   (462910) от 26.09.2014
+
+Василий Романовский, Николай Юраш | Все болезни от нервов (2009) [DJVU]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увеличивающийся объем информации и ускоренный ритм жизни отражаются на нервной системе, причем далеко не положительно. В итоге многие постепенно приходят к тому, что не могут спокойно уснуть без спиртного или снотворного, а прием успокоительных средств становится нормой жизни.
+Стало модно пользоваться услугами психологов или психоаналитиков, получая готовые рецепты дальнейшего поведения.
+Но не лучше ли вспомнить старую истину: "Помоги себе сам"?..
+В предлагаемой книге разбираются различные способы (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8836C29EA05D67747C9754D02827E02174FD0250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941455   (461904) от 27.09.2015
+
+Сергей Бубновский | Вся правда о женском здоровье (2015) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга известного врача, выдающегося специалиста в области безмедикаментозного лечения и оздоровления организма Сергея Михайловича Бубновского адресована девочкам, девушкам, женщинам, бабушкам…
+
+Как правильно подготовить свой организм к будущему материнству, избежать бесплодия и сохранить стройность после родов? Что надо делать, чтобы хождение в изящной обуви (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EE7351B59553E3A5B951534E9F4A2C49BCDEB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162050   (461193) от 31.08.2017
 
 Лууле Виилма | Очищение организма на физическом и энергетическом уровнях (2012) [FB2, EPUB]
@@ -6,7 +63,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461193.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461063.jpg" />
 </div>
 
 
@@ -61,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459041.jpg" />
 </div>
 
 
@@ -89,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458965.jpg" />
 </div>
 
 
@@ -116,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458904.jpg" />
 </div>
 
 
@@ -142,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458888.jpg" />
 </div>
 
 
@@ -169,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457634.jpg" />
 </div>
 
 
@@ -197,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456883.jpg" />
 </div>
 
 
@@ -223,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455869.jpg" />
 </div>
 
 
@@ -249,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452261.jpg" />
 </div>
 
 
@@ -275,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451620.jpg" />
 </div>
 
 
@@ -301,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449907.jpg" />
 </div>
 
 
@@ -327,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449903.jpg" />
 </div>
 
 
@@ -353,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449598.jpg" />
 </div>
 
 
@@ -379,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447700.jpg" />
 </div>
 
 
@@ -405,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444745.jpg" />
 </div>
 
 
@@ -433,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442513.jpg" />
 </div>
 
 
@@ -459,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440366.jpg" />
 </div>
 
 
@@ -485,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438201.jpg" />
 </div>
 
 
@@ -511,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438070.jpg" />
 </div>
 
 
@@ -539,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433469.jpg" />
 </div>
 
 
@@ -566,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430191.jpg" />
 </div>
 
 
@@ -593,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430189.jpg" />
 </div>
 
 
@@ -621,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429373.jpg" />
 </div>
 
 
@@ -632,58 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3532D708E8113C120E691540DF8EC316CADCB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946406   (427242) от 13.10.2015
-
-Наталья Круглова | Палеодиета. Секреты стройности и здоровья (2015) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди множества диет одной из самых эффективных и не причиняющих вреда здоровью является палеодиета. Начав есть вкусную и полезную пищу, вы вернетесь к своему нормальному весу и избавитесь от множества хронических "болезней цивилизации": сердечно-сосудистых нарушений и заболеваний метаболического синдрома. Эта книга рассказывает не только о диете, но и (   Читать дальше...   )Жанр: Кулинария, здоровье, диетыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B1AED04F11E2CFA8FCB793AB0FD8578A2CB0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250338   (426870) от 27.09.2018
-
-Джон Макдугалл, Мэри Макдугалл | Энергия крахмала. Ешьте вкусно, заботьтесь о здоровье и худейте навсегда (2016) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Макдугалл призывает полностью исключить из рациона мясные и молочные продукты и заменить их на крупы из цельного зерна, бобовые, овощи и фрукты. Только так можно спастись от распространенных в наше время проблем со здоровьем (сердечно-сосудистых и раковых заболеваний, диабета второго типа и артрита), причинами которых является употребление продуктов животного (   Читать дальше...   )Жанр: Здоровое и правильное питание; Похудение и диетыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7C0077B00D73B022CB817CA616BBBD21BCB553
 ```
 
 https://mybot314.ru/tekegram_catalog/

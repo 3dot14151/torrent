@@ -1,3 +1,107 @@
+###  Публикация: 1856974   (1059235) от 03.03.2026
+
+Женский бой / Girlfight (2000) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диана - девчонка упрямая. От этого в жизни у неё одни неприятности. В тех районах Нью-Йорка, где она выросла, иначе нельзя... Однажды она попадает в боксёрский зал и решает, что будет боксёром. Плевать, что бокс не женское дело. Побеждает упорнейший, а упорства Диане не занимать. Привкус пота и крови, схватка, победа над собой и противником вдыхают смысл в каждый (   Читать дальше...   )Производство: США / Green/Renzi, Independent Film ChannelЖанр: драма, спортРежиссер: Карин КусамаАктеры: Мишель Родригес, Хайме Тирелли, Пол Кэлдерон, Сантьяго Дуглас, Рэй Сантьяго, Виктор Сьерра, Элиса Боканегра, Шеннон Уолкер Уильямс, Луис Гасс, Хёрб Лоувелл, Томас Барбо, Дж.П. Линтон, Ирис Литтл Томас, Чак Хикки, Энтони РуисПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712D04B6D1ADCBA6600BBE08FDF59C3DB38E1591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856796   (1059170) от 02.03.2026
+
+Кровь на границе / Frontier Crucible (2025) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опытный наемник, солдат в прошлом, Меррик должен доставить важный медицинский груз. Путь его ведет через опасные земли, где кровь льется рекой, а пули летят чаще, чем капли дождя с неба. Встретив разношерстную компанию вояк, он решает помочь прекрасной незнакомке и ее раненому мужу. Но не всем по вкусу такое благородство, и вот за Мерриком начинается настоящая охота.Производство: США / Bonfire Legend, Buffalo 8 Productions, Renegade EntertainmentЖанр: триллер, драма, вестернРежиссер: Трэвис МиллсАктеры: Майлз Клоэсси, Томас Джейн, Арми Хаммер, Райан Массон, Мэри Стикли, Илай Браун, Уильям Х. Мэйси, Зейн Холц, Эдди Спирс, Juwan LakotaПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9ED099A8A3417040A25FA4C11F93D543313602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856821   (1059150) от 02.03.2026
+
+Финикийская схема / The Phoenician Scheme (2025) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059150.jpg" />
+</div>
+
+
+###  Подробнее
+
+1950 год, где-то на Ближнем Востоке. Экстравагантный магнат Жа-Жа Корда переживает череду покушений и затевает грандиозный трансконтинентальный проект «Финикийская схема». В стремлении защитить свою империю, Корда назначает единственной наследницей дочь Лисл, вытащив её из монастыря. Им предстоит столкнуться с многочисленными врагами, государственными интригами и (   Читать дальше...   )Производство: США, Германия / American Empirical Pictures, Focus Features, Indian Paintbrush, Studio BabelsbergЖанр: драма, комедия, криминалРежиссер: Уэс АндерсонАктеры: Бенисио Дель Торо, Миа Триплтон, Майкл Сера, Риз Ахмед, Том Хэнкс, Брайан Крэнстон, Матьё Амальрик, Ричард Айоади, Уиллем Дефо, Скарлетт ЙоханссонПеревод: Дублированный (Movie Dubbing)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские - отдельными файламиПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00403CD3912820DBE7A215F49CF2179A0331307B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856820   (1059149) от 02.03.2026
+
+Финикийская схема / The Phoenician Scheme (2025) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059149.jpg" />
+</div>
+
+
+###  Подробнее
+
+1950 год, где-то на Ближнем Востоке. Экстравагантный магнат Жа-Жа Корда переживает череду покушений и затевает грандиозный трансконтинентальный проект «Финикийская схема». В стремлении защитить свою империю, Корда назначает единственной наследницей дочь Лисл, вытащив её из монастыря. Им предстоит столкнуться с многочисленными врагами, государственными интригами и (   Читать дальше...   )Производство: США, Германия / American Empirical Pictures, Focus Features, Indian Paintbrush, Studio BabelsbergЖанр: драма, комедия, криминалРежиссер: Уэс АндерсонАктеры: Бенисио Дель Торо, Миа Триплтон, Майкл Сера, Риз Ахмед, Том Хэнкс, Брайан Крэнстон, Матьё Амальрик, Ричард Айоади, Уиллем Дефо, Скарлетт ЙоханссонПеревод: Дублированный (Movie Dubbing)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Forced, SDH)Продолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F2CB502DC1ADB9643D42406016E058BFC3765B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856692   (1058987) от 01.03.2026
 
 Клаустрофобы: Квест с того света / Play Dead (2022) BDRip
@@ -6,7 +110,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058987.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058811.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058598.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058581.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058530.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058497.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058198.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058164.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058055.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057944.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057940.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057928.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057926.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057924.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057908.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057882.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057859.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057855.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057799.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057794.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057628.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057609.jpg" />
 </div>
 
 
@@ -564,112 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:234E630F317ACBDCD301AF0BEF4E5334EEC8FDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854519   (1057260) от 18.02.2026
-
-Бугимен. Начало легенды / El hombre del saco / The Boogeyman: The Origin of the Myth (2023) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057260.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти главы семьи мать с тремя детьми переезжает в небольшой городок. Вскоре они узнают, что последние несколько месяцев тут при загадочных обстоятельствах пропадают дети.Производство: Испания, Уругвай / AF Films, Bowfinger International Pictures, Canary Pictures Vehicles, Esto también pasaráЖанр: ужасы, фэнтези, приключенияРежиссер: Анхель Гомес ЭрнандесАктеры: Макарена Гомес, Хавьер Ботет, Иван Ренедо, Клаудия Плейсер, Лорка Гутьеррес Прада, Лукас Блас, Карла Тоус, Гильермо Новильо, Маноло Соло, Карлос Гонсалес МорольонПеревод: Дублированный (SoulPro)Язык озвучки: Русский, испанскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7554EB1F4A2A4A2435987ED1EB4B74A25658048F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854224   (1057241) от 16.02.2026
-
-Без слов / Speechless (1994) HDTVRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кевин и Джулия, страдая от бессонницы, встретились в ночном магазинчике. Сражаясь за последнюю упаковку снотворного, они безумно влюбились друг в друга. Ни один, ни другая не подозревают, что занимаются одним и тем же – написанием речей для политиков, и все было бы прекрасно, но их боссы – ярые политические противники.
-
-Когда правда обнаруживается, начинающийся роман (   Читать дальше...   )Производство: США / Forge, Metro-Goldwyn-Mayer (MGM)Жанр: мелодрама, комедияРежиссер: Рон АндервудАктеры: Майкл Китон, Джина Дэвис, Кристофер Рив, Бонни Беделиа, Эрни Хадсон, Чарльз Мартин Смит, Гейлард Сартейн, Рэй Бэйкер, Митчелл Райан, Уилли ГарсонПеревод: Двуголосый профессиональный (НТВ)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C3CFE95920BAFEFA4E10778ABC281E2DFB6F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854221   (1057239) от 16.02.2026
-
-Джестер / The Jester (2023) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочный фокусник по кличке Джестер наводит ужас на жителей небольшого городка. Пиджак и хищная улыбка оказываются не костюмом, а игры и загадки ведут к кровавым последствиям. Под угрозой оказываются жизни двух сестёр, которым придётся преодолеть разногласия, чтобы победить зло.Производство: США / Cinematic Productions, Epic PicturesЖанр: ужасыРежиссер: Колин КравчукАктеры: Майкл Шеффилд, Лелия Симингтон, Делани Уайт, Мэтт Сервитто, Лена Джеймс, Миа Рэй Робертс, Райли Коллинз, Мэри Джейн Пентони, Кори Окучи, Сэм ЛуковскиПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: Русские (Forced) - отдельноПродолжительность: 01:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D960556D4E34EB928578999790C1E37A9B9D1C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853979   (1057232) от 16.02.2026
-
-Око за око / Eye for an Eye (1996) BDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057232.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Карен МакКанн случилась чудовищная трагедия: в дом МакКаннов ворвался подонок и убил её семнадцатилетнюю дочь Джули. Преступника удалось арестовать, но Карен ждал новый кошмар. Невыносимая боль от жуткого горя сменилась шоком и яростью. Несовершенная судебная машина допустила непоправимую ошибку: убийца девушки вышел на свободу. И что самое ужасное – у него не (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: триллер, драма, криминалРежиссер: Джон ШлезингерАктеры: Салли Филд, Эд Харрис, Оливия Бернетт, Александра Кайл, Кифер Сазерленд, Джо Мантенья, Беверли Д’Анджело, Даррел Ларсон, Чарлэйн Вудард, Филип Бейкер Холл, Кит Дэвид, Ванда Акуна, Джеффри РивасПеревод: Двуголосый профессиональный (Премьер Видео Фильм), авторский (А. Гаврилов, С. Визгунов)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AF492DB405F4DBF6E079EB30067433C72BC714
 ```
 
 https://mybot314.ru/tekegram_catalog/

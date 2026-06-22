@@ -1,3 +1,87 @@
+###  Публикация: 606654   (995263) от 21.01.2013
+
+Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Une Nouvelle Humanite (The Rurals Remix) 7:54
+02. Une Nouvelle Humanite (Andy Compton's PENG Mix) 7:08
+03. Une Nouvelle Humanite (Da Capo's Touch) 7:29Жанр: Deep HouseПродолжительность: 00:22:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605995   (994931) от 22.01.2013
+
+Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoreline (Original Mix) (7:04)
+02. Tucano (Original Mix) (7:15)Жанр: Progressive HouseПродолжительность: 00:14:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353259   (992681) от 17.01.2020
+
+The Midnight - The Midnight Remixed 02 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House, Synthwave, Dreamwave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcade Dreams (Timecop1983 Remix) (5:34)
+ 02. Crystalline (Dan Sieg Remix) (6:26)
+ 03. Kids (PROFF Remix) (6:10)
+ 04. Nocturnal (Nox Vahn Remix) (8:14)(   Читать дальше...   )Жанр: Deep House, Progressive House, Synthwave, DreamwaveПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE840FFF2C7CEA3848C1AB488B4D1A858F7D2D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353411   (991814) от 18.01.2020
 
 Gioli & Assia - Night Experience (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House>
@@ -6,7 +90,7 @@ Gioli & Assia - Night Experience (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991814.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991274.jpg" />
 </div>
 
 
@@ -65,7 +149,7 @@ Mario Basanov - Journey (2012) [FLAC|Lossless]<House, Deep House, Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991146.jpg" />
 </div>
 
 
@@ -96,7 +180,7 @@ Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990498.jpg" />
 </div>
 
 
@@ -123,7 +207,7 @@ Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990447.jpg" />
 </div>
 
 
@@ -152,7 +236,7 @@ Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990378.jpg" />
 </div>
 
 
@@ -179,7 +263,7 @@ Martin Roth - Beautiful Life / Make Love To Me Baby (2012) [FLAC|Lossless]<Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990323.jpg" />
 </div>
 
 
@@ -206,7 +290,7 @@ Boris Brejcha - Space Diver (2020) Ultra Records [FLAC|Lossless|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985967.jpg" />
 </div>
 
 
@@ -235,7 +319,7 @@ Dirty Vegas - Days Go By (2002) [FLAC|Lossless|tracks + .cue] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984651.jpg" />
 </div>
 
 
@@ -263,7 +347,7 @@ VA - Klangkunst (2013) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983631.jpg" />
 </div>
 
 
@@ -292,7 +376,7 @@ VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983626.jpg" />
 </div>
 
 
@@ -321,7 +405,7 @@ Beat Pharmacy - Wikkid Times + Versions & Remixes (2008-2009) Deep Space Media [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981153.jpg" />
 </div>
 
 
@@ -350,7 +434,7 @@ Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980765.jpg" />
 </div>
 
 
@@ -379,7 +463,7 @@ Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980674.jpg" />
 </div>
 
 
@@ -408,7 +492,7 @@ Gabriel & Dresden - Remedy (2020) Anjunabeats [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979114.jpg" />
 </div>
 
 
@@ -437,7 +521,7 @@ Michael Cassette - Singles & EP's (2007-2011) [FLAC|Lossless]<House, Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975032.jpg" />
 </div>
 
 
@@ -467,7 +551,7 @@ Bob Sinclar, Dimitri From Paris - Knights Of The Playboy Mansion (2011) 2CD, Mix
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972030.jpg" />
 </div>
 
 
@@ -496,7 +580,7 @@ Madonna - Bitch I’m Madonna (2015) [FLAC|Lossless|tracks] <Electronic, House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970865.jpg" />
 </div>
 
 
@@ -525,7 +609,7 @@ VA - Deep House Hits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, DeepHouse, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970649.jpg" />
 </div>
 
 
@@ -554,7 +638,7 @@ VA - Holiday Hit Mix '97 (1997) 2CD [FLAC|Lossless|image + .cue] <House, Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969727.jpg" />
 </div>
 
 
@@ -583,7 +667,7 @@ The Avener - Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969703.jpg" />
 </div>
 
 
@@ -612,7 +696,7 @@ Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968696.jpg" />
 </div>
 
 
@@ -641,7 +725,7 @@ P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967417.jpg" />
 </div>
 
 
@@ -655,92 +739,6 @@ P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFF8AB3544C49BD1936DC943B2D517D8CF14F6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149234   (967174) от 09.02.2020
-
-Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NatsQ - Before (E) (Original Mix) (04:19)
- 02. Textural Being - Experience (NatsQ "Colored Club" Remix) (05:16)
- 03. Textural Being - Experience (DeepWarmth Remix) (08:23)
- 04. Textural Being - Experience (Cristiano Campos Remix) (08:38)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno, Ambient, Techno •Продолжительность: 10:05:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947B24B6624A4FF321088B4175F45C80972607BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358617   (967138) от 09.02.2020
-
-Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paranoia (Original Mix) (5:35)
- 02. Lush Dance (Original Mix) (4:30)
- 03. The Police (Original Mix) (3:58)
- 04. Music Box (Original Mix) (5:38)(   Читать дальше...   )Жанр: Electronic, Deep House, DownbeatПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B073873EB893074FC9AC1918D5BB18CFBFEF2B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977278   (965547) от 21.01.2016
-
-VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cut Up Boys - Shine (a cappella) vs. The Creeps (Get on the Dancefloor) (Vandalism remix) (Booty Luv vs. Freaks) (6:14)
-02. The Cut Up Boys - Let Me Think About It (a cappella) vs. The Creeps (Ida Corr vs. Fedde Le Grand vs. Camille Jones vs. Fedde Le Grand) (5:16)
-03. The Cut Up Boys - Rapture (a cappella) vs. Love on My Mind (feat. Amanda Wilson) (iiO vs. (   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A26BD8878D73EEEC4455610404697A8FEC3545
 ```
 
 https://mybot314.ru/tekegram_catalog/

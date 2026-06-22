@@ -1,3 +1,29 @@
+###  Публикация: 1363872   (939189) от 01.03.2020
+
+Stardew Valley v1.4.5.141 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stardew Valley – ролевая игра на андроид, где вы будете управлять фермой. Переезжайте жить в деревню и создайте там ферму своей мечты. Откройте для себя огромный мир где вы построите свою ферму и будете выращивать на ней овощи и фрукты. Превратите заросшее поле в плодородную землю, выращивайте домашних животных и ухаживайте за ними. Также в этой игре вы сможете завести (   Читать дальше...   )Релиз состоялся: 29 февраля 2020 г.Разработчик: Chucklefish LimitedПоддерживаемая ОС: Android 4.4+Жанр: RPGЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A188C7A572D6E3D266FF855DB8065F5A413F6C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092678   (938391) от 12.01.2017
 
 APK Extractor 4.1.7 [En]
@@ -6,7 +32,7 @@ APK Extractor 4.1.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938391.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gallery Go by Google Photos v1.0.1.258899354 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937781.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NUMBER 5 : Offline Modern Gun v1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937664.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937663.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937539.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934860.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Olivia Drive Pro 2.7.8 - бортовой компьютер (OBD2/ELM327) [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934686.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933403.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933265.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Cписок покупок v2.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933257.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Stepik v1.114 [Ru] - бесплатные онлайн-курсы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932965.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932316.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Hungry Shark Evolution 7.4.0 + Mod [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931967.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ KitchenTimer 4.2.1 [Ru] - Кухонный таймер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931491.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930944.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Garmin: NaviGuide Hungary v2016.01 NT Final [Hu]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930735.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Garmin: City Navigator Chile NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930731.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Paint Free 3.5.4 [Ru] - Рисовалка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930666.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ P4P 7 Minute Workout PRO 1.3.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930433.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ SEN: Seven Eight Nine v1.2.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930411.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ TinyCam Monitor PRO v14.2.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930272.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Garmin: City Navigator Argentina NT 2017.10 Proyecto [Es]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928931.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Blend Photo Editor Pro 2.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928925.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Garmin: City Navigator Australia & New Zealand NT HERE 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928784.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ iGO Primo NextGen 9.18.27.681657 (Android) [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928418.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ iGO Primo NextGen 9.18.27.681657 (Android) [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE28692C08EB85E6A73770DA20DA2F7269BB1435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093516   (927193) от 19.01.2017
-
-iGO Primo NextGen 9.18.40.671989 (WinCE) [Ru/Multi]
-
->>Программы, Игры и прочее
->>Навигация для др. мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационное ПО iGO Primo NextGen версии 9.18.40.671989 для автомобильных навигаторов и ГУ автомобиля под управлением операционной системы WinCEРелиз состоялся: 2016Разработчик: NNGПоддерживаемая ОС: WinCEЖанр: Навигационное ПОЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8814D13FB574F691B714754B4AAE59D703014DA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

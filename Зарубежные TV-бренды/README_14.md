@@ -1,3 +1,82 @@
+###  Публикация: 636691   (904340) от 29.03.2013
+
+Пищевая фабрика. Выпуск №19. Вкус тропиков / Food Factory. Totally Tropical (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое поучительное и завораживающее шоу проводит нас за кулисы удивительных производственных линий, чтобы показать, как в действительности делается еда.
+** Чем-то похоже на How It's Made, но в данном случае рассматривается процесс производства только продуктов питания.Жанр: Документальный, научно-познавательный, история, технологии, промышленность, техникаПродолжительность: ~ 00:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1A7A07226D0F081182F08E928F191746147156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852112   (903855) от 29.02.2016
+
+PBS. Снежные макаки Японии / Snow Monkeys (2014) BDRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иерархия в жизни японских макак холодных гор Японии - это краеугольный камень взаимоотношений. Здесь с детства приучают знать своё место, но это не мешает ещё совсем молодой обезьянке растопить суровое сердце вожака стаи. В обществе, где ради выживания нужно держаться вместе, и последний может стать первым.Жанр: Документальный, природаПеревод: Одноголосый закадровый (профессиональный, Ю. Онищенко)Язык субтитров: русские, английскиеПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDFF48CBC203036533A66E5EFB479464EDDE71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099326   (903224) от 02.02.2017
+
+Природная инженерия: Выживание в джунглях / Animal Impact: Jungle (2009) HDTVRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903224.jpg" />
+</div>
+
+
+###  Подробнее
+
+B джунглях сюрпризы ожидают вас буквально повсюду: рептилии летают, птицы плавают, муравьи кусаются. Выживание зависит от размера, формы и даже сверхъестественных сил. Вдоль экватора Земли растянулись тропики - жаркий край с проливными дождями и густыми лесами. В болотах и джунглях представлено более половины всех видов животных и растений планеты. При столкновении (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, живая природа, Флора и фаунаПеревод: Одноголосый закадровый, профессиональный, студия "АРК ТВ", текст читал Александр ГаврилинПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD0C92242693B113FF2BDED39C5EBA8879A9DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099272   (903124) от 02.02.2017
 
 Охота на трюфели / Unearthed (2015) HDTVRip (1-5 серии из 5)
@@ -6,7 +85,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903124.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903097.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902981.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900413.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ BBC: Путешествие человека / The Incredible Human Journey   (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900193.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899833.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899663.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898746.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897845.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897325.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896013.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ BBC: Охота на гравитационные волны / The hunt for grav
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895853.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895483.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893394.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893307.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893278.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893241.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892787.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892646.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892287.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ Discovery. Техногеника. Карьер "Удачный" (2016) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891196.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891054.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ NG: Христианство. Восхождение к власти / Иису�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890343.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ NG: Христианство. Восхождение к власти / Иису�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE10D47CF07993DB455B7DAAE8DD1C9B837C8253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102560   (889223) от 10.02.2017
-
-Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нильский крокодил - крупное пресмыкающееся семейства настоящих крокодилов. Самый большой из трёх видов крокодилов, обитающих в Африке, и второй по величине в мире после гребнистого крокодила. Благодаря району обитания, размерам и силе, известен как крокодил-людоед, в древние времена являлся предметом страха и поклонения. До настоящего времени остаётся, пожалуй, наиболее (   Читать дальше...   )Телекомпания: США, Earth-Touch and SNI/SI Networks L.L.C.Жанр: Документальный, познавательный, флора, фаунаРежиссер: Бенджамин ХьюлеттПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228F6EAF4416239EFFAEAE13F1017BD17BD014C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752072   (889123) от 08.03.2016
-
-BBC. Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2013) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задумывались о том, что делает ваша кошка (если она, конечно, у вас есть) пока вы отсутствуете дома? Как далеко она гуляет от дома? Какие её любимые места? Недавно канал BBC начал необычный проект, благодаря которому хозяева кошек смогут узнать о “тайной жизни” своих питомцев. Для этого журналисты BBC установили на 50 кошек из деревушки Грин Шемли, (   Читать дальше...   )Жанр: Документальный, научно-познавательный, природа, кошкиПеревод: Одноголосый закадровый (профессиональный)Язык субтитров: английскийПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0E6D8FB2578FC825D016B141E3BBCE315402C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296970   (889082) от 17.02.2011
-
-NG: Самые страшные мировые морские катастрофы / The World's Deadliest Sea Disasters (2007) TVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889082.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце Великой Отечественной войны гражданские беженцы и остатки войск из Восточной Пруссии могли эвакуироваться только морем, где их ждали советские подводные лодки. Страх перед жестокостью советских солдат был так велик, что женщины и дети переполняли любые неприспособленные для пассажиров суда. Общее число погибших в море по некоторым оценкам достигает 40 000 человек...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B4A61939A0239213773DC5B81F1344D4BEE3F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

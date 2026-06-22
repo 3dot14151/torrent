@@ -1,3 +1,81 @@
+###  Публикация: 1380068   (800113) от 23.05.2020
+
+Мой серебряный шар (1994-2010) DVB [H.264] (серии 1-19 из ?) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художественно-просветительская программа Виталия Вульфа. Задумывая этот цикл, авторы проекта руководствовались такими идеями: "Искусство наполняет душевное пространство только тогда, когда в нем есть отблеск идеального, когда открывается личность. То, что сегодня происходит в нашей жизни, повысило цену человеческой индивидуальности, уникальности, авторитета (   Читать дальше...   )Телекомпания: Россия / КультураЖанр: Документальный, Искусство, БиографияСубтитры: русские, телетекст (888)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3616F4E8B76A1C2FD1E33CEF3C546B92580117B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120899   (798823) от 05.04.2017
+
+Романтика романса. 100 лет со дня рождения Марка Бернеса (2011) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни из репертуара Марка Бернеса исполняют Максим Амельченко, Леонид Серебренников, Мария Эшпай, Александр Михайлов, Алексей Черных, Ренат Ибрагимов. В программе использованы фото, видео-, аудиозаписи выступлений Марка Бернеса.Телекомпания: ГТРК "Культура"Жанр: ТелепередачаПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F65CA3AEFC59C2A474D9E97B61385C067DBF68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273871   (798730) от 04.01.2019
+
+Брюс Ли. Бессмертие дракона / Bruce Lee: Immortal Dragon (2000) SATRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о творчестве и ролях Брюса Ли - непревзойденного мастера боевых искусств, актёра, постановщика трюковых сцен. Фильм раскрывает многогранную личность «Бессмертного Дракона» на основе эксклюзивных интервью с друзьями, членами его семьи, редких кадров из домашнего видео, съемок со съемочной площадки, отрывков из фильмов с участием Брюса Ли.Производство: СШАЖанр: Документальный, биографияПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD74D878EA050ACE739ADCB331C820A800125892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508064   (798110) от 06.11.2021
 
 Чарльз Бронсон. Идеальный мачо / Charles Bronson, Hollywood's Lone Wolf (2020) HDTVRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798110.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797795.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797793.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797695.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797503.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797460.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Rolling Stone: Жизнь и смерть Брайана Джонса / Rolling 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797453.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797445.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796585.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796152.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794893.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Genesis: Части целого / Genesis: Together and Apart (2014) HDTV [H.26
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794636.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794631.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793970.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793783.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792193.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792168.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792094.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791683.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790979.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790976.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790420.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789841.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB01CCD6F77E78F8F5EEC0AEE41D8909B7732D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511365   (789308) от 20.11.2021
-
-Мир глазами группы Radiohead / Le monde selon Radiohead (The World According to Radiohead) (2019) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка Radiohead — это 25 лет смешения границ и жанров. Представленный на суд зрителей фильм рассказывает о том, как британские рокеры умеют переосмысливать себя, постоянно оставаясь «на плаву», и как они смогли сохранить творческую оригинальность и независимость. С ранних поп-гранж-релизов Drill и Pablo Honey, через электронику Kid A и струнные аранжировки A Moon (   Читать дальше...   )Производство: Франция, ARTE FRANCE, BridgesЖанр: документальный, биография, музыкаРежиссер: Бенджамин КлавельПеревод: двуголосый профессиональный (Эй Би Видео)Субтитры: отсутствуютПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F90B0FA6198E078E2555F86F2728BA5EC253F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511245   (789233) от 20.11.2021
-
-Вечер с Адель / Adele One Night Only (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальное мероприятие посвященное выходу нового альбома Адель. В проект вошли интервью певицы, записанное Опрой Уинфри, а также презентация новых песен.Производство: США / CBS Television Network, Fulwell 73, Harpo Productions, Onwards ProductionsЖанр: Документальный, музыкаРежиссер: Пол ДагдейлПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDBC4278C74D3696E54869C79D711579666DA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511408   (788947) от 21.11.2021
-
-Женский гений живописи / The Story of Women and Art (2018) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посетите любой музей. Сливки общества, лучшие художники, пантеон великих мастеров... Однако, нельзя не заметить, как среди них мало женщин. 1700 автопортретов художников и всего 7% из них - женщины! Одно и тоже во всех знаменитых музеях и галереях мира. Женщины - натурщицы, музы, но не художницы!... Почему? Неужели у них меньше таланта? Или дело может быть в старинных (   Читать дальше...   )Производство: Великобритания, Matchlight ProductionsЖанр: документальный, история, искусствоРежиссер: Джон ХоджсонПеревод: одноголосый профессиональный (SDI Media)Субтитры: английскиеПродолжительность: 3x ~00:60:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D891203B25CD701BA36E8A85B7E4465A45499B9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

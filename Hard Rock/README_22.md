@@ -1,3 +1,90 @@
+###  Публикация: 1412888   (413466) от 01.10.2020
+
+Bon Jovi - 2020 (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limitless (03:42)
+ 02. Do What You Can (04:20)
+ 03. American Reckoning (04:42)
+ 04. Beautiful Drug (03:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184373691902F30B2DC5BB98CADC1B08E08901ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167738   (412844) от 22.09.2017
+
+Redhouse - One More Squeeze (1976) [MP3|224 Kbps] <Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Love
+02. I Like Dancing
+03. Love Your Lady
+04. Little Paul(   Читать дальше...   )Жанр: Hard Rock, Progressive RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85662DBABB12B343DDD4C910432D9C7B2813525C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573407   (412670) от 31.08.2022
+
+KrazarK - KrazarK (2018) EP [MP3|320 Kbps] <Heavy Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dark City [00:06:43]
+02 Keep Your Fire Alive [00:04:32]
+03 No Pride [00:04:23]
+04 Southern Metal Fest [00:05:12](   Читать дальше...   )Жанр: Heavy Rock, StonerПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D29BCD28D84526A555BDD8FE32D3F62EDF4862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573507   (412663) от 31.08.2022
 
 Lovecraft - Can Abyss (2022) [MP3|320 Kbps] <Psychedelic Doom, Stoner Metal, Rock>
@@ -6,7 +93,7 @@ Lovecraft - Can Abyss (2022) [MP3|320 Kbps] <Psychedelic Doom, Stoner Metal, Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412663.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Smokes of Krakatau - Smokes of Krakatau (2022) [MP3|320 Kbps] <Heavy Psych, Ston
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412661.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Tom Skinner's Science Project - First Set (2022) [MP3|320 Kbps] <Roots Rock, Blu
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412657.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Power Of Zeus - The Godspel According To Zeus (1970) Reissue, 1995, Buy Or Die R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410553.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Gun - Favourite Pleasures (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410256.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Pulse R - In Chains (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410080.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Pappo's Blues - Caso Cerrado (1995) Volumen 8 [MP3|320 Kbps] <Hard Rock, Blues R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408882.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ King Moon And The Purple Tongues - The Golden Giant (2020) [MP3|320 Kbps] <Stone
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407231.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Deep Purple - Aged Ballads (2004) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404643.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Autograph - Buzz (2003) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404006.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Loosely Tight - Fightin' Society (1981) Reissue, Not On Label [MP3|320 Kbps] <Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403154.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ UFO - Salentino Cuts (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401425.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ The Sweet - Grand collection (1997) [MP3|320 Kbps] <Hard rock, Glam rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400382.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Aerosmith - Music From Another Dimension! (2012) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396708.jpg" />
 </div>
 
 
@@ -424,7 +511,7 @@ Smokey Fingers - Columbus Way (2011) [MP3|320 kbps]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395174.jpg" />
 </div>
 
 
@@ -453,7 +540,7 @@ Joon Wolfsberg - 1220 Wells Street (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390564.jpg" />
 </div>
 
 
@@ -482,7 +569,7 @@ VA - Who Are You: An All Star Tribute To The Who (2012) [MP3|320 кб/с]<Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387860.jpg" />
 </div>
 
 
@@ -517,7 +604,7 @@ Slash & Myles Kennedy And The Conspirators - Living The Dream Tour (2019) Live [
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384988.jpg" />
 </div>
 
 
@@ -546,7 +633,7 @@ Klee Project - The Long Way (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382965.jpg" />
 </div>
 
 
@@ -575,7 +662,7 @@ Evolution Eden - Modern Nostalgia (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382961.jpg" />
 </div>
 
 
@@ -604,7 +691,7 @@ Roxxie Dee - Leather Up (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382650.jpg" />
 </div>
 
 
@@ -633,7 +720,7 @@ Southern Gentlemen - S G Double 20 (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381177.jpg" />
 </div>
 
 
@@ -662,7 +749,7 @@ Oda - Oda (1971) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379577.jpg" />
 </div>
 
 
@@ -676,96 +763,6 @@ Oda - Oda (1971) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF1D0C27D41642720BD233EBA88AE5B756F48AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253870   (379183) от 11.10.2018
-
-Nazareth - Tattooed on My Brain (2018) [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Dance with the Devil
-02. Tattooed on My Brain
-03. State of Emergency
-04. Rubik's Romance(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4A938D777ED12A18C6EB521B5B029BABD0E213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573751   (378682) от 11.11.2012
-
-Crash The System - The Crowning (2009) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight Fire With Fire
-02. All Because Of You
-03. I Still Believe In Love
-04. Love Is In Your Eyes
-05. Take A Chance
-06. Enough Of Your Lovin'
-07. Mysterious
-08. Angel Of My Heart
-09. Rolling Stone
-10. Don't Tell Me No Lies(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC73664A8499EE89414171D31084C95B65615BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573397   (377976) от 11.11.2012
-
-VA - 5CD Rock Tributes (2006) [MP3|320 кб/с]<Rock, Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Southern Rock, Hard RockПродолжительность: 04:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594B7E35256E6AA6BF8FDA403ECF5EE4FF2C792C
 ```
 
 https://mybot314.ru/tekegram_catalog/

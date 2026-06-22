@@ -1,3 +1,157 @@
+###  Публикация: 563773   (403835) от 22.10.2012
+
+Don Davis & Van Dobrynin - Discovery (Cosmic Journeys) (2012) HDTVRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клип на композицию Discovery.Жанр: AmbientПродюсер: Don Davis, Van DobryninПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0421234B3D6A5674668E978B16ED1E7FB4EEE8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 398059   (400997) от 12.10.2011
+
+The Brian May Band - Live At The Brixton Academy (1994) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Dark
+2. Back To The Light
+3. Driven by You
+4. Tie Your Mother Down
+5. Love Token
+6. Headlong
+7. Love Token (reprise)
+8. Love of My Life
+9. '39
+10. Let Your Heart Rule Your Head(   Читать дальше...   )Жанр: Hard RockПеревод: ОтсутствуетПродолжительность: 01:28:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565302   (400003) от 26.10.2012
+
+Counting Clouds (clips) (2007)
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличные клипы для релакса и... в исполнении Counting Clouds (10 шт.)01 .At The Beach
+02, Blue Paradise
+03. Colored Dreams
+04. Do You Still Love Me
+05. Forever
+06. Imena
+07. Raindance (Native American) -The real Raindance
+08. Spirit ( Native American )
+09. The Only One (Instrumental Arabic Music)
+10. Desert Deja Vu (Instrumental Arabic Music)Жанр: Музыка,Relax, Lounge,New AgeПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93711A32FABBE1CD2A96766CAE15CF43AFF6C043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566241   (399055) от 27.10.2012
+
+Guitar Heroes At The BBC (Vol.2)(2CD) (2009) DVDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol.1. Продолжительность: 00:59:11
+
+01. Jimi Hendrix — Hey Joe / Sunshine Of Your Love
+Happening For Lulu - 04/01/1969(   Читать дальше...   )Жанр: Музыка, Classc rockПродолжительность: 00:59:11 +00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BD4A3CE26D1753FCC21036D9278CA06B96CA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566239   (399019) от 27.10.2012
+
+Guitar Heroes At The BBC (Vol.1)(2CD) (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol.1.  
+Продолжительность: 00:59:25
+
+01. Jimi Hendrix Experience  - Voodoo Chile 1969(   Читать дальше...   )Жанр: Музыка, Hard RockПродолжительность: 01:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BF232D3A10D7D1EC1569C661311FCEC0CF2CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567375   (395007) от 31.10.2012
 
 Dead by April - Videography / Dead by April - Videography (2012) DVD5
@@ -6,7 +160,7 @@ Dead by April - Videography / Dead by April - Videography (2012) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395007.jpg" />
 </div>
 
 
@@ -34,7 +188,7 @@ Vida Loca ft. Soatz - Me Gusta (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392185.jpg" />
 </div>
 
 
@@ -60,7 +214,7 @@ Cheek ft. Jonne Aaron - Anna Ma Meen (2012) [H.264] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_392036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392036.jpg" />
 </div>
 
 
@@ -86,7 +240,7 @@ Scooter - Army Of Hardcore (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391830.jpg" />
 </div>
 
 
@@ -112,7 +266,7 @@ Wuauquikuna: Ловец Снов / Wuauquikuna: Dream Catcher. The best indian s
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391463.jpg" />
 </div>
 
 
@@ -147,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380987.jpg" />
 </div>
 
 
@@ -173,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378812.jpg" />
 </div>
 
 
@@ -199,7 +353,7 @@ Oceana - Put Your Gun Down[Official Video HD] (2012) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376230.jpg" />
 </div>
 
 
@@ -225,7 +379,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) BDRip [1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369870.jpg" />
 </div>
 
 
@@ -254,7 +408,7 @@ The Kelly Family (clips)[H.264] Mp4 (1998-2011)
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363403.jpg" />
 </div>
 
 
@@ -290,7 +444,7 @@ Lil Scrappy - Pornstar (Uncensored) (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363401.jpg" />
 </div>
 
 
@@ -316,7 +470,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) [1080p] BDR
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362275.jpg" />
 </div>
 
 
@@ -354,7 +508,7 @@ Ozzy Osbourne - DREAMER (2001) HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356945.jpg" />
 </div>
 
 
@@ -380,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_354479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_354479.jpg" />
 </div>
 
 
@@ -407,7 +561,7 @@ The Stranglers - Greatest Hits On CD&DVD (2012) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340797.jpg" />
 </div>
 
 
@@ -433,7 +587,7 @@ Bon Jovi - When We Were Beautiful (2009) BDRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337179.jpg" />
 </div>
 
 
@@ -459,7 +613,7 @@ Bon Jovi & Surgarland - Crossroads (2005) HDTVRip [MPEG2/1080i]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335295.jpg" />
 </div>
 
 
@@ -485,7 +639,7 @@ Bon Jovi - Live From Tokyo Dome (14.01.2008) HDTVRip [MPEG-2/1080i]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335284.jpg" />
 </div>
 
 
@@ -511,7 +665,7 @@ Bon Jovi - The Circle Tour (2010) HDTVRip [H.264/1080i-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327500.jpg" />
 </div>
 
 
@@ -541,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320389.jpg" />
 </div>
 
 
@@ -567,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315490.jpg" />
 </div>
 
 
@@ -578,140 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD024CAF32164293607291D8DF968253E2344906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583016   (315484) от 01.12.2012
-
-G-Dragon - Crayon (2012) WEBRip [1080p]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клип на трек с сольного альбома "One Of A Kind".
-G-Dragon (GD, наст. имя Квон Чжи Ён) - лидер популярной южнокорейской поп-группы Big Bang.
-Из интервью GD для журнала K& Magazine:
-Расскажи о заглавной песне «Crayon».
-Это сочетание слов «сумасшедший» и «Чжи Ён». Это означает «просто сходи с ума от G-Dragon так же, как ты сходишь с ума от других вещей» и «давайте слетать с катушек». Когда я работал над этой песней вместе с Teddy, я написал на чистом листе бумаги фразу «Why So Serious?». Это знаменитая строчка из фильма «Тёмный рыцарь». Она мне безумно нравится. Я хочу обратиться ко многим людям: «Почему нужно быть настолько серьёзными?» И я также хочу, чтобы люди, видя моё выступление на сцене, думали: «этот парень действительно сошёл с ума». К счастью, мне удалось этого достичь.Жанр: K-Pop, Hip-HopПеревод: ОтсутствуетПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A94754F069F3CF598110BE2A75962A79E857E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583414   (314738) от 01.12.2012
-
-Дискотека-80х - 2012 Rock &  Dance (DVD-9)
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_314738.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 международный фестиваль Авторадио Дискотека 80-х «Rock&Dance» 2012. . В этом году «Дискотека 80-х» под слоганом «Rock&Dance» собрала вместе на одной сцене самых ярких звезд диско и главных героев рока 80-х: Zodiac, Gorky Park, Chris Norman, Вячеслав Бутусов и группа «Ю-Питер», Black, Константин Никольский.Жанр: МузыкаРежиссер: АвторадиоАктеры: Zodiac,Gorky Park,Silent Circle,Bad Boys Blue,Вячеслав Бутусов,C.C.Catch,Chris Norman,Boney MПеревод: ОтсутствуетПродолжительность: 03:48:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583892   (310034) от 03.12.2012
-
-Rihanna - Diamonds (Live at The X Factor Results 25.11.2012) (2012) HDTV 1080i
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_310034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рианна выступила на британском X Factor со своим последним синглом "Diamonds" 25 ноября 2012.Жанр: R'n'BПродолжительность: 00:05:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583666   (309886) от 03.12.2012
-
-Uncensored Music Videos Rock- Volume 1 (2003) DVDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Громкие клипы, громкая музыка, немного эротики...(впечатлительным не смотреть! +18)Жанр: Музыка, RockПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EFFC4010CE55393F63030B3FF65E1C5BCCDE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585187   (305689) от 05.12.2012
-
-Кажэ Обойма ft. Баста - Ангел (2012) WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В клипе принял участие чемпион мира по боям R-1 Александр Липовой. Трек вышел на альбоме Кажэ "Катарсис" в 2012 году.Жанр: Rap, Hip-hopПродолжительность: 00:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B636FFA428833C280F0553FC815E7BEE4DA8285A
 ```
 
 https://mybot314.ru/tekegram_catalog/

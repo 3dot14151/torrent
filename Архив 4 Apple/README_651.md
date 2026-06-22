@@ -1,3 +1,58 @@
+###  Публикация: 1520002   (145544) от 26.12.2021
+
+SimpleMind Pro 1.30.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуальная фиксация и организация идей, мыслей, информации и их взаимосвязей при помощи ментальных карт. С этой программой сразу же можно заняться именно построением ментальных карт, простота и удобство, плюс приятный дизайн и синхронизация с Dropbox.
+SimpleMind - это инструмент для построения интеллект-карт, который превращает ваш Мас в устройство для мозгового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: © 2021 SimpleAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948D46B377FA3243EE4F43A155979E46FB5241BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970002   (145520) от 28.12.2015
+
+DxO OpticsPro for Photos 1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145520.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO OpticsPro for Photos разработан, чтобы предоставить бесшовный технологический процесс обработки изображения Фотографам, которые находятся на Mac и используют OS X Photos в качестве их основного фото редактора.
+
+С DxO OpticsPro, действующего как сторонней расширение, можно теперь получить доступ для поддерживаемых камер непосредственно из окна редактирования Photos. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 декабря 2015Разработчик: DxO LabsПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC4980023AC23283DD136B77044679E3C1A02F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272053   (145517) от 26.12.2018
 
 Movavi Video Editor 15 Business 15.1.0 [Multi/Ru]
@@ -6,7 +61,7 @@ Movavi Video Editor 15 Business 15.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145517.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ PDF Reader Pro 3.0.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145482.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ RapidWeaver 6.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145392.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145383.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Downie 3 v3.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145283.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ Vezér 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145269.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ iNet Network Scanner 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145241.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Navicat Premium 15.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145141.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ AI War 2  v1.023 (2019) [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144977.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144966.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ TG Pro (Temperature Gauge Pro) 2.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144943.jpg" />
 </div>
 
 
@@ -302,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144932.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ CopyClip 2 - Clipboard Manager v2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144916.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Adguard 2.4.2.712 nightly (CL - 1.5.165) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144901.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Postico 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144818.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ Xliff Editor 2.5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144792.jpg" />
 </div>
 
 
@@ -440,7 +495,7 @@ Yate 6.2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144743.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ Cookie 6.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144720.jpg" />
 </div>
 
 
@@ -496,7 +551,7 @@ PhotoMill X 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144696.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ PullTube 1.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144646.jpg" />
 </div>
 
 
@@ -550,7 +605,7 @@ PCalc 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144609.jpg" />
 </div>
 
 
@@ -577,7 +632,7 @@ PhoneRescue 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144586.jpg" />
 </div>
 
 
@@ -603,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144542.jpg" />
 </div>
 
 
@@ -629,7 +684,7 @@ ToothFairy 2.4.8 (36)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144531.jpg" />
 </div>
 
 
@@ -641,62 +696,6 @@ ToothFairy поможет вам перейти от одного выбранн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE599745FAB39D770136FCBF0CFDBA224E2B08EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272366   (144524) от 27.12.2018
-
-Qbserve 1.81 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслеживание рабочего времени с комфортом.
-Qbserve в автоматическом режиме отслеживает время потраченное на работу и помогает повысить производительность. Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
-
-Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: QotoQotПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B2F7A104F7100371CDAE2828B008EF875D2BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969976   (144519) от 28.12.2015
-
-Марсианин / The Martian (2015) WEB-DL [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного.
-Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (iTunes)Субтитры: Русские форсированные, Украинские форсированные, Русские, Украинские, Английские (полные, отключаемые)Продолжительность: 2:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8639FC690DBFD03EA9C7D951325FA7688DE0370E
 ```
 
 https://mybot314.ru/tekegram_catalog/

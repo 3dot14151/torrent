@@ -1,3 +1,159 @@
+###  Публикация: 1346503   (163746) от 19.12.2019
+
+Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди исчезают среди потусторонних происшествий в особняке Кэррингтонов. Сначала дворецкий, потом сам глава семьи, Эдгар Каррингтон. Полиция сбита с толку, поэтому Гордон, наследник состояния Кэррингтонов, вызывает эксперта-следователя-вас! Разберитесь в тайнах и лжи, чтобы раскрыть правду об исчезновениях и замечательном открытии, которое привело этот дьявольский (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D5F543F748F49D6C82AC43406D4B994AB7D9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517356   (162672) от 15.12.2021
+
+Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сани Санты ломаются в канун рождества, как раз когда он начинает свое ежегодное путешествие на Северном полюсе. Во всем мире нужна ваша помощь, чтобы спасти Рождество! Помогите Санте и эльфам раскрыть все сезонные секреты и сюрпризы. Наслаждайтесь великолепными рождественскими праздниками в Спрингфилде. Встречайте праздник Рождества!Тип издания: UnofficialРазработчик: Casual ArtsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AB61AAAAF95515966F9134D5A56610D0A0604D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517638   (162118) от 16.12.2021
+
+Bridge to Another World 9: Christmas Flight (2021) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение сказочной серии игр Bridge to Another World. Тихий вечер праздничных торжеств внезапно заканчивается невероятным полетом - вас похищают и увозят в Страну Рождества! Опасное проклятие, которое замораживает сердца людей, захватывает этот очаровательный и весёлый мир, и вашему давно потерянному племяннику нужна помощь, чтобы разрушить его! Можете ли вы объединиться (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly FoxЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28A6435BF99A84FB17E4A9BF16FDDF232D33033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433061   (161914) от 19.12.2020
+
+Bridge to Another World 7: Secrets of the Nutcracker (2020) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мари впервые после детских лет приходит в мастерскую Дроссельмейера и узнает, что Фриц, с которым она когда-то дружила, исчез. Найденные девушкой подсказки приводят ее к игрушечному замку Спилланд. Помогите Мари преодолеть все препятствия в фантастическом мире, в котором обитают сердитые мыши и и оживают игрушки, чтобы спасти Фрица и Дроссельмейера и узнать секрет (   Читать дальше...   )Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4184218C171DE58E510F5A24DFB2D385220988E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433009   (161776) от 19.12.2020
+
+Enchanted Kingdom 8: Master of Riddles / Зачарованное королевство 8: Мастер загадок (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Enchanted Kingdom. Когда-то давно последний могущественный волшебник запечатал Магию королевства сложными загадками и спрятал их по всей империи. Но надвигается война, и вас призвали помочь императору восстановить Магию! Это будет непростая задача: волшебник постарался хорошо всё припрятать, и не зря! Ведь, силу Магии можно использовать (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1917DABB4F37F58BF262D631C9E774DAE076BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433018   (161719) от 19.12.2020
+
+Legacy: Witch Island 3 / Наследие: Остров ведьмы 3 (2020) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прямо на ваших глазах люди превратились в животных — слона и собаку. А все потому, что ведьма, которую вы однажды уже победили, не намерена сдаваться. Тогда она скрылась в портале, и теперь этот портал привел ее в сказочный мир. А мир этот, оказывается, параллелен вашему. Поэтому все превращения, которые происходят в нем, происходят и в вашем мире. Вместе с задорным (   Читать дальше...   )Тип издания: UnofficialРазработчик: IteraLabsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000521EECB8C0A5C9994F352C51E9289F70079C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517873   (161460) от 17.12.2021
 
 Halloween Stories 5: The Neglected Dead / Хеллоуинские истории 5: Забытые мертвецы (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +162,7 @@ Halloween Stories 5: The Neglected Dead / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161460.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Legacy: Witch Island 4 Last Bastion / Наследие: Остров Ведьм�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161089.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ City of Stories: Stephan's Journey / Город Историй: Путешест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160127.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Christmas Fables: Holiday Guardians / Рождественские Притчи:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159735.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159233.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Cursed Fables 2: Twisted Tower / Проклятые предания 2: Двул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159201.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Ominous Objects 3: Trail of Time (2015) [En] Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158453.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Secret of the Pendulum (2015) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158441.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Immortal Love: Letter From The Past (2015) [En] Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158419.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Statue Of Liberty. The Lost Symbol (2014) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158412.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Christmas Stories 4: Puss in Boots (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158235.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Phantasmat 5: Behind The Mask (2015) [En] Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158230.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Secret City 5: Mysterious Collection (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158094.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Christmas Stories 4: Puss in Boots / Рождественские истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158002.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Edge of Reality 6: Mark of Fate (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157594.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Phantasmat 12: Death in Hardcover / Фантазмат 12: Смерть в ст�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157220.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Redemption Cemetery 5: Bitter Frost / Кладбище Обреченных 5: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157033.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Redemption Cemetery 11: One Foot In The Grave / Кладбище искупле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156958.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ White Shadows (2021) [Ru/Multi] (1.31) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156774.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ The Christmas Spirit. Trouble in Oz / Дух Рождества: Неприят�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156652.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ The Christmas Spirit. Trouble in Oz / Дух Рождества: Неприят�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12E1A5EA785520368F1023E5F4FC951AD69E76C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270759   (155502) от 20.12.2018
-
-Yuletide Legends 3: Who Framed Santa Claus (2018) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сказочного приключения Yuletide Legend. Санта арестован! Кто-то подставил его за кражу подарков! Вам, всемирно известному детективу, придется взяться за это дело. Сможете ли вы восстановить доброе имя Санты и сохранить Рождество, пока не стало слишком поздно? Узнайте в этом захватывающем приключении!Тип издания: UnofficialРазработчик: Brave GiantЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A9E2D67D1532AC33EFAEE8C1983FD1FE68C350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518463   (155424) от 19.12.2021
-
-Royal Legends: Marshes Curse (2021) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую увлекательную серию игр Royal Legends. Жители Либервилля в опасности! Власти разводят руками, поэтому за расследование приходится браться вам, королевскому советнику. А ведь дело оказалось весьма необычным: местные утверждают, что это болотная ведьма вышла на охоту, чтобы отомстить за свою гибель. И пускай никто ещё не сталкивался с ней лично, легенды (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8747E3312BAEFBCE62F5A835A5199F83F9255BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270667   (155080) от 20.12.2018
-
-Christmas Wonderland 9 / Рождество 9. Страна чудес (2018) [Ru] Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение Рождественской истории в серии игр Christmas Wonderland. В рождественской стране чудес много великолепных сцен поиска и увлекательных мини-игр. Найдите подарки, заработайте достижения и награды. Посетите удивительный Спрингфилд-парк. Совершите путешествие на поезде. Погостите у дедушки и бабушки Майка и Эммы. Вас ждет встреча с эльфом в мастерской Санта-Клауса. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Casual ArtsЖанр: Головоломка, Поиск предметовЯзык озвучки: отсутствуетЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DFC4A4D734927F96442EA30D84CF338D235E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267633   (154918) от 20.12.2018
-
-Iris.Fall (2018) [Ru/Multi] (1.0.00024) License CODEX
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iris.Fall – приключенческая головоломка, выполненная в уникальном рисованном стиле света и теней. Сюжет игры вращается вокруг девушки по имени Ирис. Однажды проснувшись она пошла вслед за черной кошкой, которая привела ее в полуразрушенный театр. По мере развития истории Ирис начинает замечать, что все в этом театре, похоже, имеет какую-то скрытую связь с ней самой…Тип издания: LicenseРазработчик: NEXT StudiosЖанр: Adventure, Logic, CasualЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D496B5672699090DBAB294B803302881A2B0A332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676919   (154071) от 15.11.2023
-
-The Far Kingdoms: Awakening Quest (2023) [En] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в увлекательное приключение вместе с принцессой Арианной и ее верной подругой Сильвестрой по волшебному царству, полному интриг, трудностей и волшебства. Чтобы преодолеть сонное проклятие и пробудить королевство, разгадайте сложные загадки, познакомьтесь с захватывающими персонажами и сразитесь с коварной ведьмой. Будете ли вы тем, кто вернет Элизии (   Читать дальше...   )Тип издания: UnofficialРазработчик: Lazy Turtle GameЖанр: Я ищу, КазуальнаяЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843DC31AEF3FF77077B409B7E87592B345FD7F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433942   (154044) от 22.12.2020
-
-Christmas Wonderland 11 / Рождество. Страна Чудес 11 (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождество не было бы таким же без «Рождественской страны чудес», и выпуск этого года наверняка станет классикой. Санта, миссис Клаус, Питер, Попси, Момзи и остальные эльфы нуждаются в помощи, чтобы подготовить все к большой ночи, но в Спрингфилде новая семья только что переехала в этот район. Помогите Майку и Эмме тепло приветствовать своих новых соседей, участвуя (   Читать дальше...   )Тип издания: UnofficialРазработчик: Casual ArtsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BA1FCCEEE8EF1C5C1B87B23858FC03989208F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

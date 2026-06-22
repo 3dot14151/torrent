@@ -6,7 +6,7 @@ SimInTech 2.24.1.26 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119522.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Altair Embed 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106800.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Altair Compose 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106792.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Siemens UGS NX 8.0 x86/x64 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101935.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SolidWorks 2025 SP4.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100837.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ T-FLEX CAD 16.0.88.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99932.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Archicad 29 build 3000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91215.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Cutting Line 2.49 [Eng +Rus]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88319.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ BricsCAD Ultimate 24.2.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62503.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61984.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ DATAKIT CrossManager 2024.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60645.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Autodesk Inventor Professional 2025 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56324.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Sprint-Layout 6.0 DC 13.06.2024 RePack (& Portable) by NikZayatS2018 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51241.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Crocodile Technology 3D 609 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51170.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Proteus Professional 8.17 SP2 Build 37159 by nekto78 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51122.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ COMSOL Multiphysics 6.2 Build 339 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51117.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ ETAP 19.0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51010.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Altair Twin Activate 2023.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50366.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Cadence OrCAD X 23.10.006 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46947.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ SimOne (Версия для радиолюбителей) 3.2.1 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44441.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ PathWave Advanced Design System 2025 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44130.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ ZWCAD Architecture 2025 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44129.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Automation Studio Professional Edition 7.0.0.10038 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42968.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AnyLogic Professional 8.9.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42337.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ GoldSim 14.0 R3 Build 449 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40477.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Altair Flow Simulator 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40408.jpg" />
 </div>
 
 

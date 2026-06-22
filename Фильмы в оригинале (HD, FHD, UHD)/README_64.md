@@ -1,3 +1,133 @@
+###  Публикация: 1793800   (20216) от 26.04.2025
+
+Дольче! / The Opera! / The Opera! Arias for an Eclipse (2024) WEBRip [H.264/1080p] [EN / RU, EN, ITA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жених, потерявший невесту в день свадьбы, отправляется за ней в загробный мир в сопровождении загадочного таксиста.Производство: Франция, Италия / Digilife Movie, Dolce & Gabbana, Rai CinemaЖанр: мюзикл, фэнтези, драмаРежиссер: Паоло Джеп Кукко, Давиде ЛивермореАктеры: Венсан Кассель, Фанни Ардан, Катерина Мурино, Росси де Пальма, Анджела Финоккьяро, Мариам Баттистелли, Линда Дженнари, Валентино Буцца, Эрвин Шротт, Turi MoriccaПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, английские, итальянскиеПродолжительность: 01:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6708DB08005E6DDAB0AB66E2D1B8046D991E7C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795396   (19388) от 04.05.2025
+
+Аист надежды / Stork of Hope (2024) WEBRip [H.264/1080p] [HEB, BEL, RU, GER]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые дни Второй мировой войны. Два маленьких брата, Илья и Саша, теряют в Минске своих родителей и остаются наедине с ужасами войны. Единственной связью с прошлым для мальчиков становится лишь семейная фотография, которую они разрывают пополам, оставляя каждому по кусочку на память о родителях. Очень скоро война разводит братьев в разные стороны: Илью укрывает (   Читать дальше...   )Производство: Израиль, Германия, Россия / Asiofilm, 2-Team ProductionsЖанр: драма, военныйРежиссер: Александр Франскевич-ЛайеАктеры: Йозеф Аш, Мария Муха, Лев Бохан, Андрей Давыдюк, Александр Абрамович, Анна Южакова, Яир Хельман, Сар Алон, Нахаль Шалев, Яэль ЙекельЯзык озвучки: Иврит, белорусский, русский, немецкийСубтитры: ОтсутствуютПродолжительность: 01:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECB65576B7B58AB31FAD96C40006C2CB12FE677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800025   (16127) от 31.05.2025
+
+Игра вдовы / La viuda negra / A Widow's Game (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безупречный образ женщины дает трещину, когда ее мужа находят мертвым. Этот триллер о тайной двойной жизни основан на реальных событиях.Производство: Испания / Bambú ProduccionesЖанр: драма, криминалРежиссер: Карлос СедесАктеры: Ивана Бакеро, Тристан Ульоа, Кармен Мачи, Марта Беленгер, Джоэль Санчез, Педро Касабланк, Пабло Молинеро, Пепе Осио, Инма Санчо, Хуан Мануэль БаррейроПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 02:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED16ADA8A9021791F04D9E06CDD040362B515749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800843   (15530) от 06.06.2025
+
+Хищник: Убийца убийц / Predator: Killer of Killers (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационная антология состоит из трёх новелл, действие которых разворачивается в разные эпохи. Нас ждут истории трёх самых свирепых убийц в истории человечества: женщины-викинга, рассказывающей сыну историю о таинственном монстре, убивающем всё живое; ниндзя в феодальной Японии, который готов убить собственного брата-самурая в борьбе за право наследования; пилота (   Читать дальше...   )Производство: США / 20th Century Studios, Davis Entertainment, Third Floor, TheЖанр: мультфильм, фантастика, боевик, ужасыРежиссер: Дэн Трахтенберг, Joshua WassungАктеры: Майкл Бин, Рик Гонсалес, Луис Одзава, Линдсэй ЛаВаншиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 01:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673E557D8145D8B372D1B0A8E9A40BD1230D4417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803617   (13640) от 24.06.2025
+
+Финикийская схема / The Phoenician Scheme (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13640.jpg" />
+</div>
+
+
+###  Подробнее
+
+1950 год, где-то на Ближнем Востоке. Экстравагантный магнат Жа-Жа Корда переживает череду покушений и затевает грандиозный трансконтинентальный проект «Финикийская схема». В стремлении защитить свою империю, Корда назначает единственной наследницей дочь Лисл, вытащив её из монастыря. Им предстоит столкнуться с многочисленными врагами, государственными интригами и (   Читать дальше...   )Производство: США, Германия / American Empirical Pictures, Focus Features, Indian Paintbrush, Studio BabelsbergЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Уэс АндерсонАктеры: Бенисио Дель Торо, Миа Триплтон, Майкл Сера, Риз Ахмед, Том Хэнкс, Брайан Крэнстон, Матьё Амальрик, Ричард Айоади, Уиллем Дефо, Скарлетт ЙоханссонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177CA71970A73CA494B38C3047E1E103A0AA2D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804679   (12890) от 01.07.2025
 
 Балерина / Ballerina (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12890.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11564.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8481.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8323.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7952.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7384.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6943.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6720.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5879.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5725.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5613.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4861.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4351.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3659.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2632.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1999.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1209.jpg" />
 </div>
 
 

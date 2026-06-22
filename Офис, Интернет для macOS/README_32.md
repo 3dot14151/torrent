@@ -1,3 +1,58 @@
+###  Публикация: 1415245   (379120) от 11.10.2020
+
+Adware Zap Pro 2.8.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Adware Zap восстанавливает первоначальное состояние браузера, удаляя нежелательные расширения, cookie-файлы и кеш, а также сбрасывая настройки браузера. Adware станет для вас оптимальным выбором в следующих случаях:
+Ваш браузер постоянно отображает всплывающую рекламу мошеннических или просто подозрительных продуктов и услуг, даже если вы отказываетесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: VorInn IncПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FF3E432C6E6375C27E93010A9114B994050E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175399   (378764) от 18.10.2017
+
+Productivity Lab for Pages - Templates Bundle 3.2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Business Template Lab - представляет собой комплект из более, чем 600 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей, товарных чеков и счетов, заканчивая различными формами для менеджемента и других публикаций.
+
+Сотни профессиональных шаблонов и почти бесконечных возможностей настройки делают этот комплект, самым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2017Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1F41E58D3B8995FAC8F16B2CCC261BC4CE2FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326863   (378350) от 23.09.2019
 
 MathType 7 v7.4.3 [En]
@@ -6,7 +61,7 @@ MathType 7 v7.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378350.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ CounterPath Bria 4.6.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377810.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Cookie 5 v 5.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374629.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Templates Lab for MS Office 3.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374067.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Entity 1.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372134.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ ChatMate for WhatsApp 4.2.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371904.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ Bundle for iWork 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371543.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ Microsoft Office Standard 2019 for Mac v16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371156.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ Unibox 1.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370378.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ Business Templates 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369644.jpg" />
 </div>
 
 
@@ -278,7 +333,7 @@ Graphic Styles 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369142.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ Adobe Muse CC 2018.0.0.685 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369098.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ Corporate Packs for Pages 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369006.jpg" />
 </div>
 
 
@@ -361,7 +416,7 @@ CalendarPro for Google 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368297.jpg" />
 </div>
 
 
@@ -390,7 +445,7 @@ Visual Studio Code 1.50.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367339.jpg" />
 </div>
 
 
@@ -416,7 +471,7 @@ Outline 3.21.3 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366231.jpg" />
 </div>
 
 
@@ -444,7 +499,7 @@ FileMaker Pro 18 Advanced v18.0.3.317 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365874.jpg" />
 </div>
 
 
@@ -472,7 +527,7 @@ Microsoft Edge for Mac 86.0.622.43 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365115.jpg" />
 </div>
 
 
@@ -498,7 +553,7 @@ GN Infographics for Adobe Photoshop - Templates 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365019.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ TableEdit Pro 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364355.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ Kite Compositor 1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363192.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ Orion PDF Author 2 v2.20.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361668.jpg" />
 </div>
 
 
@@ -608,7 +663,7 @@ Mail Pilot 3 v3.0 (7810)b [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361643.jpg" />
 </div>
 
 
@@ -635,7 +690,7 @@ Enolsoft DjVu to PDF 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360365.jpg" />
 </div>
 
 
@@ -648,59 +703,6 @@ DjVu — технология сжатия изображений с потер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02199FBC5B486E6AB7DF6BC7AE88390426D3A690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951743   (360159) от 30.10.2015
-
-Bubble Translate 1.1 [En/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует множество способов перевести текст с одного языка на другой, но удобный только один.
-Приложение Bubble Translate справится с переводом на любой из более чем 90 языков мира быстро и без лишних действий. Достаточно только выделить текст, нажать сочетание клавиш и получить результат в виде переведенного текста и транслитерации в стильном, автоматически масштабируемом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 октября 2015Разработчик: Alex Artem'evПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCC20E0BA7ABB910457F02BFB57AA116968B3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577230   (359611) от 17.09.2022
-
-Master of Typing - Мастер Печати 3: Практика v.3.3.14 (15.13.4) [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master of Typing создан для тех, кто хочет научиться печатать на ощупь. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 03.09.2022Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0148F401176097A05A1A6A8A2D7F9212F215438
 ```
 
 https://mybot314.ru/tekegram_catalog/

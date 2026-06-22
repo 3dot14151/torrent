@@ -6,7 +6,7 @@ Darko US - Dethmask, Pt. 1-2 (2020-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046460.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Astronoid - Radiant Bloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative & In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046131.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anti-Flag - Lies They Tell Our Children (2023) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046048.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nina Hagen – Love (1987) [FLAC|Lossless|tracks + .cue]<New Wave, Punk, Pop Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044543.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ New Found Glory - Make The Most Of It (2023) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044331.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Smashing Pumpkins - Atum: Act I-II (2022-2023) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043539.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Russkaja - Turbo Polka Party (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gyp
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043249.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Mod Sun - God Save The Teen (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043177.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ If These Trees Could Talk - The Bones Of A Dying World (2016) [FLAC|Lossless|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042806.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Caspian - On Circles (2020) [FLAC|Lossless|tracks + .cue] <Post Rock, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042557.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Catherine Wheel - Adam and Eve (1998) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041501.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Bury Tomorrow - Cannibal (2020) [FLAC|Lossless|image + .cue] <Melodic Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041186.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Zahna - Stronger Than Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040603.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Skillet - Dominion: Day of Destiny (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039873.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dinosaur Jr. - Live In The Middle East (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039168.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Blue Stahli - Obsidian (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038767.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Bloody Capes - Grey Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038379.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Geezer - Groovy (2020) [FLAC|Lossless|image + .cue] <Alternative Metal, Stoner R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038284.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Dope - Blood Money Part Zer0 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038119.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Gorillaz - Cracker Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038085.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Foo Fighters - Medicine at Midnight (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037982.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Gorillaz - Cracker Island (2023) [FLAC|Lossless|tracks+.cue] <Trip-Hop, Leftfiel
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037819.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ The Brian Jonestown Massacre - The Future Is Your Past (2023) [FLAC|Lossless|WEB
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037586.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Dream Wife - So When You Gonna... (2020) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036942.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Goo Goo Dolls - It's Christmas All Over (2020) [FLAC|Lossless|tracks + .cue] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036939.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036742.jpg" />
 </div>
 
 

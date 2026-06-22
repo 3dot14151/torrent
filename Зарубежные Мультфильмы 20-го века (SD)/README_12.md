@@ -1,3 +1,29 @@
+###  Публикация: 1405031   (487121) от 28.08.2020
+
+Каперсы каннибала / Cannibal Capers (1930) DVDRip [H.264] [hand made colored] [EN sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один день из жизни каннибалов...Производство: США, The Walt Disney CompanyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Берт ДжиллеттПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: вшитые отключаемые, английскийПродолжительность: 00:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC8EB184899FB51D354B48E7BA1BC38A153B482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 699657   (487082) от 13.09.2013
 
 Сказки Андерсена / Andersen Stories (Andersen monogatari) (1968) DVDRip
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487082.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484928.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483675.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483563.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483539.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481629.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481485.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479377.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479373.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479262.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477496.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476062.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475271.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475156.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475151.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475148.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475121.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471846.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468605.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468488.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468485.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468477.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468389.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468381.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467059.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33E3FF830086593C5FEBA525EE26BAF9B1C1BE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549063   (464212) от 19.09.2012
-
-Аладдин / Aladdin (1992) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464212.jpg" />
-</div>
-
-
-###  Подробнее
-
-В славном граде Аграба живет Аладдин, веселый воришка с золотым сердцем. Живет и не знает, что вскоре его ждет величайшее приключение в жизни. Ведь только с его помощью черный маг Джафар может овладеть невероятным сокровищем — лампой, в которой заключен исполняющий желания могущественный Джинн. И только хитроумие, смекалка и доброта Аладдина и его друзей — обезьянки (   Читать дальше...   )Жанр: Детский, ПриключенияРежиссер: Рон Клементс, Джон МаскерПеревод: Профессиональный (Продолжительность: 01:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9538E3B0034717A790D5E14BAFCDC2A782661A56
 ```
 
 https://mybot314.ru/tekegram_catalog/

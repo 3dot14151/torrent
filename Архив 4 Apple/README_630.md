@@ -1,3 +1,57 @@
+###  Публикация: 1675219   (160474) от 08.11.2023
+
+Marked 2 - Markdown Preview 2.6.31 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marked 2 — универсальный превью-инструмент для любого Markdown-редактора
+Многие текстовые редакторы для Mac поддерживают облегченный язык разметки Markdown, придуманный Джоном Грубером для упрощения восприятия текста при подготовке к публикации. Преимуществом Markdown является то, что его можно легко экспортировать в HTML-код и вставить в редактор кода. Одним словом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Brett TerpstraПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF06519AC738059D0B21B0326F9A683A1498E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675199   (160470) от 08.11.2023
+
+DxO ViewPoint 4 for Mac v.4.11.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160470.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO ViewPoint — окончательная победа над геометрическими искажениями.
+DxO ViewPoint — программное решение, посвященное исправлению искаженных элементов на краях фотоснимка, а также устранения трапецеидальных искажений и других проблем с перспективой. На основе разработанной DxO Labs технологии геометрической коррекции, DxO ViewPoint позволяет легко и эффективно восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 DxO LabsПоддерживаемая ОС: macOS 11.6 +Язык интерфейса: Английский , Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB5539A6FF338E9793920AE614B269B1E8E8F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675262   (160463) от 08.11.2023
 
 JixiPix Artista Impresso Pro 1.8.22 [En]
@@ -6,7 +60,7 @@ JixiPix Artista Impresso Pro 1.8.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160463.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ DxO FilmPack 7 for Mac v.7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160460.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Sublime Text 4.0 Build 4164 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160458.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ BBEdit 14.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160444.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Eassiy Data Recovery for Mac 5.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160442.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Topaz Video AI for Mac 4.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160440.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ Sketch 99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160423.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ DxO PureRAW 3 for Mac v.3.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160422.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ Path Finder 2163 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160417.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160399.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Paste 4 v.4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160383.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Vellum 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160322.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ Native Instruments Komplete Kontrol 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160320.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ PowerPhotos 2.5.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160318.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ Xliff Editor 2.9.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160315.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160309.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ Disk Xray 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160304.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ DJ Mix Pads 2 - Remix Version 6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160286.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ Capture One 23 Enterprise 16.3.1.23 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160275.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ AlDente Pro fo Mac 1.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160233.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ PDF Reader Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160230.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160229.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ Apeaksoft iOS Unlocker 1.0.50 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160228.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ Aiseesoft AnyCoord for Mac 1.0.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160227.jpg" />
 </div>
 
 
@@ -627,58 +681,6 @@ Aiseesoft AnyCoord for Mac 1.0.16 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A6FEE3E2EF22EF64FAA098CF3AD2303F5640A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599123   (160224) от 22.12.2022
-
-Default Folder X 5.7.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2022Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7019EB37D3E1E91AF8985183D7A4D7836885FF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599093   (160222) от 22.12.2022
-
-Tipard Mac Video Converter Ultimate for Mac 10.2.22 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите скачать видео с YouTube, Vimeo и других веб-сайтов по обмену видео на Mac? Вам нужно копировать и конвертировать DVD / видео в любые популярные форматы видео, такие как MP4, FLV, AVI? Вы хотите преобразовать 4K видео в 4K / 1080p, конвертировать 2D видео в 3D-формат? Или хотите повернуть, или улучшить качество видео, чтобы получить неожиданный визуальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2022Разработчик: © 2022 Tipard StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC08D056E52A0952BD47A096963F0105AA950FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

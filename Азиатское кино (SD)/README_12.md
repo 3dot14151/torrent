@@ -1,3 +1,82 @@
+###  Публикация: 1371382   (891309) от 30.03.2020
+
+Небесный огонь / Skyfire (2019) WEBRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё ребенком Сяомэн увидела гибель мамы в облаке пепла на одном из островов Тихоокеанского вулканического огненного кольца. Девушка выросла и пошла по стопам родителей — стала сейсмологом, правда, с отцом после того трагического случая отношения так и не наладились. С командой учёных Сяомэн приезжает на тот самый злосчастный остров, чтобы установить новую систему (   Читать дальше...   )Производство: Китай / Meridian Entertainment, Base FX, Gosdom EntertainmentЖанр: БоевикРежиссер: Саймон УэстАктеры: Ханна Куинливан, Шон Доу, Сюэци Ван, Вивиан, Цзи Линчэнь, Джейсон Айзекс, Ши Лян, Лоуренс де Стефано, Хоу Тунцзян, Ли ИцинПеревод: Многоголосый закадровый, любительский (Колобок)Субтитры: Английские, китайские (хардсаб)Продолжительность: 01:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF57E49C18FAAD138F66CD8DBB3130F1B4DCFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184832   (889303) от 20.03.2010
+
+14 клинков / 14 Blades / Jin yi wei (2010) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена правления династии Мин Император учредил секретную службу безопасности, которая подчинялась только его указам, Цзиньивэй, или Охрана в парчовых халатах. Члены этого органа наделялись самыми широкими полномочиями и действовали исключительно в интересах главы государства. Неподсудны. Безжалостны. Непобедимы.
+Действие фильма разворачивается на закате династии (   Читать дальше...   )Производство: Гонконг, Китай, Сингапур / Shanghai Film Studios, Mediacorp Raintree Pictures, Visualizer Film ProductionsЖанр: Боевик, Триллер, Драма, ИсторияРежиссер: Дэниэл ЛиАктеры: Донни Ен, Чжао Вэй, Чун Ву, Кейт Цуй, Ци Юу, Ма У, Кар-Ин Лау, Ксинг Донг Ксу, Чен Чжихуи, Саммо Хунг Кам-БоПеревод: Одноголосый закадровый, профессиональный  (BBC Saint-Petersburg)Продолжительность: 01:48:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494334   (889083) от 07.09.2021
+
+Вкус ореха бетель / Bing Lang Xue / The Taste of Betel Nut (2017) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ли Ци работает дрессировщиком в шоу дельфинов, а Жэнь Юй преуспевает в своем мобильном караоке, отчасти потому, что он очень похож на известного китайского актера и певца Лесли Чуна. Жизнь этих двух парней на тропическом побережье острова Хайнань прекрасна и проста, и они в целом довольны тем, что дал им мир. Однажды к ним присоединяется молодая девушка Бай Лин и (   Читать дальше...   )Производство: Китай, Гонконг, V ShinBrothersЖанр: Драма, мелодрамаРежиссер: Ху ЦзяАктеры: Чжао Бинжуй, Юэ Е, Шэнь ШиюйПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE92575050D9E6037ED77C2099B0A8495ECA63E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494458   (888895) от 07.09.2021
 
 Сваха / Svaha: The Sixth Finger / Sabaha (2019) HDRip [DVO]
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888895.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888804.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888745.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888680.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886946.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885774.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885690.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885378.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885274.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884671.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884669.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882635.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882303.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879921.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879122.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878931.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878086.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876576.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876563.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875820.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872860.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872451.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872340.jpg" />
 </div>
 
 
@@ -592,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:824352208EB02D5834731E320C9F723E5ED8A708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374523   (872201) от 10.04.2020
-
-Ип Ман 4 / Yip Man 4 (2019) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка, 1960-е годы. Ип Ман прибывает в Сиэтл, где один из его учеников решил открыть школу вин-чун.Производство: Гонконг, Китай / Bullet Films, Mandarin Motion Pictures, Shanghai Bona Cultural MediaЖанр: Боевик, биография, драмаРежиссер: Уилсон ИпАктеры: Донни Йен, Дэнни Чань, У Юэ, Скотт Эдкинс, Ванесс У, Джим Лю, Кент Чэн, Пьер Нго, Адриан Вилер, Крис КоллинзПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (Forced), английские (full)Продолжительность: 01:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672F57305728673FC16F193896A28A114BACBCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374824   (870598) от 11.04.2020
-
-Пылающий / Beoning / Burning (2018) BDRip [H.264] [PR]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек Ли Джон-су, ничем особо не занятый, встречает соседскую девушку Хэ-ми, с которой они вместе росли. Та собирается съездить в Африку и просит нового знакомого присмотреть за её кошкой, а возвращается из поездки не одна, а с состоятельным молодым человеком Беном. Однажды парочка приходит к Джон-су, и Бен рассказывает о своем тайном хобби. С этого момента (   Читать дальше...   )Производство: Корея Южная / Pine House Film, NHK, Now FilmsЖанр: детектив, триллер, драмаРежиссер: Ли Чхан-донАктеры: Ю А-ин, Чон Джон-со, Стивен Ян, Ким Су-гён, Чхве Сын-хо, Мун Сон-гын, Мин Бок-ки, Пан Хе-ра, Ли Бон-нён, Пак Сын-тхэПеревод: Дублированный (Back Board Cinema | DVD R5 НД Плэй)Субтитры: русские (полные)Продолжительность: 02:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEF63A92E8212A98782726AAD71725A648F5334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374831   (870509) от 11.04.2020
-
-Пылающий / Beoning / Burning (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек Ли Джон-су, ничем особо не занятый, встречает соседскую девушку Хэ-ми, с которой они вместе росли. Та собирается съездить в Африку и просит нового знакомого присмотреть за её кошкой, а возвращается из поездки не одна, а с состоятельным молодым человеком Беном. Однажды парочка приходит к Джон-су, и Бен рассказывает о своем тайном хобби. С этого момента (   Читать дальше...   )Производство: Корея Южная / Pine House Film, NHK, Now FilmsЖанр: детектив, триллер, драмаРежиссер: Ли Чхан-донАктеры: Ю А-ин, Чон Джон-со, Стивен Ян, Ким Су-гён, Чхве Сын-хо, Мун Сон-гын, Мин Бок-ки, Пан Хе-ра, Ли Бон-нён, Пак Сын-тхэПеревод: Дублированный (Back Board Cinema | DVD R5 НД Плэй)Субтитры: русские (полные), английские (полные, SDH)Продолжительность: 02:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6CD3767C7B49D0B9770E746E7B1492F1DFA3A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

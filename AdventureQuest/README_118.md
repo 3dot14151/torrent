@@ -1,3 +1,133 @@
+###  Публикация: 1751125   (2262) от 18.09.2025
+
+The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2262.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Plucky Squire - это очаровательная экшен-адвенчура, действие которой разворачивается в мире сказок. Игроки берут на себя роль Йота, героя книги сказок, которого выгнал из своей книги злобный Хамгрумп. Протагонист и его друзья открывают трехмерный мир и должны перемещаться между 2D и 3D царствами, чтобы спасти своих товарищей и восстановить хороший финал истории. (   Читать дальше...   )Тип издания: RepackРазработчик: All Possible FuturesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C652D975A8D1BE3A8A7B8B9E4E5E67055D9859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780888   (1928) от 20.09.2025
+
+Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.10.0/dlc) Repack Wanterlude
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0976676064DB267EB66E7375715B35DB6A157C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765326   (1926) от 20.09.2025
+
+Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack dixen18
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC2CFC0921D6F29C5478677B2826D808F7C5ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659021   (1763) от 21.09.2025
+
+Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще на заре времен народы Башни перестали понимать друг друга и утратили единство. Согласно преданию, однажды некий Путник найдет в себе мудрость разрушить барьеры и восстановить баланс. Изучайте загадочный мир, давно забывший свое прошлое, и откройте для себя его тайны. Действие игры происходит в красочном поэтичном антураже, навеянном мифом о Вавилонском столпотворении. (   Читать дальше...   )Тип издания: SceneРазработчик: RundiscЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98B4B2CA309367360C1C5993FE4D5A33D1F3ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811839   (1385) от 23.09.2025
+
+Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.09.22.07.56/dlc) Repack Let'sРlay [Digital Deluxe]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Static Dread: The Lighthouse - это игра в жанре хоррор, где игрок выступает в роли смотрителя маяка после глобальной катастрофы. Основная задача - направлять корабли по радиосвязи, но с каждой ночью задания становятся всё опаснее. Игроки будут сталкиваться с жуткими существами и принимать решения, влияющие на судьбу города и проходящих судов.Тип издания: RepackРазработчик: solarsuit.gamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B389637A0612D8A57D53C83B4E257BF2CD83988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819570   (1317) от 23.09.2025
 
 Mateusz Skutnik Collection (2021-2025) [Ru/Multi] (2.3.49/1.0.50/1.1.7a ) License GOG [Slice of Sea, Submachine: Legacy, Daymare Town]
@@ -6,7 +136,7 @@ Mateusz Skutnik Collection (2021-2025) [Ru/Multi] (2.3.49/1.0.50/1.1.7a ) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1317.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1088.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Revenge of the Savage Planet (2025) [Multi] (025-9-9-106947/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_716.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ The Mystery Of Woolley Mountain (2019) [Multi] (14.3/dlc) License GOG [Complete 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_625.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_426.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_425.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_361.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_198.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Mirage Ignis Fatuus (2025) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67.jpg" />
 </div>
 
 

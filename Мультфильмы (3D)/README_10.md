@@ -1,3 +1,107 @@
+###  Публикация: 1300131   (593459) от 05.05.2019
+
+Ральф против интернета / Ralph Breaks the Internet (2018) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара] [hand made 16:9]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593459.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Ральф и Ванилопа фон Кекс выйдут за пределы зала игровых автоматов и отправятся покорять бескрайние просторы Интернета, который может и не выдержать сокрушительного обаяния громилы.Производство: США, Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Приключения, Комедия, Семейный, ФентезиРежиссер: Фил Джонстон, Рич МурПеревод: ДублированныйСубтитры: Русские (полные), английские (полные)Продолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669BF2C47CB68A2892D9FED9ABCDEA6AF3C37DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915515   (592256) от 05.07.2015
+
+Дом / Home (2015) BDRemux 3D [H.264/1080p] [3D/2D] [Re Encoding BD50 -> BD25]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватив Землю, раса пришельцев Був тут же начинает заниматься её благоустройством и реорганизацией. «Не стоит благодарности!» — заявляют они землянам, собранным на время в отдельных резервациях. Находчивая и рисковая девочка по имени Дар, чудом сбежавшая от пришельцев, встречает на своем пути самого раздражающе-оптимистичного Бува по имени О, отвергнутого своими (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонАктеры: Джим Парсонс,  Рианна,  Стив Мартин,  Дженнифер Лопез,  Мэтт Джонс,  Брайан Степанек,  Эйприл Стрюбинг,  Стивен Кеарин,  Лиза Стюарт,  Эйприл УинчеллПеревод: Дублированный (Лицензия CEE)Язык субтитров: Русский (полные 3d), Украинский (полные 3d) Английский (полные 3d)Продолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE0136C87BDC8EC6AE6EB6244F7E959ACF7122A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915380   (592199) от 05.07.2015
+
+Дом / Home (2015) BDRemux 3D [H.264/1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетная раса бувов во главе с капитаном Смеком захватывает Землю, чтобы укрыться от своих смертельных врагов и обрести новый дом. Руководствуясь благими намерениями, бувы начинают переселять расу людей, но одной находчивой девушке по имени Тип удаётся сбежать. В бегах она встречается с изгнанным бувом по имени О, который случайно уведомил врагов о своём местонахождении.Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонПерсонажи: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77613F24069EF3383337988C3F4188FF337DA3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915599   (592193) от 05.07.2015
+
+Дом / Home (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетная раса бувов во главе с капитаном Смеком захватывает Землю, чтобы укрыться от своих смертельных врагов и обрести новый дом. Руководствуясь благими намерениями, бувы начинают переселять расу людей, но одной находчивой девушке по имени Тип удаётся сбежать. В бегах она встречается с изгнанным бувом по имени О, который случайно уведомил врагов о своём местонахождении.Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонПерсонажи: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), украинский (Forced, Full), английский (Full)Продолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED83A83B0E61BE7D5666B062F46530181FB9777C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916196   (591289) от 07.07.2015
 
 Дом / Home (2015) BDRip 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
@@ -6,7 +110,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591289.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590008.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589463.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586114.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586047.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583743.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583346.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582701.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579304.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575964.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575211.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574788.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574109.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569204.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566683.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564428.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560884.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560881.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Winx Club: Волшебное приключение / Winx Club 3D: Magic Adven
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543433.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip 3D [H.264/1080p] [�
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539782.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538681.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535716.jpg" />
 </div>
 
 
@@ -568,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F125D67FDF4A9EDB7D9DDB1BC2F2895F73B64522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051406   (531976) от 11.09.2016
-
-Angry Birds в кино / The Angry Birds Movie (2016) Blu-ray 3D [H.264/1080p] [ISO]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о том, как началось знаменитое противостояние птичек и свинок, персонажей популярной компьютерной игры, а также раскроет некоторые секреты любимых героев.Производство: США / Sony Pictures Animation, Sony Pictures Imageworks (SPI)Жанр: Семейный, Боевик, КомедияРежиссер: Фергал РейлиПерсонажи: Питер Динклэйдж, Джейсон Судейкис, Билл Хейдер, Кигэн-Майкл Ки, Джош Гад, Дэнни МакБрайд, Майя Рудольф, Даниэль Брукс, Джеффри Аренд, Айк БаринхолцПеревод: Дублированный (Лицензия BD NORDiC)Язык субтитров: Русский, Английский, Датский, Эстонский, Финский, Латышский, Литовский, Норвежский, Шведский, УкраинскийПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC30B564FC32A3E7215AA77826663EF3556D883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051412   (531837) от 11.09.2016
-
-Angry Birds в кино / The Angry Birds Movie (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о том, как началось знаменитое противостояние птичек и свинок, персонажей популярной компьютерной игры, а также раскроет некоторые секреты любимых героев.Производство: США / Sony Pictures Animation, Sony Pictures Imageworks (SPI)Жанр: Семейный, Боевик, КомедияРежиссер: Фергал РейлиПерсонажи: Питер Динклэйдж, Джейсон Судейкис, Билл Хейдер, Кигэн-Майкл Ки, Джош Гад, Дэнни МакБрайд, Майя Рудольф, Даниэль Брукс, Джеффри Аренд, Айк БаринхолцПеревод: Дублированный (Лицензия BD NORDiC)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1350F27BD12196F50FFBC800D4BBF7B970534EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533278   (531788) от 10.08.2012
-
-Пираты! Банда неудачников / The Pirates! Band of Misfits (2012) BDRemux [H.264/1080p] [3D/2D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация первой книги из серии романов писателя Гидеона Дефо, рассказывающих о банде незадачливых пиратов. В первой части пираты прибывают в Лондон, где знакомятся с молодым Чарльзом Дарвином и говорящим шимпанзе по имени Мистер Бобо, а также столкнутся с врагами, которые хотят их уничтожить.Производство: США, Великобритания | Aardman Animations, Sony Pictures AnimationЖанр: Мультфильм, Приключения, КомедияРежиссер: Питер Лорд, Джефф НьюиттПеревод: русский и украинский дубляжСубтитры: (PGS 3D): Русские (форсированные), АнглийскиеПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A478AE497A382879B0CD4D36799900A663CD966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928584   (521366) от 17.08.2015
-
-Гнездо дракона / Dragon Nest: Warriors' Dawn (2014) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто бы мог подумать, что всегда неуклюжий, но несомненно талантливый парень станет великим героем, который спасет свою красивейшую планету от пробудившегося зла?
-Много лет, пока легендарный Черный дракон спал, земля Алтера хранила хрупкий мир между расами людей, эльфов и неведомых нашему миру животных. Когда же он пробудился, охваченные ужасом жители были вынуждены (   Читать дальше...   )Производство: Китай / Mili PicturesЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Юэфэн СонгАктеры: Цзяо Сюй, Гуаньлин Джи, Йинг Хуан, Давей Шен, Сянлонг Менг, Йе Сунь, Тиан Джин, Хон Шан, Цзытун Ся, Блайт ОффартПеревод: Дублированный (Лицензия BD-Rus)Субтитры: ОтсутствуютПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF30904F11F389336FC3D1F97E1D62CCBF40F24
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1566577   (474325) от 02.08.2022
+
+Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + .cue] <Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gateway to Paradise
+02. Rim of the World
+03. The Circle Within
+04. Ejiogbe Revealed(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7718C81B3B4FCD52A9F83CE65D9D008A460BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701625   (474277) от 19.09.2013
 
 Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image + .cue] <Electronic>
@@ -6,7 +35,7 @@ Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474277.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468832.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467787.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467670.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467669.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467658.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465535.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464024.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Traces - The Rivers Of Belief (2002) [APE|Lossless|image + .cue] <New Age, Enigm
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461967.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Oliver Scheffner - Oasis of Dreams (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461823.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458008.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Christopher Phillips - Piano Chill: Songs of Billy Joel (2017) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456802.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Jean-Michel Jarre - Planet Jarre (Deluxe Version) (2018) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454415.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Adam Andrews - Soar (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451216.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Christopher Phillips - Piano Chill: Songs of James Taylor (2017) [FLAC|Lossless|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449328.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Leo Rojas - Flying Heart (2012) [FLAC|Lossless|image + .cue] <New age, Instrumen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448585.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Vangelis Katsoulis - If Not Now When (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448144.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Paul Cardall - Peaceful Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444570.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Geoff Hall - Understanding the Signs (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444452.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Jim Brickman - Pure Carpenters (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439860.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ David Wahler - Two Hearts (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437870.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Still Like a Stone Structure: Meditation (2020) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436080.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Dieter Geike (Blonker) - Indigo (2013) [FLAC|Lossless|tracks + .cue] <New Age, A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434663.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Lisa Downing - The Wisdom Of My Shadow (2016) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432379.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Sherry Finzer & Mark Holland - Flute Flight (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431049.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Sherry Finzer & Mark Holland - Flute Flight (2018) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C85F6CCD2EE092CC0F5CF1421628FB92C9F7AD89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250067   (429132) от 26.09.2018
-
-Thierry David - Zen World (2006) 2008, Real Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close to Heaven (5:18)
- 02. Asian Rhapsody (4:27)
- 03. I Miss You So (4:31)
- 04. Walking on Skies (3:16)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E22DE6C09E0EDEA3461EAFC416A978BC786D41
 ```
 
 https://mybot314.ru/tekegram_catalog/

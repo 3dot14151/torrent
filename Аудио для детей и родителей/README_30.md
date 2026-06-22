@@ -1,3 +1,61 @@
+###  Публикация: 960174   (751566) от 12.07.2020
+
+ТВИК - Классическая музыка детям. Юный Бетховен (2004) [MP3|320 кб/с]<Classic>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление
+02. "Лунная соната" III ч.
+03. Трудное детство
+04. "Кариолан". Увертюра(   Читать дальше...   )Жанр: ClassicПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4284CF52538BDEBBCD4C8B110FA9F8CD9FB5AC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284607   (751454) от 12.07.2020
+
+VA - Перлини класичної музики. Співають діти (2006) [MP3|320 kbps]<Детская музыка>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria
+    (Маленька група Великого дитячого хору
+    Українського радіо)					(02:56)
+02. Suscepit Israel puerum із Magnificat`у(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26451B4D31E4B823E2043F9AA341E7F37A6E285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 271702   (751447) от 12.07.2020
 
 Юрий (Гомберг)Соболев - Джаз для детей - Музыка гор (2006) [MP3|320 kbps]<Jazz + звуки природы>
@@ -6,7 +64,7 @@
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751447.jpg" />
 </div>
 
 
@@ -33,7 +91,7 @@ VA  - Колыбельные - Музыка для самых маленьких
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751446.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748678.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ VA - Мульти-Пульти. Лучшие песенки из мультфи�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748112.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - 300 лучших хитов. Детское радио FM (2009) [MP3|128 k
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748106.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ VA - Злодейские песенки (2001) [FLAC|Lossless]<Музыка д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747452.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - C'est La Fete (2000) [MP3|320 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746840.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746628.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746626.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746553.jpg" />
 </div>
 
 
@@ -287,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745588.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745581.jpg" />
 </div>
 
 
@@ -343,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745355.jpg" />
 </div>
 
 
@@ -372,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745195.jpg" />
 </div>
 
 
@@ -398,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745194.jpg" />
 </div>
 
 
@@ -426,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744144.jpg" />
 </div>
 
 
@@ -455,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744141.jpg" />
 </div>
 
 
@@ -484,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744073.jpg" />
 </div>
 
 
@@ -513,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743641.jpg" />
 </div>
 
 
@@ -539,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742706.jpg" />
 </div>
 
 
@@ -568,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742694.jpg" />
 </div>
 
 
@@ -597,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741373.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741365.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740473.jpg" />
 </div>
 
 
@@ -665,64 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D896294B3CAF752E3854CB6FF6656A968C30764F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397609   (739884) от 21.07.2020
-
-Шоу-группа "Киндер Сюрприз" - Танцы на крыше (2004) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дед Мороз
-02. Кораблик детства
-03. Бархатный сезон
-04. Венеция(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BBB52337EF92FF4BF18AFAED2D2305F40F34BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397612   (739880) от 21.07.2020
-
-Шоу-группа "Киндер Сюрприз" - Фантазёры (2011) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Русская мозаика
-02. Фантазёры
-03. Мама
-04. Облако чудес(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2B427EF55CBCDC226C88EDBEC656670BEF9DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

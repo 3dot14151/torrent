@@ -1,3 +1,29 @@
+###  Публикация: 1712092   (53074) от 17.06.2024
+
+Re:Monster | Перерождение: Монстр [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каната Томокуи, обладающий экстрасенсорными способностями, погибает от рук сталкерши. Но жизнь ещё не окончена! Он перерождается в мире меча и магии в виде низкоуровневого гоблина. Гобуро, так теперь зовут героя, будет использовать свои новые физические способности и старые навыки по поглощению способностей всего съеденного (будь то живые существа, яды или камни (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: приключения, фэнтезиРежиссер: Инагаки ТакаюкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Multi-SubПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F79F12101A492935D21A0EEA319DD189C1291E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714893   (52866) от 19.06.2024
 
 Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный мир! [ТВ-3] [2024, TV, 11 эп.] WebRip 720p raw
@@ -6,7 +32,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52866.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Bartender: Kami no Glass | Bartender: Glass of God | Бармен: Бокал б
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52832.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Hananoi-kun to Koi no Yamai | A Condition Called Love | Любовная бол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52742.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница эксц�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52730.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Astro Note | Записи Астро [2024, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52633.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ The Idolmaster Shiny Colors | Идолмастер: Яркие цвета [ТВ-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52610.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Shinigami Bocchan to Kuro Maid (2024) | The Duke of Death and His Maid (2024) | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52425.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Kuroshitsuji: Kishuku Gakkou Hen | Black Butler: Public School Arc | Тёмны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52422.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru / Переродившись арист
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52414.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Kami wa Game ni Uete Iru. / Gods' Games We Play / Богиня жаждет иг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52310.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Unnamed Memory / Безымянное воспоминание [2024, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52184.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | П
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52138.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Date a Live V / Рандеву с Жизнью 5 [2024, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51980.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Kaii to Otome to Kamikakushi / Mysterious Disappearances / Мистика, юн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51978.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Urusei Yatsura (2024) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51963.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Seiyuu Radio no Uraomote/ The Many Sides of Voice Actor Radio / Другая с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51948.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Yoru no Kurage wa Oyogenai / Jellyfish Can't Swim in the Night / Медуза н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51944.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Kenka Dokugaku | Viral Hit | Борьба в прямом эфире [2024, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51868.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Wind Breaker | Ветролом [2024, TV, 13 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51770.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Mahouka Koukou no Rettousei (2024) | Непутевый ученик в школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51769.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ The New Gate | Новые врата [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51551.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Tonari no Youkai-san | Ёкаи по соседству [2024, TV, 13 эп.] Web
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51539.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51511.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Boukyaku Battery | Oblivion Battery | Забвение баттери [2024, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51214.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49907.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66E4512206A6E66037D552A518419AAC46819F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603250   (48950) от 25.07.2024
-
-Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непризнанный школой владыка демонов [ТВ-2] [2023, TV, 24 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды могущественный Король Демонов Тирании Анос Вольдигод пожертвовал собой во имя установления мира между расами, решив переродиться через пару тысяч лет. И его план удался: реальность, в которой он очнулся, действительно стала куда более мирной. Правда, и её жители, не обременённые постоянными войнами, стали куда слабее и забыли многие простейшие заклинания, (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, фэнтезиРежиссер: Онума СинПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF26384D52455AF76919FC51F88B9096ED3DDBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

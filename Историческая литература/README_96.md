@@ -1,3 +1,109 @@
+###  Публикация: 1763064   (35754) от 29.11.2024
+
+В. Мзареулов (сост.) | От СМЕРШа не уйти. Розыск агентуры противника в советском тылу (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35754.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Возьми их всех! Возьми их теплыми! Умри, но сделай! А лучше сделай и не умирай!..» Это не девиз – офицеры Главного управления контрразведки «Смерш» не жаловали пустые девизы. Они делали свою работу – в равной степени далекую и от садизма и от романтики, и от диссидентских легенд о репрессиях и от патриотических легенд о наведении ужаса на врагов народа. Просто на (   Читать дальше...   )Жанр: история России, историческая и военная литератураИздательство: Алгоритм, ООО «Издательство Родина»Формат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60C396D2A88B3C2B1807A8D46B93A89347DA762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763643   (35455) от 02.12.2024
+
+А.Ф. Риттих | Славянский мир (2013) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35455.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Славянский мир. Историко-географическое и этнографическое исследование» публикуется главное произведение выдающегося русского мыслителя, этнографа, картографа Александра Федоровича Риттиха «Славянский мир», ставшее своего рода манифестом славянского движения. В книге собраны обширные историко-этнографические сведения о славянах. «Великое славянское племя, (   Читать дальше...   )Жанр: этнография, историяИздательство: Институт русской цивилизацииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB41E08CFD54185FBC5DD01931E014946325C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763641   (35445) от 02.12.2024
+
+М.Ф. Миркович, А.Ф. Риттих | Этнографическая карта славянских народностей. Второе издание (1875) [PDF, JPG]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этнографическая карта распределения славянских народностей, составленная М.Ф. Мирковичем и дополненная А.Ф. Риттихом. Статистические таблицы распределения славян: по государствам и народностям; по вероисповиданиям, азбукам и литературным языкам (наречиям) с объяснительной запиской А.С. Будиловича.
+Карта в релизе представлена отдельным файлом в масштабе 1: 2 520 000Жанр: этнография, картыИздательство: Отдел Славянского Благотворительного КомитетаФормат: PDF, JPGКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503F8B63BCF1CCA0496A46A193C1522458D7A285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763788   (35356) от 03.12.2024
+
+Б.А. Рыбаков | Язычество древних славян [2 книги] (1981, 2013) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга принадлежит перу выдающегося историка и археолога, знатока культуры древней и средневековой Руси акад. Б.А. Рыбакова, основоположника отечественной школы медиевистов, и является первым томом его фундаментального исследования по истории зарождения и развития язычества древнейшего славянского этноса.
+Книга раскрывает истоки народного мировоззрения русских, украинцев, (   Читать дальше...   )Жанр: история, язычество, религияИздательство: Наука, Академический ПроектФормат: PDF, DJVUКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F6A9A7C3CB0D16A0682EC60CCB1F3437D16E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764027   (35176) от 05.12.2024
 
 Книжная серия | Всемирная история. Издательство «Вече» [81 книга] (2016-2024) [FB2]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35176.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35017.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34812.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34272.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34062.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34016.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33852.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33674.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31197.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30647.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30456.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29917.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25980.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25032.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24799.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24296.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24142.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23646.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23550.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23523.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22142.jpg" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21961.jpg" />
 </div>
 
 
@@ -572,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF9F91F491AE0B0C48CF7743FB471E61B2EBED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794016   (20082) от 27.04.2025
-
-Н.М. Коняев | Генерал Власов. Анатомия предательства (2024) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20082.jpg" />
-</div>
-
-
-###  Подробнее
-
-В истории Великой Отечественной войны сложно найти более неоднозначно противоречивую оцениваемую фигуру, чем генерал-лейтенант А. А. Власов.
-
-Долгое время практически все материалы, связанные с генералом Власовым, были засекречены, а на их месте воздвигался пропагандистский миф о генерале, задумавшем едва ли не с колыбели изменить Родине и ставшем в результате ее (   Читать дальше...   )Жанр: Историография. Биографии военных деятелей. Документальная литератураИздательство: ВечеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8458052B0652561327F5FA777FD76627140B85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794906   (19674) от 01.05.2025
-
-А.Н. Поляков | Киевская Русь как цивилизация|Образование Киевской Руси [2 книги] (2016, 2020) [PDF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19674.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Монография является с одной стороны обоснованием новой теории цивилизации, с другой ‒ применением данной теории и методологии в конкретно-историческом исследовании. Настоящий труд посвящён истории Киевской Руси от её возникновения до монгольского нашествия. На основе выработанного метода исследования цивилизации определяются типологические черты древнерусского (   Читать дальше...   )Жанр: История. МонографияИздательство: Оренбургский государственный университетФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3114255A181C3F31CC290F815D6D048E1CDC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796476   (18342) от 14.05.2025
-
-Б.А. Рыбаков | Ремесло Древней Руси (1948, 2020) [PDF, FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18342.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу «Ремесло Древней Руси». вошло одно из важнейших сочинений выдающегося русского историка, археолога и знатока культуры Древней Руси академика Б.А. Рыбакова. Сочинение представляет собой докторскую диссертацию Рыбакова (защита прошла в 1942 г.) и фактически знаменует «рождение» выдающегося ученого. Оно вышло в свет в 1948 г. и было удостоено Сталинской премии. (   Читать дальше...   )Жанр: монография, история РоссииИздательство: Академия Наук СССР, Академический проектФормат: PDF, FB2Качество: Изначально электронное (ebook), OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736E10F8F8DE20017E7140B7D0179270370C4C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797809   (17871) от 18.05.2025
-
-В.А. Невежин (ред.) | Застольные речи Сталина. Документы и материалы (2003) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17871.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике впервые собраны воедино источники, зафиксировавшие застольные речи И. В. Сталина 1930-х — начала 1950-х гг. Помимо уже публиковавшихся материалов в него вошли выявленные составителем ранее неизвестные архивные документы. В их числе — уникальные по содержанию стенографические записи с собственноручной правкой, внесённой вождем. Всего в сборник включено (   Читать дальше...   )Жанр: история СССР, государственные и партийные деятели, документальная литератураИздательство: АИРО-XX; Дмитрий Буланин. Институт русской литературы РАНФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C3218DDD116E4F3F8A5BF8DA7FD3CF0619E1A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

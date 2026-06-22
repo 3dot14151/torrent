@@ -1,3 +1,108 @@
+###  Публикация: 1775409   (29688) от 26.01.2025
+
+Голубой щенок (1976) DVDRip [H.265/1080p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм создан по мотивам сказки венгерского писателя Д. Урбана.
+Эксцентрическая музыкальная комедия о приключениях добродушного голубого щенка. В фильме проводится мысль о том, что о человеке следует судить по его поступкам, а не по внешнему виду.Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, музыкальный, короткометражный, детскийРежиссер: Ефим ГамбургАктеры: Алиса Фрейндлих, Андрей Миронов, Александр Градский, Михаил БоярскийСубтитры: отсутствуютПродолжительность: 00:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D4D328FF71FB3B5D4575474BBB818CABD20609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777198   (28564) от 05.02.2025
+
+Тигренок на подсолнухе (1981) TVRip [H.265/1080p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таежная сказка про тигренка, который однажды зимой согрел зерно подсолнуха...Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, короткометражный, детский, сказкаРежиссер: Леонид НосыревАктеры: Евгений Леонов, Алексей ПтицынСубтитры: РусскиеПродолжительность: 00:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420EEE0CE7F4C920AA18C49BAE7A64B968EA2C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777381   (28481) от 06.02.2025
+
+Волшебное кольцо (1979) WEBRip [H.265/1080p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28481.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Вани совсем нет денег, а свою последнюю одежду он отдал за спасение несчастных животных. Теперь у него дома живет кошка, собака и змея. Но неожиданно оказалось, что эта змея — дочь короля, поэтому за свое спасение она подарила ему волшебное кольцо. И теперь Ваня может пожелать все, что угодно, и его желание исполнится! Сначала Ваня загадал много еды, потом красивую (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, короткометражный, детский, сказкаРежиссер: Леонид НосыревАктеры: Евгений Леонов, Юрий Волынцев, Анатолий Баранцев, Мария Виноградова, Кира Смирнова, Татьяна Васильева, Клара Румянова, Борис Новиков, Анна КаменковаСубтитры: отсутствуютПродолжительность: 00:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E46CD424FE06F3B121DFA2FBDA99E581C0D469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777400   (28480) от 06.02.2025
+
+Трое из Простоквашино (1978) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил-был мальчик по прозвищу Дядя Федор. Он очень любил животных, но его родители и слышать ничего не хотели о том, чтобы в их квартире завелся кто-то хвостатый и лохматый. И пришлось Дяде Федору со своими новыми приятелями - котом Матроскиным и верным песиком Шариком - отправиться в деревню Простоквашино.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Владимир ПоповАктеры: Мария Виноградова, Олег Табаков, Лев Дуров, Борис Новиков, Герман Качин, Валентина ТалызинаСубтитры: отсутствуютПродолжительность: 00:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E063F2D99FD005169B509BDF88B722507CCDB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777404   (28452) от 06.02.2025
 
 Бобик в гостях у Барбоса (1977) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +111,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28452.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28451.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28450.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28448.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28268.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28227.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28189.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28168.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28162.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28144.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28132.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28129.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28088.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28058.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28049.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27867.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27864.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27862.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27860.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27859.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27858.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27844.jpg" />
 </div>
 
 
@@ -575,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E8401BD26DB521BD7BD061C09243D3BD8E39571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779157   (27815) от 12.02.2025
-
-Рикки-Тикки-Тави (1965) WEBRip [H.265/1080p] [hand made remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рикки-Тикки-Тави — мангуст, главный герой рассказа из «Книги джунглей» Редьярда Киплинга. Рикки-Тикки-Тави защищает семью, которая его спасла, и борется с кобрами Нагом и Нагайной. Это рассказ о великой войне, которую вел в одиночку Рикки-Тикки-Тави в ванной большого дома в поселке Сигаули...Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, сказка, короткометражный, детскийРежиссер: Александра Снежко-БлоцкаяАктеры: Клара Румянова, Георгий Вицин, Михаил Новохижин, Серафима Бирман, Анатолий Папанов, Тамара Дмитриева, Маргарита Суворова, Елена Понсова, Мария Виноградова, Капитолина КузьминаСубтитры: отсутствуютПродолжительность: 00:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B8BD4BE363E0C8247E34D15648A322D500DBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779747   (27534) от 15.02.2025
-
-Маугли (1973) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая сказка о человеческом детеныше, попавшем в волчью стаю. Постепенно на наших глазах малыш Маугли превращается в могучего человека, которого не без оснований боится тот, кто не смог его убить в детстве. Он вместе с другими волчатами познает мир, взрослеет в гармонии с природой, изучает ее мудрость, учится дружить по-настоящему и соблюдать неприкосновенные (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, приключения, семейный, минисериалРежиссер: Роман ДавыдовАктеры: Степан Бубнов, Людмила Касаткина, Юрий Хржановский, Лев Любецкий, Сергей Мартинсон, Александр Назаров, Люсьена Овчинникова, Анатолий Папанов, Юрий Пузырев, Владимир УшаковСубтитры: отсутствуютПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF73A6D7EAA9D27AC9FCC43A9ED4182B24C13E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779929   (27409) от 16.02.2025
-
-Большой секрет для маленькой компании (1979) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кукольный мультфильм по сценарию поэтессы Юнны Мориц, притча о дружбе, преданности, предательстве и раскаянии.Производство: СССР, СоюзмультфильмЖанр: кукольный, детский, короткометражный, музыкальныйРежиссер: Юлиан КалишерАктеры: Татьяна Никитина, Сергей Никитин, Юнна МорицСубтитры: отсутствуютПродолжительность: 00:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752FBE152890DC7B00DAB0BE1823E9919869C58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781299   (26779) от 22.02.2025
-
-Шиворот-навыворот (1981) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка про чертенка, который не умел делать пакости...Производство: СССР, ТО "Экран"Жанр: кукольный, детский, короткометражный, сказкаРежиссер: Натан ЛернерАктеры: Зоя Зелинская, Татьяна Захава, Владимир Басов, Светлана Харлап, Светлана ТравкинаСубтитры: отсутствуютПродолжительность: 00:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E42DD9A6C7AD9F3EAFB6DA926A372C0E1C101D
 ```
 
 https://mybot314.ru/tekegram_catalog/

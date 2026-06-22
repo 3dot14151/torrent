@@ -1,3 +1,111 @@
+###  Публикация: 1082148   (280756) от 11.12.2016
+
+Михаил Ильинский | Жизнь и смерть Бенито Муссолини (2000) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280756.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Бенито Муссолини - одна из самых ярких и загадочных фигур XX века, вокруг которой сложилось немало тайн. Какую роль сыграл лидер итальянского фашизма во Второй мировой войне? Каково его личное отношение к Гитлеру, Сталину, Черчиллю, Рузвельту? Кто и почему спас папу римского от берлинского плена? Как и кем был убит сам Муссолини? Какова была личная жизнь (   Читать дальше...   )Жанр: Биографии. МемуарыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:444265638328DFAC7230300502738C89C3B2371D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187281   (280608) от 28.11.2017
+
+Елена Грузнова | На распутье Средневековья. Языческие традиции в русском простонародном быту (конец XV-XVI вв.) (2013) [MOBI, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена малоизученному периоду в истории язычества на территории Восточной Европы. Рассматривается место языческих традиций в жизни низших слоев русского общества в конце XV-XVI вв., тенденции их развития в условиях становления идеологии православной монархии и роль в дальнейшем формировании народного мировоззрения и быта. Особое внимание уделено исследованию (   Читать дальше...   )Жанр: История, археология, этнография, история Древней РусиФормат: MOBI, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B9112234D3692FB460D46D3D3588D1E29899AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264581   (279532) от 24.11.2018
+
+А. К. Коленковский | Маневренный период первой мировой империалистической войны 1914 г. (1940) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий труд, излагая события первой мировой империалистической войны 1914—1918 гг., обнимает маневренный ее период, т. е. первый год войны.
+
+Перед автором стояла задача предложить читателю оперативный очерк. Однако при изложении некоторых операций явилась необходимость дать также и краткое описание тактических моментов, иллюстрирующих правильное применение или (   Читать дальше...   )Жанр: политология, экономика, дипломатия, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB000E70423F1AF567D0149A91D2415101C5790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264579   (279515) от 24.11.2018
+
+В. И. Ленин | Хронологические таблицы к истории империализма (1940) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вошедшие в настоящий сборник хронологические таблицы и сводки взяты из ленинских „Тетрадей по империализму" и являются частью подготовительной работы В. И. Ленина к книге „Империализм, как высшая стадия капитализма".
+
+Изучая гигантский фактический материал, характеризующий империализм, его историю, борьбу империалистических хищников за раздел и передел (   Читать дальше...   )Жанр: История, политология, экономика, хронологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF193599CA90A9121664C4A46BC86CBC73AD1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082673   (277249) от 13.12.2016
 
 Саймон Мюррей | Легионер. Пять лет во Французском Иностранном легионе (2012) [PDF]
@@ -6,7 +114,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277249.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274698.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274691.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272561.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272473.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272406.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272370.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272287.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272214.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272208.jpg" />
 </div>
 
 
@@ -277,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270412.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269431.jpg" />
 </div>
 
 
@@ -329,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269200.jpg" />
 </div>
 
 
@@ -355,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269141.jpg" />
 </div>
 
 
@@ -382,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268418.jpg" />
 </div>
 
 
@@ -408,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266842.jpg" />
 </div>
 
 
@@ -434,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265127.jpg" />
 </div>
 
 
@@ -460,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264440.jpg" />
 </div>
 
 
@@ -486,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264410.jpg" />
 </div>
 
 
@@ -512,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264367.jpg" />
 </div>
 
 
@@ -538,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264227.jpg" />
 </div>
 
 
@@ -564,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263896.jpg" />
 </div>
 
 
@@ -575,112 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B3913413940000CD0902CF2292E05084B1C7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191699   (263887) от 15.12.2017
-
-Ф.Олещук (ред.) | Как работают и живут в безбожном колхозе (1933) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263887.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре рассказано об опыте работы колхоза имени Маторина в Ленинградской области, сочетающем коллективный сельскохозяйственный труд и антирелигиозную работу.Жанр: История, политология, экономика, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD84AE9BC51A9605523B2915446D8AA0185EFE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340571   (263583) от 24.11.2019
-
-Г. Д. Тягай | Крестьянское восстание в Корее 1893-1895 г.г. (1953) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героический корейский народ обладает богатыми революционными традициями и славным историческим прошлым. На протяжении многовековой истории Кореи основное место принадлежит мужественной борьбе корейского народа против феодального гнета и иноземных поработителей.
-
-Корейский народ неоднократно с оружием в руках героически отстаивал свою свободу и национальную независимость. (   Читать дальше...   )Жанр: История, политология, экономика, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C273AC5F8D1E84CE19854A92609D12C25632F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192183   (263483) от 16.12.2017
-
-Б. П. Кандидов | Церковь и гражданская война на Юге [материалы к истории религиозной контрреволюции в годы гражданской войны] (1931) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263483.jpg" />
-</div>
-
-
-###  Подробнее
-
-В статье „О значении воинствующего атеизма, напечатанной в журнале „Под знаменем марксизма" в 1922 г., т. Ленин говорил о необходимости издания литературы, которая будет содержать „много конкретных фактов и сопоставлений, показывающих связь классовых интересов и классовых организаций современной буржуазии с организацией религиозных учреждений и религиозной пропаганды". (   Читать дальше...   )Жанр: История, политология, экономика, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B270F5DD36370A51137A9065DC1F85BC10222AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192524   (263051) от 17.12.2017
-
-М. Н. Покровский | Русская история в самом сжатом очерке. Часть I и II. От древнейших времен до конца ХIХ-го столетия [4-е изд.] (1933) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покровский Михаил Николаевич (1868 - 1932), историк, академик АН СССР (1929). После революции Покровский стал непререкаемым авторитетом в области исторической науки. В основу своего учения положил теорию об общественно-экономических формациях, рассматривая историю России как их последовательную смену. В 1920 выпустил популярную "Русскую историю в самом сжатом (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE96CE424A7C2B134DD2E06464BEF730D0881DC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

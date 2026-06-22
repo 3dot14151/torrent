@@ -1,3 +1,114 @@
+###  Публикация: 1035193   (629921) от 15.07.2016
+
+Сергей Матвеев | Английский язык. Тренажёр по чтению (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629921.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии в наглядной форме изложены основные правила чтения английских букв и буквосочетаний, сопровождаемые заданиями и яркими иллюстрациями. В процессе обучения школьники не только научатся правильно читать английские слова, но и освоят знаки современной международной фонетической транскрипции и узнают новые слова.
+Вместе с этой книгой ребенок почувствует интерес (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C02CD1A67C347D5F014C8FA76994B8CF576B66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909201   (629643) от 16.06.2015
+
+Геннадий Иванов | Денис-изобретатель. Книга для развития изобретательских способностей детей младших и средних классов (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами книга, предназначенная для пробуждения и развития изобретательских способностей (прежде всего – образного и системного мышления) у детей младшего и среднего школьного возраста.
+Хотите узнать, как: помочь вороне, у которой белки разрушили гнездо; выгнать мышей из дома (так, чтобы ни одна мышь не пострадала); поймать улетевший воздушный шарик; заставить (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0155363D3236E4330EB1C461F1E3346EA858472E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350320   (629273) от 13.06.2011
+
+Земцова О.Н. | Умные книжки. Для детей 3-4 лет. Розовая серия [2007-2008] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_629273.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этих книгах вы найдёте самые разнообразные задания, предназначенные для занятий с детьми младшего дошкольного возраста, по математике, развитию речи, познавательных способностей (памяти, внимания, мышления), а также на развитие координации движения руки и тонкой моторики. Малыши смогут узнать много нового и интересного об окружающем мире, развить свои творческие способности.
+
+С книжками легко и удобно работать, надо только объяснить малышам, как они должны выполнять задания. И тогда для маленького ученика занятия превратятся в веселую и увлекательную игру.
+
+На основе методических разработок автора создана универсальная система развития и подготовки детей к школе, которая прошла проверку временем и получила признание и одобрение педагогов и родителей.Жанр: Развивающая литература для дошкольниковФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA082CC9312DB2E9F95EDC2D76BA265C26AE79F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543514   (629252) от 11.04.2022
+
+Валентина Дмитриева | 1001 упражнение для развития логики, внимания, памяти (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629252.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге "1001 упражнение для развития логики, внимания и памяти" ребёнок найдёт головоломки, задачки на логику и внимание, лабиринты, кроссворды, загадки, игры с числами и словами. Занятия позволят малышу развить интеллект, память и внимание, потренировать зрительное восприятие и мелкую моторику.
+Для дошкольного возраста.Жанр: Головоломки, Игры, Задания, Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE44AD09A6F94167886016486157D59D47C0A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035353   (628432) от 16.07.2016
 
 Инна Шпаковская, Владимир Шпаковский (сост.) | Англо-русский словарь для каждого (2014) [PDF]
@@ -6,7 +117,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628432.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628416.jpg" />
 </div>
 
 
@@ -60,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_627100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_627100.jpg" />
 </div>
 
 
@@ -90,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626652.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626515.jpg" />
 </div>
 
 
@@ -142,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_625624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_625624.jpg" />
 </div>
 
 
@@ -169,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625399.jpg" />
 </div>
 
 
@@ -196,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624579.jpg" />
 </div>
 
 
@@ -224,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623702.jpg" />
 </div>
 
 
@@ -250,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_623483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_623483.jpg" />
 </div>
 
 
@@ -276,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622753.jpg" />
 </div>
 
 
@@ -302,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622630.jpg" />
 </div>
 
 
@@ -329,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622016.jpg" />
 </div>
 
 
@@ -355,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622009.jpg" />
 </div>
 
 
@@ -381,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621357.jpg" />
 </div>
 
 
@@ -407,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620669.jpg" />
 </div>
 
 
@@ -435,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620353.jpg" />
 </div>
 
 
@@ -462,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619708.jpg" />
 </div>
 
 
@@ -489,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619312.jpg" />
 </div>
 
 
@@ -516,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618995.jpg" />
 </div>
 
 
@@ -543,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618908.jpg" />
 </div>
 
 
@@ -569,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618426.jpg" />
 </div>
 
 
@@ -580,112 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DD99CE0587C7CBEF9D9DB4C0487EAB3345CB8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911473   (618423) от 22.06.2015
-
-Белла Дижур | Волшебные руки труда и науки (1974) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618423.jpg" />
-</div>
-
-
-###  Подробнее
-
-то книга рассказов, сказок, разных историй и предположений о том, как, когда, где появились на земле первые дома и первые флейты, первые ножи и первые машины-автоматы, первые картины и первые монеты, первые книги и вообще самые, самые первые вещи.Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A47DEFEF882DA796F2F60324DCA3BC4280FCDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036833   (617276) от 22.07.2016
-
-Я. И. Шур | Когда? Рассказы о календаре (1968) [DJV]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, сколько дней в году? Каждый скажет: 365 или 366 - и ошибется. Столько листков в отрывном календаре, а в году больше 365 и меньше 366 суток. Календарь указывает не только число месяца и день недели. Взгляните на отрывной листок, и вы узнаете, когда сегодня взошло и зайдет Солнце, какая нынче фаза Луны, годовщина какого важного события. А на обороте листка (   Читать дальше...   )Жанр: История, справочникФормат: DJV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2CBB3FA544FBA878432A3FFB891C99B43A9DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146039   (615804) от 28.06.2017
-
-Эйвинд Даль | Электроника для детей. Собираем простые схемы, экспериментируем с электричеством (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему лампочки в доме включаются, когда вы щелкаете по выключателю? Как работают машинки на радиоуправлении? И что заставляет лампочки на телевизоре и микроволновке мигать? Технологии вокруг тебя могут показаться магией, но большинство из них не работает без электричества.
-
-"Электроника для детей" делает электричество понятнее с помощью набора прекрасных (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6811664BACD42C0AC3CDE8CD0A7FF21C9C785D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 352982   (615690) от 20.06.2011
-
-Н.В.Володина | Считаю и решаю. Для детей 5-6 лет [2009] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_615690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная задача данной книги — подготовить ребенка, незнакомого с буквами, к обучению чтению. Система разнообразных заданий направлена на развитие связной речи, мышления, внимания, памяти, творческого воображения. Регулярно занимаясь по пособию, малыш научится читать по слогам двух-трехсложные слова, определять звуки в словах, составлять рассказ по картинке, писать печатные буквы и несложные слова. Предназначено воспитателям дошкольных образовательных учреждений, гувернерам и родителям для занятий с детьми как в детском саду, так и в домашних условиях.Жанр: Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F94CD7068B77D14380E3304081A8DAAECDAA16
 ```
 
 https://mybot314.ru/tekegram_catalog/

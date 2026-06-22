@@ -1,3 +1,30 @@
+###  Публикация: 987605   (924421) от 18.02.2016
+
+Сесилия Ахерн | Волшебный дневник (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестнадцатилетняя Тамара Гудвин, единственная дочь обеспеченных родителей, не знает ни в чем отказа и ни на минуту не задумывается о будущем.
+Но трагическое событие, самоубийство отца, утратившего все семейное состояние, включая роскошный дом в Дублине, и потому решившегося на столь крайнюю меру, вынуждает девушку вместе с заболевшей от горя матерью покинуть город (   Читать дальше...   )Жанр: Фантастическо-любовный романПродолжительность: 13:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BEE7DA699E0D0AEEB1AC50F3110C4A74186015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987963   (924405) от 18.02.2016
 
 Дина Рубина | На Верхней Масловке (2016) [MP3]
@@ -6,7 +33,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924405.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922884.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922880.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922117.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921001.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919998.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919351.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919100.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919089.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918990.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918082.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917788.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917654.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917515.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917463.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917366.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916967.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916308.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916040.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915830.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915796.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915790.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915697.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915659.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915646.jpg" />
 </div>
 
 
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFF094A8EA58DE2AAC029AB9210F9821458FFFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989737   (915528) от 23.02.2016
-
-Викентий Вересаев | Записки врача (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1901 году, увидела свет книга молодого врача-писателя Викентия Викентьевича Вересаева «Записки врача». Она имела сенсационный успех. Переживания начинающего свою деятельность врача, трудности, доводившие его до отчаяния, несоответствие между тем, к чему его готовили, и тем, что он увидел в жизни, – обо всем этом рассказано в «Записках врача» ярко и откровенно.Жанр: Русская классическая проза ПублицистикаПродолжительность: 11:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC699C18579A9979CC43D77A271CD9E03B8F74F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1431827   (165948) от 15.12.2020
+
+Vectorworks 2021 v26.0.1 SP1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональная система для автоматизации работ в области архитектурно-строительного проектирования, ориентированная на пользователей работающих в сфере ландшафтного дизайна, а так же занимающихся проектированием интерьера, зданий, помещений и других объектов.
+Компания Nemetschek AG входит в состав Промышленной Группы Nemetschek и в настоящее время занимает лидирующие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Nemetschek Vectorworks, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA66F621D30D2103CBBE9F956058AFE5C57A418A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431790   (165943) от 15.12.2020
+
+Compressor 4.5.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Compressor – простой и мощный инструмент для сжатия видео. Compressor может сжимать ваше видео с поддержкой большинства популярных форматов, включая HEVC, MPEG-4, H.264, MXF и др. Кроме этого, в приложении имеется замечательная возможность прямого экспорта последовательности сегментов видео с применением различных эффектов и фильтров на прямую из Final Cut, для последующей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2020Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.15.6 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9677A8A5C0E0B3D128B06306B51C9E701303F10B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345750   (165916) от 16.12.2019
 
 Xliff Editor 2.7 [En]
@@ -6,7 +59,7 @@ Xliff Editor 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165916.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ CheckBook Pro 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165913.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Scrutiny 9 v9.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165909.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ PDF to Numbers Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165899.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Smultron 12.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165890.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Affinity Publisher Beta 1.8.0.523 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165881.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ KCNcrew Pack 12-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165871.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ PDF to Pages Converter 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165865.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ Tap Forms Organizer 5 5.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165860.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ CleanMyMac X 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165839.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ FontLab 7 7.0.1 (build 7276) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165812.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ Softorino YouTube Converter 2 2.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165809.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ iWork Converter 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165806.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ RazorSQL 9.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165801.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ One Switch 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165797.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ EditRocket 4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165785.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ Macsome iTunes Converter 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165765.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 29) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165725.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ Tenorshare UltData - Mac 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165706.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ PDF Expert 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165703.jpg" />
 </div>
 
 
@@ -545,7 +598,7 @@ Final Cut Pro 10.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165627.jpg" />
 </div>
 
 
@@ -572,7 +625,7 @@ Tenorshare iCareFone 5.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165617.jpg" />
 </div>
 
 
@@ -598,7 +651,7 @@ Boinx FotoMagico Pro 6 v.6.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165608.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ Dropshare 5 v.5.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165605.jpg" />
 </div>
 
 
@@ -637,59 +690,6 @@ Dropshare - приложение строки меню для Drag & Drop заг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CB9147150D5D709C836230FEE52C401F7E31401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673339   (165565) от 01.11.2023
-
-AnyGo 6.6.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165565.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением AnyGo легко имитируйте местоположение координат GPS на вашем iPhone / iPadТип издания: macOS SoftwareРелиз состоялся: 20.09.2023Разработчик: © 2023 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5739BFD17F42CE8EBF4C08D94543C8B59340B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345741   (165514) от 16.12.2019
-
-VMware Fusion Pro 11 v11.5.1 (build 15018442) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165514.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Fusion: удобная и мощная виртуальная машина для Mac
-С помощью решения VMware Fusion пользователи Mac могут запускать ОС Windows и сотни других операционных систем одновременно с приложениями Mac без перезагрузки. Решение Fusion сочетает в себе удобство работы для домашних пользователей и широкие возможности для ИТ-специалистов, разработчиков и организаций. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2019Разработчик: VMware, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83764484B64360857D38DC55000A227B2A87464F
 ```
 
 https://mybot314.ru/tekegram_catalog/

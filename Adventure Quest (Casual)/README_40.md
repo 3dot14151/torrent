@@ -1,3 +1,107 @@
+###  Публикация: 943188   (449128) от 03.10.2015
+
+Stray Cat Crossing (2015) [En] (1.0) Repack ARMENIAC
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stray Cat Crossing - хоррор адвенчура в стиле Ib и Дом Ведьмы, где вы станете участником мрачной истории о молодой рыжей девушке, которая отправится на поиски своего пропавшего кота! Дополнительное влияние оказали такие фильмы как Алиса в Стране Чудес, Унесённые призраками, Лабиринт фавна и Кошмар перед Рождеством.Тип издания: RepackРазработчик: Jurlo, JetPackGoneЖанр: Аdventure, Puzzle, HorrorЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040A487AF3F361DE7CCF4F8D6AA6D093FE0B673B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569760   (449110) от 14.08.2022
+
+Mystical Riddles 2: Behind Doll Eyes / Мистические загадки 2: Глазами куклы (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической детективной серии игр Mystical Riddles. Как дeтектив по паранормальным явлениям, вы не чужды прикосновению к сверхъестественному в своих делах. Однако, ответив на звонок обеспокоенной матери о подозрительном поведении невесты ее сына, вы быстро обнаружите, что все не совсем так, как кажется, а правда, которую вы узнаете, заставит вашу кровь (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852D921590EE5049F9ED3CAC9A41B38C1B959491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552493   (447928) от 26.09.2012
+
+Which [En] (RePack) 2010 | braindead1986
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атмосферный инди-квест с видом от первого лица. Протагонист должен найти способ выйти из особняка. Вас преследует странная женщина без головы и сердца, готовая отдать ключ от выхода в обмен на один из её недостающих органов...Тип издания: RePackЖанр: Indie, quest, horrorЯзык озвучки: n/aЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C831229B96F735244F0964EF2C1F2076D0882EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060838   (447748) от 10.10.2016
+
+Five Nights at Freddy's: Sister Location (2016) [En] (1.02) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Nights at Freddy’s: Sister Location — это новая часть из популярной серии игр от разработчика Скотта Коутона. В этот раз мы попадем в пиццерию Circus Baby's Pizza World в роли ночного техника, которому предстоит пережить все ужасы этого места, которые ему обеспечат милые, на первый взгляд, аниматроники. Из аниматроников нас ждет модифицированный Freddy Fazbear, (   Читать дальше...   )Тип издания: RepackРазработчик: Scott CawthonЖанр: Adventure (Survival horror), IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5E57E59A45355D1DBF8BCB2A5FEBF18AE605BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409328   (447130) от 16.09.2020
 
 Labyrinths of the World 12: Hearts of the Planet / Лабиринты мира 12: Сердца планеты (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Labyrinths of the World 12: Hearts of the Planet / Лабиринты мира 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447130.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Grim Tales 17: Guest From The Future (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446172.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Enchanted Kingdom 5: Descent of the Elders / Зачарованное корол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446167.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dark Realm 3: Lord of the Winds / Темный мир 3: Властелин Ве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445859.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Great Unknown: Houdini's Castle. Collector's Edition / Тайны замка
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445604.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Immortal Love 5: Kiss of the Night / Бессмертная любовь 5: По
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444309.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Memoirs of Murder 3: Behind the Scenes (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444182.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Spirit of Revenge 2: Elizabeth's Secret / Месть духа 2: Королев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443949.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443608.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Mystery Case Files 21: The Harbinger / За семью печатями 21: Пр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442687.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dark Realm 2: Princess of Ice /Темный мир 2: Владычица льд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439202.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Paris 1925. Episode 1: The Shadow of the Freak [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438748.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Sable Maze: Sullivan River Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438568.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Spirit Walkers: Curse of the Cypress Witch / Искатели призраков
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438171.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ McPixel (L) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438143.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ The Dungeon of Naheulbeuk: The Amulet of Chaos (2020) [Multi] (1.0.373.34341) Re
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437569.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ Uncharted Tides: Port Royal / Неизведанные воды: Королев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437345.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ Grim Tales 15: The Hunger / Страшные сказки 15: Голод (2018) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437155.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Whispered Secrets 7: Forgotten sins / Нашептанные секреты 7: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436580.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Scars of Destiny (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435995.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ Mystery Crusaders - Resurgence of the Templars (2015) [En] Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435857.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ Twilight Phenomena 3: The Incredible Show / Сумрачное явление: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435670.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ Twilight Phenomena 3: The Incredible Show / Сумрачное явление: �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB238D1367B0BA16B9771A5A39C78CF5365A4847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945095   (435071) от 09.10.2015
-
-Haunted Hotel 9: Phoenix / Проклятый отель 9: Феникс (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр в жанре "я ищу, квест" от Elephant Games и Big Fish Games. По всему Северному Орегону пылают пожары. Очевидцы утверждают, что их вызвал легендарный Феникс. Неужели это правда? Или кто-то маскируется под мифическое существо? Отправляйтесь в путь, в горы. Осмотрите руины сгоревшего университета в поисках улик.Тип издания: Неофициальное изданиеРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1B2D158930614C01AA127479E24AF78DAE888D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571331   (433727) от 21.08.2022
-
-Connected Hearts 2: Fortune Play / Связанные Любовью 2: Игры Фортуны (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр Connected Hearts. Никто не любит проигрывать - приятнее быть победителем. Дрейеру Кроули приходится нелегко в детстве: он теряет родителей и попадает в детский дом. Когда Дрейер становится старше, он решает положить конец бесконечной полосе невезения и восстановить репутацию своей семьи. Но есть одна проблема: Дрейеру не везет. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571DB212901A5C71CC85E619C935ACD082E48D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323765   (433693) от 05.09.2019
-
-Dark Romance 11: The Ethereal Gardens (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение романтической серии игр Dark Romance. Ваш отец был убит злой королевой фей. Вы хотите не только отомстить, но и более того - вам нужны крылья королевы для оживления отца. Однако путешествие будет не простым, потому что магические существа попытаются вас остановить. Сможете ли вы защитить свое королевство от врагов? Или сами станете жертвой темной магии, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0298F3C012A37DDF8A62AA0A54CBA5A21C8326F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410624   (433614) от 22.09.2020
-
-Mystery Trackers 18: Fatal Lesson / Охотники за тайнами 18: Роковой урок (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваши учебные годы остались в далеком прошлом, и теперь уже вы сами обучаете кадетов в тренировочном лагере Охотников за тайнами. Вы предвкушаете встречу со старым другом в новом сезоне... однако все пошло не так, как хотелось бы. Таинственный монстр похитил одного из кадетов. Подобное уже произошло 15 лет назад. Что это? Совпадение или чья-то зловещая игра?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82BF8A2BBECA3EAE88605878E62EAAD4AA1352D
 ```
 
 https://mybot314.ru/tekegram_catalog/

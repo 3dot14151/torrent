@@ -1,3 +1,107 @@
+###  Публикация: 1160073   (478122) от 23.08.2017
+
+Г.Ф. Александров и др. (сост.) | Иосиф Виссарионович Сталин. Краткая биография (1947) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ио́сиф Виссарио́нович Ста́лин (настоящая фамилия — Джугашви́ли, груз. იოსებ ჯუღაშვილი) — российский революционер грузинского происхождения, советский политический, государственный, военный и партийный деятель, Генералиссимус Советского Союза (1945). С конца 1920-х (   Читать дальше...   )Жанр: историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E7DC8AC53B7038C30112C39F3F4C9386CD9EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939009   (478029) от 20.09.2015
+
+А. П. Яхонтов | Переселение и колонизация (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий конспект лекций есть только попытка проследить эволюцию колонизационно-переселенческого дела в России и дать необходимые сведения практическим работникам по переселению и землеустройству.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D765547BA4AACF4B9FED86E2F4D3D4D89996527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159980   (477992) от 23.08.2017
+
+Микола Аркас | История Украины-Руси (1908) [DJVU] [UА]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477992.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Начиная Историю Украины, я не задумывался написать научное творение ,- я хотел понятно рассказать землякам моим, то что происходило у нас в стране, от прошлых времён до настоящих. В истории моей уважаемый читатель не найдёт ничего нового, все взято из глубин архивов, она сложена на основе реальных событий, собрана в одну историческую целость, поделена на периоды, (   Читать дальше...   )Жанр: История, РаритетФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B215D42B41B2E901D1D1214E82268B2D5C4ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938794   (477779) от 20.09.2015
+
+Андрей Шарый, Ярослав Шимов | Австро-Венгрия: судьба империи (2010) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477779.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Австро-Венгрия: судьба империи” – увлекательный рассказ о чрезвычайно пестрой и удивительно интересной стране, своего рода европейской Атлантиде, известной российскому читателю гораздо меньше, чем она того заслуживает. Державы Габсбургов давно нет на картах, Первая мировая война уничтожила эту, пожалуй, самую уютную в истории империю, но накопленный ее народами (   Читать дальше...   )Жанр: История, Культурология, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7FC697E2DE985CC9A19242431CD5A876BB3EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406344   (477346) от 02.09.2020
 
 Александр Чудинов | «Принц» и «цареубийца». История Павла Строганова и Жильбера Ромма (2020) [FB2]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477346.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476268.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476172.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476169.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473474.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473047.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472743.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472016.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471515.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470577.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469906.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469807.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469656.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469159.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469151.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468971.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468957.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467888.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467885.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467654.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467581.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467569.jpg" />
 </div>
 
 
@@ -574,113 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BCB5EB4C3889A05D851093064BA1D3AD06FAB18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161454   (467563) от 28.08.2017
-
-И.В. Сталин | Речь на совещании передовых комбайнеров и комбайнерок СССР с членами ЦК ВКП(б) и правительства. Речь на совещании передовых колхозников и колхозниц Таджикистана и Туркменистана с руко ...
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра содержит две стенограммы речей, произнесённых Иосифом Виссарионовичем Сталиным:
-1. Речь на совещании передовых комбайнеров и комбайнерок СССР с членами ЦК ВКП(б) и правительства 1 декабря 1935г.
-2. Речь на совещании передовых колхозников и колхозниц Таджикистана и Туркменистана с руководителями партии и правительства 4 декабря 1935.Жанр: историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4BB4FB659537FED7F7657E0101316B352A918A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161422   (467475) от 28.08.2017
-
-И.В. Сталин | Речь на XIX съезде партии (1953) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стенограмма речи, произнесённой Иосифом Виссарионовичем Сталиным на XIX съезде Коммунистической партии Советского Союза 14 октября 1952 года.Жанр: историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1185F8C991FFEA34DC46A14744335387A33E4C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548492   (466749) от 18.09.2012
-
-Книжная серия "Оклеветанная Русь" (15 томов) [2005 – 2007] [FB2, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оклеветанная Русь - серия книг по истории России издательства Эксмо, в которых делаются попытки разобраться, в том, кто виноват в бедах страны под названием Россия и кто же клевещет на неё. Прочитав эту серию, можно получить ответ на эти вопросы - это мы, россияне. Лишь от нас самих зависит судьба нашей страны, ее счастье и наше благополучие!Формат: FB2 (8 книг), DJVU (7 книг)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9378A42B106F31C1AED5F84FAF5567C494BEF722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161494   (465704) от 29.08.2017
-
-А.И. Хмельков (сост.) | Сталин в Царицыне (1940) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465704.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сталин в Царицыне" - сборник документов о военной работе товарища Сталина Иосифа Виссарионовича на Царицынском фронте.
-Издание второе, дополненное новыми документами.Жанр: историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3C3C4E28AFF814D2A028DCE3205FA02119EB6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1821952   (91160) от 04.10.2025
+
+Алексей Николаевич Толстой | Простая душа (Радиоспектакль) (1994) [MP3, Алексей Емельянов, Владлен Есенский и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
+Впервые рассказ А.Н. Толстого был напечатан под заглавием «Катя» в сборнике «Наваждение. Однако через (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E93DB10F8AFD7E2F98B64218E18007CFC9468C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476198   (86421) от 04.04.2012
+
+Н.Г. Чернышевский | Что делать? (2006) [MP3, Наталия Литвинова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свой знаменитый роман Николай Гаврилович Чернышевский написал в 1862—1863 годах в тюрьме. С тех пор он перечитывается многими поколениями людей. В этом романе затрагиваются важные для каждого человека вопросы: о счастье в семье и обществе, о равенстве мужчины и женщины, о праве решать свою судьбу, работать и жить в удовольствие.
+«Проницательный читатель, — я объясняюсь (   Читать дальше...   )Жанр: Роман
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1B0577856B5A4E5D70E243345F806D62B2DF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476546   (85662) от 01.04.2012
 
 Фёдор Достоевский | Дядюшкин сон [Радиоспектакль] [2007] [MP3]
@@ -6,7 +61,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85662.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85012.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80167.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79282.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79079.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75537.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_74877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74877.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71964.jpg" />
 </div>
 
 
@@ -226,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71963.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71947.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71946.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71939.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71925.jpg" />
 </div>
 
 
@@ -361,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71910.jpg" />
 </div>
 
 
@@ -389,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71905.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71904.jpg" />
 </div>
 
 
@@ -443,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71886.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71878.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71873.jpg" />
 </div>
 
 
@@ -525,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71871.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71848.jpg" />
 </div>
 
 
@@ -579,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71847.jpg" />
 </div>
 
 
@@ -605,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71840.jpg" />
 </div>
 
 
@@ -633,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71837.jpg" />
 </div>
 
 
@@ -644,61 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8639ED7B63567B83183089887884AA41B4FA7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771578   (71836) от 07.01.2025
-
-Михаил Шолохов | Тихий Дон (2022) [MP3, Александр Аравушкин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71836.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тихий Дон» – это грандиозный роман, принесший ее автору – русскому писателю Михаилу Шолохову – мировую известность; это масштабная эпопея, повествующая о трагических событиях в истории России, о человеческих судьбах, искалеченных братоубийственной бойней, о любви, прошедшей все испытания.
-Трудно найти в русской литературе произведение, равное «Тихому Дону» по уровню (   Читать дальше...   )Жанр: Классика, РоманИздательство: ЭксмоПродолжительность: 68:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B7D6B5CF2F276FA9757E9306821D0D16FFAB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771580   (71821) от 07.01.2025
-
-Михаил Шолохов | Поднятая целина (2006) [MP3, Владимир Панфилов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман посвящен процессу коллективизации - созданию колхозов в донских землях. Действие разворачивается на донском хуторе Гремячий Лог в 1930-м году. Создавать колхоз поручено бывшему моряку и рабочему Семену Давыдову.
-Новому в жизни всегда приходится пробиваться через отчаянное сопротивление старого. Таков закон общества. Так и в Донском краю.
-Трудно ужиться вместе (   Читать дальше...   )Жанр: Классика, РоманИздательство: Нигде не купишьПродолжительность: 32:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FEBF3F68BE695F2A49B9F89C02BC21FD553AE16
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1328530   (361214) от 01.10.2019
+
+Airy 3.10.242 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airy — YouTube загрузчик
+Если вам очень понравилось видео на YouTube и вы хотели бы, чтобы доступ к нему не зависил от вашего подключения к Интернет - вам поможет Airy. Airy - это YouTube загрузчик для Mac номер один, который с легкостью сохранит любое YouTube видео прямо на ваш компьютер. Полностью поддерживает Sierra.
+
+Простой и аккуратный Mac YouTube загрузчик (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2019Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFD0E0696EE32F8C45336B8EBD66312F86F6F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328453   (361199) от 01.10.2019
+
+Synalyze It! Pro 1.23.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Synalyze It! Pro - удобный Hex-редактор
+Synalyze It! Pro – это инновационное приложение, которое позволит вам легко редактировать и анализировать двоичные файлы любого размера.
+
+Особенностью Synalyze It! является расширенная поддержка большого числа символьных кодировок, что позволит вам в интерактивном режиме определять грамматики для различных форматов файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2019Разработчик: Andreas PehnackПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D6C61E6638A84F0A8F2622BF67FE4BDAF63BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177657   (361149) от 26.10.2017
 
 DropDMG 3.5.1 [Multi]
@@ -6,7 +64,7 @@ DropDMG 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361149.jpg" />
 </div>
 
 
@@ -33,7 +91,7 @@ FontDoctor 10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361121.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Forecast Bar 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361100.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ CloudMounter 3.5 (584) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361037.jpg" />
 </div>
 
 
@@ -116,7 +174,7 @@ iLock 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360961.jpg" />
 </div>
 
 
@@ -145,7 +203,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom (Complete) 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360864.jpg" />
 </div>
 
 
@@ -173,7 +231,7 @@ MathType 7.3.1 (379) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360831.jpg" />
 </div>
 
 
@@ -200,7 +258,7 @@ Money Pro 1.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360717.jpg" />
 </div>
 
 
@@ -229,7 +287,7 @@ Swinsian 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360695.jpg" />
 </div>
 
 
@@ -258,7 +316,7 @@ WonderPen 1.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360691.jpg" />
 </div>
 
 
@@ -286,7 +344,7 @@ Topaz Gigapixel AI 4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360657.jpg" />
 </div>
 
 
@@ -312,7 +370,7 @@ Reeder 4 v4.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360607.jpg" />
 </div>
 
 
@@ -338,7 +396,7 @@ Nova 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360604.jpg" />
 </div>
 
 
@@ -365,7 +423,7 @@ Geekbench 5 v5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360601.jpg" />
 </div>
 
 
@@ -394,7 +452,7 @@ Logoist 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360548.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ Microsoft Office Standard 2019 v.16.18.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360461.jpg" />
 </div>
 
 
@@ -449,7 +507,7 @@ Boom 2 v1.6.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360411.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ Amadeus Pro 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360410.jpg" />
 </div>
 
 
@@ -501,7 +559,7 @@ Paw 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360401.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ IP Scanner Pro 3.99 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360256.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Coda 2 v2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360244.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Movavi Slideshow Maker 7 v7.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360230.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Motion 5.0.5 [Multi/Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_360227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360227.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ Compressor 4.0.5 [Multi/Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_360225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_360225.jpg" />
 </div>
 
 
@@ -652,62 +710,6 @@ Compressor существенно расширяет возможности эк
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417180   (360118) от 19.10.2020
-
-Gemini 2: The Duplicate Finder 2.6.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь, это Gemini 2: умная программа для поиска дубликатов на Mac. Она находит дубликаты и похожие файлы и удаляет их. Gemini 2 находит дубликаты с хирургической точностью.
-
-Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB522AAB488CCC5C86601D492F267D56013A28A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951806   (360027) от 30.10.2015
-
-VMware Fusion Professional 8.0.2 (3164312) [Multi]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360027.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Fusion — виртуальная машина, позволяющая в среде Mac OS X на базе платформы Intel запускать приложения, разработанные для других операционных систем, в том числе Windows и Linux. Поддерживаются как 32-разрядные, так и 64-разрядные версии ОС.
-
-VMware  решение для виртуализации в среде Mac OS X. Новая версия программного обеспечения VMware Fusion, поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 октября 2015Разработчик: VMware, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD8DD9D2585CE3AA56A291888CCD764D0DA6E19
 ```
 
 https://mybot314.ru/tekegram_catalog/

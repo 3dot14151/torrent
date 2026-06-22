@@ -1,3 +1,29 @@
+###  Публикация: 1727074   (54758) от 01.06.2024
+
+Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый боевик от известного разработчика - компании Rebellion, в 1999 году выпустившей знаменитую игру, в которой люди, Чужие и Хищники впервые сошлись в бескомпромиссных сражениях. Битва продолжается - разные формы жизни снова сойдутся в непримиримой борьбе. В Aliens vs Predator игроков ждут три захватывающие сюжетные кампании, а также незабываемые многопользовательские (   Читать дальше...   )Тип издания: RipРазработчик: RebellionЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D85593F9C6D4AE62BA6C83FE3A58162D70A99C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727132   (54732) от 01.06.2024
 
 KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
@@ -6,7 +32,7 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54732.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54647.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54646.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Scene Rune [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54632.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54623.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Scene Tenoke [Alex Murphy Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54618.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack FitGirl [Apex Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54614.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54547.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ RIPOUT (2024) [Ru/Multi] (1.0:01) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54520.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) Repack FitGirl [Complete E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54514.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54512.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Titanfall 2 (2016) [Ru/En] (2.0.11.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54438.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Crysis: Remastered (2020) [Ru/En] (1.2.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54437.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54408.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54385.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Succubus (2021) [Ru/Multi] (14521061/dlc) Repack FitGirl [Ultimate Edition] [18+
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54337.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0u9/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54332.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Comp
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54328.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Call of Duty: Black Ops (2010) [Ru/En] (0.305-05.125430.1/dlc) Repack FitGirl [C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54325.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54300.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack FitGirl [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54195.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Far Cry 3 Дилогия (2012-2013) [Ru/Multi] (1.05/1.02/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54123.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53893.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53784.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Left 4 Dead 2 (2009) [Ru/Multi] (2.2.3.0/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53780.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Left 4 Dead 2 (2009) [Ru/Multi] (2.2.3.0/dlc) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9C5CD09C307AC4E8C4C8C3252FCC091A6A2C94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729131   (53763) от 10.06.2024
-
-Ghostrunner 2 (2023) [Ru/Multi] (0.40570.441/dlc) Repack dixen18
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кровь прольется в долгожданном хардкорном слэшере от первого лица, действие которого происходит через год после событий первой части. Вас ждет приключение в постапокалиптическом киберпанковом будущем. Джек вернулся, чтобы сразиться с жестоким культом киберниндзя, возникшим на задворках Башни Дхармы, и определить будущее человечества. Вас ждут невероятные схватки (   Читать дальше...   )Тип издания: RepackРазработчик: One More LevelЖанр: Экшны, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC85E849FFEF266A402E163137A85EFD9D57D0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

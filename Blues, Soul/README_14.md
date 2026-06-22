@@ -6,7 +6,7 @@ The Lucky Losers - A Winning Hand (2015) [MP3|320 кб/с]<Blues Soul, Modern El
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653542.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Barbara Blue - Memphis Blue: Sweet, Strong, & Tight (2015) [MP3|320 кб/с]<Mod
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653465.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sonny Landreth - Bound By The Blues (2015) [MP3|320 кб/с]<Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653450.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Kentucky Headhunters with Johnnie Johnson - Meet Me In Bluesland (2015) [MP3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653440.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Roy Rogers - Into The Wild Unknown (2015) [MP3|320 кб/с]<Blues, Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653313.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kris Dollimore - All Grown Up (2015) [MP3|320 кб/с]<Acoustic Blues, Roots>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651923.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jai Malano - Rocket Girl (2015) [MP3|320 кб/с]<Rockabilly Blues, R&B, Blues S
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651730.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dr. Wu' and Friends - Hangin' With Dr. Wu' Texas Blues Project, Vol. 4 (2013) [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648637.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lazy Eye - Black Hill (2018) Live [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648576.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dana Fuchs - Love Lives On (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648477.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Monsteras Bluesband - 40 Years: Live (2015) [MP3|320 кб/с]<Modern Electric Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647835.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Lachy Doley Group - Conviction (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647830.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ King Of The World - Discography (2013-2015) [MP3|320 кб/с]<Modern Electric Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647817.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Christian Hastings & The Red Eye Blues Band - Calling For Rain (2015) [MP3|320 �
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647684.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ A.C. Myles - Rush To Red (2015) [MP3|320 кб/с]<Blues Rock, Modern Electric Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645791.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Mule Newman Band - Somethin' On My Mind (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645768.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dana Fuchs - Songs From The Road (2014) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645644.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Samantha Fish, Dana Fuchs and Joanne Shaw Taylor - Ladies Sing The Blues (2014) 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645535.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ SunnyLand Bluesband - 4 альбома (1997-2002) [MP3|320 kbps]<Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_645508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_645508.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Stef Paglia - Never Forget (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645187.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Blues Story (1998-1999) 30 Volumes Collection [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644684.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Defunkt Special Edition - A Blues Tribute Jimi Hendrix & Muddy Waters (1994) [MP
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644008.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ The Gil Correia Band - Tattoos & Blues (2011) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643867.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Eugene "Hideaway" Bridges - Hold On A Little Bit Longer (2015) [MP3|320 кб/с]
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643714.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Nico Smoljan & Shakedancers - Nico Smoljan & Shakedancers (2015) [MP3|320 кб/�
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643711.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Left Lane Cruiser - Dirty Spliff Blues (2015) [MP3|320 кб/с]<Blues Rock, Punk
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643586.jpg" />
 </div>
 
 

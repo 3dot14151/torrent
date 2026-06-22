@@ -1,3 +1,135 @@
+###  Публикация: 1292033   (650505) от 27.03.2019
+
+Газета| Азбука вязания №10 (67) (2018) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбирайте модель по-вкусу: носки, связанные по диагонали на двух спицах, яркие джурабы, с косами и
+пуговицами, сапожки с «шишечками» или следки, выполненные тунисским крючком. Вы узнаете, как ускорить процесс, вывязывая сразу 2 носка на одних спицах. С помощью простых и понятных мастер-классов даже начинающим вязальщицам не составит труда связать понравившуюся модель.Жанр: вязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE0479D83E6BF243ED27FF3CC079301CE56D23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292048   (650504) от 27.03.2019
+
+Газета | Азбука вязания №9 (66) (2018) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650504.jpg" />
+</div>
+
+
+###  Подробнее
+
+В номере собраны 15 моделей самых популярных вязаных шапок спицами и крючком: бини, Хельсинки, шапка-чалма, шапка-ушанка. Подробные мастер-классы помогут даже начинающим вязальщицам
+связать популярную шапку с гигантскими косами и градиентом, модную шапку с узором «колосок».Жанр: вязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E749006E9E58C5C1CCF3DD45A5365E15BF0906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292069   (650496) от 27.03.2019
+
+Журнал | Вязаная одежда для солидных дам №1 (2019) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модели вязаной одежды для пышных дам: жакеты, жилеты, пуловеры, болеро, жилеты, пальто, а также аксессуары – для работы и отдыха, загородных прогулок и вечерних мероприятий.Жанр: вязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC7A7C053B602F2A9E9B83A0321018F6C02C9CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141462   (650436) от 10.06.2017
+
+Журнал | Рыболов №6 (июнь 2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650436.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Рыболов"- информационно-познавательное издание. Любопытные истории, лирические рассказы, меткие наблюдения любителей ужения, рекомендации и комментарии по самым разным аспектам рыболовства, секреты традиционных способов ловли и изготовление снастей своими руками.Жанр: Рыбная ловля, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3706EF3E343277832622CBF9BFB0EF090FDDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517309   (649567) от 30.06.2012
+
+Издательство Mantua | Пушечная секция Английского линейного корабля 18-19 вв. [2010] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воссозданный кусочек второй оружейной палубы английского линкора 1815 года со всеми деталями интерьера. Модель содержит две пушки длиной около 10 см на станках, картузы в кокорах, ведра для воды и пыжей, прибойник, клоц, банник и т.д.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD45AFB05FB217724A2B92F10DD0926CA9FC11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292240   (648751) от 28.03.2019
 
 Журнал | Ирэн №4 (2018) [PDF]
@@ -6,7 +138,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648751.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648451.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647522.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647510.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646819.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646816.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646813.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645642.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644636.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641913.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641054.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640341.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_639215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_639215.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638472.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638140.jpg" />
 </div>
 
 
@@ -398,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638044.jpg" />
 </div>
 
 
@@ -424,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637665.jpg" />
 </div>
 
 
@@ -451,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636961.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636956.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636508.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634351.jpg" />
 </div>
 
 
@@ -540,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BC077CDFBFC38F4CD1ED76D144A73E23D7E7B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681848   (634217) от 21.07.2013
-
-Журнал | Сабрина. Спецвыпуск №7. Ажурное вязание крючком [2013] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлена коллекция модного эффектного трикотажа, где прекрасно сочетаются стиль, практичность, удобность. Большой выбор женских моделей новейших силуэтов для вязания крючком с подробными описаниями.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954693388C1B6478FA8FDC5E739C2AACD7AA8011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908201   (634087) от 14.06.2015
-
-Журнал | Большой спорт №5 (май 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой спорт - мужской журнал нового формата, предлагающий совершенно особый взгляд на мировую спортивную индустрию: под политическим и экономическим углами зрения. Спорт и власть, спорт и деньги, спорт и стиль – таковы тематические приоритеты журнала.Жанр: СпортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A70B2A57680B995A4EA52F5ADA76E144CE8EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908251   (633982) от 14.06.2015
-
-Журнал | Солнечная система №103 (2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633982.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Солнечная система" - Вас ждет 24-страничный иллюстрированный журнал с подробными статьями, инструкциями по сборке и уникальными фотографиями. Журнал расскажет вам о тайнах космоса и небесных тел.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85089F72A763312D5F1DF9359B3FD6C63B128B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143776   (633144) от 19.06.2017
-
-Журнал | Шитье и крой (ШиК) №7 [+выкройки] (июль 2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по шитью с выкройками, адресован тем, кто следит за модой и создает гардероб своими руками. Более того — он помогает читательницам создать свой собственный модный образ, дополненный модными аксессуарами. Журнал «Шитье и крой» представляет стиль из итальянского журнала BOUTIQUE: 40 моделей в стиле prеt-а-porter от итальянских дизайнеров: Летние прогулки: платья (   Читать дальше...   )Жанр: шитье и кройФормат: PDF, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240C3AB09FC0B3C24A8C3AAC0789907117D91C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908573   (631873) от 15.06.2015
-
-Журнал | М-Хобби №5 (167) (май 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631873.jpg" />
-</div>
-
-
-###  Подробнее
-
-М-Хобби - один из лучших на сегодняшний день российский журнал для любителей масштабного моделизма и военной истории. Издание постоянно публикует материалы о моделях военной техники, авиации, автомобилях, обзоры новинок модельного рынка. Мастера моделизма делятся секретами своего мастерства.Жанр: Моделизм, военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D5C7DE53B9487DF2A5855F3AB89F064063FC03
 ```
 
 https://mybot314.ru/tekegram_catalog/

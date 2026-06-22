@@ -1,3 +1,32 @@
+###  Публикация: 1312835   (529211) от 06.07.2019
+
+The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Headlight (5:17)
+ 02. 6th Avenue Heartache (5:40)
+ 03. Three Marlenas (5:00)
+ 04. The Difference (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861268723D9E996A057D71D90E0EC495C479A74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 351202   (528951) от 06.07.2019
 
 The Raconteurs - 3 альбома (2006, 2008, 2019) [FLAC|Lossless|image + .cue|tracks+.cue]<Alternative rock>
@@ -6,7 +35,7 @@ The Raconteurs - 3 альбома (2006, 2008, 2019) [FLAC|Lossless|image + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528951.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Green Day - Green Day - 15 альбомов (1990-2014) [APE, FLAC|Lossless|imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524931.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Nuclear Sun - Rising (2015) EP [FLAC|Lossless|WEB-DL]<Industrial Rock | Futurepo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524112.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Our Dying World - Hymns Of Blinding Darkness (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522772.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Celldweller - End Of An Empire (Chapter 04: Death) (2015) [FLAC|Lossless]<Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522514.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522354.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ The Kills - Blood Pressures (2011) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522328.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ The Kills - Midnight Boom (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522327.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ The Kills - Ash & Ice (2016) [FLAC|Lossless|tracks + .cue] <Garage Rock, Lo-Fi, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522326.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ The Kills - No Wow (2005) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522324.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ The Kills - Keep On Your Mean Side (2003) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522269.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ The Kills - Future Starts Slow (2011) Single [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521431.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Fame on Fire - Levels (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520881.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Dead Can Dance - Anastasis (2012) [FLAC|Lossless]<Ambient, Ethereal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520854.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Blue October - I Hope You’re Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518350.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518258.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Overthrone - The Path of Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517807.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Blood Command - Praise Armageddonism (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517806.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Satyr - Totem (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progressive, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517802.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Superheist - MMXX (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517801.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Speaking With Ghosts - At Its End (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517721.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Bill Orcutt - "Solo CD" (Untitled) (1996) [FLAC|Lossless|tracks + .cue] <Noise R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517189.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Dreaming Awake - The Cold Approach (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516912.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Thursday - War All the Time (Live in Brooklyn) (2022) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515721.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlopho
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515588.jpg" />
 </div>
 
 
@@ -715,34 +744,6 @@ Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlopho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F18A6C3A0DCDC4EB27B8934A28076A9BF011509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413369   (514510) от 05.07.2022
-
-Greg Puciato - 3 Albums / 3 Singles (2020-2022)  Federal Prisoner Record [FLAC|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire For Water [00:02:58]
-02. Fire For Water(instrumental) [00:02:58]
-03. Fire For Water(vocal only) [00:02:58]Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 6 CD, 03:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC68CDCFDCA955A3ABC64F8427231D64A7DBFB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 997639   (850259) от 30.03.2016
+
+Гробница Лигейи / The Tomb of Ligeia (1964) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Верден Фелл, ученый — египтолог, женится вторично после смерти своей горячо любимой жены Лигейи, увлекавшейся оккультизмом. Последними словами Лигейи были «Смерти себя не предаю». И вот, по прошествии некоторого времени, Фелл начинает замечать что у его новой жены начинают проявляться черты Лигейи...Производство: Великобритания, Alta Vista Film ProductionЖанр: Ужасы, Триллер, ДрамаРежиссер: Роджер КорманАктеры: Винсент Прайс, Элизабет Шеферд, Джон Уэстбрук, Дерек Френсис, Оливер Джонстон, Ричард Вернон, Фрэнк Торнтон, Роналд Адам, Денис Гилмор, Пенелопа ЛиПеревод: Многоголосый закадровый,Двухголосый закадровыйПродолжительность: 01:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F49E4AC7E71631495CED564C018E5947E1ED06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499391   (849409) от 01.10.2021
+
+Капо / Kapo (1960) BDRip [H.264/720p] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанная на реальных фактах, история нравственного падения еврейской девушки, попавшей в невообразимые условия гитлеровской фабрики смерти Освенцим и ставшей капо (надзирательницей). Чтобы не голодать, жить без постоянного страха смерти, не опасаясь изнурительных каторжных работ, нужно только одно – быть жестокой... Фильм был номинирован на премию Оскар в 1961 (   Читать дальше...   )Производство: Италия, Франция, Югославия, Cineriz, Vides Cinematografica, Zebra Films, Francinex, Lovcen FilmЖанр: драма, военныйРежиссер: Джилло ПонтекорвоАктеры: Сьюзен Страсберг, Лоран Терзиефф, Эмманюэль Рива, Диди Перего, Джанни Гарко, Annabella Besi, Грациэлла Гальвани, Паола Питагора, Eleonora Bellinzaghi, Бруно ШипиониПеревод: Любительский двухголосый (den904 & DeadSno)Язык озвучки: Русский, итальянскийСубтитры: Русские (garageforsale), английскиеПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEA244E0FD95770AA3332293A7980169B1FD174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371497   (849358) от 23.04.2020
 
 Звёздные войны: Эпизод 5 – Империя наносит ответный удар / Star Wars: Episode V - The Empire Strikes Back (1980) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849358.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848596.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847834.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847460.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847456.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847077.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846943.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846865.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846490.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845912.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845899.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845788.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845618.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845410.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845182.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844982.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842598.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842545.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841296.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841279.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840694.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840587.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839755.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839727.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3017A70ACA35BE17FBB318AFEA3CF881F3F6266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500908   (839700) от 07.10.2021
-
-Первая брачная ночь / La mariee est trop belle (1956) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасная Бриджит Бардо играет Шу-Шу — юную парижанку, которая, благодаря стечению обстоятельств, делает головокружительную карьеру успешной фотомодели для журналов мод. Фото-сессии и киносъемки рекламных роликов идут каждый день. В паре с ней постоянно работает юноша Патрис, такой же как и она, баловень судьбы. Редактор журнала Мишель явно симпатизирует Шу-Шу и (   Читать дальше...   )Производство: Франция, Generale de Films, Socit Nouvelle Path CinmaЖанр: мелодрама, комедияРежиссер: Пьер Гаспар-ХьюиАктеры: Брижит Бардо, Мишлин Прель, Луи Журдан, Марселль Арнольд, Роже Дюма, Люсьен Хьюберт, Мадлен ЛамбертПеревод: профессиональный многоголосый (Film Prestige)Язык озвучки: русский, французскийСубтитры: русские, французские, английскиеПродолжительность: 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E9DC4C494FB7F1B152228F2D19DA42C22809E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111223   (839411) от 10.03.2017
-
-Че Гевара / El «Che» Guevara (1968) HDTV [H.264/1080i-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839411.jpg" />
-</div>
-
-
-###  Подробнее
-
-50 миллионов боливаров обещало правительство Боливии за голову революционера, выдающегося борца за свободу и социальную справедливость Эрнесто Че Гевары. На его поимку, на разгром небольшого партизанского отряда, которым он командовал, были брошены отборные, особо обученные войска… Авторы фильма рассказывают о последнем, самом драматическом периоде жизни Че Гевары, (   Читать дальше...   )Производство: Италия / InducineЖанр: Драма, БиографияРежиссер: Паоло ХеушАктеры: Франсиско Рабаль, Джон Айрленд, Сузанна Мартинкова, Ховард Росс, Андреа Кекки, Джакомо Росси Стюарт, Гуидо Лоллобриджида, Хосе Торрес, Лекс Монсон, Пьеро МорджаПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE045D3CC2D66E3FC50461424E5896E51983B8B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1771578   (71836) от 07.01.2025
+
+Михаил Шолохов | Тихий Дон (2022) [MP3, Александр Аравушкин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71836.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тихий Дон» – это грандиозный роман, принесший ее автору – русскому писателю Михаилу Шолохову – мировую известность; это масштабная эпопея, повествующая о трагических событиях в истории России, о человеческих судьбах, искалеченных братоубийственной бойней, о любви, прошедшей все испытания.
+Трудно найти в русской литературе произведение, равное «Тихому Дону» по уровню (   Читать дальше...   )Жанр: Классика, РоманИздательство: ЭксмоПродолжительность: 68:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B7D6B5CF2F276FA9757E9306821D0D16FFAB4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771580   (71821) от 07.01.2025
+
+Михаил Шолохов | Поднятая целина (2006) [MP3, Владимир Панфилов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман посвящен процессу коллективизации - созданию колхозов в донских землях. Действие разворачивается на донском хуторе Гремячий Лог в 1930-м году. Создавать колхоз поручено бывшему моряку и рабочему Семену Давыдову.
+Новому в жизни всегда приходится пробиваться через отчаянное сопротивление старого. Таков закон общества. Так и в Донском краю.
+Трудно ужиться вместе (   Читать дальше...   )Жанр: Классика, РоманИздательство: Нигде не купишьПродолжительность: 32:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEBF3F68BE695F2A49B9F89C02BC21FD553AE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771583   (71819) от 07.01.2025
 
 Михаил Шолохов | Поднятая целина (2021) [MP3, Александр Аравушкин]
@@ -6,7 +61,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71819.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71817.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71813.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71810.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71807.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71803.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71797.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71662.jpg" />
 </div>
 
 
@@ -214,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71659.jpg" />
 </div>
 
 
@@ -240,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71633.jpg" />
 </div>
 
 
@@ -266,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71631.jpg" />
 </div>
 
 
@@ -292,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71630.jpg" />
 </div>
 
 
@@ -319,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71629.jpg" />
 </div>
 
 
@@ -345,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71625.jpg" />
 </div>
 
 
@@ -371,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71622.jpg" />
 </div>
 
 
@@ -397,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71621.jpg" />
 </div>
 
 
@@ -424,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71620.jpg" />
 </div>
 
 
@@ -450,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71616.jpg" />
 </div>
 
 
@@ -476,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71611.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71610.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71606.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71605.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71601.jpg" />
 </div>
 
 
@@ -609,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71593.jpg" />
 </div>
 
 
@@ -621,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BED352769255792DB7AF1EB73D9CFD280A221A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773960   (71590) от 18.01.2025
-
-Оноре де Бальзак | Крестьяне (2023) [MP3, Ярослав Лукашев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Крестьяне» был создан Бальзаком в последний период его творчества. Роман строится на показе широких социальных явлений, на драматическом столкновении массовых материальных интересов. Ни в одном другом своем произведении не ставил с такой мужественной правдивостью и прямотой вопрос о существовании двух наций внутри одного общества – нации господ и рабов, имущих (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 16:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50D421D08D43EC29E0207FC2C081E05D75B234D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773940   (71589) от 18.01.2025
-
-Виктор Гюго | Ган Исландец (2024) [MP3, Валерий Толков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиостудия «Ардис» предлагает вашему вниманию первый роман французского писателя Виктора Гюго «Ган Исландец», написанный в 1820 году, когда автору было 18 лет, и опубликованный спустя три года. Его главный герой ради спасения любимой отправляется в Северную Норвегию, где сталкивается с Ганом Исландцем – чудовищем в человеческом обличье.Жанр: КлассикаИздательство: АРДИСПродолжительность: 14:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F12377C74D5F1403E7EB0DC61BB8292E9F8CC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

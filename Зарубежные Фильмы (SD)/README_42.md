@@ -1,3 +1,134 @@
+###  Публикация: 1469989   (1015851) от 15.05.2021
+
+Дикая парочка / Wild Mountain Thyme (2020) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как в сказке среди диких прекрасных пейзажей по-соседству живут Энтони и Розмари. Они просто созданы друг для друга, но наступлению их счастья все время что-то мешает. Внезапно бойкую фантазёрку Розмари зовёт с собой в Нью-Йорк приезжий ухажёр. У мечтательного и застенчивого Энтони остаётся последний шанс, чтобы любовь всей его жизни не умчалась от него навсегда.Производство: Ирландия, Великобритания / Amasia Entertainment, Aperture Media Partners, Likely StoryЖанр: Драма, мелодрамаРежиссер: Джон Патрик ШэнлиАктеры: Эмили Блант, Джейми Дорнан, Джон Хэмм, Кристофер Уокен, Дирбла Моллой, Даниэль Райан, Дон Вичерли, Клер Баррет, Дарра О’Кейн, Эбигейл КобернПеревод: Дублированный (iTunes)Субтитры: Английские (отдельно)Продолжительность: 01:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFFE98BB22EBEA2209DD5FDD17707468B60F610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 10362   (1015678) от 16.05.2021
+
+Крокодил Данди в Лос-Анджелесе / Crocodile Dundee in Los Angeles (2001) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015678.jpg" />
+</div>
+
+
+###  Подробнее
+
+В третьей части этого популярного фильма Мик Данди, следуя за своей подругой, журналисткой Сью Чарльстон, переселяется из деревенской глуши Австралии в модный и суетливый Лос-Анджелес.
+Сью возглавляет лос-анжелесский офис газеты своего отца и пытается выяснить причины гибели одного из лучших журналистов. Данди, которому надоело беспрерывно попадать в глупые и комичные (   Читать дальше...   )Производство: Австралия, США / Bungalow Productions, Silver Lion Films, Vision View EntertainmentЖанр: боевик, комедия, криминал, приключенияРежиссер: Саймон УинсерАктеры: Пол Хоган, Линда Козловски, Джер Бернс, Джонатан Бэнкс, Алек Уилсон, Джерри Скилтон, Стив Рэкмен, Серж Кокберн, Аида Туртурро, Пол РодригезПеревод: Русский профессиональный дубляжПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F52D645B2CDC2F94F3BEB25715384778821B425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470439   (1015677) от 16.05.2021
+
+Клуб «Кастет» / Knuckledust (2020) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бойцовский клуб «Кастет» – настоящая подпольная империя для элиты всех мастей. Каждая схватка здесь – убийственное шоу, а заправляет всем настоящая акула теневого бизнеса. Однако с появлением нового бойца адреналин в клубе достигает высшей точки и выливается в массовую бойню. Среди бесчисленных трупов полиция обнаруживает одного единственного выжившего. Но кто он (   Читать дальше...   )Производство: Великобритания, Франция / Featuristic Films, Head Gear Films, Metrol TechnologyЖанр: Боевик, триллерРежиссер: Джеймс КермакАктеры: Мо Данфорд, Кейт Дики, Гетин Энтони, Себастьен Фукан, Гийом Делони, Оливье Рихтерс, Филип Дэвис, Эми Бэйли, Алекс Фернс, Джеми УинстонПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (SDH)Продолжительность: 01:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E273D95B4E2F1AABA9BE06587F7E17CAA7C18EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465145   (1015562) от 17.05.2021
+
+Жена Джейкоба / Jakob's Wife (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энни — невзрачная жена священника из небольшого городка, спокойная, покладистая и послушная. Жаловаться особо не на что, но 30-летний скучный брак уже порядком поднадоел. Разнообразие и яркие эмоции в жизни женщины появляются после одного странного случая, в результате чего тихоня превращается в самую натуральную женщину-вамп. И теперь Энни очень нравится есть сырую (   Читать дальше...   )Производство: США / AMP International, EyevoxЖанр: Ужасы, комедияРежиссер: Трэвис СтивенсАктеры: Барбара Крэмптон, Ларри Фессенден, Бонни Ааронс, Nyisha Bell, Сара Линд, Марк Келли, Роберт Раслер, Джей Девон Джонсон, СМ Панк, Omar SalazarПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: отсутствуютПродолжительность: 01:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB0A1861A3429C2843A92DEC6CD13AAC407247B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465148   (1015546) от 17.05.2021
+
+Средоточие боли / Trigger Point (2021) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший агент ЦРУ из сверхсекретного подразделения был захвачен и подвержен пыткам с использованием сыворотки правды с побочным эффектом потери памяти. Ник не помнил как вырвался из плена, но узнал от руководителя что стал невольным предателем выдав настоящие имена всего отдела. Он, как и его бывшие коллеги, отстранен от службы как раскрытый агент и под чужим именем (   Читать дальше...   )Производство: Канада / Chicken Soup for the Soul Entertainment, High Park Entertainment, Landmark Studio GroupЖанр: Боевик, триллерРежиссер: Брэд ТернерАктеры: Бэрри Пеппер, Лора Вандервурт, Колм Фиор, Назнин Контрактор, Грег Брайк, Ив Харлоу, Джейн Иствуд, Рэйнбоу Сан Фрэнкс, Брайан Кук, Хуан Карлос ВелисПеревод: Двуголосый любительский (Pazl Voice) / Присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: 01:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53704D1F53DC830C44FE0FC8CA34478BCB8A7E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470669   (1015541) от 17.05.2021
 
 Дикая парочка / Wild Mountain Thyme (2020) BDRip [H.264]
@@ -6,7 +137,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015541.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015440.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015284.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015266.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015250.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015227.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015216.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015211.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015200.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015191.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015182.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015136.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014792.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014752.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014735.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014632.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014613.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014611.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014595.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014502.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014489.jpg" />
 </div>
 
 
@@ -538,138 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A751B6780393A610369AD852DF650B5C17A71EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465841   (1014310) от 25.05.2021
-
-Побег из Атлантиды / Escape from Atlantis (1997) SATRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любящий отец, пытающийся восстановить отношения со своими тремя непослушными сыновьями — подростками, берет их с собой в путешествие под парусом на Багамы. Когда они входят в таинственные воды Бермудского треугольника, то волшебным образом перемещаются в мир легенд и фантазий, в котором переживают самые волнующие приключения в жизни.
-Затерявшись в волшебном мире (   Читать дальше...   )Производство: США / D Vision, Harris Entertainment Inc., Starz! Pictures, Universal TVЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Стрэтфорд ХэмилтонАктеры: Джефф Спикмэн, Тим Томерсон, Джастин Бернетт, Мерседес МакНаб, Брек Уилсон, Майкл Ли Гогин, Аль Хэррингтон, Брайан Блум, Брайан Д Кляйн, Кристина АнапауПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA136037015F5D81519BC8CCAA789E757EDB367B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465853   (1014308) от 25.05.2021
-
-100 футов / 100 Feet (2008) HDRip [H.264] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марни Уотсон освобождают из тюрьмы, где она отбывала наказание за убийство мужа. Теперь женщина сидит под домашним арестом с электронным устройством на ноге, которое не позволяет ей покинуть 100-футовый радиус. Тем временем в доме появляется призрак убиенного супруга, жаждущий мести.Производство: США / 100 Feet Productions, Blue Rider PicturesЖанр: ужасы, триллер, детективРежиссер: Эрик РедАктеры: Фамке Янссен, Бобби Каннавале, Эд Вествик, Майкл Паре, Патриша Шарбонно, Джон Фэллон, Кевин Гир, Тибор Палффи, Кембе Сорел, Эвелин КандечПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5D92EBDF4242AC646252F8D5C84DBDC647673C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472284   (1014307) от 25.05.2021
-
-Русалка в Париже / Une sirene a Paris (2020) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — талантливый артист с невероятной харизмой и прекрасным чувством юмора. Однако его сердце — неприступный бастион даже для самых сногсшибательных девушек Парижа. Всё изменится, когда, гуляя по ночной набережной Сены, он повстречает настоящую русалку. Теперь для музыканта не имеет значения, что любовь к этим красавицам веками губила сердца мужчин…Производство: Франция / Entre Chien et LoupЖанр: Фэнтези, мелодрама, комедияРежиссер: Матиас МальзьёАктеры: Николя Дювошель, Мэрилин Лима, Романа Боринже, Чеки Карио, Росси де Пальма, Алексис Михалик, Лу Гала, Николас Уллман и др.Перевод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) - отдельноПродолжительность: 01:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B32B9885AD7BB01CDBD41CE013AEB6F9C18D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466215   (1014284) от 25.05.2021
-
-Алая буква / The Scarlet Letter (1995) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта страшная история случилась в одном из самых чудовищных мест Новой Англии (английской Америки) — Салеме, печально знаменитом своими зверскими расправами и религиозным фанатизмом пуритан.
-Женщина приехала в колонию вслед за своим мужем, но он к тому времени сгинул где-то в «индейских лесах». Страдая от одиночества, она бросилась в объятия красноречивого пастора (   Читать дальше...   )Производство: США / Allied Stars, Cinergi Pictures, Hollywood PicturesЖанр: историческая драмаРежиссер: Ролан ЖофéАктеры: Деми Мур, Гэри Олдман, Роберт Дюваль, Лиза Жолифе-Андо, Эдвард Хардуик, Роберт Проски, Рой Дотрис, Джоан ПлаурайтПеревод: Многоголосый профессиональныйСубтитры: Русские (Gnome Jovial)Продолжительность: 02:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDE396398B6C22158FE1EA9F3ACB1A7F70AC3B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 46790   (1014093) от 26.05.2021
-
-Мышиная охота / Mousehunt (1997) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Ларс и Эрни Шмунц не придают особого значения унаследованному ими старому полуразрушенному особняку до тех пор, пока они не узнают, что их ветхая недвижимость стоит миллионы. Но есть одна проблема. Чтобы продать дом, братья должны избавиться от его единственного и упрямого обитателя - маленькой, но очень цепкой мыши. То, что поначалу кажется детской игрой, (   Читать дальше...   )Производство: США / Dreamworks PicturesЖанр: Комедия, семейныйРежиссер: Гор ВербинскиАктеры: Натан Лэйн, Ли Эванс, Викки Льюис, Мори Чайкин, Эрик Кристмас, Майкл Джитер, Дебра Кристофферсон, Камилла Сёэберг, Иэн Эберкромби, Аннабелль Гурвич, Уильям ХиккиПеревод: Профессиональный многоголосыйСубтитры: отсутствуютПродолжительность: 01:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66A3E58FA9F6F1FCD31676853C5261C73BD5F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

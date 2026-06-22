@@ -1,3 +1,29 @@
+###  Публикация: 1650332   (194962) от 01.08.2023
+
+Дубай любой ценой (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Фильмы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анель мечтает отправиться в Дубай. Но чтобы ее мечта осуществилась, и она возглавила офис компании в ОАЭ, существует одно условие: статус замужней женщины. Только в этом случае она получит повышение по карьерной лестнице и заветную должность. Решить ситуацию помогает помощник Арман, который становится для всех новоиспеченным женихом. Удастся ли каждому воплотить (   Читать дальше...   )Производство: Казахстан / Tiger FilmsЖанр: комедия, семейныйРежиссер: Дархан СаркеновАктеры: Асель Садвакасова, Нургуль Мынгатова, Дастен Шакиров, Рамазан Амантай, Бахтияр Кожа, Марат Алибаев, Куандык ШакиржановЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6E229F8AB6F283833F52253027BC3E14A7BBE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652344   (194510) от 11.08.2023
 
 Боксер / Bokser (2022) WEB-DLRip
@@ -6,7 +32,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194510.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194492.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194219.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192827.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191928.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191761.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191386.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191344.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191097.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190946.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190789.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190695.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190687.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190465.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188422.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188409.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_187834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187834.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187298.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187016.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186698.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186101.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184385.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181362.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181312.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175003.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD78A3F62E359D72CB14BEC5D70A8B94DE8EC6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631188   (174927) от 10.10.2023
-
-Мирный-21 / Мирний-21 (2023) WEB-DL [H.264/1080p] [UKR / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 2014-го года, Луганская область. Российская армия начинает первые военные действия на территории Украины. Граница Луганской области, охраняемая украинскими пограничниками, подвергается серии атак. В скором времени командир отряда пограничников Сергей Дейнеко и его подчиненные получают предложение от российских военнослужащих сдать оружие, и перейти на сторону (   Читать дальше...   )Производство: Украина / Kinomania Film DistributionЖанр: драма, военныйРежиссер: Ахтем СейтаблаевАктеры: Андрей Саминин, Максим Девизоров, Евгений Ламах, Роман Ясиновский, Виктор Жданов, Андрей Мостренко, Алексей Тритенко, Лорена Колибабчук, Мария Штофа, Павел ЛиПеревод: ОтсутствуетЯзык озвучки: украинскийСубтитры: украинские, английскиеПродолжительность: 01:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD31D7909D7D2993B35E8CE29715FBB22E4EC3A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

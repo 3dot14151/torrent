@@ -6,7 +6,7 @@ Vivaldi - II Pomo d'Oro, Riccardo Minasi, Dmitry Sinkovsky - Concerti Per Due Vi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907905.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [FLAC|Lossless|tr
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905898.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905779.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Franz Schubert - Fantaisie (David Fray feat. Jacques Rouvier) (2015) [FLAC 2.0|9
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904448.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pascal Roge - Debussy: Clair de lune (1978 - 1981) VIRTUOSO, 2013, Decca [FLAC|L
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904032.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Emika - Melanfonie (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Clas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903069.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Jennifer Thomas - Winter Symphony (2015) [FLAC|Lossless|tracks] <Instrumental, C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902428.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902424.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902418.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902416.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks +
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902391.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Grieg, Prokofiev - Piano Concerto in A; Piano Concerto no. 3 (Nikolai Lugansky, 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902384.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902362.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902276.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902259.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Mozart - Very Best Of Mozart (2005) 2CDs [FLAC|Lossless|image + .cue] <Classical
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902255.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Избранная Классика (2000) S&V #02/2000 [FLAC|Lossless|trac
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902253.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Chopin - Piano Concertos nos. 1 & 2 - Davidovich, Marriner - LSO (2005) [OGG|256
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902251.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Beethoven - Piano Trio in C minor, Triple Concerto - Lev Oborin, David Oistrakh,
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902224.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bach - Six Cello Suites (Даниил Шафран) (2009) VistaVera [OGG|224 к
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902220.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Lindsey Stirling - Live From London (2015) [FLAC|Lossless|tracks] <Classical Cro
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902148.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Golden Classic, Box Set, 10CD [FLAC|Losless|image+.cue]<Classical, Orchestr
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902062.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Seiji Ozawa - The Art of Seiji Ozawa (2013) 16CD Box Set [FLAC|Lossless|tracks +
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902051.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Deutsche Harmonia Mundi: 50 CD Collection (2014) [FLAC|Lossless|image + .cu
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902025.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901924.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Wolfgang Amadeus Mozart - Mozart Klavierkonzert KV.365, Schubert Fantasie D940: 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901093.jpg" />
 </div>
 
 

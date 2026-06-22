@@ -1,3 +1,109 @@
+###  Публикация: 1187019   (282522) от 27.11.2017
+
+Формула 1. Гран-при Абу-Даби 2017. 20-й Этап. Гонка (26.11.2017) HDTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282522.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ноябре на острове Яс проходит последний этап чемпионата мира по автогонкам Формулы-1. Даже если ты не поклонник подобных развлечений, на таком мероприятии стоит побывать хотя бы раз в жизни.
+От всех остальных трасс Марина Яс отличается в первую очередь самым протяжённым прямым участком. Часть трассы проходит рядом с побережьем, поэтому наблюдать за гонкой можно (   Читать дальше...   )Телекомпания: Россия, Матч HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA826037EAD10D0C9A0D61F32DD62EE4455BBC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187009   (282364) от 27.11.2017
+
+Формула 1. Гран-при Абу-Даби 2017. 20-й Этап. Гонка (26.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282364.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ноябре на острове Яс проходит последний этап чемпионата мира по автогонкам Формулы-1. Даже если ты не поклонник подобных развлечений, на таком мероприятии стоит побывать хотя бы раз в жизни.
+От всех остальных трасс Марина Яс отличается в первую очередь самым протяжённым прямым участком. Часть трассы проходит рядом с побережьем, поэтому наблюдать за гонкой можно (   Читать дальше...   )Телекомпания: Россия, Матч HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0A28375F22BF49298400E3650F00CA2AFF09CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586246   (281582) от 11.12.2015
+
+Формула 1 / Formula 1. Весь сезон (2012) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весь сезон Формулы 1 2012 года. Квалификация + Гонка.Телекомпания: SkySports F1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: - квалификация ~ 01:30:00;  - гонка ~ 02:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538610EE62630EBB0E2516EB061BDB863254CA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073729   (280154) от 11.12.2016
+
+Формула 1. Сезон 2016. Официальные видеоклипы / Race Edits, Race Highlights & Onboard (2016) WEBRip [H.264/720p] (21 гонка из 21)
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессионально сделанные видеоклипы в формате высокой четкости по каждой из гонок сезона 2016. А так же раздача содержит круговые клипы с каждой трассы в режиме ONBOARDТелекомпания: f1.comЖанр: СпортПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: ~00:06:00 (одна часть)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA08E7AB22C070897B76CF8D4C5634D6AADB16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264816   (277780) от 25.11.2018
 
 Формула 1. Сезон 2018. 21-й Этап. Гран-при Абу-Даби. Квалификация (24.11.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +112,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277780.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276523.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276498.jpg" />
 </div>
 
 
@@ -90,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276492.jpg" />
 </div>
 
 
@@ -119,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276450.jpg" />
 </div>
 
 
@@ -147,7 +253,7 @@ Discovery. Соперники: Алан Прост и Айртон Сенна / 
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275103.jpg" />
 </div>
 
 
@@ -173,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268060.jpg" />
 </div>
 
 
@@ -201,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_266995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266995.jpg" />
 </div>
 
 
@@ -229,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266798.jpg" />
 </div>
 
 
@@ -257,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265013.jpg" />
 </div>
 
 
@@ -283,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260711.jpg" />
 </div>
 
 
@@ -309,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260683.jpg" />
 </div>
 
 
@@ -335,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258891.jpg" />
 </div>
 
 
@@ -361,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258604.jpg" />
 </div>
 
 
@@ -387,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252529.jpg" />
 </div>
 
 
@@ -413,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252455.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252447.jpg" />
 </div>
 
 
@@ -465,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251822.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249791.jpg" />
 </div>
 
 
@@ -520,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249739.jpg" />
 </div>
 
 
@@ -547,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249722.jpg" />
 </div>
 
 
@@ -576,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245689.jpg" />
 </div>
 
 
@@ -590,118 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BE2998404A5057466DFFCD89E5B46D99464FC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540043   (245681) от 28.03.2022
-
-Формула 1. Сезон 2022. Этап 02. Гран-при Саудовской Аравии. Гонка. (27.03.2022) WEB-DL [H.264/720p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 2. Арена: Городская трасса Джидда (Джидда, Саудовская Аравия).
-Гонка. 27 марта 2022Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), АнглийскийСубтитры: отсутствуютПродолжительность: 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3AA3A9ED4229E94D5E53A2F8F0A4D5D926112A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620597   (245434) от 21.03.2023
-
-Формула 1. Сезон 2023. Этап 2. Гран-при Саудовской Аравии. Квалификация. Гонка. (18-19.03.2023) WEB-DL [H.264/1080p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 2. Арена:  Городская трасса Джидда (Джидда, Саудовская Аравия).
-Квалификация. 18 марта 2023, суббота.
-Гонка. 19 марта 2023, воскресенье.
-(   Читать дальше...   )Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Русский (Вячеслав Кобржицкий), Украинский (Максим Подзигун), Грузинский, Английский, Немецкий, Французский, Испанский, Голландский, Португальский (Бразильский).Субтитры: отсутствуютПродолжительность: Квалификация 01:16:43
-Гонка 02:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE11E85B561E38E28082F3DA89013CB2F56C662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623383   (243195) от 01.04.2023
-
-Формула 1. Сезон 2023. Этап 3. Гран-при Австралии. Квалификация (01.04.2023) WEB-DL [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243195.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 апреля 2023, суббота. 08:00 МСК. Этап 3, Мельбурн. Гран-при Австралии. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DE608AB254AC744BD400DEC351B74C0199DEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623409   (243189) от 01.04.2023
-
-Формула 1. Сезон 2023. Этап 03. Гран-при Австралии. Квалификация. (01.04.2023) WEB-DL [H.264/1080p] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 3. Арена: Городская трасса Альберт Парк (Мельбурн, Австралия).
-Квалификация. 1 апреля 2023, суббота.
-
-Картинка с канала F1 TV.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Субтитры: отсутствуютПродолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2432AE0AB9310B131720CC8D32D628740FF49FE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

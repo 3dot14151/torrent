@@ -1,3 +1,55 @@
+###  Публикация: 1752984   (41656) от 03.10.2024
+
+Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Scene Rune
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцуйте со смертью в Бездне и открывайте всё более захватывающие элементы игрового процесса, невидимые на поверхности. Используйте слабости врага, устраивайте жестокие расправы, умело распоряжайтесь ресурсами и вовремя выплёскивайте свой гнев, чтобы переломить ход игры. Каждая новая битва — свидетельство вашего мастерства.Тип издания: SceneРазработчик: PlaySideЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B824EB7EF018B21B8BEDF56C04626DC0811484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753555   (41378) от 05.10.2024
+
+Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игроки берут под свой контроль Эми Кимуру, молодую и талантливую хакершу, которую загадочный покровитель нанимает для проникновения в теневую корпорацию QoTech. Используя свои навыки и смекалку, Эми должна бегать, прыгать, красться и взламывать системы безопасности, преодолевая многочисленные препятствия. На своём пути Эми предстоит столкнуться с полчищами роботов (   Читать дальше...   )Тип издания: RepackРазработчик: WayForwardЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4300340189E2C6177977DDB0FBFCBBAE81569864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753673   (41274) от 06.10.2024
 
 Hell of an Office (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +58,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41274.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Times & Galaxy / Times and Galaxy (2024) [En] (1.13.5060.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41270.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41040.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11458/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_41012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41012.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ HUNTDOWN (2020) [Ru/Multi] (1.278) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_40945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40945.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack Fit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40918.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40709.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40546.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40527.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40460.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40446.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Portal (2007) [Ru/Multi] (Build 13095453) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40428.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Portal 2 (2011) [Ru/Multi] (Build 14822445) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40311.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40229.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40131.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40130.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40028.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Ember Knights (2023) [Ru/Multi] (2.0.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39939.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Supermoves (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39817.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Yars Rising (2024) [Multi] (1.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39799.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Rugrats: Adventures in Gameland (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39786.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Super Dark Deception (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39204.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39121.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39111.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:996B247759200451B910F3AB858EF4BF16D3514C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757589   (39019) от 28.10.2024
-
-Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39019.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Finding Frankie вас приглашают принять участие в безумном и жутком паркур-шоу под управлением Фрэнки. Обходите опасных персонажей так, чтобы они вас не заметили, проходите полосы препятствий, прыгайте и бегайте по непростым трассам. Такое шоу вы точно не захотите пропустить!Тип издания: SceneРазработчик: Finding Frankie TeamЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB903DBE4E1FB4939244EADB065C3F7C5BE08DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757850   (38849) от 30.10.2024
-
-[REDACTED] (2024) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный рогалайт в жанре экшн с элементами хоррора, который погружает вас в темные коридоры тюремного комплекса, расположенного на одной из лун Юпитера. В этом аду наяву, после вспышки вируса, обычные заключенные превратились в жестоких монстров, и вы, как один из выживших охранников, должны прорваться через толпы врагов и найти единственный выход.Тип издания: SceneРазработчик: Striking Distance StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C5C7ABB04CD09811FDF0C62E5B38B9452E1467
 ```
 
 https://mybot314.ru/tekegram_catalog/

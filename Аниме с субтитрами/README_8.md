@@ -1,3 +1,29 @@
+###  Публикация: 1445817   (1033542) от 06.02.2021
+
+Rail Romanesque | Романтика рельсов [ТВ-1] [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октябрь 1988 года, город Охитоё. Он находится на острове Кюсю, префектура Кумамото страны Хиномото, где после Великого списания почти не осталось железных дорог. Успешная рекламная кампания во главе с локомотивом 8620 и его рельсоидом Хатироку смогла оживить экономику города и вернуть к ним интерес. Сейчас в нём проходит Первый ежегодный фестиваль Майтэцу, на который (   Читать дальше...   )Производство: студия Saetta / サエッタЖанр: приключенияРежиссер: Хирасава ХисаёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A08639FE0F9D4E70877269725ECC9FC8931895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445812   (1033469) от 06.02.2021
 
 Golden Kamuy OAD | Золотое божество OVA [2018, OVA, 4 эп.] DVDrip 576p raw
@@ -6,7 +32,7 @@ Golden Kamuy OAD | Золотое божество OVA [2018, OVA, 4 эп.] DVDr
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033469.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Boruto: Naruto Next Generations / Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033112.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Yama no Susume: Next Summit | Encouragement of Climb: Next Summit | В горы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032707.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Strange Dawn | Странный рассвет [2000, TV, 13] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032693.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032489.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Shironeko Project: Zero Chronicle | White Cat Project | Проект «Бела�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031831.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Shadowverse Flame | Поэзия теней [ТВ-2] [2022, TV, 50 эп. + SP] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030850.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Boruto: Naruto Next Generations | Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030620.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Kumo no You ni Kaze no You ni | Like the Clouds, Like the Wind | Словно о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030465.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Tondemo Skill de Isekai Hourou Meshi | Кулинарные скитания в 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030171.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ ACCA 13-ku Kansatsu-ka: Regards | АККА: Инспекция по 13 окру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030017.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Tsuki wa Higashi ni Hi wa Nishi ni: Operation Sanctuary | Hani Hani ~Operation S
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029990.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12] BDRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029924.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029732.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Asobi Asobase | Давайте сыграем [2018, TV, 12 + 2SP + OVA] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029648.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Shoujo Kageki Revue Starlight | Revue Starlight | Девичья опера: С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029534.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Free! Dive to the Future | Вольный стиль! [ТВ-3] [2018, TV, 12 + S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029037.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Kingdom 2 | Царство 2 [2013, TV, 39 из 39] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028701.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Kingdom | Царство [2012, TV, 38 из 38] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028684.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 + SP] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028683.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Jitsu wa Watashi wa | Actually, I Am... | По правде говоря, я... 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028350.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Garasu no Kantai / Glass Fleet / Стеклянный флот [2006, TV, 26] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027847.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Amaama to Inazuma | Sweetness and Lightning | Сласти и молния [2016
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027671.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Shichinin no Nana | Seven of Seven | Семь из семи [2002, TV, 25 + SP] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027556.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Tono to Issho OVA-1 | Вместе с господином OVA-1 [2010, OVA] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027400.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Cобытия которой разворачиваются в период Се
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D1CD2C125AE8D1491A42E4342A969AEC658B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452852   (1027398) от 08.03.2021
-
-Rou Kyuu Bu! Tomoka no Ichigo Sunday | Баскетбольный клуб! OVA [2013, OVA] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонус к PSP игре Rou Kyuu Bu! Himitsu no Otoshimono (ロウきゅーぶ! ひみつのおとしもの).Производство: Студия Project No.9Жанр: комедияРежиссер: Янаги СинсукэПеревод: Dreamers TeamЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 1 эп. 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0035861A9F6E5FF128FE26C9C7E4C55D21174E9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

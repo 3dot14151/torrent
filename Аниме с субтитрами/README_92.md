@@ -1,3 +1,29 @@
+###  Публикация: 1118387   (249404) от 23.07.2022
+
+Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по понедельникам [2016, TV, 14] BDRip 1080p 10bit HEVC raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычному служащему выпадает шанс встретиться в переполненном поезде с девушкой по имени Ай, которая грудью (в прямом смысле) защитила его от давки. И так они начинают встречаться каждый понедельник на поезде, рассказывая друг другу о случившемся за неделю.Производство: Студия Pine Jam / パインジャムЖанр: повседневностьРежиссер: Мураяма КосукэПеревод: Timecraft (1-13); Shaman Anime (14)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 14 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D205835D09EBD079B69BDD58E2C044BCDED4495A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477801   (249305) от 09.05.2012
 
 Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip 1080p Hi10P raw
@@ -6,7 +32,7 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249305.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ My My Mai / Интимная консультантка Май [1993, OVA, 4 ep.
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249283.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Kujakuou / Peacock King / Spirit Warrior / Заклинатель Кудзяку
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249228.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247494.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Герой сдох! [2023, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247416.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Golden Kamuy (2022) | Золотой Камуй | Золотое божеств�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247334.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ The Marginal Service | Отдел «Рубеж» [2023, TV, 12 эп.] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247314.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245268.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245224.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Gensou Sangokushi: Tengen Reishinki | Fantasia Sango: Realm of Legends | Фан�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245141.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243833.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Eiga Bakuten!! | Сальто назад! (фильм) [2022, Movie] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243789.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243756.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243076.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Black Fox | Чёрная лиса [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243008.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Watashi ni Tenshi ga Maiorita! Precious Friends | Ангел спустился 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242426.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Hyakuren no Haou to Seiyaku no Valkyria | Повелитель Рагнарёк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242416.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242413.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242366.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Kiss Dum: Engage Planet | Немой поцелуй: Обручённая пла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241934.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Oushitsu Kyoushi Haine | The Royal Tutor | Королевский репетит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241462.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Juusenshi Gulkeeva | Beast Warrior Galkeeva | Зверовоины Галкее�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241444.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Metal Fighter Miku | Металлический воин Мику [1994, TV, 13 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241431.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Himiko-Den | Legend of Himiko | Легенда о Химико [1999, TV, 12 э�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241361.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Salaryman's Club | Ryman's Club | Клуб белых воротничков [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241057.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Cюжет данного аниме крутится вокруг корпора
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE361672FD1C135AD32B55096E1A2F05FAAFB29B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636363   (241037) от 29.05.2023
-
-Angelique | Анжелика OVA-4 [2004, OVA, 3 эп.] DVDRip 480p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_241037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анжелика Лимож и Розалия де Катаргена были выбраны в качестве кандидатов на экзамене в королевы — тесте, чтобы определить, кто лучше подходит для того, чтобы стать следующей королевой космоса. Для этого специального обследования обеим девушкам предоставляется собственный континент на планете. Они должны превратить континенты в грандиозную среду с процветающими цивилизациями. (   Читать дальше...   )Производство: Студия Yumeta Company / ゆめ太カンパニーЖанр: романтика, фэнтезиРежиссер: Масэкирё АсумиПеревод: sys3xЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF6AAA3F7AFF5949A12733B7C062F9C807754F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

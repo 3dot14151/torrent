@@ -1,3 +1,29 @@
+###  Публикация: 1724687   (36312) от 24.11.2024
+
+PO'ed: Definitive Edition (2024) [Multi] (1.0.594) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36312.jpg" />
+</div>
+
+
+###  Подробнее
+
+PO'ed: Definitive Edition - возвращение легендарного олдскульного шутера от первого лица, где помимо динамичной боевой системы вас ожидает доля отборного юмора. Главный герой был простым поваром, летящим сквозь Галактики на космическом корабле, но однажды хрупкий мир пошатнулся из-за вторжения инопланетных созданий. Пришельцы похитили ваших друзей, а вы, отвлекшись (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5550DF33A6B92BBE231F413757B6DA3CEF1F6FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762208   (36304) от 24.11.2024
 
 Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) License GOG
@@ -6,7 +32,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36304.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack Other s [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35887.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack dixen18 [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35882.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) Repack Wanterlude 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35779.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35772.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35465.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Left 4 Dead (2008) [Ru/Multi] (1.0.4.5) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35276.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Roboquest (2020) [Ru/Multi] (1.5.0-280) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35226.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16557524/dlc) Repack Decepticon [20th Anniv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35189.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35043.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34950.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ World War Z (2019) [Ru/Multi] (2.36/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34931.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34873.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34461.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Ready or Not (2023) [Ru/Multi] (66884/dlc) Repack FitGirl [LSPD Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34158.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34036.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2484/dlc) Repack Let'sРlay [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34035.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Battle Shapers (2023) [Ru/Multi] (1.0.0.9952) Repack FitGirl [Original Soundtrac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34033.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34010.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack FitGirl [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33931.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33316.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРla
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33303.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ HROT (2021) [Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33216.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33202.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32977.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Hellbreach: Vegas - шутер с волнами врагов-демонов. И
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEDCED931526CB87B1A9176649F2EC8D100A0A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731498   (32873) от 27.12.2024
-
-SPRAWL (2023) [Multi] (1.7) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользователи в SPRAWL получают возможность отправиться в сеттинг киберпанка, где главный герой вынужден выживать на просторах города будущего. Главной задачей для протагониста становится попытка сбежать с города-крепости, бросая вызов военизированному правительству агломерации. Игра выполнена в жанре экшен-шутера от первого лица, где приходится передвигаться по коридорным (   Читать дальше...   )Тип издания: LicenseРазработчик: MAETHЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F19EB82D16319745BB502BEBBB2F24E7777707
 ```
 
 https://mybot314.ru/tekegram_catalog/

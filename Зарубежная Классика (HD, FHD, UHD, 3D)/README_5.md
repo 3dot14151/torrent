@@ -1,3 +1,55 @@
+###  Публикация: 1459221   (1018191) от 01.05.2021
+
+Безумие / Frenzy (1972) BDRip [H.265/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ричард Блени обвиняется в совершении серии убийств женщин, которые найдены задушенными мужскими галстуками. Подозрение падает на него после того, как обнаружены тела его бывшей жены и подружки. Дело кажется настолько очевидным, что полиции не составляет труда получить ордер на арест Блени. Однако после того как Ричарда приговорили к тюремному заключению сроком на (   Читать дальше...   )Производство: Великобритания, США / Universal PicturesЖанр: Триллер, КриминалРежиссер: Альфред ХичкокАктеры: Барри Фостер, Джон Финч, Алек МакКоуэн, Билли Уайтлоу, Анна Мэсси, Барбара Ли-Хант, Бернард Криббинс, Вивьен Мерчант, Майкл Бейтс, Жан МаршПеревод: Дублированный, многоголосый SomeWaxСубтитры: Русские, АнглийскиеПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCEC335B453C922A9F6E61A64F6DDDCFDDA90F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186324   (1017995) от 02.05.2021
+
+Веселая пасха / Joyeuses Paques (1984) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой Бельмондо, преуспевающий бизнесмен и неисправимый ловелас, проводив жену в аэропорт, тут же знакомится с юной прелестницей. Он приводит ее к себе домой, но внезапно возвращается жена. Пытаясь выкрутиться, герой Бельмондо выдает девушку за свою дочь.Производство: Франция / Cerito Films, Sara FilmsЖанр: КомедияРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Софи Марсо, Мари Лафоре, Рози Варт, Мишель Бон, Мари-Кристин Декуар, Жерар Эрнандес, Элизабет Кольаммар, Флора Альберти, Марк ЛамольПеревод: Двухголосый, Многоголосый х2Субтитры: ОтсутствуютПродолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F12C78AC2FACF02F69FB887F333BE771EA4829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460285   (1017142) от 07.05.2021
 
 За пригоршню динамита / Giu la testa / A Fistful of Dynamite (1971) BDRip [H.265/1080p] [10-bit] [Remastered]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017142.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015840.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015563.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015463.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015240.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014463.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014135.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011785.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011759.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010899.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010580.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010410.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008535.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008265.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007539.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007359.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006942.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006940.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006703.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006587.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005995.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005574.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004895.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004625.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B88143247D76ABD9074F0F6C65F390D4C9E39A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349464   (1004481) от 01.01.2020
-
-С Новым годом! / La bonne annee (1973) BDRip [H.264/1080p] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дуэт гангстеров — профессионалов, Симон и его сообщник Шарль, планируют провернуть крупное ограбление ювелирного магазина.
-Но неожиданно Симон влюбляется в очаровательную владелицу антикварного магазина Франсуазу, чья лавка находится как раз по соседству с предполагаемым местом ограбления. Теперь главное, чтобы любовный роман не помешал осуществлению операции…Производство: Франция, Италия / Les Films 13, Rizzoli Film S.p.a.Жанр: Драма, мелодрама, комедия, криминалРежиссер: Клод ЛелушАктеры: Лино Вентура, Франсуаза Фабиан, Шарль Жерар, Андре Фалькон, Мирей Матьё, Лило, Клод Манн, Фредерик де Паскуале, Жерар Сир, Сильвано ТранквиллиПеревод: Профессиональный многоголосый, профессиональный двухголосыйСубтитры: Русские (full), английские (full)Продолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15660C4DF41B8993E1151F3D45AEBABB0D41A6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389881   (1003176) от 06.08.2021
-
-Загнанных лошадей пристреливают, не правда ли? / They Shoot Horses, Don't They? (1969) BDRemux  [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка в тяжелые годы Великой депрессии. Всюду безработица и бедность. Люди берутся за любую работу, чтобы заработать на кусок хлеба и крышу над головой. Поэтому не удивительно, что танцевальный марафон с призом в 1500 долларов легко собрал в мрачном ангаре на побережье несколько десятков участников со всей страны. Все они такие разные, но каждый готов на все ради (   Читать дальше...   )Производство: США / American Broadcasting Company (ABC), Palomar Pictures CorporationЖанр: Драма, экранизацияРежиссер: Сидни ПоллакАктеры: Джейн Фонда, Майкл Сарразин, Сюзанна Йорк, Гиг Янг, Ред Баттонс, Бонни Беделиа, Майкл Конрад, Брюс Дерн, Аль Льюис, Роберт ФилдсПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские (Full), английские (Full)Продолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A3FEC42BB671A0B496AF83C7A75B421B05929B
 ```
 
 https://mybot314.ru/tekegram_catalog/

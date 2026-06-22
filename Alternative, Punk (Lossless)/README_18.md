@@ -1,3 +1,32 @@
+###  Публикация: 1281401   (751973) от 08.02.2019
+
+Mercury Rev - Bobbie Gentry's the Delta Sweete Revisited (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okolona River Bottom Band (feat. Norah Jones) (04:36)
+02. Big Boss Man (feat. Hope Sandoval) (03:24)
+03. Reunion (feat. Rachel Goswell) (02:21)
+04. Parchman Farm (feat. Carice van Houten) (03:47)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6D3A925212ADB4CB154986A262B66C78FA5F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281648   (750140) от 09.02.2019
 
 Yak - Pursuit of Momentary Happiness (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -6,7 +35,7 @@ Yak - Pursuit of Momentary Happiness (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750140.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Papa Roach - Who Do You Trust? (2019) E7M [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749917.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Skillet - Dominion (2022) [FLAC|Lossless|tracks] <Alt.Rock, Christian Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749794.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jake Shears - Jake Shears (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746789.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Faith No More - Angel Dust (1992) London [FLAC|Lossless|image + .cue] <Alt.Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745512.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Deerhunter - Why Hasn't Everything Already Disappeared? (2019) [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745409.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Tunic - Complexion (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745408.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Angelo De Augustine - Tomb (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745404.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745403.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ HEALTH - VOL. 4 :: SLAVES OF FEAR (2019) [FLAC|Lossless|tracks + .cue] <Noisecor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745393.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Tender - Fear of Falling Asleep (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743838.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Chasms - The Mirage (2019) [FLAC|Lossless|tracks + .cue] <Industrial, No Wave, S
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743837.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Our Girl - Stranger Today (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742539.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Last Dinosaurs - Yumeno Garden (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742533.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Grinderman - Grinderman (2007) [FLAC|Lossless]<Alternative rock, Garage Rock, No
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741671.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Slowdive - Slowdive (2017) [FLAC|Lossless|tracks] <Indie-Pop, Rock, Shoegaze>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740813.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Millencolin - SOS (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740335.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Shivaree - Full Studio Discography (1999-2007) [FLAC|Lossless|tracks + .cue] <Co
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740332.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740061.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Broken Social Scene - Let's Try the After Vol. 1 (2019) EP [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739785.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ The Sherlocks - World I Understand (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738793.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738157.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Magic City Hippies - Water Your Garden (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737390.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Alice Glass - PREY//IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Electro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736906.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Alanis Morissette - Such Pretty Forks in the Road (2020) [FLAC|Lossless|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733419.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Alanis Morissette - Such Pretty Forks in the Road (2020) [FLAC|Lossless|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B940C7599D37BE4928C3E11154DA8D15E3EC8988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399465   (732958) от 01.08.2020
-
-The Psychedelic Furs - Made of Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boy That Invented Rock & Roll (03:36)
-02. Don't Believe (03:45)
-03. You'll Be Mine (04:47)
-04. Wrong Train (04:12)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA13DF7700192A7EE359ED220C9C66AB46E8416
 ```
 
 https://mybot314.ru/tekegram_catalog/

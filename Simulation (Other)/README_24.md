@@ -1,55 +1,3 @@
-###  Публикация: 1620813   (52523) от 22.06.2024
-
-Nucleares (2023) [En] (0.2.16.137) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nucleares может заинтересовать любителей оригинальных проектов и необычных инди-симуляторов. Это симулятор сотрудника атомной электростанции с видом от первого лица. У персонажа есть руки, ноги и туловище. Их можно увидеть, если опустить камеру. Герой оказывается единственным работником на экспериментальной АЭС, для которой не нужен большой персонал. Для этого объекта (   Читать дальше...   )Тип издания: SceneРазработчик: Iván Marcelo PrettiЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30377AFFA4169CB3951B92832A6E2D804A1801FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731991   (52395) от 23.06.2024
-
-Forest Ranger Simulator (2024) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52395.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Forest Ranger Simulator, как можно понять из названия, речь пойдет о работе рейнджера. Он несет ответственность за чистоту и благополучие в лесу, поэтому при появлении малейших проблем он мгновенно приступает к поиску решения. Главная сложность, с которой столкнутся пользователи - высокая загрязненность территорий. Прибрежная территория, ровно, как и отдаленные (   Читать дальше...   )Тип издания: SceneРазработчик: HOT CODE COMPANY, FreeMind S.A., VIRTUAL MAGICЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283E96EE889F7CFEBA0EB8E655CC027569C9B22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694203   (51968) от 26.06.2024
 
 Barotrauma (2023) [Ru/Multi] (1.5.8.0/dlc) Scene Tenoke
@@ -58,7 +6,7 @@ Barotrauma (2023) [Ru/Multi] (1.5.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51968.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51664.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1.5) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51550.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51541.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51518.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Dystopika (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51505.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Fae Farm (2023) [Multi] (20240620/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51504.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51357.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.27c) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51337.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Train Life A Railway Simulator (2021) [Ru/Multi] (28790/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51326.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Fish Game (2023) [En] (00.02.79) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51057.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Forge Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51035.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51006.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51001.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Young Hearts (2024) [Ru/En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50824.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ City Bus Manager (2024) [Ru/Multi] (2.0.16/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50607.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Chained Together (2024) [En] (1.7.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50582.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50193.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49686.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Butanooo! Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49668.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Spirit of the Island (2022) [Ru/Multi] (3.0.5.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49452.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49429.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Oxygen Not Included (2019) [Ru/Multi] (20240718/dlc) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49406.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.051) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49380.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.051) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:731C628CE9D0B2B416E96DF8CF888E2F52936F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738120   (49352) от 21.07.2024
+
+Superscout (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Superscout - это не совсем обычная видеоигра. Она больше похожа на интерактивный фильм, где вы сами определяете, что делать. Вы играете за Шуай Ге, главного героя, и от вашего выбора зависит, как будет развиваться сюжет. Думайте об этом как о приключенческом романе "Выбери сам", только гораздо более высокотехнологичном. Мир Шуай Гэ наполнен колоритными (   Читать дальше...   )Тип издания: SceneРазработчик: Mountain&Sea StudioЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Японский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5D255029E5A2130E266FC0F1CD9C90F0EAB4A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738116   (49319) от 21.07.2024
+
+Pacific Drive (2024) [Ru/Multi] (1.6.2/dlc) Scene Rune
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pacific Drive - это атмосферное автомобильное приключение на выживание в зоне отчуждения. Здесь вы не найдете привычных гоночных трасс, но зато на вас будут поджидать сверхъестественные опасности, которые заставят вас сильно напрячься. Единственный шанс на спасение - ваша машина, которую придется укреплять и улучшать на протяжении всей игры. Придется искать ресурсы (   Читать дальше...   )Тип издания: SceneРазработчик: Ironwood StudiosЖанр: Экшены, Приключенческие игры, Гонки, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C096AA734C67532795B1D35F7C0656F9246259
 ```
 
 https://mybot314.ru/tekegram_catalog/

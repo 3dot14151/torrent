@@ -1,3 +1,29 @@
+###  Публикация: 1044061   (568760) от 18.08.2016
+
+В. Грюнвальд | Популярные комнатные растения (2006) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из данной книги Вы узнаете много полезной информации о содержании и разведении популярных комнатных растений. Эта большая книга придет на помощь читателю и поможет разобраться во всем большом разноообразии современных комнатных растений. Книга является отличным иллюстрированным справочником для цветоводов-любителей. Именно здесь Вы найдете описания 200 родов и сортов (   Читать дальше...   )Жанр: Комнатные растенияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC17B1DE58501E5E7BEA664DA796AF3FD832000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529400   (568697) от 30.07.2012
 
 Т. Калюжная | Путеводитель по лучшим плодовым и ягодным культурам [2011] [PDF]
@@ -6,7 +32,7 @@
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568697.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565403.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563244.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562990.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561254.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561118.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557666.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557475.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551731.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550800.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548027.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542940.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541112.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538890.jpg" />
 </div>
 
 
@@ -362,6 +388,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366506   (538785) от 22.07.2011
+
+С. В. Дубинин | Как увеличить урожай - Тонна картофеля с одной сотки [2003] [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_538785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга станет для вас незаменимым руководством по выращиванию картофеля, поможет правильно выбрать участок и подгoтoвить почву, расскажет, коrда и как сажать картофель, как правильно подготовить клубни к посадке и выбрать сорта семенноro картофеля, как из одногo элитного клyбня получить 200 семенных клубеньков, как вырастить ранний и экологически чистый картофель и многое дрyгoе.
+Помимо общепринятых приёмов агротехники автор предлагает нетрадиционные решения повышения урожайности кaртофеля без применения окучивания, что позволит вам собирать до 3 кг клубней с куста.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926406   (535160) от 09.08.2015
 
 Л. Задорожная | Разведение рыбы, раков и домашней водоплавающей птицы (2011) [FB2]
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535160.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529902.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529079.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528986.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520008.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_519895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_519895.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519043.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_518759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_518759.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_518712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_518712.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517693.jpg" />
 </div>
 
 
@@ -621,61 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAB5829E723550F0525B3AC86A2C6979C3285BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374169   (517622) от 10.08.2011
-
-Г.В.Ушаков | Пчеловод и пасека [1992] [DJVU]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_517622.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даны рекомендации по содержанию, разведению и кормлению пчел, устройству ульев, советы по применению в лечебных целях продуктов пчеловодства. Основные правила работы с пчелами, зимовка, кормовые запасы, болезни и вредители пчел, охрана пчел от отравления пестицидами, продукты пчеловодства, пасека и долголетие.
-Книга будет полезна как начинающим, так и опытным пчеловодам, учащимся техникумов и вузов.1992Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72127CBC054D2B593C3B2B5EE5E6D942D371BAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374116   (517604) от 10.08.2011
-
-О.Ф.Гробов, А.М.Смирнов, Е.Т.Попов | Болезни и вредители медоносных пчел [1987] [DJVU]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_517604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционные методы изложения материалов по болезням расплода, детки и медоносных пчел в настоящее время вряд ли приемлемы, так как очень большое количество заболеваний трудно дифференцируемы. В связи с этой проблематикой авторы распределили материалы по разделам в зависимости от природы возбудителей или факторов, вызывающих те или иные патологические изменения в семьях пчел. Поэтому в первом разделе рассмотрены и представлены по новому инфекционные болезни пчел от весьма распространённых до относительно редких.
-Также здесь рассмотрены инвазионные и незаразные болезни пчелиных семей. Приведена классификация вредителей пчелиных семей и методы борьбы с ними. Приведены доскональные  рекомендации по ветеринарно-санитарным мероприятиям на промышленных пасеках и воскоперерабатывающих заводах. Также в каждом разделе приведен перечень эффективных лечебных препаратов и описаны особенности терапевтического воздействия на семьи медоносных пчел.
-Справочное научное издание в первую очередь предназначено для специалистов в области (   Читать дальше...   )1987Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D81864DAC4CD1C791FF8F7B7C660EE05157C8F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

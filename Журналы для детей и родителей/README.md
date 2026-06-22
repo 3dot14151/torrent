@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067076.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067048.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065930.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065790.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061981.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061849.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059272.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059271.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057671.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057182.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053219.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052901.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052210.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052130.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052122.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050952.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050109.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050099.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050097.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050062.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050061.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050054.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042956.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042429.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036496.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033803.jpg" />
 </div>
 
 

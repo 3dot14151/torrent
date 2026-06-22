@@ -1,3 +1,29 @@
+###  Публикация: 1238834   (544351) от 01.08.2018
+
+Post Human W.A.R (2017) [Ru/Multi] (1.1.3) License HI2U
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Post Human W.A.R – пошаговая тактическая и психологическая стратегия. На заре третьего тысячелетия человечество вымерло, оставив после себя израненную Землю. Свирепые мутировавшие животные, переоборудованные для войны домашние роботы, а также изобретательные приматы в трико теперь борются за право распоряжаться наследием людей.Тип издания: LicenseРазработчик: Studio ChahutЖанр: Turn-Based StrategyЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D6A559DA673334DBE7DC74A853EAB599874003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531580   (541643) от 05.08.2012
 
 Jagged Alliance: Back in Action [Ru/En] (RePack/1.13e/6 DLC) 2012 l R.G. Shift
@@ -6,7 +32,7 @@ Jagged Alliance: Back in Action [Ru/En] (RePack/1.13e/6 DLC) 2012 l R.G. Shift
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_541643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541643.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Men of War: Assault Squad: Game of the Year Edition / В тылу врага 2: 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533734.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Xenonauts (2014) [En] (1.65) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526422.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Revolution Under Siege / Герои Гражданской: Красные пр�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525545.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Steel Division: Normandy 44 (2017) [Ru/Multi] (300093748/dlc) Repack R.G. Cataly
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522619.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Invisible Inc (2015) [Ru/En] (1.0.146742) SteamRip Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522212.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ SpellForce 2: Shadow Wars [Ru] (L/1.02) 2006
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521169.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Shadowrun: Hong Kong (2015) [En] Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_515805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515805.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Massive Chalice (2015) [En/Multi] (1.04) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514749.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Chaos Reborn (2015) [Ru/Multi] (1.13.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514721.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Invisible, Inc. (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509830.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Jagged Alliance: Crossfire / Jagged Alliance: Перекрестный огон�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507145.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Jagged Alliance: Crossfire / Jagged Alliance: Перестрелка [Ru/En] (L/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504086.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) Repack R.G. Механики [De
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501929.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ Real Warfare: 1242 / История Войн: Александр Невский 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501401.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ Worms W.M.D (2016) [Ru/En] (1.0.1637/dlc) Repack Mizantrop1337
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500169.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ Pacific Storm: Allies / Стальные монстры: Союзники [Ru] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496530.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ Galaxy Reavers (2016) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491449.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ Ravenmark: Scourge of Estellion (2015) [En] (1.18) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487196.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ Warcraft III (3): Reforged (2020) [Ru/En] (1.32.10.18820) Repack dixen18
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483961.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ Panzer Strategy (2018) [Ru/En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481537.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ Order of Battle: World War II  (2016) [Ru/Multi] (4.1.4/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479517.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.315/dlc) Repack xatab [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478505.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475513.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.8.2.81.5642/dlc) License RELOAD
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473419.jpg" />
 </div>
 
 
@@ -666,32 +692,6 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.8.2.81.5642/dlc) License RELOAD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9616BE9DB6E03F5857C3D55AEDA9765FD1D0E3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240912   (471408) от 06.09.2018
-
-Sword Legacy Omen (2018) [Ru/Multi] (1.1.1) License CODEX
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471408.jpg" />
-</div>
-
-
-###  Подробнее
-
-До золотого века короля Артура наши земли были раздроблены и находились в упадке; слепое себялюбие раздирало королевства изнутри. Британия была расколота и лишена всякой надежды. Лорд Мерсии убит, ваша возлюбленная похищена, а дом разрушен. В роли Утера, командира рыцарей, проведите свою команду товарищей по несчастью, следуя тропой, полной испытаний. Заключайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Firecast Studio, Fableware Narrative DesignЖанр: Action (TBS), Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4645531B66D0A3C47790A2F704D025C5E94F62F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

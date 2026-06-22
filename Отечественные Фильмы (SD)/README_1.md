@@ -1,3 +1,29 @@
+###  Публикация: 1436893   (1042742) от 02.01.2021
+
+Гаражный папа (2018) WEB-DLRip (2 серии)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канун Нового года в одном небольшом городе, где все друг друга знают. Когда же, если не сейчас, ремонтировать дороги!? И вот силами местного РСУ все кругом перекопано, замерзло и обледенело. Ничего, что половина жителей прямо перед праздниками переломали конечности и головы и заполнили местную больницу. Именно в это время, повальной предпраздничной суеты и коммунального (   Читать дальше...   )Производство: Россия / Медиа Контент группЖанр: КомедияРежиссер: Александр Новиков-Янгинов, Станислав ЛибинАктеры: Михаил Тарабукин, Надежда Азоркина, Федор Лавров, Светлана Колпакова, Антон Эльдаров, Александра Велескевич, Андрей Аверьянов, Андрей Капустин, Евгений Михеев, Сергей СтепинСубтитры: ОтсутствуютПродолжительность: 00:48:53 + 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA75EBE4A984832BF086E5C63842008B8A50588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436858   (1042629) от 02.01.2021
 
 Мажор. Фильм (2021) WEBRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042629.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042480.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041813.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041771.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041336.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041257.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041021.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040984.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040777.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040713.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040457.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040255.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039962.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039467.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038917.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038478.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038397.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038183.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037946.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037944.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037681.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037668.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037362.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037066.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037016.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B78A1F3CD22014768A5F7F7A303D2CEBD6B43B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441937   (1036797) от 24.01.2021
-
-Дорогой Вадим Николаевич (2014) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снято по рассказу Кира Булычёва «Позовите Нину».
-Телефон Вадима Николаевича все время соединяет его с незнакомкой — маленькой девочкой, которую зовут Нина, и со временем главный герой понимает, что это звонок из прошлого: звонящая девочка – родом из 1942 года…Производство: Россия / ЗазеркальеЖанр: Короткометражный, фантастика, мелодрамаРежиссер: Владимир УфимцевАктеры: Анастасия Лепинских, Александр ЗлыгостевСубтитры: ОтсутствуютПродолжительность: 00:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0C1986ACC4041AC589A5C280BB01EECBC78B1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

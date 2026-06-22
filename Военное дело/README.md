@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876436   (1073229) от 
+
+Военная приемка. Высшая школа вертолетчиков (14.06.2026) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073229.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске - эксклюзивный материал о единственном в России военном училище, где готовят вертолетчиков. Зритель узнает, каким зарубежным армиям Россия поставляет свои вертолеты, кто направляет к нам на учебу своих курсантов, а также - как наши винтокрылые машины помогают дружественным государствам отстаивать национальные интересы.Производство: Россия | «Красный Квадрат»Жанр: Документальный, техника, вооружениеРежиссер: Иван ЧигвинцевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F9D667A3C46F941A0B04CBE1DCAF26B7D25060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875247   (1072427) от 
 
 Военная приемка. УБИМ. Три машины в одной броне (07.06.2026) WEBRip [H.264/1080p]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072427.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071601.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070821.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069678.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068689.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067918.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066842.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065830.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065002.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064264.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063343.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062130.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061213.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060422.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050181.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049500.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039264.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037935.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029973.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028510.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025445.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022790.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022511.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021589.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017899.jpg" />
 </div>
 
 
@@ -644,33 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38BCD67A66689959A3F87DCC5E5872B181C4DEDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216583   (1012836) от 03.06.2021
-
-«Витязь». Без права на ошибку (2018) HDTV [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тишина. Она - бесценна в наше беспокойное время. Но ничего не дается просто так. Всегда должен быть кто-то, кто пожертвует своими силами, временем и, быть может, даже жизнью. Ради этой самой тишины.
-Спецназ - ядро Росгвардии, силовой структуры, призванной сделать нашу жизнь безопасной. Где бы мы ни были - на митинге или на праздничных гуляниях, на важном гособъекте (   Читать дальше...   )Телекомпания: Россия, «Красный квадрат»Жанр: Документальный, спецназ, историяРежиссер: Руслан ТрещёвПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2F23F973E66850903AEB160BA8C003BF20A073
 ```
 
 https://mybot314.ru/tekegram_catalog/

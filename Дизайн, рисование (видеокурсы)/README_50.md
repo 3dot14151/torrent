@@ -6,7 +6,7 @@ Udemy, Nikolay Naydenov | Lobo - 3D character in Blender course (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320236.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Jan Urschel | Движки рендеринга - Небольшой обзор 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319618.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jan Urschel | Улицы мегаполиса - Китбаш, дизайн и п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319442.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Blender Cloud | Написание скриптов для художников 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318255.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Blender Cloud | Фабрика существ 2 - Создание персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318241.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Udemy, Mrawan Hussain | Создание Молота Тора в Blender 2.90 �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317287.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Blender Cloud | Создание видеоэффектов в Blender: Трек
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315841.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Wingfox, Nikolay Naydenov | Dragon Rider - Cartoon 3D Character Creation Course 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315838.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Blender Cloud | Создание мультипликационного перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315830.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Udemy, Mrawan Hussain | Создание маленького K-2SO робота
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315056.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314792.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Blender Cloud | Создание игровых ассетов в Blender / Game
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313504.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blender Cloud | Моушн графика в Blender / Blender Motion Graphics (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313309.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ CG Fast Track | Полигональное моделирование в Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312725.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jan Urschel | Мегасити 01 - Моделирование и Рендери
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311313.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ CG Cookie | Генеративное Моделирование и Дизайн 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311307.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Jan Urschel | Интерьерное освещение - Футуристичн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311301.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Skillbox, Логомашина | Дизайнер логотипа и фирме
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310236.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Skillbox | Веб-дизайн с нуля до PRO (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310235.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ AIC, Skillbox, Tagline | Три дизайн-курса в одном - UX-ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310234.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Skillbox | After Effects с нуля до PRO (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310232.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ ArtCraft | Цифровой Рисунок Online (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310231.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ XYZ School, Антон Агеев | Мастер-Класс. Создание м
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307957.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Skillbox | Графический дизайнер с нуля до PRO (2020) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307943.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305719.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ XYZ School, Женя Пак | Hard Surface Lite (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303717.jpg" />
 </div>
 
 

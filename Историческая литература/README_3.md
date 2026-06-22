@@ -1,3 +1,107 @@
+###  Публикация: 1850984   (1054888) от 31.01.2026
+
+Александр Пятигорский | Буддийская философия мысли (2020) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Моисеевич Пятигорский (1929–2009) – выдающийся мыслитель, востоковед, писатель, автор философских и буддологических монографий, романов, а также многочисленных философских работ и эссе. Эта книга была написана Александром Пятигорским на английском языке («The Buddhist Philosophy of Thought», 1984) и, таким образом, впервые публикуется на русском языке. (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: КоЛибриФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC1067F919AE2676886B0E7175C30EE8AD795C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850982   (1054887) от 31.01.2026
+
+Татьяна Ермакова, Елена Островская, Валерий Рудой | Классическая буддийская философия (2021) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учение Будды Шакьямуни о вступлении в Нирвану, его теоретическая интерпретация в текстах постканонической традиции считаются среди большинства специалистов предметом слишком сложным и в силу этого едва ли способным увлечь читающую публику. Но выходящие на эту тему книги неизменно привлекают широкое внимание. Работа, написанная ведущими буддологами России, посвящена (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: Академический ПроектФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935BB81E3D7FD4D2787257B607BB2DFA0E876037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850980   (1054886) от 31.01.2026
+
+Е. Торчинов, Ю. Щуцкий | Ицзин. Книга Перемен (2023) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054886.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ицзин» («Книга Перемен») – одна из древнейших книг китайской цивилизации и, пожалуй, одна из самых знаменитых. В основе ее лежат 64 гексаграммы, особые символы, призванные очертить определенные жизненные ситуации и раскрыть вопрошающему их дальнейшее развитие. Однако значение и смысл «Книги Перемен» выходят далеко за рамки «предсказателя судьбы». Своей мудростью (   Читать дальше...   )Жанр: Восточная философия, ИсторияПеревод: Е. Торчинов, Ю. ЩуцкийИздательство: Азбука-АттикусФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6512CD895EB59E70E63FE2BAF129830F985B9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850979   (1054885) от 31.01.2026
+
+Херли Крил | Философская мысль Китая. От Конфуция до Мао Цзэдуна (2017) [PDF, FB2, EPUB, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хёрли Крил - выдающийся американский синолог, автор научных трудов, посвященных истории, государственному устройству, философским и религиозным течениям Китая. В настоящей книге, предназначенной для широкой читательской аудитории, ученый рассматривает главные этапы формирования философской системы Поднебесной со времен династии Шан (ХV-ХIII вв. до н. э.) до провозглашения (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ЦентрполиграфФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AF79F4CB56B70AE8B57121884B4670D4A1F5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850978   (1054884) от 31.01.2026
 
 Лао-Цзы | Книга о Пути Жизни. Дао-Дэ цзин (2018) [PDF, FB2, EPUB, RTF]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054884.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054883.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054871.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054870.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054788.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054787.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054786.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ P. Гароди, И. Валлерстайн | Мифы израильской п
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054785.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054783.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054782.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054781.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054780.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054779.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054776.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054775.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054774.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054565.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054564.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054491.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Dietrich Orlow | A History of Modern Germany. 1871 to Present. 9th Edition (2025
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054044.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053341.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053338.jpg" />
 </div>
 
 
@@ -571,112 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E083AEFC8DFE12CD36B4F6870FDC493A13B09250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848806   (1053336) от 20.01.2026
-
-Денис Креленко | Войны ХХ века. Хроники войн в картах, событиях, фактах. Большой иллюстрированный атлас (2020) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Войны XX века. Локальные войны и вооруженные конфликты» представляет собой собрание цветных карт, содержащих подробную информацию о событиях главных вооруженных конфликтов XX века. Наряду с красочными и подробными картами атлас содержит сопроводительные тексты, в которых изложены особенности и итоги военных событий. Особое внимание в атласе уделено событиям, (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9C872A66B63CD50DD92C495CE2F6ED35C08656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848590   (1053140) от 18.01.2026
-
-Дэн Джонс | Крестоносцы. Полная история (2024) [PDF, FB2, RTF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробная история крестовых походов, рассказанная автором бестселлеров «Тамплиеры» и «Плантагенеты» Дэном Джонсом.
-
-Более тысячи лет христиане и мусульмане жили бок о бок, иногда в мире, а иногда в состоянии войны. Но когда в 1099 году христианские армии захватили Иерусалим, начался самый печально известный период противостояния двух религий. Расширяя привычные временные (   Читать дальше...   )Жанр: ИсторияИздательство: АльпинаФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook), Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25657962E379D5157B08E7CCFCDA7922A42BCB64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848776   (1053113) от 18.01.2026
-
-Феликс Лурье | Всемирная история. Всемирная история в картах, событиях, фактах. Большой иллюстрированный атлас (2020) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой иллюстрированный атлас содержит уникальные линейные таблицы, отражающие историческую хронологию ведущих государств Европы, Азии, Африки и Америки. Благодаря авторской подаче легко отследить важнейшие события пяти тысячелетий мировой истории и их влияние на развитие мира. Кроме этого, в атласе вы найдете краткий исторический словарь, расширяющий информативность (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2194C829F09860FBBB28B946930A7984E97894D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848774   (1053112) от 18.01.2026
-
-Дмитрий Иванов | Великие русские мореплаватели. История морских экспедиций в картах, событиях, фактах. Большой иллюстрированный атлас (2025) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русским мореплавателям довелось внести достойный вклад в расширение знаний о нашей планете. На их счету – открытие Антарктиды, северо-западных берегов Северной Америки, пролива, разделяющего Америку и Евразию, исследование Командорских, Алеутских, Курильских островов, Новой Земли и побережья Северного Ледовитого океана, описание Маркизских, Марианских, Гавайских (   Читать дальше...   )Жанр: История, География, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC02D5597A88EEA716DDD2AEE829F3C6D3C0FA02
 ```
 
 https://mybot314.ru/tekegram_catalog/

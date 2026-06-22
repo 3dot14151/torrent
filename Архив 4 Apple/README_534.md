@@ -1,3 +1,56 @@
+###  Публикация: 1622894   (234131) от 30.03.2023
+
+Aiseesoft Mac Data Recovery 1.6.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Mac Data Recovery - это мощное и безопасное программное обеспечение для восстановления данных. Оно может помочь вам восстановить почти все удаленные / потерянные файлы, такие как фотографии, документы, электронные письма, аудио, видео и многое другое с компьютера, жесткого диска, флэш-накопителя, карты памяти, цифровой камеры и так далее.
+Aiseesoft Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2023Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AB5E8427EFD19E7832F56E70CF768A39B8EDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640575   (234121) от 18.06.2023
+
+Pro Microphone: Audio Recorder 1.4.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия звукозаписи и записи музыки. Для начинающих певцов или тех, кто хочет, чтобы их услышали - Pro Microphone. Сделайте свой голос громче. Пойте и сохраните все свои треки, выберите разные микрофоны под свое настроение. Профессиональный студийный микрофон всегда на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 09.05.023Разработчик: © 2021 Music Paradise, LLCПоддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39B3B689616A881B724169DDF29364CB0E8151A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640609   (234105) от 18.06.2023
 
 Professional Recorder & Editor 6.3.6 [Multi/Ru]
@@ -6,7 +59,7 @@ Professional Recorder & Editor 6.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234105.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Capture One 23 Pro 16.2.0.112 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234084.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Xliff Editor 2.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234071.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ DxO PhotoLab 6 ELITE Edition 6.6.0 (build 50) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234070.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Barcode 2.5 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234062.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ ColorWell 7.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234052.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Omni Downloader 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234038.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Professional Recorder & Editor 6.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234026.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ AudKit Spotify Music Converter for Mac 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234011.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ World Clock Deluxe 4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233953.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ App Tamer 2.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233933.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ FSNotes 5.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233911.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Librarian Pro 7 v7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233896.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ TransData: Internet Data Speed 2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233877.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ My Metronome - Tempo Keeper 1.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233866.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ Apeaksoft Android Toolkit 1.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233860.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ Aspect Ratio X 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233857.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ Easy New File 5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233849.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ Deliver Express 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233847.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ CADintosh X 8.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233839.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ BusyContacts 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233835.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ Dash 6.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233833.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ Theine 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233816.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ Mellel 5 v.5.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233813.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ Mellel предлагает специальные инструменты для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA9153CAD15D4E238D0D3D47727DD8DB8C882F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505203   (233802) от 26.10.2021
-
-Dato 3.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B50967CA22ABE252271081E9BCC089BE485041E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505202   (233795) от 26.10.2021
-
-Color Wheel 6.5 [Multi/Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25FA30F12056F7A96DB0ECD56A0EC2AA78725CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

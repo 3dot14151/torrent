@@ -1,3 +1,110 @@
+###  Публикация: 1600505   (157502) от 27.12.2022
+
+Adguard 2.9.2 beta [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2022Разработчик: © 2022 AdguardПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C26EAFFBCA57E2E9B0C6FD95221E04F7631383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433719   (157409) от 21.12.2020
+
+WiFiSpoof 3.5.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157409.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFiSpoof - небольшая утилита, которая поможет вам легко сменить WiFi Mac-адрес с помощью горячих клавиш или из строки меню. MAC-адрес можно поменять на любой случайный (сгенерированный приложением) или непосредственно заданный вами.Тип издания: macOS SoftwareРелиз состоялся: 20.12.2020Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F06F0642504AE2F3F4AD106AC91F70113DBAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518179   (157329) от 18.12.2021
+
+Serviio Pro 2.2.1 CR2 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157329.jpg" />
+</div>
+
+
+###  Подробнее
+
+DLNA медиа-сервер, позволяющий передавать мультимедийные файлы (музыку, видео или изображения), между устройствами в домашней сети.
+Перед вами версия известного медиа-сервера, которая позволит вам при небольших знаниях начать транслировать медиафайлы (это относится к музыке, фотографиям, видео и так далее ) на разные устройства, например на ваш телевизор, Blu-ray (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.12.2021Разработчик: Petr NejedlyПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CD89829FA6B222FF6CD673055FF7B4F16B9194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270364   (157286) от 19.12.2018
+
+LRTimelapse Pro 5.1.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157286.jpg" />
+</div>
+
+
+###  Подробнее
+
+LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
+
+Интервальная съемка (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2018Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FF8B2275DEFA607011A1F16CB28875C813C833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433683   (157238) от 21.12.2020
 
 itsMine Video Watermark Maker Pro 2.6 [En]
@@ -6,7 +113,7 @@ itsMine Video Watermark Maker Pro 2.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157238.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Desk 3 v1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156785.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Hazel 3.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156783.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ Lingon X 6.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156373.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Capture One 20 Pro 13.1.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156320.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ Rogue Amoeba Farrago 1.6.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156300.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ Integrity Plus 10.4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156195.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ Fission 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155941.jpg" />
 </div>
 
 
@@ -220,7 +327,7 @@ Notebooks – Write and Organize 3.0.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155869.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ DjVu Reader Pro 2.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155786.jpg" />
 </div>
 
 
@@ -274,7 +381,7 @@ Teorex iResizer 3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155770.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ Metasequoia 4 v.4.8.4b [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155749.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ Aiseesoft Mac PDF to ePub Converter 3.3.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155688.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ FonePaw iPhone Data Recovery 7.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155574.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ PDF to PowerPoint Converter 6.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155383.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ Affinity Designer Beta 1.10.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155369.jpg" />
 </div>
 
 
@@ -431,7 +538,7 @@ Affinity Photo Beta 1.10.5.270 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155363.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ AdGuard for Safari 1.11.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155281.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ PhotoChef 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155162.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ UI Browser 3.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155076.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ Arturia Analog Lab V v5.4.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155059.jpg" />
 </div>
 
 
@@ -561,7 +668,7 @@ Templates for Photoshop by GN 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155049.jpg" />
 </div>
 
 
@@ -574,117 +681,6 @@ Templates for Photoshop by GN - идеальный инструмент поль
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7CF0F8CEAFF0D39D97D61777D740779ACF5808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433975   (154997) от 22.12.2020
-
-MenuBar Stats 3 v3.6.1 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154997.jpg" />
-</div>
-
-
-###  Подробнее
-
-MenuBar Stats - системный монитор, очистка памяти и здоровье батареи.
-Каждый модуль можно увидеть в строке меню. Каждый модуль может быть объединен в 1 окне, или в отдельном окне.
-Вы можете отобразить краткую информацию или максимум подробной информации, включая графики, топ-процессы и многое другое. Получать уведомления для вашего здоровья или батареи от других (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2020Разработчик: Fabrice LeyneПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B81F1131ABB29E247B1095421F38754BB69C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086109   (154768) от 23.12.2016
-
-Sip Pro 4.4.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sip - код оттенков на экране
-Крошечная, но очень полезная программа разработанная Rui Aureliano для людей, которые тесно связаны с веб-дизайном.
-При помощи данной программы можно определить код цвета на любом участке экрана.  После установки в системном меню появляется ярлык программы. Далее все просто. Выбираем Pick Color и увеличительную площадь наводим на область, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 декабря 2016Разработчик: Rui AurelianoПоддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED34C58066863FB68B8D45D28B223C5CA18CE433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086087   (154604) от 23.12.2016
-
-HTML Egg Pro 7.70.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154604.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTML Egg Pro позволяет проектировать веб-сайты и веб-формы.
-HTML Egg Pro  имеет уникальный drag-and-drop редактор  и может автоматически генерировать код на основе ваших проектов. Никакого программирования  не требуется. Это приложение подходит для веб-дизайнеров, чтобы создавать веб-сайты без необходимости изучать передовые языки программирования.
-
-Вы сможете открывать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2016Разработчик: Aidaluu Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9E72DAEB9C4A8E3D1C9D81C9762DF31A506D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194582   (154603) от 25.12.2017
-
-Cinema 4d r19 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinema 4D R19 предоставляет великолепные улучшения, которые вы можете использовать уже сейчас и которые также демонстрируют, что можно ожидать в будущем. Дизайнеры выбирают Cinema 4D из-за её быстрого, простого рабочего процесса и высокой стабильности, а R19 делает рабочий процесс ещё быстрее, расширяет горизонты новыми функциями и предоставляет надёжность на которую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: MAXONПоддерживаемая ОС: Mac OS X 10.11.6+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A9F9C83C2CCFAFF4D2DD83D2C3127A9BC5FD21
 ```
 
 https://mybot314.ru/tekegram_catalog/

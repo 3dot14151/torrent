@@ -1,3 +1,29 @@
+###  Публикация: 958012   (749468) от 23.05.2016
+
+Monstrum (2015) [En] (1.4.1) Repack R.G. Механики
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monstrum - жуткий хоррор-экшен, где вам предстоит выжить на заброшенном корабле, который наполнен смертельными ловушками! Уровни генерируются случайным образом, поэтому каждое новое прохождение будет уникальным. Если вы считаете, что ничего не боитесь, то вам обязательно стоит попробовать Monstrum.Тип издания: RepackРазработчик: Team JunkfishЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95ED84DD6C40FE5EC93831F435F4AC2C6FEADE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216812   (747395) от 01.04.2018
 
 The Signal From Tölva (2017) [En] (1.0.51) License HI2U
@@ -6,7 +32,7 @@ The Signal From Tölva (2017) [En] (1.0.51) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747395.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747391.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Adam - Lost Memories (2020) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746644.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745766.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) SteamRip =nemos= [Enhanced Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743665.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ HEVN (2018) [En] (1.0.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743163.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Welcome to the Game II (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742962.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Kartong - Death by Cardboard! (2018) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741706.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Jackal (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741484.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) Repack xatab [Enhanced Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741104.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Dead Island Riptide (2013) [Ru/Multi] (1.4.1.1.13/dlc) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740621.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ World War Z (2019) [Ru/Multi] (1.70/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735494.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ The Typing Of The Dead: Overkill (2013) [Ru/En] (1.0u1) Repack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734526.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Cubers: Arena (2020) [Ru/Multi] (9043596) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734140.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ On The Verge II (2020) [Ru/En] (1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733684.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Hellpoint (2020) [Ru/Multi] (0.284) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733266.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2491/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733263.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.09/dlc) Repack Other s [Ultimate Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732588.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Battlefield 1942 + Battlefield 1942: Secret Weapons of WWII + Battlefield 2 Powe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732354.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730326.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Dead Island: Riptide - Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730222.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729221.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.1464/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729204.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728009.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724726.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Investigator — игра жанра хоррор с видом от перво�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5705EDBF471216D26FF097BB54214DD7B55990FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129222   (723808) от 27.04.2017
-
-Outlast 2 (2017) [Ru/Multi] (1.0.17495) Repack YelloSOFT
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - Blake Langermann, оператор работающий со своей женой, Lynn. Вы двое, - журналисты-расследователи, готовые рисковать и копнуть поглубже, чтобы раскрыть истории, в которые никто не посмел бы влезть. Вы исследуете цепочку улик, которая началась с, казалось бы, невозможного убийства беременной женщины, известной только, как Jane Doe. Расследование привело вас в (   Читать дальше...   )Тип издания: RepackРазработчик: Red BarrelsЖанр: Adventure, Action (Survival horror), 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D731287F2BB29B4A2228476E05FF33A0B02CE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

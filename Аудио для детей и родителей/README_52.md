@@ -1,3 +1,61 @@
+###  Публикация: 384411   (485425) от 05.09.2011
+
+Fatcat & Fishface - Meanie (2007) [MP3|192 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485425.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Fret Not
+2. Fat-a-Cat
+3. We All Are Animals
+4. Una Momento(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A230D695CA9CC72A368FBA84E025C62CD2F116DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384393   (485122) от 05.09.2011
+
+VA - Hey! Hey! Big songs for little people (2007) [MP3|128 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob The Builder - Can We Fix It
+02. Thomas The Tank Engine & Friends - Theme
+03. LazyTown - Welcome To LazyTown (Theme)
+04. Balimory - Theme(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB32A0E17F88D66256AE1797AA582B285ADF5964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566349   (484542) от 28.07.2022
 
 Валентин Постников | Карандаш и Самоделкин. Карандаш и Самоделкин на необитаемом острове (2016) [MP3, Алла Човжик]
@@ -6,7 +64,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484542.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484536.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ VA - Детские Песни (2003) [MP3|224 kbps]<Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482922.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ Bebe Lilly - Mon Monde a moi (2006) [MP3|192 kbps]<Детские песенки
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482811.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481495.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ Cedarmont Kids - Silly Songs (1996) [MP3|192 kbps]<Детские песенки
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481172.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Raffi - Дискография (3 CD) (1979-1996) [MP3|192 kbps]<Детские 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481166.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481081.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481079.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481078.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480917.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480661.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480422.jpg" />
 </div>
 
 
@@ -376,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480420.jpg" />
 </div>
 
 
@@ -402,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479682.jpg" />
 </div>
 
 
@@ -428,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479484.jpg" />
 </div>
 
 
@@ -455,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479376.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479275.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479135.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479025.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478987.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478816.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478457.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478451.jpg" />
 </div>
 
 
@@ -653,61 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D9BE33F5F36C28763E93F3EF10B5EC7245F9669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469316   (476833) от 02.09.2020
-
-Виктор Конецкий | Наш кок Вася (2012) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Викторович Конецкий - выдающийся русский писатель, судьба которого прочно связана с морем. Богатая событиями жизнь моряка и писателя нашла отражение в его художественном творчестве. "Наш кок Вася" - рассказ о мальчишке-поваре, который, как выяснилось уже после выхода судна в рейс, абсолютно не умел готовить.Жанр: Детская повесть, морские приключенияПродолжительность: 01:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B91592978C862E1F8EC007A1810CD1370EACE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385811   (476351) от 09.09.2011
-
-VA- The Best Disney Album In The World… Ever! (3CD) (2006) [MP3|160 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476351.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-01 - Troy & Gabriela (High School Musical) - Breaking Free
-02 - Phil Collins (Tarzan) - You'll Be In My Heart
-03 - Carmen Twillie (Lion King) - Circle Of Life(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 03:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A89A96879E2D69687370C735253118845E722FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

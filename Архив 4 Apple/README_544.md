@@ -1,3 +1,57 @@
+###  Публикация: 1424426   (229873) от 16.11.2020
+
+MarsEdit 4 v4.4.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3014ABD65BB17EF5C18026923490B4B3625F149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424368   (229831) от 16.11.2020
+
+iBoostUp Premium 8.4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229831.jpg" />
+</div>
+
+
+###  Подробнее
+
+iBoostUp настраивает и оптимизирует ваш Mac, очищая ненужные файлы, фиксируя ваш жесткий диск, предоставляя рекомендации по эффективности, защищая вашу конфиденциальность, удаляя файлы cookie, показывая вам легкодоступную системную информацию и многое другое!
+
+iBoostUp Memory Booster позволяет вам просматривать подробную информацию о системной памяти и, возможно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: iBoostUp Pty LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE06B3414073E16166B2E6523B516C66A2CC788B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424417   (229778) от 16.11.2020
 
 Duplicate File Finder Pro 6.10  [En]
@@ -6,7 +60,7 @@ Duplicate File Finder Pro 6.10  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229778.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ iMazing 2.10.6 (build 11553) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229773.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ iClock Pro 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229760.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Capture One 20 Pro v13.0.0.184 b6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229756.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ KCNcrew Pack 11-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229753.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ CodeRunner 4 v4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229738.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ NCH Prism Plus 6.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229713.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ XYLIO Future DJ Pro 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229694.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ Sensei 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229678.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ Iridient Developer 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229673.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ Amadeus Pro 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229615.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ Translate Tab 2.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229581.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ DearMob iPhone Manager 4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229546.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ SnapMotion Unlimited 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229506.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ Find Any File (FAF) 2.3.2 b9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229490.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ Native SQLite Manager 1.25.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229482.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ Bartender 4 v4.1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229477.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ GlueMotion 2 v.2.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229474.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ Airtool 2 v.2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229468.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ djay - DJ App & AI Mixer 3.1.8  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229458.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Comic Life 3 v3.5.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229426.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ Music Tag Editor 5.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229420.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Zoc Terminal 8.01.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229419.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ Mimestream 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229404.jpg" />
 </div>
 
 
@@ -633,61 +687,6 @@ Mimestream сочетает в себе мощь macOS с расширенным
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D668FA340AE4FD14E6FB626F09E10CBF0728BF1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341846   (229402) от 29.11.2019
-
-Smultron 12.0.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229402.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Smultron создавать и редактировать любой текстовый документ , начиная от веб-страницы, сценарий, список, к каждому виду текста или кода.
-Smultron - простой и элегантный текстовый редактор, с которым можно легко создавать и редактировать любые неформатированные тексты.
-По словам разработчика, при создании редактора ставилась задача снабдить программу богатой (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Peter BorgПоддерживаемая ОС: macOS X 10.14.4 или более поздняя версияЯзык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A4BE09D9C6DFE538CB1F709E7CA0B7B3262107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649564   (229396) от 28.07.2023
-
-iNet Network Scanner 2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_229396.jpg" />
-</div>
-
-
-###  Подробнее
-
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © BananaGlue GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332F8BFF8A65A984E8C7315814FDBE5756B06675
 ```
 
 https://mybot314.ru/tekegram_catalog/

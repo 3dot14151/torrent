@@ -1,3 +1,29 @@
+###  Публикация: 1552466   (587624) от 20.05.2022
+
+Photo Recovery v1.63 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление удаленных фото и видео. Восстановление данных помогает найти удаленные файлы, а также видео с удаленных носителей. Вы легко можете восстановить удаленные фотографии, видео, важные документы и аудиофайлы. Иногда при очистке нежелательных носителей мы удаляем важные файлы. Мы можем удалить фотографии и видео с ценными воспоминаниями.Тип издания: Пиратка (Premium)Релиз состоялся: 20 мая 2022 г.Разработчик: Tap into AppsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBF33175EED447800C71300D967CEAFFF1865D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918441   (586665) от 15.07.2015
 
 WiFi Premium 4.120.02 [Ru]
@@ -6,7 +32,7 @@ WiFi Premium 4.120.02 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586665.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586599.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585622.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ ABBYY TextGrabber + Translator 1.13.1.209 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585108.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584789.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584641.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584510.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584004.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ High-Speed Camera Plus v3.1.0 [Ru/Multi] - высокоскоростная ка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580701.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ KinoTrend v2.2.4 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579779.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577644.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ YARVITTO v3.18 Pro [Ru/Multi] - путеводитель по Европе и н
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575747.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ All GPS Tools Pro v2.6.2 + Mod [En] (Compass, Weather, Map Location)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575628.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575055.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574995.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573239.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571960.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568461.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566447.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Learn English - Listening and Speaking v6.3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556995.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ FaceLab: Face Editor, Voila! v2.6.1 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556862.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Adguard Premium 2.9.136 Final [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556642.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Text Scanner [OCR] v9.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556324.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555530.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555516.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:042680F1AABF50F368656FB78931BDB4401F1ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307523   (554989) от 09.06.2019
-
-Параллельные книги, сказки, топики на английском v5.3.2 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение содержит параллельные топики, диалоги, сказки и книги на русском и английском языках (билингвальные тексты) со встроенным словарём, который позволяет посмотреть перевод отдельного слова из английского текста и добавить его в интегрированную в приложение подсистему запоминания английских слов для дальнейшей отработки. Параллельные тексты имеют разный уровень (   Читать дальше...   )Тип издания: Пиратка (удалена реклама и всякий хлам)Релиз состоялся: 03.06.2019Разработчик: Adamant MobileПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61EA5788C595E0993B8123597C8EA05FC7EC0D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

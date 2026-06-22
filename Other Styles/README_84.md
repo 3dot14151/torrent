@@ -1,3 +1,264 @@
+###  Публикация: 1036606   (618992) от 21.07.2016
+
+Saint-Preux - Odyssee (1986) [FLAC|Lossless|image + .cue] <Instrumental, Neoclassical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Profondeurs
+02 - Le Royaume de Neptune
+03 - Symphonie du temps perdu
+04 - Fantasme(   Читать дальше...   )Жанр: Instrumental, NeoclassicalПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4F26F72B510B1B5DE9000200B56EDD63A90338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295510   (618799) от 13.04.2019
+
+Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J'trouve ça beau (3:26)
+02. Les pieds dans le vide (3:09)
+03. Mon âme soeur est ailleurs (3:26)
+04. Années lumière (4:05)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295503   (618797) от 13.04.2019
+
+Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lincoln (3:09)
+02. Newspaper Gown (2:55)
+03. Oh Weather (1:07)
+04. South (3:07)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295528   (618606) от 13.04.2019
+
+Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydeco, Cajun, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoo Town Zydeco (4:32)
+02. En haut de la montagne (4:30)
+03. Chère Aline (5:02)
+04. Bureaucrates (4:29)(   Читать дальше...   )Жанр: Zydeco, Cajun, FolkПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEDB9AB40C6ED42276642AF727443233CC649AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144577   (618093) от 27.06.2017
+
+Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abundant Harvest 06:58
+02. Bubble of Peace 06:35
+03. Frequency of Clouds 06:53
+04. Cave Painting 05:38(   Читать дальше...   )Жанр: Psychedelic, Meditative, AmbientПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ACF4AA24FBF0C9B7EF0149399531867FE2D9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911115   (618037) от 22.06.2015
+
+Bill Justis - More Instrumental Hits By Bill Justis (1965) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Roses For A Blue Lady
+02. Lazy River
+03. Three O'Clock In The Morning
+04. Tequila(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F543AE8B3CAF6FB17A2ADC0339CA6C339FA1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145791   (617747) от 27.06.2017
+
+Steve Jablonsky - Transformers: The Last Knight / Трансформеры: Последний рыцарь (Music from the Motion Picture) (2017) [FLAC|Lossless|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrifice (06:47)
+02. The Coming of Cybertron (04:59)
+03. Merlin's Staff (05:49)
+04. No-Go Zone (03:29)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1CDB51E3DEDFA29E6B16E0C7285E3A0FD535FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911374   (617680) от 22.06.2015
+
+VA - The 50 Best Instrumental Rock Songs Ever (2014) 2CD [MP3|192 кб/с]<Instrumental Rock, Oldies>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617680.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Santo & Johnny - Sleepwalk 02:23
+02. Dick Dale & His Del-Tones - Misirlou 02:16
+03. Booker T. & The M.G.'s - Green Onions 02:50(   Читать дальше...   )Жанр: Instrumental Rock, OldiesПродолжительность: 01:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3034732DC552D4FB82A46ACC86DC924DE68D7936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911221   (617516) от 22.06.2015
+
+Leo Rojas - Das Beste - My Serenade To Mother Earth (2015) [FLAC|Lossless]<Panflute, New Age, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Silverstar
+02. Chica
+03. Amigos
+04. Brothers(   Читать дальше...   )Жанр: Panflute, New Age, FolkПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F0A6F06132FD59381CC8372670A1C676BE56E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230194   (617387) от 11.06.2018
 
 Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
@@ -6,7 +267,7 @@ Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617387.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ Unknown Artist - Stand By Me (1994) Unofficial Release [APE|Lossless|image + .cu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617269.jpg" />
 </div>
 
 
@@ -64,7 +325,7 @@ VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617210.jpg" />
 </div>
 
 
@@ -99,7 +360,7 @@ BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617195.jpg" />
 </div>
 
 
@@ -128,7 +389,7 @@ VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Et
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617109.jpg" />
 </div>
 
 
@@ -163,7 +424,7 @@ Kevin Kern - More Than Words: The Best of Kevin Kern (2014) Real Music [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617005.jpg" />
 </div>
 
 
@@ -192,7 +453,7 @@ VA - Best Of Indian's songs - The sound of indians spirit,nature and dreams (200
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616990.jpg" />
 </div>
 
 
@@ -227,7 +488,7 @@ Amadeus - Discography 6CD(2002-2009) [MP3|128-192 кб/с]<Instrumental, Classic
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616644.jpg" />
 </div>
 
 
@@ -262,7 +523,7 @@ VA - Chill Out Music 2017: 16 Ambient Downtempo And Mellow Tracks For Chilling A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616336.jpg" />
 </div>
 
 
@@ -291,7 +552,7 @@ Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616058.jpg" />
 </div>
 
 
@@ -320,7 +581,7 @@ VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614401.jpg" />
 </div>
 
 
@@ -349,7 +610,7 @@ Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflut
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614083.jpg" />
 </div>
 
 
@@ -378,7 +639,7 @@ Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614052.jpg" />
 </div>
 
 
@@ -407,7 +668,7 @@ Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014)
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613965.jpg" />
 </div>
 
 
@@ -436,7 +697,7 @@ Andreas Vollenweider - ...Behind The Gardens - Behind The Wall - Under The Tree.
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613855.jpg" />
 </div>
 
 
@@ -465,7 +726,7 @@ VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks +
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613768.jpg" />
 </div>
 
 
@@ -494,7 +755,7 @@ Blood And Sun – White Storms Fall (2014) [FLAC|Lossless|tracks + .cue]<Neofolk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613686.jpg" />
 </div>
 
 
@@ -508,276 +769,6 @@ Blood And Sun – White Storms Fall (2014) [FLAC|Lossless|tracks + .cue]<Neofolk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C169EF48B23BF91693773EDD801852BCE9237EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296112   (613446) от 16.04.2019
-
-Bernward Koch - Filled with Light (2017) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Anthem (6:15)
- 02. Crystal Light (4:11)
- 03. Free (3:48)
- 04. That June Feeling (6:55)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B017DDF31EDBD51E7E808C06C6B452E227BC4CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037464   (613426) от 24.07.2016
-
-Paul Mauriat - C'est La Vie ... Lily & Comme J'ai Toujours Envie D'aimer (2016) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613426.jpg" />
-</div>
-
-
-###  Подробнее
-
-C'est La Vie ...Lily (1970)
-01. Julietta [0:02:42.20]
-02. Raindrops Keep Fallin' On My Head [0:02:53.53]
-03. Paris S'allume [0:02:10.01](   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046BAD7CFC2A5363B271D244422A3479E9131622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545676   (613276) от 20.04.2022
-
-Father John Misty - Chloë and the Next 20th Century (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Indie Folk, Singer-Songwriter>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloë (3:28)
-02. Goodbye Mr. Blue (5:00)
-03. Kiss Me (I Loved You) (3:57)
-04. (Everything But) Her Love (4:16)(   Читать дальше...   )Жанр: Indie Folk, Singer-SongwriterПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5ACA3C07824C72DDF10E50093F1894FB318473A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545678   (613030) от 20.04.2022
-
-Giovanni Marradi - Piano Poetry (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Chilly Wind From The North (3:37)
-02. Concerto De Aranjuez - Mon Amor (4:05)
-03. Roggy's Theme (3:17)
-04. Requiem (3:14)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99AD882ADDB632504FFBCF3AE2B7B6C3B025DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221675   (612882) от 25.07.2010
-
-VA - Relax. The Fragrance of Fonix Musik /4CD/ (2010) [MP3|256 kbps]<Relax, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612882.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:52) 01. Jonas Assarsson - Calm Breeze
-(4:42) 02. Bindu - The Natural Flow
-(6:33) 03. Skovbye/Brander - Friendship part 2
-(4:47) 04. Egil Fylling - So many to make time for
-(4:13) 05. Steen Hansen - The Beach
-(4:40) 06. Jan Skogvaard Petersen - The first Wave
-(3:53) 07. Pushkar - Manamalei
-(6:09) 08. Gabrielle - Blind Mary
-(4:59) 09. Carsten Rosenlund - She Moved Through the Fair
-(4:46) 10. Peter Bastian & Stig Moller - Just Be(   Читать дальше...   )Жанр: Relax, ChilloutПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522638   (612832) от 18.07.2012
-
-VA - Classic Love At The Movies (2011) [FLAC|Lossless]<Classical, Pop, Rock, Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood Bowl Orchestra - John Dunbar Theme {Жанр: Classical, Pop, Rock, Stage & ScreenФормат: BoxSet 2CDПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524322   (612603) от 18.07.2012
-
-Alex Clare - The Lateness of the Hour (2011) [FLAC|Lossless]<Soul/Pop/Dubstep>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_612603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up All Night (2:43)
-02. Treading Water (3:38)
-03. Relax My Beloved (3:31)
-04. Too Close (4:16)
-05. When Doves Cry (4:08)
-06. Hummingbird (3:50)
-07. Hands Are Clever (3:16)
-08. Tightrope (3:37)
-09. Whispering (4:30)
-10. Love You (4:39)(   Читать дальше...   )Жанр: Soul/Pop/DubstepПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230747   (612335) от 14.06.2018
-
-Rhonda Mackert - Time Not Forgotten (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dancing Through My Memories
-02 – Walking Among Giants
-03 – Time Not Forgotten
-04 – Molokini(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395C364B4833C72BFC690B01B0CB03BD9866CD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912092   (612290) от 25.06.2015
-
-Jean Michel Jarre - The Best Of (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Industrial Revolution-Ouverture
-02. Industrial Revolution part 1
-03. Industrial Revolution part 2
-04. Industrial Revolution part 3(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 02:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060B9B0D06C6BAD2E7A256097B7CD50C4E0F274E
 ```
 
 https://mybot314.ru/tekegram_catalog/

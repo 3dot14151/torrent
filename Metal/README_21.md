@@ -1,3 +1,118 @@
+###  Публикация: 997058   (877568) от 15.03.2016
+
+Lords Of Black - II (2016) Japanese Edition [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malevolently Beautiful (Intro)
+02. Merciless
+03. Only One Life Away
+04. Everything You're Not(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3467336BF709E99934846B2D9555EBEE91EB723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495763   (877451) от 14.09.2021
+
+Ancient Empire - Priest Of Stygia (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immortal (05:08)
+ 02. Beyond The North Wind (04:01)
+ 03. Priest Of Stygia (05:30)
+ 04. Island Of The King (06:10)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3777D9B2050AD76300C2D6126670B3FC679893A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495805   (877431) от 14.09.2021
+
+Dirkschneider & The Old Gang - Arising (2021) EP [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Face Of A Stranger (04:57)
+ 02. Every Heart Is Burning (05:31)
+ 03. Where The Angels Fly (04:57)Жанр: Heavy MetalПродолжительность: 00:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1ACAD6CB22D04DB0F4FBB4380F78678073C087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105302   (876460) от 17.02.2017
+
+Once Human - Evolution (2017) [MP3|320 Kbps] <Melodic Death Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876460.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flock Of Flesh
+2. Eye Of Chaos
+3. Mass Murder Frenzy
+4. Gravity(   Читать дальше...   )Жанр: Melodic Death Metal, Groove MetalПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D92637E704ADD50696ABC7877A3926C30193BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374273   (875101) от 09.04.2020
 
 Killitorous - 1 Album/2 Singles (2014-2020) [MP3|320 Kbps] <Technical Death Metal, Deathcore>
@@ -6,7 +121,7 @@ Killitorous - 1 Album/2 Singles (2014-2020) [MP3|320 Kbps] <Technical Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875101.jpg" />
 </div>
 
 
@@ -34,7 +149,7 @@ Litterbox Massacre - 2 Album/2 Singles (2019-2020) [MP3|320 Kbps] <Slamming Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875098.jpg" />
 </div>
 
 
@@ -62,7 +177,7 @@ I Miss My Death - Mysto (2020) [MP3|320 Kbps] <Gothic Sympho Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874711.jpg" />
 </div>
 
 
@@ -91,7 +206,7 @@ Axxis - Virus of a Modern Time (2020) (EP) [MP3|320 Kbps] <Melodic Heavy, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874577.jpg" />
 </div>
 
 
@@ -120,7 +235,7 @@ Metal Church - From the Vault (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874568.jpg" />
 </div>
 
 
@@ -149,7 +264,7 @@ Crisix - From Blue To Black (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873908.jpg" />
 </div>
 
 
@@ -178,7 +293,7 @@ Inner Wish - Inner Wish (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873903.jpg" />
 </div>
 
 
@@ -207,7 +322,7 @@ Mob Rules - Tales From Beyond (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873900.jpg" />
 </div>
 
 
@@ -236,7 +351,7 @@ Mystic Prophecy - War Brigade (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873897.jpg" />
 </div>
 
 
@@ -265,7 +380,7 @@ Blaze Bayley - Infinite Entanglement (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873848.jpg" />
 </div>
 
 
@@ -294,7 +409,7 @@ ColdWorld - Autumn (2016) [MP3|320 Kbps] <Depressive Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873833.jpg" />
 </div>
 
 
@@ -323,7 +438,7 @@ Frowning - Extinct (2017) [MP3|320 Kbps] <Funeral Doom Metal, Doom-Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873825.jpg" />
 </div>
 
 
@@ -352,7 +467,7 @@ Almanac - Tsar (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873691.jpg" />
 </div>
 
 
@@ -381,7 +496,7 @@ Omnium Gatherum - 7 Albums, 4 Singles, 4 Demo, 3 Reissue & Remaster (1999-2016) 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873679.jpg" />
 </div>
 
 
@@ -410,7 +525,7 @@ Megatherium - 3 Альбома (2016-2020) [MP3|320 Kbps] <Psychedelic Stoner, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873157.jpg" />
 </div>
 
 
@@ -438,7 +553,7 @@ Bullet - Highway Pirates (2011) [MP3|320 kbps]<Heavy metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873122.jpg" />
 </div>
 
 
@@ -473,7 +588,7 @@ Rage - Resurrection Day (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873016.jpg" />
 </div>
 
 
@@ -502,7 +617,7 @@ Arctic Sleep - 8 Albums/1 Tribute (2006 - 2020) [MP3|320 Kbps] <Atmospheric Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872993.jpg" />
 </div>
 
 
@@ -531,7 +646,7 @@ Vredehammer - Violator (2016) [MP3|320 кб/с] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872122.jpg" />
 </div>
 
 
@@ -560,7 +675,7 @@ Deos - .​.​.​To Depart (2015) [MP3|320 кб/с] <Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872091.jpg" />
 </div>
 
 
@@ -589,7 +704,7 @@ Toxic Waltz - From A Distant View (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872087.jpg" />
 </div>
 
 
@@ -618,7 +733,7 @@ Human Fortress - Thieves Of The Night (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872080.jpg" />
 </div>
 
 
@@ -632,122 +747,6 @@ Human Fortress - Thieves Of The Night (2016) [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B579EC42E05D9D47FE90F750F7F55FB1C575D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873011   (872073) от 26.02.2015
-
-The Storyteller - Sacred Fire (2015) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As I Die
-02. One Last Stand
-03. Sacred Fire
-04. Ferryman(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61381B51C51C95D8779FD6E71D55CF8212CFC830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997776   (872037) от 18.03.2016
-
-Entwine - 7 альбомов (1999-2015) [MP3|320 кб/с] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872037.jpg" />
-</div>
-
-
-###  Подробнее
-
-1999 - The Treasures Within Hearts
-2001 - Gone
-2002 - Time Of Despair
-2004 - diEversity(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 04:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBBCFD9A8B92E94CBDEA06F406EFEB59113FC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997765   (872029) от 18.03.2016
-
-Dante - When We Were Beautiful (2016) [MP3|320 кб/с] < Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rearrangement of the Gods
-02. Ambitious
-03. Beautiful Again
-04. Until the Last Light Breaks In(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131894F90B5B29F36EB1634B868E81F3D83E4545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106826   (871659) от 20.02.2017
-
-Ancestral - Master Of Fate (2017) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Life
-02. Wind of Egadi
-03. Seven Months of Siege
-04. Master of Fate(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92B6FB94E39D3ACF0692DD0D3E5FCC831110ACA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1801568   (14978) от 11.06.2025
+
+Светлана Аверина | Прощай, Альцгеймер. Как сохранить ясность ума на всю жизнь (2024) [PDF]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам кажется, что болезнь Альцгеймера – неизбежный приговор? Эта книга разрушает стереотипы и открывает дверь к новым возможностям! Автор делится передовыми научными открытиями, практическими советами и вдохновляющими историями людей, которые сумели замедлить или даже обратить вспять развитие болезни. Вы узнаете: как питание, физическая активность и образ жизни влияют (   Читать дальше...   )Жанр: здоровье, паллиативные рекомендацииИздательство: СамиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48A6141DAE00F52DC529E019915D4E9C218270D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790450   (14685) от 14.06.2025
+
+Максим Злобин, Юрий Винокуров | Цикл "Поваренная книга Менталиста" [4 книги] (2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14685.jpg" />
+</div>
+
+
+###  Подробнее
+
+У судьбы определённо есть чувство юмора. Вчера я был успешным ресторатором всея Москвы, а сегодня замороженный палтус обнулил мою карьеру и лишил меня жизни.
+Но, как оказалось, не окончательно. Я переродился в теле начинающего повара. Внезапно, повара с зачатками ментальной магии!
+Да-да, магии в новом мире хватает с лихвой. А ещё кругом аристократы, демоны, оборотни (   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Юмористическое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4932CE7C05D1AF863474ED4E4F9E9E4B0C697CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801974   (14663) от 14.06.2025
+
+Дмитрий Подлужный | Как майнить криптовалюту: Полное руководство от А до Я (2025) [PDF, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майнинг криптовалюты стал доступным не только крупным инвесторам и техничным профессионалам, но и новичкам, желающим разобраться в этой увлекательной и перспективной области. Книга «Как майнить криптовалюту: Полное руководство от А до Я» — это подробный путеводитель по всем аспектам майнинга: от выбора оборудования до расчётов прибыльности и безопасности.
+В этой (   Читать дальше...   )Жанр: криптовалюта, финансовые инструменты, майнинг, учебное пособиеИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7EFF30E3E9D41E8535F4634EB01D468466B393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801939   (14644) от 14.06.2025
+
+Евгений Понарошку | Цикл "Государственный маг" [6 книг] (2024-2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магия всегда была главной страстью моей жизни. Однажды лишившись ее, я был готов на все, чтобы вернуть утерянное. Даже на запретную магию души.
+
+Ритуал по возвращению сил привел к непредсказуемым последствиям. Теперь я - четырнадцатилетний подросток в другом мире. Борьба за жизнь завела меня в школу государственных магов.
+(   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы, ФэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E6DE947DA75277C20AA62F97AAD3572CD75638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802214   (14442) от 16.06.2025
 
 Аалия Маджид | Мороженое и сорбеты (2025) [PDF]
@@ -6,7 +116,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14442.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ Wang Yu (忘语) | Путешествие к бессмертию [9] (2008, 201
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14220.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14114.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14037.jpg" />
 </div>
 
 
@@ -115,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13775.jpg" />
 </div>
 
 
@@ -141,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13588.jpg" />
 </div>
 
 
@@ -170,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13587.jpg" />
 </div>
 
 
@@ -199,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12785.jpg" />
 </div>
 
 
@@ -227,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12550.jpg" />
 </div>
 
 
@@ -256,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12337.jpg" />
 </div>
 
 
@@ -282,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12161.jpg" />
 </div>
 
 
@@ -311,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12102.jpg" />
 </div>
 
 
@@ -338,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12071.jpg" />
 </div>
 
 
@@ -366,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11956.jpg" />
 </div>
 
 
@@ -393,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11637.jpg" />
 </div>
 
 
@@ -419,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11555.jpg" />
 </div>
 
 
@@ -446,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11264.jpg" />
 </div>
 
 
@@ -472,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11228.jpg" />
 </div>
 
 
@@ -500,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11224.jpg" />
 </div>
 
 
@@ -527,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11220.jpg" />
 </div>
 
 
@@ -555,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11211.jpg" />
 </div>
 
 
@@ -584,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11198.jpg" />
 </div>
 
 
@@ -596,113 +706,6 @@ Elite: And Here The Wheel — официальный художественны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A773813D2B9EFD5B129A8FAFC85C184C272796A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807137   (11179) от 17.07.2025
-
-Екатерина Першина (авт.-сост.) | Чтобы лето не кончалось. Сборник летней выпечки (2023) [PDF]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето - прекрасная пора, наполненная солнечными днями и уютными вечерами у костра, запахом скошенной травы и бодрящей свежестью реки. Ну и, конечно же, лето ассоциируется у всех с урожаем!
-В своём сборнике я собрала 15 разнообразных, простых и универсальных рецепта сладкой выпечки. Для каждого рецепта можно использовать различные фрукты и ягоды, благодаря чему 15 (   Читать дальше...   )Жанр: кулинария, кондитерские изделия, выпечкаИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323D1B367888F1CD4B86F9DBC9C7A4FD7A5EA9BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802088   (11023) от 19.07.2025
-
-Марцин Подлевский | Цикл "Глубина": Прыгун, Возвращение, Натиск, Бесконечность [4 книги] (2020-2025) [EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в новое измерение постапокалипсиса. Это Выжженная Галактика – Млечный путь, который много лет назад был разрушен серией чудовищных войн. Это космос, в котором люди выживают в остатках погасших систем, искусственный интеллект вызывает страх, а представители иного разума, изгнанные в дальние пределы космоса, стали героями пугающих легенд. Это вселенная (   Читать дальше...   )Жанр: Фантастика, космоопераПеревод: Кирилл Плешков ("Прыгун"), остальные 3 книги — pop4tuneИздательство: РазличныеФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9918D8F6DCA0D303026F8E218241C4C4E87CA3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807788   (10958) от 20.07.2025
-
-Д. Васильева | Промтинг с нуля. Как научиться говорить с нейросетями и решать любые задачи с помощью ИИ (2025) [PDF, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — практическое руководство по работе с нейросетями. Здесь вы узнаете, как устроен искусственный интеллект, что такое промтинг и как правильно формулировать запросы, чтобы получать точные, полезные и мощные результаты от ИИ.
-Без теории и заумных слов — только практика, шаблоны, реальные примеры и пошаговые инструкции. Научитесь создавать тексты, генерировать (   Читать дальше...   )Жанр: искусственный интеллект, нейронные сетиИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A750AB4969A295BD8CE16A0CC2966CF2C9AD1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807778   (10879) от 20.07.2025
-
-Андрей Миллиардов | Навыки коммуникации (2025) [FB2, DOCX]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Навыки коммуникации. Как быть понятным и убедительным» – это глубокое и практическое руководство для тех, кто хочет говорить ясно, влиять через слова и выстраивать настоящие связи с людьми.
-Здесь раскрываются психологические, лингвистические и поведенческие аспекты общения – от уверенной самопрезентации до конструктивных переговоров, от силы активного слушания (   Читать дальше...   )Жанр: психология общения, самосовершенствованиеИздательство: СамиздатФормат: FB2, DOCXКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154C07E7156BEE562D80C2E38C295A42DB7BF705
 ```
 
 https://mybot314.ru/tekegram_catalog/

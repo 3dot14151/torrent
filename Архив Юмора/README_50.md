@@ -1,3 +1,55 @@
+###  Публикация: 1055911   (483610) от 24.09.2016
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2016.09.23) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483610.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BA44DF6D0022648C102BA32945F13647D27D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319459   (482583) от 12.08.2019
+
+КВН. Премьер лига. Первая 1/4 финала (11.08.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания - "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри - люди, у которых с чувством юмора все (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553FA1AF9B35634D1752B76C1E49C6BF385A8A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938600   (481962) от 18.09.2015
 
 Не спать! Выпуск №57 (2015.09.18) SATRip
@@ -6,7 +58,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481962.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481881.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Comedy Баттл. Последний сезон. Этап 2. Выпуск №25
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481715.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481671.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481589.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Stand Up (2016.09.25) SATRip (сезон 5, выпуск 2)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481281.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481144.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Comedy Баттл. Последний сезон. Выпуск №25  / Коме
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479787.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478013.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477773.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477682.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477672.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Stand Up. Сезон 3. Выпуск №2 (2015.09.20) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477538.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476615.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476365.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476168.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475491.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475018.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474332.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474290.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474222.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474148.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474069.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Love Is / Comedy Club / Comedy  Woman (2017.08.25) WEB-DLRip (выпуск 1)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474026.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Love Is / Comedy Club / Comedy  Woman (2017.08.25) WEB-DLRip (выпуск 1)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD25C1083661934C630C2DA35814505E17B01483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160556   (474017) от 25.08.2017
-
-Студия Союз (2017.08.24) HDTV [H.264/1080p-LQ] (выпуск 3)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036324AEE4C663AEF46FC936F45907B2CD57124D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160640   (473910) от 25.08.2017
-
-Открытый микрофон (2017.08.25) SATRip (сезон 2, выпуск 2)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473910.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 августа на ТНТ начнется 2-ой сезон оригинального юмористического шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:48:10Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F1402AB659049767C063822FFE7238B2A81DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

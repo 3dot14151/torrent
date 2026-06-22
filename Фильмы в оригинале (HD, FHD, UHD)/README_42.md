@@ -1,3 +1,133 @@
+###  Публикация: 1172606   (392816) от 08.10.2017
+
+Мозг Гиммлера зовется Гейдрихом / HHhH (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о стремительном восхождении Рейнхарда Гейдриха — государственного и политического деятеля нацистской Германии, одного из инициаторов «окончательного решения еврейского вопроса», который был убит Яном Кубишем и Йозефом Габчиком — чехословацкими диверсантами, агентами, специально подготовленными англичанами.Производство: Франция, Echo Lake Entertainment, Cutting Edge Group, Légende FilmsЖанр: Боевик, Биография, ТриллерРежиссер: Седрик ЖименесАктеры: Розамунд Пайк, Миа Васиковска, Джек О’Коннелл, Джек Рейнор, Джейсон Кларк, Томас М. Райт, Энцо Чиленти, Джофф Белл, Ноа Джуп, Барри Атсма ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95116D7917656124CD44516398E361C014E23E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172096   (392665) от 08.10.2017
+
+Заклятье. Наши дни / The Crucifixion (2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392665.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2005 году пять священнослужителей обвиняются в убийстве монахини, над которой проводился обряд экзорцизма. Журналистка Николь начинает свое независимое расследование. Но по мере погружения в цепь необъяснимых событий она все больше становится их неотъемлемой частью и все больше склоняется к тому, что служители культа проиграли сражение с демонической сущностью, (   Читать дальше...   )Производство: Великобритания, Румыния / Motion Picture Capital, Premiere Picture, Safran Company, TheЖанр: Ужасы, Детектив, ТриллерРежиссер: Ксавье ЖансАктеры: Софи Куксон, Корнелиу Улич, Бриттани Эшворт, Мэтью Заяц, Диана Владу, Florian Voicu, Раду Банзару, Хавьер Ботет, Иван Гонсалес, Emil MandanacПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDFA971BE53C231B6FEAE279DA2DDEADEB7C1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172544   (392596) от 08.10.2017
+
+Тёмная башня / The Dark Tower (2017) BDRip [H.264/1080p-LQ] [EN / EN Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш мир — не единственный из существующих. Заклятые враги Роланд Дискейн, последний из ордена стрелков, и Уолтер О’Дим, известный также как Человек в черном, ведут извечную борьбу. На кону — мифическая Темная Башня, последний оплот и надежда вселенной, без которой мир будет повержен в полный хаос и разрушение. Силам добра и зла суждено столкнуться в последней схватке, (   Читать дальше...   )Производство: США, Sony Pictures Entertainment (SPE), Media Rights Capital (MRC), Imagine EntertainmentЖанр: Боевик, Приключения, ФэнтезиРежиссер: Николай АрсельАктеры: Идрис Эльба, Мэттью МакКонахи, Том Тейлор, Клаудия Ким, Фрэн Кранц, Эбби Ли, Джеки Эрл Хейли, Кэтрин Уинник, Деннис Хейсбёрт, Майкл Барбиери ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DBC26E9209CF4559969746DB8F3F0A437EF354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173238   (390287) от 11.10.2017
+
+Ветреная река / Wind River (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390287.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пустыне на территории индейской резервации «Ветреная река» егерь Кори Ламберт находит изувеченное тело молодой девушки. Опытный охотник с трагическим прошлым, он берется помочь в расследовании этого дела агенту ФБР Джейн Бэннер, которая оказывается в мире, полном загадок и насилия. Но смогут ли они противостоять зловещим силам этих мест, где сама природа пропитана (   Читать дальше...   )Производство: Великобритания, Канада, США / Acacia Filmed Entertainment, Film 44, Ingenious MediaЖанр: Криминал, Драма, ДетективРежиссер: Тейлор ШериданАктеры: Джереми Реннер, Элизабет Олсен, Джон Бернтал, Келси Эсбиль, Джулия Джонс, Тео Брионес, Апесанахкват, Грэм Грин, Танту Кардинал, Эрик ЛанжПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A174E4D87EE9974B22B86A4C52C7E7E00DE336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173920   (386795) от 14.10.2017
+
+На глубине 6 футов / 6 Below: Miracle on the Mountain (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386795.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания блестящей спортивной карьеры Эрик Лемарк, олимпийский чемпион мира по хоккею, уже не может жить без адреналина. Теперь драйв он находит в наркотиках и сноуборде. Когда лыжный патруль в горах Маммос (Калифорния) закрывает все трассы из-за надвигающейся бури, Лемарк решает сделать последний спуск и оказывается в смертельной снежной западне…Производство: США, Dune Entertainment, October Sky Films, Sonar EntertainmentЖанр: Приключения, Биография, ДрамаРежиссер: Скотт ВоАктеры: Джош Хартнетт, Мира Сорвино, Сара Дюмон, Кейл Калли, Джейсон Коттл, Остин Р. Грант, Нэйтан Стивенс, Марти МакСорели, Шон Пильц, Ваши НедоманскиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58828CFAB03E6D93027FB10BD2A338B139C2D77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717741   (385890) от 05.11.2013
 
 Милая Фрэнсис / Frances Ha (2012) BDRip [720p] [EN / EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385890.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385126.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384186.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383036.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382802.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382638.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382210.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381339.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380797.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379460.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379459.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379357.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379271.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379002.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378865.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377725.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377155.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377149.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376932.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376896.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374239.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3036DA4A01506B06B8DC1F6D8C4AB389411A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949744   (374237) от 24.10.2015
-
-Молодость / Youth  (2015) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэд - прославленный композитор и дирижер, вопреки просьбам Ее Величества, отказывается выступить на Дне Рождении принца Филиппа, и на это у него есть веская причина. Мик, оскароносный режиссер, вовсю работает над новым сценарием «фильма-откровения», но дело не слишком спорится.
-Фрэд и Мик уже полвека дружат, смеются над собой и дивятся красоте и несправедливости (   Читать дальше...   )Производство: Италия, Франция, Швейцария, Великобритания, Indigo Film, Bis Films, Pathé, C-FilmsЖанр: драмаРежиссер: Паоло СоррентиноАктеры: Майкл Кейн, Харви Кейтель, Рэйчел Вайс, Пол Дано, Джейн Фонда, Марк Козелек, Роберт Ситалер, Алекс МакКуин, Луна Зимич Мийович, Том Липински, Хлоя Пирри, Алекс БекеттПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 02:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF1E466DCDA254360D1044D95BBD73F9C5D18A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176034   (373582) от 20.10.2017
-
-Тёмная башня / The Dark Tower  (2017) BDRemux [H.264/1080p] [EN / EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш мир — не единственный из существующих. Заклятые враги Роланд Дискейн, последний из ордена стрелков, и Уолтер О’Дим, известный также как Человек в черном, ведут извечную борьбу. На кону — мифическая Темная Башня, последний оплот и надежда вселенной, без которой мир будет повержен в полный хаос и разрушение. Силам добра и зла суждено столкнуться в последней схватке, (   Читать дальше...   )Производство: США / Sony Pictures Entertainment (SPE), Media Rights Capital (MRC), Imagine Entertainment, Weed Road PicturesЖанр: ужасы, фантастика, фэнтези, боевик, приключения, вестернРежиссер: Николай АрсельАктеры: Идрис Эльба, Мэттью МакКонахи, Том Тейлор, Клаудия Ким, Фрэн Кранц, Эбби Ли, Джеки Эрл Хейли, Кэтрин Уинник, Деннис Хейсбёрт, Майкл Барбиери, Хосе Суньига, Николас ХэмилтонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Арабские, Болгарские, Китайские, Хорватские, Чешские, Английские, Французские, Греческие, Иврит, Венгерские, Исландские, Индонезийские, Корейские, Латышские, Литовские, Малайские, Польские, Португальские, Румынские, Сербские, Словацкие, Словенские, Тайские, Турецкие, ВьетнамскиеПродолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B623E976026EA3B5FBEBE4DBF56DBC2A0B4696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575196   (372732) от 11.09.2022
-
-Зверь / Beast (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372732.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти жены доктор Нэйт Дэниелс возвращается в Южную Африку, где они познакомились. Вместе с дочерьми он направляется в заповедник, которым управляет давний друг семьи Мартин Баттлс. Однако семейная поездка оборачивается опасным приключением, в котором Нэйту придется вступить в противостояние со свирепым львом.Производство: США, Исландия / Universal Pictures, RVK Studios, Will Packer ProductionsЖанр: триллер, драма, приключенияРежиссер: Бальтасар КормакурАктеры: Liyabuya Gongo, Мартин Манро, Дэниэл Хадебе, Тапело Себогоди, Chris Langa, Mduduzi Mavimbela, Крис Гчалаба, Идрис Эльба, Kazi Khuboni, Леа ДжеффрисПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full)Продолжительность: 01:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD88BAB863D7646DC5C838E066449029A0B4951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949977   (372330) от 25.10.2015
-
-Луговая страна / Meadowland  (2015) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Сара и Фил сталкиваются с бедой: бесследно исчезает их сын. Фил, полицейский из Нью-Йорка, пытается заглушить горе привычными методами с обычными в таких случаях последствиями, а Сара справляется с этим другим способом: она начинает сама искать на свою голову не просто неприятности, а самые настоящие опасности.Производство: США, Bron StudiosЖанр: драмаРежиссер: Рид МораноАктеры: Оливия Уайлд, Джуно Темпл, Джованни Рибизи, Элизабет Мосс, Джон Легуизамо, Люк Уилсон, Тай Симпкинс, Кевин Корригэн, Мерритт Уивер, Ник Сэндоу, Скотт Мескади, Марк ФойерстинПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39820B9745FD7E61CF3FBC6B31BA632E457D506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950257   (372329) от 25.10.2015
-
-Фантастическая четверка / Fantastic Four  (2015) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372329.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о четырех молодых астронавтах, которые отважились на авантюрное путешествие в параллельное измерение для исследования аномальной волны космической энергии. Вернувшись из путешествия, они обнаружили у себя суперспособности, которые навсегда изменили их жизни...Производство: США, Германия, Великобритания, Канада, Marv Films, Marvel Entertainment, TSG Entertainment, Twentieth Century Fox Film Corporation and Genre Films.Жанр: фантастика, боевик, приключенияРежиссер: Джош ТранкАктеры: Майлз Теллер, Майкл Б. Джордан, Кейт Мара, Джейми Белл, Тоби Кеббелл, Рег Э. Кэти, Тим Блейк Нельсон, Джошуа Монтес, Дэн Кастелланета, Оуэн Джадж, Кайлен Дэвис, Ивэн ХаннеманнПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EF375C55EA464B5AFA7EF5ADCC1DD92600BB51
 ```
 
 https://mybot314.ru/tekegram_catalog/

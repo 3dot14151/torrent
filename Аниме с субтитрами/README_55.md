@@ -1,3 +1,29 @@
+###  Публикация: 1539973   (656113) от 27.03.2022
+
+Hanaukyou Maid Tai: La Verite | Hanaukyo Maid Team: La Verite | Горничные Ханаукё [ТВ-2] [2004, TV, 12 эп.] DVDRip 576p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьник Таро Ханаукё после смерти своих родителей решает отправится в Токио к своему деду. К большому для него сюрпризу, дед уехал на тропический остров, где собирается провести остаток своей жизни. При этом родственник оставил Таро в наследство огромный дворец с доброй сотней черезчур любвеобильных служанок, готовых выполнить абсолютно любое желание нового хозяина. (   Читать дальше...   )Производство: Студия Daume / 童夢Жанр: повседневность, комедия, эттиРежиссер: Нонака ТакуяПеревод: Cape_CanaveralЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182808020E7F442E46D660412AF7968DF53FFA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524145   (655872) от 27.03.2022
 
 Sabiiro no Armor: Reimei | Rusted Armors: Daybreak | Ржавые доспехи [2022, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Sabiiro no Armor: Reimei | Rusted Armors: Daybreak | Ржавые доспехи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655872.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655861.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655672.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654850.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ BAR Kiraware Yasai / Бар "Ненавистные овощи" [2015, TV-сер
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653065.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Mayoiga | The Lost Village [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653058.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Project Scard: Praeter no Kizu | Scar on the Praeter | Проект Скард [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652636.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Appleseed | Яблочное зернышко [2004, Movie] BDRip 1080p HEVC 10-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652428.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652335.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Fantasy Bishoujo Juniku Ojisan to / Life with an Ordinary Guy Who Reincarnated i
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651910.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Scarlet Nexus | SCARLET NEXUS: Красные нити | Алый Нексус [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650582.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650578.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650386.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Revisions | Ревизия [2019, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650378.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Persona 5 the Animation (2018) | Персона 5 (спэшл 2) [2018, Special,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650253.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Pastel Memories | Пастельные воспоминания [2019, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650248.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650223.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Jujutsu Kaisen | Магическая битва [2021, TV, 24 из 24] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650211.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Futsal Boys!!!!! | Футзалисты [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650208.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650135.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Lupin Sansei: Part 6 | Lupin the Third Part 6 | Люпен III: Часть VI [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649976.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Usakame / Узакаме [2016, TV, 12] WEB-DLRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649019.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Virtual-san wa Miteiru | Virtualsan Looking | Виртуальный просм�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648622.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Majo demo Steady | Волшебная невеста [1986, OVA] LDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648518.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Doukyonin wa Hiza, Tokidoki, Atama no Ue. | Мой сосед у меня на �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648386.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Doukyonin wa Hiza, Tokidoki, Atama no Ue. | Мой сосед у меня на �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2DBADA98FD4771656A758BDDFD59A245C32BD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251809   (648272) от 28.03.2019
-
-Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер [2018, TV, 23] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хайдзи Киёсэ был успешным профессиональным бегуном, однако травма изменила его жизнь и вынудила уйти из спорта. Однажды он знакомится с другим бывшим атлетом Какеру Курахарой, который бросил бег из-за конфликта, и эта встреча заставляет двух парней пожелать вернуться в большой спорт. Хайдзи решает избрать для этого экидэн (марафонский шоссейный пробег-эстафету) из (   Читать дальше...   )Производство: Студия Production I.GЖанр: приключенияРежиссер: Номура КадзуяПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 23 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3FC4F38B5F81CBE2B7C31F17F688116202E894
 ```
 
 https://mybot314.ru/tekegram_catalog/

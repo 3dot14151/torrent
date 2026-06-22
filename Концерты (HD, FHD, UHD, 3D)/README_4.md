@@ -6,7 +6,7 @@ System Of A Down - Rock in Rio [1080p] (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985283.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Stromae - Racine Carree Live (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984280.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981022.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977593.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Rage Against The Machine - Live at Finsbury Park (2010) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976705.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971726.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969951.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968949.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968895.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967903.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967522.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967200.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964996.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ James Last - Live at the Royal Albert Hall (2008) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963738.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963225.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Roxette - Live, Travelling the World (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962532.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Roxette - Live, Travelling the World (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962328.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961385.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Scorpions - MTV Unplugged In Athens (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960979.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Roxette - Live, Travelling the World (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960857.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Epica - Retrospect: 10th anniversary (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960853.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960670.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Helene Fischer -Live/Fur einen Tag (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958682.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958245.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955022.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954925.jpg" />
 </div>
 
 

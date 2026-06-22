@@ -1,3 +1,55 @@
+###  Публикация: 1268305   (226006) от 11.12.2018
+
+Эрл Д. Гейтс | Введение в электронику (1998) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного американского специалиста в простой и доступной форме знакомит с основами современной электроники. Основная ее цель - теоретически подготовить будущих специалистов - электриков и электронщиков - к практической работе, поэтому кроме детального изложения принципов работы измерительных и полупроводниковых приборов, интегральных микросхем рассмотрены (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5372888E8E55EA47456C905AB5A668F1A34196AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342244   (224983) от 01.12.2019
+
+Вольфганг Нуч (ред.) | Деревообработка (2007) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание - ценный справочник, в котором приведены основные сведения по деревообработке. В книге содержится подробная информация о древесине: ее строении, свойствах, химическом составе, способах защиты от вредных воздействий окружающей среды. Авторы предлагают обзор древесных материалов и технологий работы с ними, подробно рассматривают ручные и электрические (   Читать дальше...   )Жанр: ДеревообработкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20C0472FEF1EFF9FC41901662D2459C97A9E0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 69635   (224629) от 01.12.2019
 
 40 лучших конструкций ламповых УМЗЧ
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224629.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224586.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222256.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ J. Albahari | C# 10 in a Nutshell: The Definitive Reference (2022) [PDF, EPUB] [
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222085.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220633.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220318.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218843.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216836.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215779.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214064.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212096.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212071.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211237.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211134.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211131.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210390.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210147.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209741.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209576.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209500.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209345.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208706.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208353.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207770.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5072BE75DFCBF588498794BE874BA5E193365C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651431   (207017) от 06.08.2023
-
-Сборник | Электроника и cхемотехника [24 книги (+2CD)] (2010-2018) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник книг по электронике и схемотехнике издательства "Наука и Техника"Жанр: Электроника, схемотехникаИздательство: Наука и ТехникаФормат: PDF, DJVUКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F0C87EC123B462A7C05B59E86CD2AFA75289AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465741   (203344) от 30.01.2023
-
-Илья Мельников | Подводка электроснабжения к дачному домику (2010) [FB2, EPUB]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электричество к дачному поселку проводят централизованно. К квартире и индивидуальному дому в городе или сельской местности, вилле или дачному домику электрическая энергия подводится при номинальном напряжении 220 В по отходящим линиям распределительной сети, которые берут начало на трансформаторной подстанции (ТП). К ТП электроэнергию подают в большинстве случаев (   Читать дальше...   )Жанр: Электротехника, электроснабжениеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2472B415B801DACC5C1887E24631724B726379BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

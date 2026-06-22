@@ -1,29 +1,3 @@
-###  Публикация: 1176574   (369313) от 22.10.2017
-
-Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.1.6.0/dlc) Repack R.G. Revenants
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Car Mechanic Simulator 2015 — продолжение популярного симулятора автомастерской Car Mechanic Simulator 2014! Новая часть порадует вас улучшенной графикой, увеличенным количеством машин, большим набором деталей и более разнообразными заданиями! Если вам понравилась предыдущая часть, то вам определенно стоит попробовать поиграть и в новую часть.Тип издания: RepackРазработчик: Red Dot GamesЖанр: Simulation, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7755F3CFA9A52A65AE2191103F550D1668B95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176626   (369102) от 22.10.2017
 
 Car Mechanic Simulator 2018 (2017) [Ru/En] (1.4.2 hotfix 2/dlc) Repack R.G. Revenants
@@ -32,7 +6,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/En] (1.4.2 hotfix 2/dlc) Repack R.G. Reve
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369102.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9:500/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368991.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Fernbus Simulator (2016) [Ru/Multi] (1.0/dlc) License CODEPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367077.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Fernbus Simulator (2016) [Ru/Multi] (1.14.12800/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366959.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Real Farm (2017) [Ru/Multi] (1.0.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366958.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ Thief Simulator (2018) [Ru/Multi] (1.2.6) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365086.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ On the front line / На линии фронта (2016) [Ru/Multi] (1.0) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363248.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ TITANIC Shipwreck Exploration (2018) [En] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360632.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ TITANIC Shipwreck Exploration (2018) [En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360478.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Agricultural Simulator 2013 [En] (L) 2012 | SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359496.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358687.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357353.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.3.7/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351656.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ Oxygen Not Included (2019) [Ru/Multi] (372041) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351651.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ Tony Hawk's Pro Skater HD [Ru/En/Multi5] (Lossless Repack/1.0.8788.0) 2012 | R.G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344847.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ Steamburg (2017) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341838.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ Train Simulator 2019 (2018) [Ru/Multi] (65.6f) Repack Other s [32 & 64-bit Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337984.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Construction Simulator 2015 (2014) [Ru/Multi] (11.11.2015) License SKIDROW [Gold
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329863.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Police Helicopter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308962.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ Thief Simulator (2018) [Ru/Multi] (1.02) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306911.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ Malzbie's Pinball Collection (2017) [Multi] (1.9.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303145.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.10.2.468/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302812.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.0.3598/6/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301674.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10715/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298399.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Farming Simulator 19 (2018) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285446.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ Farming Simulator 19 делает огромнейший шаг вперед в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:733E3556964065295290C3D43EA2BDAC2CE37FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080989   (285422) от 08.12.2016
+
+Whiplash - Crash Valley (2016) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда нибудь мечтали побыть в шкуре краш-тест манекена? Это ваш шанс! Вы будете играть за Бастера, краш-тест манекена. Он пережил годы пыток и боли в краш-тест лаборатории. Но с него хватит! Настало время мести! Крошите людям лица и наносите масштабные разрушения долине Crash Valley и ее жителям.Тип издания: LicenseРазработчик: Diagrammet ABЖанр: Adventure, Indie, SimulatorЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192F68CF2196885AAC5E051E0C516739E989B10D
 ```
 
 https://mybot314.ru/tekegram_catalog/

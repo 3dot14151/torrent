@@ -6,7 +6,7 @@ Peter Green - 28 Albums (1970 - 2012) 40 CD [FLAC|Lossless|image+.cue, tracks+.c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255106.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joe Bonamassa - Tales Of Time (2023) Live [FLAC|Lossless|image + .cue] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255026.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Curse of K.K. Hammond - Death Roll Blues (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255023.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gary Moore - After Hours (1992) Japanese Edition, Reissue, 2023, Universal [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254991.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Big Jim Slade - This is Delicious (2008) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254146.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Pinetop Perkins - Heaven (2012 Compilation) [FLAC|Lossless]<Blues, Piano Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253191.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Blindstone - Greetings From The Karma Factory (2012) [FLAC|Lossless]<Rock, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252610.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Queendom - Still Rising (2012) [FLAC|Lossless]<Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_251649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251649.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Eliza Neals - Discography: 6 albums, 1 EP (2008-2022) [FLAC|Lossless|image + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250181.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Nick Schnebelen - What Key Is Trouble In? (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250046.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Matt Andersen - The Big Bottle of Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250017.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ The Schedules - Rescheduled (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249721.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Zeeny Cobb and Blues Child - Out in the Open (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249719.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Travel - Tattered Passport (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249716.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ James Pace Band - Sierra Madre Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249696.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Alabama Mike - Stuff I've Been Through (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249681.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ The Blazers - Just Around Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249674.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Kenny Neal - Straight from the Heart (2022) [FLAC|Lossless|tracks + .cue] <Moder
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249671.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Marc Broussard - S.O.S. 4_ Blues For Your Soul (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249657.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ WellBad - Bad Habits (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249649.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Arthur Adams - Kick up Some Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249644.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Ellis Mano Band - The Luck Of Draw (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249617.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ The British Bluescasting Corporation - High Horse (2022) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249523.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Jimi "Primetime" Smith - The World In A Jug (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249400.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ VA - Blind Raccoon & Nola Blue Collection Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249379.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ White Feet, Nasser Ben Dadoo - Blue Legacy (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249371.jpg" />
 </div>
 
 

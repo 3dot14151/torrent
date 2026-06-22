@@ -1,3 +1,59 @@
+###  Публикация: 1680498   (134273) от 29.11.2023
+
+Габриэль Гарсиа Маркес | Скверное время (2009) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: XX век. Зарубежная проза.
+Прославленный колумбийский прозаик, лауреат Нобелевской премии, классик мировой литературы ХХ столетия Габриель Гарсиа Маркес написал «Скверное время» начале 60-х годов. Этот роман можно считать своеобразным прологом к его главному произведению – «Сто лет одиночества».
+Мир романа узнаваем – это мир маленького латиноамериканского городка (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 07:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97281BE308FE8C8ACC716BC355BA45E86E500091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352846   (134097) от 29.11.2023
+
+Юрий Олеша | Книга прощания (2020) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Карлович Олеша (1899–1960) – писатель, поэт, драматург, сатирик. Его первое произведение – сказочный роман «Три Толстяка». За ним последовали роман «Зависть» (1927), рассказы и пьесы.
+Прочитав книгу, мы многое узнаем о писателе, о его личной жизни, его трагедии.
+«Книга прощания» – самая откровенная, самая грустная и самая мудрая книга, которую Олеша писал всю (   Читать дальше...   )Жанр: Русская литература, классика, рассказ, биография, мемуарыИздательство: Нигде не купишьПродолжительность: 19:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5ABB0D44157B9EC5D68A97E7A2BD7D2FA9C847E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 352843   (134079) от 29.11.2023
 
 Юрий Олеша | Зависть (Аудиоспектакль) (2007) [MP3, Алексей Дубровский, Максим Суханов и др.]
@@ -6,7 +62,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134079.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134075.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134041.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134021.jpg" />
 </div>
 
 
@@ -117,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133943.jpg" />
 </div>
 
 
@@ -145,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133917.jpg" />
 </div>
 
 
@@ -172,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133890.jpg" />
 </div>
 
 
@@ -199,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133846.jpg" />
 </div>
 
 
@@ -226,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133837.jpg" />
 </div>
 
 
@@ -253,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133628.jpg" />
 </div>
 
 
@@ -280,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133627.jpg" />
 </div>
 
 
@@ -307,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133609.jpg" />
 </div>
 
 
@@ -336,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133121.jpg" />
 </div>
 
 
@@ -363,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132629.jpg" />
 </div>
 
 
@@ -390,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131846.jpg" />
 </div>
 
 
@@ -417,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131826.jpg" />
 </div>
 
 
@@ -444,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131668.jpg" />
 </div>
 
 
@@ -471,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131650.jpg" />
 </div>
 
 
@@ -498,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131612.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131601.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131141.jpg" />
 </div>
 
 
@@ -581,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131134.jpg" />
 </div>
 
 
@@ -609,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131128.jpg" />
 </div>
 
 
@@ -638,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131127.jpg" />
 </div>
 
 
@@ -652,62 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAF06B808A73B4BF16B1C0BC7CCA04D5B1557B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682639   (131120) от 08.12.2023
-
-Роберт Льюис Стивенсон | Похищенный (2011) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Приключения Дэвида Бэлфура.
-Роберт Льюис Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
-Труднее всего рассказывать о мастерах чье творчество почти совершенно. Роберт Льюис Стивенсон обладал поистине моцартовским талантом. У него нет слабых (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: МедиаКнигаПродолжительность: 09:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0862B278CC22CDC519EBC490CB1825EEE3396A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682768   (131108) от 08.12.2023
-
-Роберт Льюис Стивенсон | Приключения Дэвида Бэлфура (Книга 1). Похищенный (2013) [MP3, Юрий Васильев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: Приключения Дэвида Бэлфура.
-Роберт Льюис Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
-Первая книга дилогии Роберта Луиса Стивенсона, вошедшей в золотой фонд мировой историко-приключенческой литературы. Увлекательная история юного Дэвида Бэлфура, (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: ИП Сергей ГригорянПродолжительность: 08:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4C29B00D34280DC536F223230669F74ECCDB42
 ```
 
 https://mybot314.ru/tekegram_catalog/

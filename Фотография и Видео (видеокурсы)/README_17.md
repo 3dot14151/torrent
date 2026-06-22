@@ -1,3 +1,31 @@
+###  Публикация: 956790   (355126) от 28.10.2017
+
+Олег Вайднер | Предметная фотосъемка. Секреты мастера VIP (2015) CamRip [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355126.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе я постарался передать весь свой опыт в предметной съёмке, наработанный за 9 лет непрерывной практики. Что важно — вы увидите весь процесс вживую, на примере съёмки реальных предметов.
+
+Мы не просто записали для вас видеоуроки, мы показали на практике, как снимаются более 10 различных видов предметов. В процессе съёмки весь процесс объясняется. Почему (   Читать дальше...   )Жанр: Фото, ретушьПродолжительность: ~ 04:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A31177066BF968FB8F91D0C0E5439A34B96924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063975   (355125) от 28.10.2017
 
 Дарья Аксёнова, Александр Чалдрян | Анатомия лица+Детали лица: мейкап и ретушь (2016) PCRec
@@ -6,7 +34,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355125.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352756.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352719.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Elia Locardi | Фотографируя мир | Photographing the World (2015) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352716.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350711.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350700.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350696.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350544.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350522.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ Profileschool | Adobe Photoshop. Коммерческая ретушь (2014) PC
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350513.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ Profileschool | Введение в предметную съемку (2014) PCR
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348751.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ FilmeditingPRO | Искусство монтажа трейлеров / The Art 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348386.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348297.jpg" />
 </div>
 
 
@@ -358,7 +386,7 @@ Profileschool | Имиджевая предметная съемка (2014) PCRe
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346396.jpg" />
 </div>
 
 
@@ -384,7 +412,7 @@ Highlights School | Начальный и продвинутый курс рет
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346384.jpg" />
 </div>
 
 
@@ -410,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342862.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342852.jpg" />
 </div>
 
 
@@ -465,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342442.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341501.jpg" />
 </div>
 
 
@@ -518,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340629.jpg" />
 </div>
 
 
@@ -544,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340605.jpg" />
 </div>
 
 
@@ -570,7 +598,7 @@ Profileschool | Мастер-класс МК Концертная фотогра
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339067.jpg" />
 </div>
 
 
@@ -596,7 +624,7 @@ Profileschool | Студийная съемка (2014) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339054.jpg" />
 </div>
 
 
@@ -624,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338347.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ Profileschool | Мастер-класс Репортаж на заказ. Ком
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336702.jpg" />
 </div>
 
 
@@ -661,34 +689,6 @@ Profileschool | Мастер-класс Репортаж на заказ. Ком
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:513E4ABA05B5FCB1F8EFDDB42DA4F32557A44385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330796   (333238) от 14.10.2019
-
-Виталий Пономаренко | Художественная обработка в Photoshop (2011) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара личных уроков, записанные в 2011 году персонально для фотографа - Viktor Grey, его же фото использованы в видео. Не знаю насколько сейчас методики актуальны, для продвинутых студентов думаю подойдет.
-
-Видео без звука.Жанр: Photoshop, обучающее видеоПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6003333E34ECC3601229F640F635B8A337209CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

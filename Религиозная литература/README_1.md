@@ -1,3 +1,58 @@
+###  Публикация: 1609600   (1043187) от 04.02.2023
+
+Архиепископ Сергий (Королёв) | Хождение во свете (2009) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043187.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Если бы мы попробовали преодолеть тьму в нас самих, то тем самым сделалось бы светлее и вокруг нас, но мы не стараемся рассеять тьму. Если же достигнуть момента осветления, всё изменяется, и люди, окружающие нас, становятся как будто иными.
+
+Побеждая же грех, человек подходит легко к другому человеку и заражает его добром.
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A3C2FA97065A57A629DFC1E00369624AD8023A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610287   (1042667) от 06.02.2023
+
+Андрей Плюснин | Преподобный Серафим Саровский. Житие, наставления (2014) [PDF, FB2, EPUB, TXT, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серафим Саровский (в миру Прохор Мошнин) (19.07.1753-2.01.1833), русский святой и духовный мыслитель. В 1786 Прохор был пострижен в иноки с именем Серафима, а в следующем году рукоположен в диаконы. Приняв этот сан, св. Серафим почти все время стал проводить в молитве, не выходя из храма. Участвуя в богослужениях, видел он святых Ангелов, сослужащих священнослужителям (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, TXT, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9912E63F5098DDD4633656A86C93B2FF1EC52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610093   (1042664) от 06.02.2023
 
 Анна Маркова (сост.) | Святая блаженная Ксения Петербургская (2012) [FB2, PDF, EPUB]
@@ -6,7 +61,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042664.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042434.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042396.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042340.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042154.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041981.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041849.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041847.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041486.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041421.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041172.jpg" />
 </div>
 
 
@@ -302,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041133.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040866.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040802.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040651.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040634.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040607.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040600.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040550.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040390.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040384.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040171.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040169.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040165.jpg" />
 </div>
 
 
@@ -634,58 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E61F39BED0B244D07DD32E1A3267CA68D1F12C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612545   (1040142) от 16.02.2023
-
-Святой праведный Иоанн Кронштадтский | Как правильно молиться (2014) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040142.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Богатырем духа» называли святого праведного Иоанна Кронштадтского (1829–1908). Для наблюдения за своей внутренней жизнью праведник ежедневно вел дневник, в который вносил сокровенные мысли и молитвы к Богу. Эти дневники, вошедшие в известную теперь книгу «Моя жизнь во Христе» – неоценимое наше достояние. Отец Иоанн имел величайший дар молитвы и глубоко верил, что (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A3807E1EE1B2D509590378FACB0B42DCB73CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612523   (1040139) от 16.02.2023
-
-Алексей Фомин | Когда умершие приходят во сне (2013) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о том, что происходит с человеком после того, как он умирает, и о том, как нужны ему наши молитвы.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABA1604CB74F97F7707A77FBCC3E8EBA6F669AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

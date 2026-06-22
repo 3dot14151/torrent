@@ -1,3 +1,148 @@
+###  Публикация: 1230901   (610586) от 15.06.2018
+
+VA - Ori Uplift & Delta IV - Uplifting Only 279 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Libsen - Beyond The Stars (BTSR200 Anthem)
+02. Jonny Royall - Chimera (Extended Mix)
+03. FAN FAVORITE 277: Akku - Megumi (Original Music Box)
+04. Sothzanne String - You Live In My Memories(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681F9D790330114F5C72ECD3FE3659A06FCEB49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230906   (610583) от 15.06.2018
+
+VA - Markus Schulz & Anske - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Giuseppe Ottaviani - Ozone (Markus Schulz Remix)
+02. Markus Schulz & Emma Hewitt - Safe from Harm (Markus Schulz In Bloom Mix)
+03. Danilo Ercole - Anima(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DC0E00217721BDBB1AB7A5CA101CE93F4DE495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181371   (604078) от 19.06.2018
+
+Радио "Эхо Москвы" : Битловский час, 120 минут классики рока (ведущие: Владимир Ильинский и Михаил Кузищев) коллекция 2016-2018 [MP3 192 Kbps] (2016-2018) <Рок, поп>
+
+>>След.
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604078.jpg" />
+</div>
+
+
+###  Подробнее
+
+193 2018-01-02-Beatles.mp3 - 192 kbps (51:43)
+194 2017-01-03-ClassicRock.mp3 - 192 kbps (200:33)
+195 2018-01-09-Beatles.mp3 - 192 kbps (52:20)
+196 2018-01-10-ClassicRock.mp3 - 192 kbps (201:47)(   Читать дальше...   )Жанр: Рок, попПродолжительность: 491:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C643ED0191C0378D3C2F00207C938CF2E82CA2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297264   (603115) от 24.04.2019
+
+Bryan Kearney - Live @ Main Stage, Beyond Wonderland Monterrey, Mexico (2019-04-06)[MP3|224 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Kearney - Mexican Rave (ID Remix)
+02. Key4050 - Schillachi
+03. ID - ID
+04. Key4050 - Gianfranco(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705C0C56705D3853EBF212714A923C124A37A378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297268   (603106) от 24.04.2019
+
+Paul Denton - Live @ Anomaly, Rong Afterparty, Tunnel Club Birmingham, United Kingdom (2019-04-06)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. John O'Callaghan & Deirdre McLaughlin vs. Karney - Stay Nothing (John O'Callaghan Noodle)
+03. Key4050 - The Truth
+04. Marco V - Godd(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B7D9B7BD4F558E5F2E13B2A94CA06FAD036E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148927   (602971) от 08.07.2017
 
 VA - Ori Uplift - Uplifting Only 230 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -6,7 +151,7 @@ VA - Ori Uplift - Uplifting Only 230 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602971.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602337.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Aly & Fila - Future Sound Of Egypt 595 (2019-04-24) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600028.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Ori Uplift - Uplifting Only 201 - 230 (2016 - 2017) [MP3 | 320 кб/с] < Melodi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597728.jpg" />
 </div>
 
 
@@ -121,7 +266,7 @@ Charlotte de Witte - New Form V: Universal Consciousness (2022-04-27) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593968.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2022-05-05) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593959.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ VA - Ultra Music Festival Miami (2022) [MP3|320 Kbps, (V0)] <House, Trance, Tech
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593810.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592931.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2022-05-12) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590740.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585898.jpg" />
 </div>
 
 
@@ -301,7 +446,7 @@ VA - Live @ Synergy (Alte Kaserne Zurich, Switzerland) 2019-04-06 [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582203.jpg" />
 </div>
 
 
@@ -330,7 +475,7 @@ Two Friends - Big Bootie Mix Volume 021 (2022-05-23) [MP3|320 Kbps] <Dance, Elec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579031.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ Trance Wax - Trance Wax Radio (01-07) (2021-2022) [MP3|320 Kbps] <Trance, Breaks
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578849.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ VA - Ori Uplift & Danny Oh - Uplifting Only 282 (2018) [MP3|320 Kbps] <Trance,Up
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569369.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Upl
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567475.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ Gareth Emery - Metropolis Festival, The Brooklyn Mirage New York, United States 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567358.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ Markus Schulz - Global DJ Broadcast World Tour - Canada (2022-06-02) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567350.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ Korolova - Live @ Karavela Boat Party Lisbon, Portugal (2022-06-03) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567168.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ VA - Aly & Fila - Future Sound Of Egypt 505 (2017) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565673.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Activa - Live @ Union Club London (2019-05-11)[MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564192.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Maria Healy - Live @ Civic Underground Sydney, Australia (2019-05-03)[MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562090.jpg" />
 </div>
 
 
@@ -603,151 +748,6 @@ Maria Healy - Live @ Civic Underground Sydney, Australia (2019-05-03)[MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C4377E6F8A7F86D27838BA02C8B122F9F77277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304759   (555483) от 06.06.2019
-
-VA - Live @ quantumVALLEY, EDC Las Vegas (2019-05-18)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Craig Connelly @ quantumVALLEY, EDC Las Vegas, United States 2019-05-18:
-01. Craig Connelly ft. Haliene – Do You Believe In Me
-02. WAIO & Bryan Kearney – Futura (Will Rees Remix)
-03. Sneijder & Karen Kelly – Be With You (Craig Connelly Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738D5805E9B473CDEF324C7A27D5B5F04E6599A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306760   (555375) от 07.06.2019
-
-VA - Live @ Liberation V2, Fabric London, United Kingdom 2019-05-04 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sied van Riel @ Liberation V2, Fabric London, United Kingdom 2019-05-04 (00:51:56):
-
-01. Sied van Riel - Navigator
-02. Craig Connelly ft. Kate Miles - Lost Without You (Sied van Riel Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02C1696F0596A5090B21782F3B48FC8D85B7552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237351   (552469) от 23.07.2018
-
-VA - Markus Schulz - Global DJ Broadcast - Sunrise Set (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M83 - Un Nouveau Soleil
-02. Modd - Velotrip
-03. Andre Sobota - Missing Line
-04. Orkidea - Epicentre(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDAE515AEB3685D0344E177C669A6F38D21F4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310335   (547017) от 24.06.2019
-
-Steve Allen & Solis & Sean Truby & XiJaro & Pitch + More - Uplift 050 (Six Hour Vocal Special) 2019-06-21[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steve Allen
-1.Trance Classics & Esmee Bor Stotijn - Turn It Around (Steve Allen Remix)
-2.Trance Classics & Esmee Bor Stotijn - Sky Falls Down (Steve Allen & Skyborne Remix)
-3.Maria Nayler - Angry Skies (James Dymond Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEC75739D770159F35C19AF1E851A38D4166B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310517   (546959) от 24.06.2019
-
-VA - A State Of Trance Festival 900 (IEC, Kyiv) (2019-06-22)[MP3|192 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren
-01 Armin van Buuren & Shapov – La Resistance De L’Amour
-02 Cosmic Gate – Come With Me
-03 Armin Van Buuren & Vini Vivi & Hilight Tribe vs. Orjan Nilsen – Great Spirit vs. Wait 4 It (Armin van Buuren Mashup)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B3FEC52A3891C0410C01FEBD39BCB23DE142B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

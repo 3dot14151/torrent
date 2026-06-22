@@ -1,3 +1,29 @@
+###  Публикация: 1785931   (24157) от 19.03.2025
+
+Футбол. Чемпионат Нидерландов 2024/25. Эрдивизия 26-й тур. Алмере Сити – НАК Бреда (14.03.2025) WEBRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Матч между аутсайдером Эредивизи Алмере Сити и середняком НАК Бреда обещает быть интересным противостоянием команд, находящихся в непростой ситуации. Алмере, несмотря на свое положение в таблице, недавно одержал победу, что может придать им необходимой уверенности. Брeда же не может выиграть уже пять матчей подряд, что явно заставляет задуматься о кризисе в команде. (   Читать дальше...   )Телекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC433CFF86551CDC3786EEA78CA0204698787C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786384   (23942) от 21.03.2025
 
 Футбол. Женская СУПЕР-Лига. Зенит (Санкт-Петербург) – Рязань-ВДВ (Рязань) (15.03.2025) WEB-DL [H.264]
@@ -6,7 +32,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23942.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21220.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21219.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19755.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19752.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19031.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18935.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16831.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15946.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15536.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15470.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15469.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15167.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15135.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11504.jpg" />
 </div>
 
 

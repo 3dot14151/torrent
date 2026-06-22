@@ -1,3 +1,90 @@
+###  Публикация: 1460570   (1022617) от 05.04.2021
+
+VA - Gravity Grave: Psy Trance Set (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футуристический образ обложки музыкального микс-компилата Gravity Grave в полной мере передает настроение всего альбома. Треки демонстрируют бескомпромиссный и энергичный звук, чистоту и лаконичность идеи. В альбоме также присутствуют эксперименты с ритмом и элементы аналогового техно-саунда.001. Psychorustle - Gravity Grave
+002. Dr. Strangefunk - A.M Burger
+003. Skizologic And Vertical - Surreality Check
+004. Plastic Reality - The Key Of The Universe(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239E9C3DEC9EEE5FD769F27F42DC381EAE3FA0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460761   (1022297) от 07.04.2021
+
+VA - Guarana Cupana: Psy Sound Energetic Mix (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник "Guarana Cupana" в полной мере можно отнести к музыке экспериментального направления, где в построении психоделического ряда используются отстранённые голоса, синтезированный саунд и аномальные ритмы. Экстремальные эмоциональные и психические состояния, галлюцинации, существование на грани смерти – всё это вы найдёте здесь в полном объёме.001. Kristallklar - Extrasensory
+002. Hinap - Perceptions
+003. Odiseo - Bright Side Of The Moon
+004. Ritmo & Bliss - Od Daka La Mana(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAC2C443D3286FEDCC2173E4619CC6B41912FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460763   (1022272) от 07.04.2021
+
+VA - The Music Of Healing (2021) [MP3|320 Kbps] <Ambient, New Age, Meditative>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лечебная музыка избавит Вас от бессонницы, поможет расслабиться, погрузиться в состояние релакса. Данное состояние сравнимо с ощущениями тела во время массажа. Вам приятно, нравится и Вы наслаждаетесь каждой минутой, получая удовольствие. Находясь в состоянии комфорта Вы отрекаетесь от забот и предаетесь сну. Легкая расслабляющая музыка перед сном положительно влияет (   Читать дальше...   )001. Mehrdad Kanani - Warm White Sun
+002. Amanita Phalloides - Dialogue Between
+003. Fallen - Ricordo Dolce
+004. Andrew Shartner - All This Time(   Читать дальше...   )Жанр: Ambient, New Age, MeditativeПродолжительность: 09:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B62159C2129D7515354A291F70BEC0F99D3A7D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460957   (1022252) от 07.04.2021
 
 VA - Night Rider 1 (2021) [MP3|320 Kbps] <House>
@@ -6,7 +93,7 @@ VA - Night Rider 1 (2021) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022252.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - TOP 40 PromoDJ Апрель 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022251.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Beatport Hardstyle Dance: Electro Sound Pack #271 (2021) [MP3|320 Kbps] <Ha
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022120.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - R&B: Warm Time Of Representation (2021) [MP3|320 Kbps] <R&B, Soul>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021972.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Fitness Week: Electro House Mix (2021) [MP3|320 Kbps] <Electro House, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021968.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Night Tropical Collection: Chillout Music (2021) [MP3|320 Kbps] <Chillout, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021962.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Night Rider 2 (2021) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021949.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - TOP 40 Ремиксы PROMODJ АПРЕЛЬ 2021 (2021) [MP3|320 Kbps] <EDM,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021770.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Beatport Techno Electronic: Sound Pack #270 (2021) [MP3|320 Kbps] <Techno, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021639.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Beatport Deep House: Sound Pack #272 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021635.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Tech House: The Club Shock Party (2021) [MP3|320 Kbps] <Club, Tech House, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021634.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - DJ Set Electro House: Euronics Playlist (2021) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021632.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Night Rider 3 (2021) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021592.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Record Super Chart 10.04.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021526.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Beatport Psy Trance: Sound Pack #273 (2021) [MP3|320 Kbps] <Psy, Goa Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021334.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Future Techno April Set (2021) [MP3|320 Kbps] <Future Techno, Electronic, T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021333.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Beatport Electro Techno: Sound Pack #274 (2021) [MP3|320 Kbps] <Techno, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021326.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - E-Dance: Clubbing Electro House (Vol.01) (2021) [MP3|266-320 Kbps] <Club, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021316.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Vocal Trance Hits (2021) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021309.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Vocal Synthwave Retrowave 1 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021224.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Night Rider 4 (2021) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021190.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Immersion: Psy Trance (2021) [MP3|320 Kbps] <Psychedelic Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021041.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Deep House Relax 1 (2021) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020978.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Deep House Relax 1 (2021) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F44ABB8BE5187254B416F12D52090D4B604F274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462744   (1020926) от 15.04.2021
-
-VA - Сегодня на радио хиты FM Vol.11 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020926.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 24kGoldn - Love Or Lust (2:56)
-002. Alan Walker, Isak - Sorry (2:45)
-003. ARTIK pres.ASTI - Девочка, танцуй (4:21)
-004. ARTIK pres.ASTI - Истеричка (3:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470270D6A0FD64A9ADE70C5DAB6B3DF4944DC725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462855   (1020832) от 16.04.2021
-
-VA - Vocal Synthwave Retrowave 2 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wandering Now - This is the Way (4:33)
-02. Penfriend - Exotic Monsters (3:41)
-03. Talkbox, Talie Rose - Reach Out (3:24)
-04. Lesse - Alive (3:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 04:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AFF1D96A6A3FF90F16C47304A6E463F38D5F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463097   (1020688) от 17.04.2021
-
-VA - Biometric Key: Future Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастическая электронная музыка с выразительными ритмами и самыми эксцентричными мотивами была собрана в специальную тематическую коллекцию под названием «Biometric Key». Встречайте настоящий эксклюзив из области техно электроники.001. Szmer - Q (Original Mix)
-002. Dupleaux - Do It To Me
-003. Pablo Caballero - Darker Rawness
-004. Questhe - The Dna(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 11:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EE2F9C0609398572CF92A72F68A9147364FAC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

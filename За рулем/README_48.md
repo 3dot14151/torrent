@@ -1,3 +1,115 @@
+###  Публикация: 1815692   (4930) от 31.08.2025
+
+Первая передача на НТВ. Автомобильная передача (31.08.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4930.jpg" />
+</div>
+
+
+###  Подробнее
+
+BMW вклинился с прилегающей в поток и повредил бетономешалку, которая ехала по главной дороге. Почему в ДТП обвинили водителя бетономешалки?
+ На дне озера затоплена легковушка. Неужели прямо на берегу эти умельцы запустят мотор и даже прокатятся на ржавой посудине?
+ «Скорая» догнала вас в пробке. Как правильно пропустить и не лишиться водительских прав?
+ Дорога в облаках: (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B9A598652A034C844CD6A4D3EB9299548D752B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816746   (4165) от 06.09.2025
+
+Главная дорога (06.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4165.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» отмечает день рождения! 20 лет в эфире — это 792 оригинальных выпуска и 14 дней непрерывного просмотра! Но примерно за месяц зритель может стать экспертом по правилам дорожного движения, устройству, выбору и даже ремонту автомобилей. В юбилейном выпуске программы Андрей Федорцов и Денис Юченков рассказали, как проводятся испытания и создаются сюжеты. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF99C56334C40200319594BE80687379C13B34E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816747   (4043) от 06.09.2025
+
+Тест-драйв Kia Cerato 2010 — Минтранс (06.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4043.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Подержанная машина. Как дилеры обманывают покупателей и продают в кредит битые авто со скрученным пробегом? Есть ли способы вернуть свои деньги?
+🔸 Тест-драйв Kia Cerato 2010. Может ли большой пробег стать приговором?
+🔸 Юридические тонкости. Законно ли устанавливать знаки ограничения скорости на трассе федерального значения?
+🔸 Лайфхак: (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E149CA55A26C804892A00A4BACA5C537614E732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816902   (3856) от 07.09.2025
+
+Первая передача на НТВ. Автомобильная передача (07.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моментальное отрезвление — миф или реальность?
+ Машина нашего времени: даже бюджетные модели напичканы электроникой. Где заглючит в самый неподходящий момент?
+ Опытный водитель может все, даже тупить: урок параллельной парковки для бывалых и начинающих!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3D1AFC4A4244FF9F50127989483CC77061E094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817889   (2976) от 13.09.2025
 
 Главная дорога (13.09.2025) WEBRip [H.264/720p]
@@ -6,7 +118,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2976.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2917.jpg" />
 </div>
 
 
@@ -63,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2736.jpg" />
 </div>
 
 
@@ -91,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1785.jpg" />
 </div>
 
 
@@ -118,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1772.jpg" />
 </div>
 
 
@@ -147,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1564.jpg" />
 </div>
 
 
@@ -176,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_514.jpg" />
 </div>
 
 
@@ -204,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_465.jpg" />
 </div>
 
 
@@ -232,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_233.jpg" />
 </div>
 
 

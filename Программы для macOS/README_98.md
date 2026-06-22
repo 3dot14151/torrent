@@ -1,3 +1,113 @@
+###  Публикация: 1066254   (414467) от 25.10.2016
+
+GoodTimes 1.3.3 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414467.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoodTimes - самый простой и удобный инструмент для создания коллажей из ваших фотографий, связанных той или иной темой. Выберите шаблон и просто перетащите в него фото. GoodTimes создаст коллаж, имитирующий, например, разбросанные отпечатки, как если бы вы фотографировали свой стол, стену с развешенными фотографиями и многое другое.
+
+Поделитесь вашим коллажем в социальных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2016Разработчик: Vogelbusch & CoПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Французский, Немецкий и Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4EC0D89E0696CA1EE0DF73FCE0A6B3422E772F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573300   (414422) от 30.08.2022
+
+KeyKey — Typing Practice 2.9.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414422.jpg" />
+</div>
+
+
+###  Подробнее
+
+KeyKey — учимся слепому набору.
+Слепая десятипальцевая печать — штука полезная. Даже если вы пишете только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
+Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © Sergiy Vynnychenko & Vlad GorohovskyПоддерживаемая ОС: macOS X 10.12 или вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145F7890A1F0D5FBE8C255242B14A10C721503EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822973   (413955) от 17.10.2014
+
+OS X Server 3.2.2 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413955.jpg" />
+</div>
+
+
+###  Подробнее
+
+С новым сервером OS X Server ваш бизнес, домашний офис или учебное заведение станут ещё эффективнее. Его невероятно легко устанавливать и настраивать, и им легко управлять.
+
+OS X Server — новое поколение серверного ПО Apple, созданное для устройств с OS X и iOS. OS X Server позволяет легко обмениваться файлами, планировать встречи, синхронизировать контакты, разрабатывать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 октября 2014Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Английский, Голландский, Испанский, Итальянский, Китайский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A24210F79651095FB7103000451BD0D8A7D31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832064   (413947) от 17.10.2014
+
+Apple Aperture 3.6 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aperture сочетает инструменты управления и высокую скорость, необходимую профессионалам для решения самых сложных задач обработки фотографий, с простотой обучения, которая необходима пользователям iPhoto для освоения передового инструмента работы с фотографиями. Программа полностью оптимизирована для дисплея Retina на новом MacBook Pro, поэтому Вы можете просматривать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 октября 2014Разработчик: Apple IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий, Французский, Японский и Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9D112785FD59915B4A7C2E4BE299427DD661A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251988   (413194) от 03.10.2018
 
 Canvas Draw 5 v5.0.1 [En]
@@ -6,7 +116,7 @@ Canvas Draw 5 v5.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413194.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ FX Photo Studio CK (Pro) 3.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413162.jpg" />
 </div>
 
 
@@ -63,7 +173,7 @@ JetBrains PhpStorm 2020.2.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413149.jpg" />
 </div>
 
 
@@ -91,7 +201,7 @@ Templates Lab for MS Office 3.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413019.jpg" />
 </div>
 
 
@@ -119,7 +229,7 @@ DayRate - Currency Converter 5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412662.jpg" />
 </div>
 
 
@@ -145,7 +255,7 @@ AnyTrans v6.0.1 (20170920)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412598.jpg" />
 </div>
 
 
@@ -172,7 +282,7 @@ Animated Wallpapers 1.0.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412528.jpg" />
 </div>
 
 
@@ -198,7 +308,7 @@ Cisdem Data Recovery 13.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412385.jpg" />
 </div>
 
 
@@ -224,7 +334,7 @@ Photo Batcher 1.2.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412248.jpg" />
 </div>
 
 
@@ -252,7 +362,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.113 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412242.jpg" />
 </div>
 
 
@@ -281,7 +391,7 @@ Desktop Curtain 3.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411167.jpg" />
 </div>
 
 
@@ -309,7 +419,7 @@ Org Chart Designer Pro 2 v2.28 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411165.jpg" />
 </div>
 
 
@@ -335,7 +445,7 @@ Mathworks Matlab R2015b (8.6.0.267246) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410634.jpg" />
 </div>
 
 
@@ -363,7 +473,7 @@ Theine 3.4.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410412.jpg" />
 </div>
 
 
@@ -389,7 +499,7 @@ Bootstrap Studio 6.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410402.jpg" />
 </div>
 
 
@@ -417,7 +527,7 @@ Meta 2.1.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410315.jpg" />
 </div>
 
 
@@ -444,7 +554,7 @@ Fantastical 2.1.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409353.jpg" />
 </div>
 
 
@@ -471,7 +581,7 @@ PaintCode 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409350.jpg" />
 </div>
 
 
@@ -499,7 +609,7 @@ App Uninstaller 6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409087.jpg" />
 </div>
 
 
@@ -527,7 +637,7 @@ FilmConvert Pro All Packs 2016 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409069.jpg" />
 </div>
 
 
@@ -555,7 +665,7 @@ DivX Pro 10.4.0  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408976.jpg" />
 </div>
 
 
@@ -582,7 +692,7 @@ CrossFTP Enterprise 1.98.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408855.jpg" />
 </div>
 
 
@@ -593,113 +703,6 @@ CrossFTP - простой FTP-клиент с поддержкой проток�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5036355B3C8C98A8118F13ACB5E228B595E79D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168551   (408850) от 24.09.2017
-
-Deliveries: a package tracker 3.0.5 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deliveries помогают вам отслеживать все ваши посылки, поэтому вы всегда  знаете, когда они прибудут в пункт назначения. Будь то последний гаджет, который вы предварительно заказали в Интернете, или новый графический роман, Deliveries будут следить за ними. Deliveries поддерживает десятки услуг, включая UPS, FedEx, почтовую службу США, DHL, TNT, Canada Post, City Link, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.09.2017Разработчик: Junecloud LLCПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F34A69F3FEA0165DFC1381609F1069EA2E5980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168625   (408448) от 24.09.2017
-
-CounterPath Bria 5.0.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение CounterPath Bria представляет собой решение, реализующее функции телефонной связи через Интернет. CounterPath Bria обеспечивает VoIP и Video-связь с помощью протокола IP и позволяет просматривать статус контактов, отправлять мгновенные сообщения и передавать файлы. Основанный на SIP и открытых стандартах, сервис Bria эффективно работает на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: CounterPathПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151F04FEFBD6D3A87E7BE11BB2F625D9A0DDD730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067323   (408396) от 28.10.2016
-
-Templates for Pages 5.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Templates for Pages - красивые и полезные шаблоны для Apple’s Pages.
-Коллекция включает в себя различные, более 2100 типов шаблонов, от визитных карточек и брошюр для плакатов и приглашений. Современные и профессиональные макеты в сочетании с Вашей творческой составляющей будут безошибочно указывать идентичность.
-
-Некоторые шаблоны состоят до 6 различных страниц, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7467E8C6A08B74CB790CF8BEA0C672CB981D723C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252664   (408063) от 06.10.2018
-
-NetWorker - Network Info App 5.1.3 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408063.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker - легкий и простой в использовании инструмент, который показывает либо текущую скорость download and upload, либо трафик сеанса вашего сетевого адаптера. Информация отображается в виде небольшого изображения в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Sascha SimonПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий и Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA72D7CDB6440B1B3FB55590CD86B2D8F16CC0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

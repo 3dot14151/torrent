@@ -1,3 +1,56 @@
+###  Публикация: 1191853   (263696) от 15.12.2017
+
+Compressor 4.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное кодирование - это просто!
+Compressor – замечательный и мощный инструмент для сжатия видео. Compressor может переделать ваше видео в очень многие форматы, стоит его только попросить, и он подготовит ваше видео под iPod, или же перекодирует его в H.264 и позволит вам просматривать его на практически любой операционной системе, или просто сожмет его (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 декабря 2017Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.12.4+Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9C0FC1DDCE4CA8155862687C67A82BB2CE1AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340726   (263631) от 24.11.2019
+
+Antivirus Zap Pro 3.8.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antivirus Zap - небольшая утилита, которая просканирует ваш Mac на наличие различных adware, malware и других вредоносных неприятностей, которые, возможно, могут присутствовать в вашей системе. Процесс сканирования системы проходит весьма быстро и что хочется особенно отметить - почти не загружает CPU. Обновление баз антивирусных сигнатур проходит быстро и не заметно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Voros InnovationПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C2334C8297405945A7A84D54271508E536FC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340715   (263630) от 24.11.2019
 
 Folder-Factory 5.7.4 [En]
@@ -6,7 +59,7 @@ Folder-Factory 5.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_263630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_263630.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Swift Converter 3 v3.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263625.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ NCH Prism Plus 5.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263612.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ DxO FilmPack 5 ELITE Edition 5.5.25 (build 601) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263592.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ AnyTrans for Android 7 v7.3.0 (build 20191120) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263582.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ File Cabinet Pro 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263534.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Romanysoft SpeedTest 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263492.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ KCNcrew Pack 12.15.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263487.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Mate – Dictionary, Translator (мгновенный переводчик) 4.0.
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263482.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ Adobe Illustrator 2020 24.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263459.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ Adobe Acrobat Pro DC 2019.021.20056 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263437.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ iNet Network Scanner 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263411.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ Winclone Pro 6.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263405.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ RightFont 5 v5.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263308.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ Coherence Pro 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263307.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ A Better Finder Rename 11 v11.07 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263306.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ MetaImage 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263303.jpg" />
 </div>
 
 
@@ -464,7 +517,7 @@ Path Finder 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263299.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ Navicat Premium 15.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263293.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ NCH MixPad Masters 5.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263287.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ MacBooster 8 Pro 8.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263286.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263275.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ Movavi Video Converter 20 Premium 20.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263270.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ Adobe XD 24.3.22.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263231.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ Adobe XD CC - это новый творческий инструмент от �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3E9E9750616B6607C626D0ADBC85211A1ECDD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340762   (263178) от 25.11.2019
-
-Однажды в… Голливуде / Once Upon a Time ... in Hollywood (2019) WEB-DL [720p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». По сюжету, известный ТВ актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Брэд Питт, Леонардо ДиКаприо, Марго Робби, Майя Хоук, Остин Роберт Батлер, Сидни Свини, Маргарет Куэлли, Дакота Фэннинг, Тимоти Олифант, Аль ПачиноПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английскиеПродолжительность: 02:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB7731331B454F8F948D0071274A8980214A44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340760   (263133) от 25.11.2019
-
-Однажды в… Голливуде / Once Upon a Time ... in Hollywood (2019) WEB-DL [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о череде событий, произошедших в Голливуде в 1969 году, на закате его «золотого века». По сюжету, известный ТВ актер Рик Далтон и его дублер Клифф Бут пытаются найти свое место в стремительно меняющемся мире киноиндустрии.Производство: Великобритания, США, Китай / Bona Film Group, Heyday Films, Sony Pictures EntertainmentЖанр: Драма, комедияРежиссер: Квентин ТарантиноАктеры: Брэд Питт, Леонардо ДиКаприо, Марго Робби, Майя Хоук, Остин Роберт Батлер, Сидни Свини, Маргарет Куэлли, Дакота Фэннинг, Тимоти Олифант, Аль ПачиноПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), украинские (Full), английскиеПродолжительность: 02:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD930819112BB7A6FEC3AFBADAA6E7E7BA873FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

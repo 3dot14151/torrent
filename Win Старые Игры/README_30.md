@@ -1,3 +1,263 @@
+###  Публикация: 1616542   (201899) от 03.03.2023
+
+Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепная RPG от первого лица. Действие происходит недалеко от одного фэнтэзийного города в очень глубоких и разветвленных шахтах Depths of Dejanol, образованных в результате добычи ценного в этом мире металла Mythinite. Наплыв мифиноискателей каким-то образом нарушил равновесие и открыл дверь наружу для всякой нечисти. Для защиты города от зла и предотвращения (   Читать дальше...   )Тип издания: LicenseРазработчик: Artifact EntertainmentЖанр: RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDAFCA127D08961CC242AD65BCB0500184AF5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829679   (201860) от 25.10.2025
+
+Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201860.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа 2023 года разведывательное подразделение Корпуса морской пехоты США было отправлено в Нью-Йорк для эвакуации бывшего сотрудника Crynet доктора Натана Гулда, который может обладать важной информацией о борьбе с цефами, инопланетной расой, пытающейся уничтожить человечество.Тип издания: RepackРазработчик: CrytekЖанр: Шутер от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E820D8D8E8E1E3C5F2392F34457B0B7E5A6CEC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829758   (201859) от 25.10.2025
+
+Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра представляет собой стратегию в реальном времени, где игроки выбирают одну из семи рас, чтобы завоевать планету, побеждая всех противников и разрушая их крепости. Сюжет основан на эскалации сражений и уникальном подходе каждой расы к закреплению Кронуса за своей фракцией.Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Стратегия в реальном времениЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4571ADF03CAD213F2862F56654EFEED915D718DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619128   (201246) от 14.03.2023
+
+Urban Chaos (1999) [En] (2.69) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приближается конец тысячелетия. Зловещий Культ падших скрывается от посторонних глаз в тенях и канализациях Юнион-Сити... он ждет. Главная цель культа – исполнить древнее пророчество о конце света. Его излюбленные средства – преступления и беспорядки. Уличные банды, головорезы и жестокие сектанты заполонили город. Главная героиня игры Дарси Стерн – офицер полиции (   Читать дальше...   )Тип издания: LicenseРазработчик: Mucky Foot ProductionsЖанр: Экшны, От третьего лица, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C2E103A6D2DAD902BF021358985C1C451E49D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619880   (201097) от 18.03.2023
+
+Gary Grigsby's War in the East (2010) [Multi] (1.11.03/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gary Grigsby's War in the East - стратегический симулятор, в котором вы оказываетесь в центре военных конфликтов. Пройдите ряд эпических боев в восточной части Европы, начиная от Москвы и заканчивая Берлином. Гэри Григсби - духовный наследник культового Восточного фронта. Играйте в пошаговом режиме, управляя дивизиями и бригадами. Карта представляет собой огромные (   Читать дальше...   )Тип издания: LicenseРазработчик: 2by3 GamesЖанр: Стратегия, Симулятор, ИсторическаяЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B819EFCFC281CF34B7539104B82C75AFB7FB44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622187   (200757) от 27.03.2023
+
+Age of Wonders (1999) [En] (1.36.0053) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Age of Wonders, подлинную классику фэнтезийных пошаговых стратегий, которая стала началом популярной серии. Насыщенная атмосфера Age of Wonders с живописной графикой ценятся до сих пор. Издание содержит все выпущенные патчи. Начните строить свою сказочную империю уже сегодня! Было время, когда везде царили волшебство и мир. Но эта эпоха погрузилась (   Читать дальше...   )Тип издания: LicenseРазработчик: Triumph StudiosЖанр: Strategy, Turn-based, FantasyЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C7DF3DB5EF73A2AEB842495A9F7919669F215C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622016   (200756) от 27.03.2023
+
+Age of Wonders 2: The Wizard's Throne (2002) [En] (1.20.0.3100) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Wonders 2: The Wizard's Throne – вторая часть прославленной стратегии, использующей механики пошаговых ходов. Имеется возможность играть как в одиночку против искусственного интеллекта, так и против живых игроков, будь то друг, приглашенный к партии с помощью функции хот-сита за одним компьютером или в локальной сети (если есть два устройства) либо случайный (   Читать дальше...   )Тип издания: LicenseРазработчик: Triumph StudiosЖанр: Стратегия, Пошаговая, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38126DE20B5FA4A61620E3D9CEAE4BAA5866D3F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621742   (200741) от 26.03.2023
+
+Age of Wonders: Shadow Magic (2004) [Ru/En] (1.30.0.2616) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Wonders: Shadow Magic – это продолжение знаменитой серии стратегических и ролевых игр, с возможностью создания своей авторской среды с генератором карт. Значительный опыт Triumph Studios в создании пошаговых стратегических игр очевиден в Shadow Magic, так как игра предлагает отшлифованный, хорошо сбалансированный геймплей и интересный сюжет. Сага о волшебниках (   Читать дальше...   )Тип издания: LicenseРазработчик: Triumph StudiosЖанр: Стратегия, Пошаговая, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4380A29856AB52B66B1BE8C6E11391214757ABA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621804   (200730) от 26.03.2023
+
+Outcast 1.1 (1999) [Multi] (18970) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outcast 1.1 - переиздание приключенческого экшена с видом от третьего лица Outcast. Вы отправитесь в недалекое будущее, где ученым удалось запустить спутник в параллельную вселенную, что не очень понравилось её жителям. Спутник был уничтожен и над обычным миром нависла угроза уничтожения в виде странной червоточины. В параллельное измерение отправляется группа ученых, (   Читать дальше...   )Тип издания: LicenseРазработчик: Fresh3DЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0815DFD92FEF4C2918DB59F327432E72F638D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623313   (200541) от 01.04.2023
+
+DeathKeep (1995) [En] (3.3) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злой некромант сбежал из своей ледяной тюрьмы и сеет хаос в окрестных землях. Отправляйтесь в мрачную, замерзшую пустошь и положите конец ужасу. У вас есть 3 персонажа на выбор: мужчина-гном-боец, мужчина-маг-полуэльф-боец или женщина-маг-эльф, каждый из которых придает игре уникальную изюминку. Наблюдайте, как настроение игры усиливается по мере того, как кинематографические (   Читать дальше...   )Тип издания: LicenseРазработчик: Lion EntertainmentЖанр: Ролевая игра, ПриключениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16751F277FB86D6EA77B1B147966DD25B23AB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623318   (200513) от 01.04.2023
 
 Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
@@ -6,7 +266,7 @@ Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200513.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_200011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200011.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199944.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ Star Wars TIE Fighter (1994) [En] (1.0/dlc) License GOG [Special Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199777.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199748.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ Tropico 3 (2009) [Multi] (1.0/dlc) License GOG [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198998.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198990.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ Everlight: Of Magic & Power / Хроники Мелвина. Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198799.jpg" />
 </div>
 
 
@@ -214,7 +474,7 @@ Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198400.jpg" />
 </div>
 
 
@@ -240,7 +500,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197402.jpg" />
 </div>
 
 
@@ -266,7 +526,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197385.jpg" />
 </div>
 
 
@@ -292,7 +552,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197372.jpg" />
 </div>
 
 
@@ -318,7 +578,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196908.jpg" />
 </div>
 
 
@@ -344,7 +604,7 @@ Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196461.jpg" />
 </div>
 
 
@@ -370,7 +630,7 @@ Velaya - Geschichte einer Kriegerin / Велая - сказание о воит�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196131.jpg" />
 </div>
 
 
@@ -396,7 +656,7 @@ Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196123.jpg" />
 </div>
 
 
@@ -407,266 +667,6 @@ Dirty Swamp - это мод, рассказывающий небольшую и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A205D615069956B7A7BC200D4A48A8CE2116C09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645155   (196051) от 08.07.2023
-
-The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) License
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196051.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем народ не будет участвовать в борьбе за власть - он будет за ней наблюдать. А Вы станете гладиатором, и с Вашим отрядом станете завоевывать симпатию толпы. Callahan и его коммандос, Fargass и его когорты, генерал Максимикс со своими отрядами киборгов встретятся лицом к лицу на арене, где не только жизни участников поставлены на кон, а выживание всей расы (   Читать дальше...   )Тип издания: LicenseРазработчик: Eugen SystemsЖанр: RTS, RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FEEC4E82F47C19068CCF6D1891128E53B2AC76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645127   (196018) от 08.07.2023
-
-Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Styx: Master of Shadows – стелс-экшен с видом от третьего лица, в котором вам придется в роли самого старого гоблина погрузиться в череду интриг и заговоров и попытаться выяснить, откуда вообще появились гоблины… События игры происходят в необычном фэнтезийном мире, в котором орки, гоблины, люди и эльфы пытаются ужиться под одной крышей. Ну а вам же придется играть (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyanide StudioЖанр: RPG, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5050A835C6803C323BF98146CF4290505B3B1EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645744   (195891) от 11.07.2023
-
-Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195891.jpg" />
-</div>
-
-
-###  Подробнее
-
-После своего международного успеха гостиничный гигант вернулся и стал больше, чем когда-либо. В Hotel Giant 2 вы создадите отель своей мечты и будете управлять престижными объектами по всему миру. Ваша цель - привлечь как можно больше гостей и убедиться, что они остаются довольны на протяжении всего своего пребывания.Тип издания: LicenseРазработчик: Enlight Software Limited, PerspectXЖанр: Стратегия, Симулятор, МенеджментЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A6311DD9C1B9382CFC2485F180C9BD88CF1AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646110   (195737) от 13.07.2023
-
-M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195737.jpg" />
-</div>
-
-
-###  Подробнее
-
-M1 Tank platoon II дает вам командование взводом из четырех танков M1A2 Abrams и их экипажем. Вы принимаете все важные решения, включая стрельбу из обширного арсенала оружия вашего танка и использование ультрасовременного тепловизионного обзора для поиска и уничтожения вражеских сил. Переключайтесь между полностью функционирующими внутренними кабинами или наблюдайте (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroProse Software, Inc., Digital Theory Ltd.Жанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92699C8900C7231A47FCE9F020DB060EABB8C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646537   (195703) от 15.07.2023
-
-European Air War (1998) [En] (1.20) License GOG
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195703.jpg" />
-</div>
-
-
-###  Подробнее
-
-European Air War - авиасимулятор, действия которого развиваются во времена Второй мировой войны. Игровой процесс делает огромный упор на реалистичную физику и индивидуальное управление самолетами. Задания берут свое начало с 1940 года, стартуя с Битвы за Британию. Также миссии развиваются в период открытия Второго фронта.Тип издания: LicenseРазработчик: MicroProse Software, Inc.Жанр: Симуляторы, Экшны, ИсторическиеЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62683E4DCAEC3557F28F375BF9174C1DCA94B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646907   (195688) от 16.07.2023
-
-Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fleet Defender: F-14 Tomcat Simulation, замечательный симулятор боевых полетов середины 90-х годов, увлекает в захватывающий мир воздушных войн. Уникальная механика и хорошо продуманный дизайн в сочетании с адреналиновым азартом воздушного боя делают ее выдающейся в своем жанре. Сердцем проекта является F-14B Tomcat, мощный самолет, который служит спутником игрока (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroProse Software, Inc.Жанр: СимуляторыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D43092AE6CE575DFF98F76836A9FA69B040914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053276   (195565) от 16.07.2023
-
-B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2 (2000) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся героизм отчаянных асов-одиночек в небе Второй мировой войны невольно затмил доблесть боевых экипажей. Не удивительно. Самоубийственный таран или головокружительная пикировка истребителей намного зрелищнее, чем кропотливые усилия десятка человек удержать в воздухе огромный бомбардировщик.Тип издания: LicenseРазработчик: Wayward Design LimitedЖанр: Simulator (Flight Combat), 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199C43CEEAD3427728DFC7A0693A8458B01F4883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647310   (195511) от 18.07.2023
-
-HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ощутите прилив адреналина, сев за штурвал легендарного российского Ми-24, на Западе известного как Hind, – самого бронированного, тяжеловооруженного и грозного ударного вертолета Восточного блока. Вас ждут разнообразные боевые задания, включая размещение войск, сброс десанта и эвакуацию, основанные на реальных операциях российской армии. Вы даже сможете наблюдать (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital IntegrationЖанр: СимуляторЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F2E91B809F278C3D5377EC5301728505AB3FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648663   (195241) от 24.07.2023
-
-Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195241.jpg" />
-</div>
-
-
-###  Подробнее
-
-На краю земли - 1981 год. Северный полярный круг. Мертвая гладь ледяных полей. Дрейфующую станцию «Полюс 21» только что покинул последний обитатель - метеоролог Александр Нестеров. Он получил срочную телеграмму с Большой земли и теперь должен покинуть бескрайнюю Арктику на комфортабельном судне, которое подберет его в установленном месте в назначенный час. Однако (   Читать дальше...   )Тип издания: RepackРазработчик: Action FormsЖанр: Экшены, ШутерыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9483337D8D1F21471BD123A0D2EBC7AB55958C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649091   (195204) от 26.07.2023
-
-Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195204.jpg" />
-</div>
-
-
-###  Подробнее
-
-На краю земли - 1981 год. Северный полярный круг. Мертвая гладь ледяных полей. Дрейфующую станцию «Полюс 21» только что покинул последний обитатель - метеоролог Александр Нестеров. Он получил срочную телеграмму с Большой земли и теперь должен покинуть бескрайнюю Арктику на комфортабельном судне, которое подберет его в установленном месте в назначенный час. Однако (   Читать дальше...   )Тип издания: LicenseРазработчик: Action FormsЖанр: Экшены, ШутерыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F791AF542D5635CCC9B4B90F59D36EFB22D15EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

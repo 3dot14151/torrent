@@ -1,3 +1,107 @@
+###  Публикация: 1058169   (470834) от 30.09.2016
+
+Раскол... (2015) WEBRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470834.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 мая в 19 час и 22 мая в 14 час в клубе "Шагал" в Москве состоялся показ полнометражного документального фильма "РАСКОЛ..." о событиях мая 2014 года. в г. Одесса. Фильм снят через 20 дней после кровавых событий на Куликовом поле. Фильм получил приз на Международном кинофестивале "Призма" в Берлине. 20 одесситов рассказывают о майских (   Читать дальше...   )Телекомпания: киностудия «ODA Production Studio»Жанр: ДокументальныйПродолжительность: 01:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7170515D46FD6B058E496687E8CEEFA7BEB824D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058515   (469205) от 01.10.2016
+
+Постскриптум с Алексеем Пушковым (01.10.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: Кто вооружает "Джебхад Ан-Нусру" - новые данные о роли США. Трагедия сбитого Boeing - четыре вопроса к голландской версии. Первые дебаты, ноздря в ноздрю. Трамп и Хиллари - кто победитель? Не кормить прибалтийские порты - новые пути для российской нефти. А также... ОУН и жертвы Бабьего Яра - как президент Израиля плюнул в душу украинским нацистам. И... (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F126022EAE83FB1CE210E2B9DC342EA87EC0F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940137   (468804) от 24.09.2015
+
+Специальный корреспондент - Игил - враг у ворот (23.09.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468804.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйПродолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B9EA717F09FB576A1C94ABAA24E1D5D74579E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161351   (467576) от 28.08.2017
+
+Беседа с Евгением Федоровым (29.07.2017) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активисты Национально-Освободительного Движения обговорили с Депутатом Государственной Думы Евгением Федоровым вопросы: какова роль Беловежских соглашений в ликвидации Советского Союза, что будет с долларом, переход на национальную платежную карту «Мир», как депутаты принимают законы, как появились олигархи...Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5B71452B2E36BB8FBF64B428C2A365385E0EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940732   (467022) от 25.09.2015
 
 Военная тайна с Игорем Прокопенко. Расследование (2015.09.25) SATRip
@@ -6,7 +110,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467022.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465057.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464899.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464144.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464015.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463005.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462852.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461344.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460203.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_460185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460185.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459890.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459886.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459708.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459573.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459561.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459452.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458103.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457982.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457966.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457817.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457811.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457810.jpg" />
 </div>
 
 
@@ -573,112 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD03098821278033F0B5B51B2158F81693148F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941983   (457809) от 29.09.2015
-
-Полное интервью президента России В. Путина американскому журналисту Ч. Роузу (28.09.2015) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная версия интервью президента России Владимира Владимировича Путина американскому журналисту Чарли Роузу, прозвучавшее в эфире 28.09.2015, менее чем за сутки до его выступления на 70-й сессии Генеральной Ассамблеи ООН.
-В интервью американскому журналисту Чарли Роузу Владимир Путин подробно объяснил, как должен проходить процесс имплементации Минских соглашений. (   Читать дальше...   )Телекомпания: RTЖанр: ДокументальныйПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B231CD438BD93D0D08D63C6011E2D31974CF7390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942137   (457803) от 29.09.2015
-
-Выступление Петра Порошенко на 70-й ассамблее ООН (29.09.2015) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление президента Украины Петра Порошенко на 70-й сессии Генеральной Ассамблеи ООН.Телекомпания: RTЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD187E1FE38B1537E5E7660E1B1ACFF55EB4EC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941837   (457448) от 29.09.2015
-
-Выступление Владимира Путина на 70-й ассамблее ООН (2015.09.28)  HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление президента РФ на 70-й сессии ассамблеи ООН в Нью-Йорке, США.
-Главная тема, к которой приковано внимание мировых СМИ сегодня, - предстоящее выступление Владимира Путина на юбилейной 70-й сессии Генассамблеи ООН. Тему борьбы с терроризмом Владимир Путин поднимет и в сегодняшнем выступлении с трибуны ООН. Он также коснется вопроса о реформе этой организации (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ДокументальныйПродолжительность: 00:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0C6849FD8328CC9A74E66B40E0E847E0AEEB05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059950   (457248) от 06.10.2016
-
-Белковский. Прямая линия (04.10.2016) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный специалист телеканала "Дождь" ответил на вопросы телезрителей и Анны Монгайт.Телекомпания: ДождьЖанр: ТелепередачаПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC16716B6FD6DBDA7F24C721E2F2ED4EB849FA53
 ```
 
 https://mybot314.ru/tekegram_catalog/

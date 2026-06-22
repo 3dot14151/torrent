@@ -1,3 +1,60 @@
+###  Публикация: 1222249   (687483) от 28.04.2018
+
+Иеромонах Макарий Симонопетрский | Синаксарь. Жития святых Православной Церкви (Тома с 1 по 6) (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687483.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жития святых — не какое-то историческое обращение к истокам Церкви, и их изучение — не простое знакомство: это наше приобщение житию и жительству всякий раз присутствующего здесь друга Божия — как Божественная благодать его преобразила...
+
+В конечном итоге для нас это некое тайноводство и переход к Первообразу, к которому восходят и любовь, и честь, и поклонение (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF5BC265454A54A2343256F754FA182B1B46F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222233   (687480) от 28.04.2018
+
+Е.В. Тростникова (сост.) | Притчи православных старцев (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти удивительные короткие рассказы одновременно просты и не просты. И чем больше вопросов порождает притча, тем она значимее, — и именно притчи Христовы и наследующие им притчи православных старцев остаются для нас и вечным вопросом, и вечным ответом.
+
+Два подаяния
+Когда о. Амвросию исповедовались, что скупость нападает, он поучал:(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA78D575829CF2A5F0489ABC1D46030620B231E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134416   (687457) от 16.05.2017
 
 Святитель Игнатий (Брянчанинов) | О духовном чтении (2011) [DJVU]
@@ -6,7 +63,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687457.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687366.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687360.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687089.jpg" />
 </div>
 
 
@@ -111,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684968.jpg" />
 </div>
 
 
@@ -139,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683365.jpg" />
 </div>
 
 
@@ -165,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683134.jpg" />
 </div>
 
 
@@ -191,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683123.jpg" />
 </div>
 
 
@@ -217,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683048.jpg" />
 </div>
 
 
@@ -243,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682058.jpg" />
 </div>
 
 
@@ -270,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679506.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679504.jpg" />
 </div>
 
 
@@ -322,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679428.jpg" />
 </div>
 
 
@@ -351,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679365.jpg" />
 </div>
 
 
@@ -379,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679315.jpg" />
 </div>
 
 
@@ -407,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679314.jpg" />
 </div>
 
 
@@ -436,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679300.jpg" />
 </div>
 
 
@@ -462,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679140.jpg" />
 </div>
 
 
@@ -488,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678639.jpg" />
 </div>
 
 
@@ -514,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678554.jpg" />
 </div>
 
 
@@ -540,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678448.jpg" />
 </div>
 
 
@@ -567,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678340.jpg" />
 </div>
 
 
@@ -593,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678323.jpg" />
 </div>
 
 
@@ -619,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677525.jpg" />
 </div>
 
 
@@ -630,59 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED37595CE2943A6E75AC487AB498719A5C256BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223312   (677403) от 03.05.2018
-
-Алла Ивановна Еланская | Трехчастный трактат. Коптский гностический текст из Наг-Хаммади [Codex Nag Hammadi I, 5] (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трехчастный Трактат - пятое и заключительное сочинение в I Кодексе коптской гностической Библиотеки Наг-Хаммади, открытой в Вернем Египте в 1945 году. В Трактате изложены гностические представления о сотворении и устройстве Вселенной.
-На русский язык трактат перевела Алла Ивановна Еланская (1926-2005), выдающийся отечественный исследователь-коптолог, Почётный председатель (   Читать дальше...   )Жанр: Гностицизм, гностическое христианство, коптская церковьФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFF5EB07DEC803AB79D888317BFA057B6C6A41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223311   (677400) от 03.05.2018
-
-Александр Леонович Хосроев | "Другое благовестие" II. Христианские гностики II-III вв.: их вера и сочинения (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677400.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге, которая является результатом многолетней работы автора над текстами из Наг Хаммади и другими древними письменными источниками, всесторонне исследованы различные аспекты того религиозного явления первых веков н. э., которое в науке нового времени называется «гностицизм». Автор предлагает свой взгляд на природу этого явления в целом, попутно рассматривая многие (   Читать дальше...   )Жанр: История религий, христианство, гностицизмФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CF956F2EB482D599B1AC1A3E74B3225B20652B
 ```
 
 https://mybot314.ru/tekegram_catalog/

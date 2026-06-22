@@ -1,3 +1,30 @@
+###  Публикация: 1380086   (835806) от 01.05.2020
+
+Тамара Шмидт | Крайон. Большая книга толкований Таро Уэйта-Крайона. Старшие и младшие арканы (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карты Таро в наши дни – инструмент Духа, инструмент передачи Божественного знания, они призваны помогать нам и поддерживать нас. Их задача – неясное знание сделать более отчетливым, непонятное – разъяснить, невнятное – «перевести» на понятный для вас язык.
+Впервые Крайон открывает нам значение всех карт полной колоды Таро – и Старших, и Младших Арканов. Следуйте (   Читать дальше...   )Жанр: Практическая эзотерикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA36566CFDBC25AA69378A05F622D33E9252F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005244   (834264) от 08.04.2016
 
 Артур Конан Дойл | История спиритизма. Исследование духовного мира (2015) [FB2]
@@ -6,7 +33,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834264.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834252.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829400.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827719.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827654.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826762.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826634.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825930.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823384.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822259.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822186.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817408.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817221.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813458.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813123.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ Yeguda Berg / Йегуда Берг | Ангельский Интеллект / 
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811974.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807591.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807469.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804086.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ Yeguda Berg / Йегуда Берг | 72 имени Бога. Технологи
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802309.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802243.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802140.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802077.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800033.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800031.jpg" />
 </div>
 
 
@@ -656,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42DDDA066AA9DD1AAF34A2C25BC9589711A7F6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270648   (798610) от 04.01.2019
-
-Ошо (Бхагаван Шри Раджниш) и др. | Сборник книг [409 книг] (2007-2015) [DOC, PDF, FB2, DJVU]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бхагван Шри Раджниш, также известный как Ошо - просветленный индийский мистик, один из самых парадоксальных Учителей нашего времени. Его имена означают "океанический", "растворенный в океане", "божественный", "достигший". Этот человек признан в Индии одним из десяти людей, наравне с Буддой, изменившим жизнь страны. (!?)Жанр: ЭзотерикаФормат: DOC, PDF, FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C3B89FA0D7DACB65D3716C310198CABDA3A187
 ```
 
 https://mybot314.ru/tekegram_catalog/

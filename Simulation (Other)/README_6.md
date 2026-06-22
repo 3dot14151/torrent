@@ -1,3 +1,55 @@
+###  Публикация: 1208277   (780013) от 21.02.2018
+
+SYMMETRY (2018) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследовательский корабль терпит крушение на неизведанной планете с загадочным миром симметрии. Экстремально низкие температуры вынуждают вас действовать быстро. Вам нужно как можно скорее починить корабль. Под вашим руководством целая группа выживших, за которой требуется пристальное внимание, ведь пошатнувшееся душевное здоровье одного члена экипажа может повлиять (   Читать дальше...   )Тип издания: LicenseРазработчик: Sleepless ClinicЖанр: Приключенческие игры, Инди, Симуляторы, Стратегии, ВыживаниеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC1B49954CE1D79A50D2C235922A0586F24303A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211909   (776671) от 09.03.2018
+
+Demolish & Build 2018 (2018) [Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваша компания выходит на мировой рынок. Используйте строительную технику, чтобы сносить огромные здания, или, если предпочитаете делать всё вручную, вооружитесь кувалдой и начните ломать стены. Покупайте земельные участки, обновляйте свою технику и нанимайте рабочих в разных частях света.Тип издания: LicenseРазработчик: Noble MuffinsЖанр: Simulator, 1st Person, 3rd Person, 3DЯзык субтитров: Английский, Испанский и другиеЯзык интерфейса: Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B88FE0146B6C5DF174AA07297EF39280047EA87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212104   (776307) от 10.03.2018
 
 ABZU (2016) [Ru/Multi] (1.0) License GOG
@@ -6,7 +58,7 @@ ABZU (2016) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776307.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Seamulator 2009 / Большая Регата. Морской симулятор
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775064.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Block'hood (2017) [Ru/Multi] (1.1.25) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774029.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.1/dlc) License PLAZA [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773911.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Slay the Spire (2019) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772529.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Britannic: Patroness of the Mediterranean (2020) [En] (1.0.85) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772492.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.20.53319/dlc) Repack xatab (обновл
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769132.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Rolling Line (2018) [En] (3.7.5) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769017.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Pure Farming 2018 (2018) [Ru/En] (1.1/dlc) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768796.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Ready for Take off A320 Simulator (2017) [Multi] (1.0.1) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768389.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Motorbike Garage Mechanic Simulator (2018) [Multi] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767224.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ This Is the Police (2016) [Ru/Multi] (1.1.3.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766708.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Catch: Carp & Coarse (2020) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765893.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Farming Simulator 2009 / Фермер [Ru] (L) 2010
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765497.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765060.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764081.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Alien Invasion 3d (2018) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763855.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ EMERGENCY 20 (2017) [Multi] (4.2.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759742.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755044.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ On The Road - Truck Simulator (2019) [Ru/Multi] (1.1.3.49) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748037.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3618/dlc) Repack xatab (обнов
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746540.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Biker Garage: Mechanic Simulator (2019) [Ru/Multi] (20211020/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746155.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Crest - an indirect god sim (2018) [En] (1.2/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745833.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739943.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C180DF5EBFD264A3BCF6A3AEFD6BB27C2174912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218003   (739937) от 07.04.2018
-
-Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляй собственной фермой в игре Farm Manager 2018! Чтобы развивать свой бизнес- производи дешево, продавай дорого. Контролируй процессы земледелия, выбирай подходящий персонал и технику, выращивай животных и перерабатывай собранный урожай.Тип издания: LicenseРазработчик: Cleversan SoftwareЖанр: Strategy, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312F2D7731F1D2A4F3951E3F74321DB916870AF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524337   (738048) от 25.01.2022
-
-Birthdays the Beginning (2017) [Multi] (1.0.7) License SKIDROW
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Birthdays the Beginning - это "песочница", в которой объединены черты LEGO, Minecraft и Spore, признаки стратегии и симулятора бога. Игрокам предстоит создать собственный мир из кирпичиков и, управляя климатическими условиями, добиться зарождения и развития форм жизни. В мире игры три сотни разновидности животных и растений, но открыть их все будет чрезвычайно (   Читать дальше...   )Тип издания: LicenseРазработчик: TOYBOX Inc., Arc System WorksЖанр: СимуляторыЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0A3F26F775EC035826E7A16B17EA62D59D195C
 ```
 
 https://mybot314.ru/tekegram_catalog/

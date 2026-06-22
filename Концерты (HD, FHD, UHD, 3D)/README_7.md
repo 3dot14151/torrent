@@ -1,3 +1,32 @@
+###  Публикация: 760676   (899531) от 26.02.2014
+
+Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert - Daniel Barenboim & Wiener Philharmoniker (2014) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.Eduard Strauss; Helenen Quadrillen; op.14
+Josef Strauss; Friedenspalmen; Walzer op.207
+Johann Strauss Vater; Carolinen Galopp; op.21a
+Johann Strauss Jun; Ägyptischer Marsch; op.335(   Читать дальше...   )Жанр: Классика, концерт Большого Симфонического оркестраПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80994B22D9AA91FB1EAB6B26A9A7F211731C6668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100457   (899368) от 04.02.2017
 
 Kreator - Gods Of Violence - Live @ Wacken 2014 (2017) Blu-ray [H.264/1080p]
@@ -6,7 +35,7 @@ Kreator - Gods Of Violence - Live @ Wacken 2014 (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899368.jpg" />
 </div>
 
 
@@ -27,36 +56,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 632614   (897849) от 01.04.2013
-
-Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись прямой трансляций с UMFTV самого масштабного фестиваля электронной музыки, проходящего ежегодно в Майами.Участвуют:
-Afrojack
-Nicky Romero
-Madeon
-Chuckie(   Читать дальше...   )Жанр: Концерт, Electronic dance musicПродолжительность: 41:02:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101033   (895581) от 06.02.2017
 
 Дискотека 80-х (полная версия) (2016) HDTV [H.264/1080i]
@@ -65,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895581.jpg" />
 </div>
 
 
@@ -91,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895124.jpg" />
 </div>
 
 
@@ -120,7 +119,7 @@ Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894075.jpg" />
 </div>
 
 
@@ -146,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893328.jpg" />
 </div>
 
 
@@ -175,7 +174,7 @@ Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892181.jpg" />
 </div>
 
 
@@ -204,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891997.jpg" />
 </div>
 
 
@@ -230,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885733.jpg" />
 </div>
 
 
@@ -259,7 +258,7 @@ Echoes - Barefoot To The Moon – An Acoustic Tribute To Pink Floyd (2015) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885242.jpg" />
 </div>
 
 
@@ -288,7 +287,7 @@ Coldplay: Призрачные истории / Coldplay: Ghost Stories (2014) H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884207.jpg" />
 </div>
 
 
@@ -317,7 +316,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883204.jpg" />
 </div>
 
 
@@ -346,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881182.jpg" />
 </div>
 
 
@@ -372,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881048.jpg" />
 </div>
 
 
@@ -401,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880537.jpg" />
 </div>
 
 
@@ -427,7 +426,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879644.jpg" />
 </div>
 
 
@@ -457,7 +456,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877893.jpg" />
 </div>
 
 
@@ -487,7 +486,7 @@ Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871597.jpg" />
 </div>
 
 
@@ -515,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870798.jpg" />
 </div>
 
 
@@ -544,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870602.jpg" />
 </div>
 
 
@@ -570,7 +569,7 @@ Pink Floyd - The Later Years 1987-2019 (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870240.jpg" />
 </div>
 
 
@@ -596,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870239.jpg" />
 </div>
 
 
@@ -622,7 +621,7 @@ Styx And The Contemporary Youth Orchestra: One With Everything (2006) [1080i] Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868053.jpg" />
 </div>
 
 
@@ -651,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867871.jpg" />
 </div>
 
 
@@ -677,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867599.jpg" />
 </div>
 
 
@@ -706,7 +705,7 @@ Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863376.jpg" />
 </div>
 
 

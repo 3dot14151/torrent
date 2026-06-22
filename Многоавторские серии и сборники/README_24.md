@@ -1,3 +1,143 @@
+###  Публикация: 1252808   (387215) от 07.10.2018
+
+Книжная серия | Куриный бульон для души [12 книг] (2016-2018) [FB2, EPUB]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборники вдохновляющих историй "Куриный бульон для души" - настоящий феномен книгоиздания и самая продаваемая серия за всю историю. Более 500 000 000 проданных копий по всему миру! В 2007 году USA Today назвал «Куриный бульон для души» одной из пяти самых впечатляющих книг за последние 25 лет (наряду с книгами о Гарри Поттере и романами Дэна Брауна)Жанр: Биографии и Мемуары; Современная зарубежная прозаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327C8E3C2D1C671A9886FD6D4CF0A71C6DE0DFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833308   (386370) от 21.10.2014
+
+Книжная серия | «Американская фантастика» [14 книг] (1992) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия американской фантастики в четырнадцати томах, выпущенная московским издательством МП «Все для вас», в 1992 году. Все книги с тонкими, практически «бумажными» обложками, оформленными Александром Быковым. В книги серии включены лучшие произведения американских фантастов, большинство из которых было переведено и напечатано издательством «Мир» в 60-80 года двадцатого (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB556FC7A0D3BEF67278FE22B70F0A41587B8585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949087   (386108) от 29.10.2016
+
+Книжная серия | Полное собрание сочинений (Собрание сочинений в одном томе) [51 книга. Обновляемая] (2011-2016) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство «Эксмо» дарит своим читателям возможность получить полное собрание сочинений полюбившегося автора в одном томе. Эти невероятные книги, выпущенные на хорошей бумаге в твердом переплете, могут стать отличным подарком вашему другу, при условии, что вы знаете его вкусовые предпочтения, или любителю коллекционировать качественные книги. В серию вошли как (   Читать дальше...   )Жанр: Приключения, Фантастика, Классическая литература и пр.Издательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7819339089B83CCB131FDCD5B498C6BBA8F731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572445   (382600) от 09.11.2012
+
+Книжная серия "Романовы в романах" (31 том) [1994-2009] [FB2, PDF]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Романовы в романах - уникальный издательский проект. В этой серии изданы книги, включающие в себя романы, посвященные отдельным представителям царской династии, правящей Россией с середины XVII до начала XX века.
+Серия Романовы в романах объединяет два цикла: Династии Романовых и Судьбы Романовых.Формат: FB2 (25 томов), PDF (6 томов)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A9F71BCFB6FF5F4BD877E442A80EF11B68FA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573016   (380990) от 10.11.2012
+
+Книжная серия "Желтый детектив" (6 книг) [2006-2008] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Желтый детектив - условное название отличных детективных книг в желтых обложках: от классического детектива до террористического триллера.
+Зная любовь издательства АСТ к слову bestseller, можно предложить название The Yellow Bestseller.
+А если кто-то знает официальное название данной серии - прошу подсказать.
+
+Джон Бердетт. 	 Бангкок-8
+Кристофер Дикки. Охота на крота
+Харлан Кобен. 	 Невиновен
+Филипп Марголин. Спящая красавица
+Дэниел Силва. 	 Властитель огня
+Крис Симмс. 	 Убить зверя(   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E64863A0AD966552F614472C124EC8747577FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315248   (380310) от 10.10.2020
 
 Книжная серия | «Серебряная коллекция фантастики» [73 книги] (2013-2020) [FB2] [Обновляемая]
@@ -6,7 +146,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380310.jpg" />
 </div>
 
 
@@ -33,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380267.jpg" />
 </div>
 
 
@@ -61,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378767.jpg" />
 </div>
 
 
@@ -87,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377672.jpg" />
 </div>
 
 
@@ -116,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376324.jpg" />
 </div>
 
 
@@ -143,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375639.jpg" />
 </div>
 
 
@@ -170,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374646.jpg" />
 </div>
 
 
@@ -196,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374101.jpg" />
 </div>
 
 
@@ -222,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373788.jpg" />
 </div>
 
 
@@ -250,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372638.jpg" />
 </div>
 
 
@@ -277,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372546.jpg" />
 </div>
 
 
@@ -303,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372515.jpg" />
 </div>
 
 
@@ -330,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371941.jpg" />
 </div>
 
 
@@ -357,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370558.jpg" />
 </div>
 
 
@@ -385,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367801.jpg" />
 </div>
 
 
@@ -414,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366930.jpg" />
 </div>
 
 
@@ -440,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364684.jpg" />
 </div>
 
 
@@ -467,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362875.jpg" />
 </div>
 
 
@@ -499,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362428.jpg" />
 </div>
 
 
@@ -529,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_362418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362418.jpg" />
 </div>
 
 
@@ -564,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360969.jpg" />
 </div>
 
 
@@ -576,148 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25517E78F2791FE8D17C03037455023AA40FE624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576838   (360568) от 18.11.2012
-
-Книжная серия "Поколение XYZ" [2002–2004] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поколение XYZ - серия современной, в большинстве своем, переводной прозы с контркультурным уклоном. Из русских авторов в серии присутствует только Виктор Пелевин.
-Оформление серий «Bestseller», «Мастера. Современная проза» и «Поколение XYZ» является идентичным, отличается лишь названием и логотипом.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDE1E01E8DA91D1866A459AC4BDF46EC5FE0E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576831   (359671) от 18.11.2012
-
-Книжная серия "Гиганты фантастики" [2004-2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серию Гиганты фантастики выпускают разные издательства.
-Это очень толстые и сравнительно дорогие книги отечественных и зарубежных мастеров фантастики.
-Серия приводится здесь лишь для ознакомления - все произведения других изданий, скомпанованы по папкам, в соответствии с содержанием томов.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC5FBA8FCB88825EC89B0AAE6167D9A478EF96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328734   (358914) от 02.10.2019
-
-Сборник произведений | Лауреаты Премии Эдгара Аллана По (Лучший роман) (1954-2019) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премия «Эдгар» (англ. Edgar), названная в честь американского писателя Эдгара По, вручается ежегодно Ассоциацией детективных писателей США. Первое вручение прошло в 1954 году.
-
-Здесь собраны произведения лауреатов в номинации Лучший романЖанр: Детектив, трилерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BC1DF3D20C618ACD13F43F243B99923F5D68FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577819   (357664) от 19.11.2012
-
-Книжная серия "Лауреаты мировых литературных премий" (5 книг) [1959-2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лауреаты мировых литературных премий - новая серия, в которой выходят книги выдающихся писателей - лауреатов самых престижных международных наград в области литературы.
-
-Джулиан Барнс. Предчувствие конца
-Дорис Лессинг. Пятый ребенок. Бен среди людей
-Иэн Макьюэн.   Черные псы
-Айрис Мердок.  Черный принц
-Жозе Сарамаго. КаинФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1334E86D6401095A19DC9FE03B0FCCD1867B0527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577200   (357655) от 19.11.2012
-
-Книжная серия "Fabula Rasa" (24 книги) [2001-2005] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fabula Rasa - серия современной зарубежной прозы. Наиболее полно в серии представлены Алессандро Барикко, Дуглас Коупленд, Питер Хёг.
-Все книги серии выходили в твёрдом переплёте и суперобложке.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA553E77435FE36F48B717D0D5EBA821AF6D61F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

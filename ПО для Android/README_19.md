@@ -1,3 +1,31 @@
+###  Публикация: 1439183   (1040076) от 12.01.2021
+
+Tody v1.9.4 Premium [Ru] - уборка по-умному
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tody поможет Вам более эффективно организовать Ваши хозяйственные заботы.
+● Организуйте домашние дела в соответствии с Вашими нуждами и характером! Tody поможет Вам составить умный план именно для Вашего хозяйства.
+● Вы сможете выбрать задачи из встроенного стандартного каталога, а также определить Ваши собственные.Тип издания: Пиратка (Premium)Релиз состоялся: 28 декабря 2020 г.Разработчик: LoopLoop ApsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B797DF8D82CC019C083056A2E5BFE5637634D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439173   (1040071) от 12.01.2021
 
 Справочник сварщика v0.1 [Ru]
@@ -6,7 +34,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040071.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Weather XL PRO v1.4.7.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040042.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039831.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039779.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039500.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039463.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039412.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039305.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039267.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ Spread The Signs v2.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039114.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039078.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039042.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039012.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039008.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039006.jpg" />
 </div>
 
 
@@ -410,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038997.jpg" />
 </div>
 
 
@@ -436,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038934.jpg" />
 </div>
 
 
@@ -462,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038928.jpg" />
 </div>
 
 
@@ -489,7 +517,7 @@ Planner 5D Interior Design v1.26.4 [Ru/Multi] - Планировщик домо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038908.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ Denoise it v1.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038755.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ Dub Music Player Premium v5.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038703.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038440.jpg" />
 </div>
 
 
@@ -596,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038413.jpg" />
 </div>
 
 
@@ -625,7 +653,7 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038405.jpg" />
 </div>
 
 
@@ -654,7 +682,7 @@ AR Plan 3D v4.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037967.jpg" />
 </div>
 
 
@@ -665,33 +693,6 @@ AR Plan 3D – инновационное приложение, использу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F30024E480B5E7DC611A504F14A4E3BDDE320025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441478   (1037621) от 21.01.2021
-
-OTT Navigator IPTV v1.6.3.8 Mod [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотр IPTV вашего провайдера на любом устройстве (телефон, планшет, ТВ, ТВ-приставка). Поддерживает как Android TV / TV-приставок (DPAD-пульт), так и телефоны и планшеты.
-"Приложение не предоставляет никаких источников самостоятельно. Оно работает с плейлистом вашего провайдера или приложенным вами источником".Тип издания: Пиратка (Mod Premium)Релиз состоялся: 21.01.2021Разработчик: Scillarium StudioПоддерживаемая ОС: Android 4.2+, Android TVЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5095EAE8DB4347A754B8061BBDF06DBA0B5944
 ```
 
 https://mybot314.ru/tekegram_catalog/

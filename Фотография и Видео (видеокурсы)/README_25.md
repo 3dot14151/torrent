@@ -1,3 +1,31 @@
+###  Публикация: 1678968   (141488) от 23.11.2023
+
+Scott Robert Lim | Scott Robert Lim Complete Pack (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваша фотография скоро изменится раз и навсегда. Начиная с основ, я научу вас, как пользоваться камерой настолько инстинктивно, что она практически исчезает, как выбрать правильное оборудование для своего искусства и как настроить себя на успех.
+
+Независимо от того, новичок ли вы или снимаете уже много лет, курсы и инструменты из моего полного пакета позволят вам (   Читать дальше...   )Производство: Scott Robert Lim PhotographyЖанр: фотографияЯзык озвучки: АнглийскийПродолжительность: 37:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B414C40FD2867F03DA2C99091E19AA9D9895E7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678958   (141222) от 23.11.2023
 
 Photocasa, Андрей Васильев | Чистый цвет = Чистый свет (2023) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@ Photocasa, Андрей Васильев | Чистый цвет = Чистый 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141222.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ MZed, Ollie Kenchington | Углубленное изучение и овлад�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140622.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Liveclasses, Дмитрий Шатров | Affinity Photo: быстрый ста
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140553.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140387.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ JayLay | Мастер-класс по обработке JayLay (2014) PCRec [H.
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140279.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ Arma Gray Photographer | Arma Gray - Шоколад и кофе (2019) PCRec [RU
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139252.jpg" />
 </div>
 
 
@@ -171,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139023.jpg" />
 </div>
 
 
@@ -200,7 +228,7 @@ Photocasa, Татьяна Малышева | Портрет со всех сто
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138672.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138621.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138142.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ Fstoppers, Elia Locardi | Photographing the World 5 - Japan (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137433.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137415.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ Tamara Williams Academy, Tamara Williams | The Art of Beauty Masterclass (2023) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137338.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ Profileschool | Adobe Lightroom: Практика обработки фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137320.jpg" />
 </div>
 
 
@@ -385,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137290.jpg" />
 </div>
 
 
@@ -411,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137151.jpg" />
 </div>
 
 
@@ -437,7 +465,7 @@ Fstoppers, Andres Moline | Mastering Macro Photography - The Complete Shooting a
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135155.jpg" />
 </div>
 
 
@@ -463,7 +491,7 @@ AEJuice | I Want To Learn It All Bundle (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135103.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ SlrLounge | Complete Wedding Photography Training System (2018) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134797.jpg" />
 </div>
 
 
@@ -517,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134451.jpg" />
 </div>
 
 
@@ -544,7 +572,7 @@ World of Portraits | Master Retouch Collection (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133643.jpg" />
 </div>
 
 
@@ -570,7 +598,7 @@ Daniel Kordan | Photo Editing Masterclass (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132540.jpg" />
 </div>
 
 
@@ -598,7 +626,7 @@ Udemy, Marc Schneider | Mastering Theater Lighting (2023) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132030.jpg" />
 </div>
 
 
@@ -625,7 +653,7 @@ Udemy, Jesse Lawrence | How to become a music photographer (2023) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131782.jpg" />
 </div>
 
 
@@ -651,7 +679,7 @@ Udemy, Phil Ebiner, Viola Kanka Malaspina | AI Video Production: Create Videos 1
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130996.jpg" />
 </div>
 
 
@@ -665,32 +693,6 @@ Udemy, Phil Ebiner, Viola Kanka Malaspina | AI Video Production: Create Videos 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6532B55F55862B3A6AF83A8EB0930031AEF68D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682785   (130864) от 08.12.2023
-
-Udemy, Илья Зернов | Энциклопедия Adobe Premiere 2.0. На русском языке. 2023 (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс результат нескольких лет моего преподавания Premiere на разных телеканалах и в разных киношколах в качестве инструктора Adobe Premiere Pro. У меня не было цели делать курс для начинающих или для профессионалов, мне хотелось сделать максимально подробный курс, к который я бы смог уместить все свои знания. В нём всё что есть полезного и нужного в Adobe Premiere (   Читать дальше...   )Производство: UdemyЖанр: Монтаж видеоЯзык озвучки: РусскийПродолжительность: 15:01:09Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C932AE9EE27E36C2F60317D79F9C8EC905EC9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Prison Architect (2015) [Ru/Multi] (2.0/dlc) SteamRip Let'sPlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287377.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Motorsport Manager (2016) [Ru/Multi] (1.53/dlc) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283444.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Startopia (2001) [En] (1.00) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281867.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blood Bowl : Legendary Edition (L) [Multi5\-] 2010 | RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275560.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275060.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Rise of Industry (2019) [Ru/Multi] (2.1.0.1211a/dlc) Repack R.G. Механик�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270286.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.5) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261631.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.4.0.12/dlc) Repack Necros [Mega Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261464.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Port Royale 3: Pirates & Merchants + DLC (RePack/1.1.2.24556) [Ru/En] 2012 l Fen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261088.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ A-Train (RePack) [En] 1992 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260825.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Port Royale 3: Pirates & Merchants [Ru/En] (RePack/1.1.2.24556) 2011 l R.G. Cata
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260669.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Moon's Creed (2025) [Ru/Multi] (1.6) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256759.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252777.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ ACRES (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252479.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Thea 2: The Shattering (2019) [Ru/En] (2.0508.0677) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252130.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252005.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250597.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Roman Triumph: Survival City Builder (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250338.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Moonbase (RePack) [En] 1990 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_248256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248256.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247002.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Glory of the Roman Empire / Величие Римской Империи [Ru] (R
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246689.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235999.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ SuperPower 3 (2022) [Ru/Multi] (1.0b) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229292.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Omerta: City of Gangsters (2013) [Ru/En] (1.07/dlc) Repack R.G. Origami [Gold Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229032.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228593.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Traffic Giant (2001) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_227231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227231.jpg" />
 </div>
 
 

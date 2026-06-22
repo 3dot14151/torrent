@@ -1,3 +1,212 @@
+###  Публикация: 1614147   (1038780) от 21.02.2023
+
+MAGIX SOUND FORGE Audio Studio 16.1.2.57 (x86/x64) [Multi]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись, обработка и мастеринг на высочайшем уровне.
+SOUND FORGE Audio Studio позволяет осуществлять цифровую обработку звука в самых широких границах Записывайте подкасты в высоком качестве и редактируйте свои записи с помощью профессиональных эффектов. Оцифровывайте старые записи и редактируйте аудиофайлы с помощью инструментов реставрации и мастеринга для получения (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и др. (Русского нет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7DDEC4400C62A9ACC9C4F5406384D2F2FC856A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614717   (1038370) от 23.02.2023
+
+JMG Sound - Hyperspace 2.6  VST, VST 3, AAX (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038370.jpg" />
+</div>
+
+
+###  Подробнее
+
+HyperSpace - это алгоритмическая реверберация, позволяющая пользователю создавать алгоритмы, состоящие из различных процессоров. Режимы «Винтаж», «Классик», «Ретро», «Модерн», «Sci-Fi» и «Космический» позволяют комбинировать различные алгоритмы с бесконечными возможностями. HyperSpace обогатит ваши треки множеством цветов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2081C9E63D9F3B9CE1642C2626A97C71D57888B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614716   (1038369) от 23.02.2023
+
+JMG Sound - Cryostasis 1.2 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cryostasis — это эффект спектральной инерции, который может постепенно искажать ваш звук, пока он не застынет во времени на бесконечность. Он оснащен спектральными эффектами и элементами управления, чтобы сформировать характер замороженного хвоста. Все они управляются бесступенчатой ручкой замораживания или автоматическим переключателем, который может быть рассчитан (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F784FD00859EC76216346C86E7AF42056C3EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614715   (1038368) от 23.02.2023
+
+JMG Sound - Orbitron 1.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая модуляция может быть скучной и утомительной. Но представьте, что вы могли бы плавно переключаться между четырьмя различными эффектами модуляции, чтобы каждый такт звучал по-разному. Или смешайте четыре эффекта вместе, чтобы создать что-то уникальное. Это подход, который может предложить только Orbitron.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B24948009B4971241F5BBF7B3D3053F19302C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614714   (1038359) от 23.02.2023
+
+JMG Sound - Transmutator 2.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффект перекрестного затухания может быть полезен, но простое смешивание одного материала с другим может быть немного скучным. К счастью, теперь есть Transmutator, который позволяет переходить между треками, частями песен или целыми песнями на новый уровень веселья и творчества.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286480AEE22C4745EAB3740B487662A5A0C693B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614813   (1038342) от 23.02.2023
+
+JMG Sound - Mirror 1.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе плагин, который видит будущее. Он переворачивает ваш звук, применяет эффекты и воспроизводит его еще до начала события. Этот плагин автоматически создает всеми любимые эффекты обратной реверберации и малого барабана за считанные секунды, позволяя вам сосредоточиться на звуке, а не на процессе. Итак, JMG Mirror — первая в мире обратная отрицательная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6B7DF3BD0B7F0521681DCA6C7660A9CD64C5C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614731   (1038341) от 23.02.2023
+
+JMG Sound - Expanse 3D 1.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир не плоский, и ваша музыка не должна быть такой. Expanse 3D, усилитель пространства от JMG Sound, использует преимущества самых последних (и футуристических) знаний о психоакустических эффектах, чтобы помочь вашим трекам взорваться во всех трех измерениях. Этот 3D расширитель сделает ваши звуки глубже, шире и объемнее.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD01E44AAFD393F3966E96345AA7BCBB14372CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614713   (1038340) от 23.02.2023
+
+Soundevice Digital - TrapTune 1.4.0 VST, VST 3, AAX RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный вокальный трек — ключевой элемент почти каждой песни. Вот где TrapTune делает шаг вперед. Этот мощный вокальный эффект может стать единственным инструментом, который вам может понадобиться. TrapTune — это (не просто) автоматический тюнер, который может дать вам все, от тонкой коррекции высоты тона до сильного искусственного эффекта Шер. Объедините это со (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09D3A26A66FC09B9AC264CEB80A0C0389B22DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615487   (1037536) от 26.02.2023
 
 TunePat YouTube Music Converter 1.2.5 (Repack & Portable) by elchupacabra [Multi]
@@ -6,7 +215,7 @@ TunePat YouTube Music Converter 1.2.5 (Repack & Portable) by elchupacabra [Multi
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037536.jpg" />
 </div>
 
 
@@ -33,7 +242,7 @@ Togu Audio Line - TAL-Mod 1.9.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036435.jpg" />
 </div>
 
 
@@ -60,7 +269,7 @@ Togu Audio Line - TAL-Dub-X 2.0.4 VST, VST 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036434.jpg" />
 </div>
 
 
@@ -86,7 +295,7 @@ Togu Audio Line - TAL-BassLine-101 3.6.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036433.jpg" />
 </div>
 
 
@@ -113,7 +322,7 @@ GForce Software Oberheim SEM 1.5.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036430.jpg" />
 </div>
 
 
@@ -139,7 +348,7 @@ Caelum Audio - Choric 1.0.5 VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036130.jpg" />
 </div>
 
 
@@ -165,7 +374,7 @@ Caelum Audio - Flux Pro 1.0.1 VST 3, AAX (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036129.jpg" />
 </div>
 
 
@@ -193,7 +402,7 @@ UJAM - Beatmaker CIRCUITS 2.2.1 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036115.jpg" />
 </div>
 
 
@@ -220,7 +429,7 @@ Freac 1.1.7 Stable + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035012.jpg" />
 </div>
 
 
@@ -246,7 +455,7 @@ D16 Group - Phoscyon 2 2.1.0 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034839.jpg" />
 </div>
 
 
@@ -274,7 +483,7 @@ Cableguys - ShaperBox 3 3.2.3 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034741.jpg" />
 </div>
 
 
@@ -302,7 +511,7 @@ Cherry Audio - Mercury-6 1.0.5.84 Standalone, VSTi, VSTi 3, AAX (x64) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033626.jpg" />
 </div>
 
 
@@ -328,7 +537,7 @@ reFX - Nexus 4.5.4 VSTi, VSTi 3, AAX (x64) RePack by VR + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031070.jpg" />
 </div>
 
 
@@ -355,7 +564,7 @@ UVI - Phasor 1.0.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030752.jpg" />
 </div>
 
 
@@ -381,7 +590,7 @@ DS Audio - Tantra 2 2.0.1 VST, VST 3, AAX (x64) RePack by TCD + EXPANSION [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030736.jpg" />
 </div>
 
 
@@ -407,7 +616,7 @@ Fiedler Audio - Stage 1.2.0 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030527.jpg" />
 </div>
 
 
@@ -434,7 +643,7 @@ Accentize - Complete Bundle 2021.3 VST 3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024363.jpg" />
 </div>
 
 
@@ -460,7 +669,7 @@ Sony Noise Reduction 2.0m (Build 596) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021267.jpg" />
 </div>
 
 
@@ -471,218 +680,6 @@ Sony Noise Reduction Plug-In - аудио-плагин к знаменитому
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0348AB03259D889A52092C3981FF062641F3738A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462427   (1021166) от 14.04.2021
-
-Output - Thermal 1.0.1 VST, VST3, AAX (x86/x64) RePack by FLARE [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Output Inc. утверждает, что вышла за рамки возможного в области виртуальной сатурации и искажения сигнала. Свои утверждения разработчики подтверждают выпуском нового плагина Output Thermal, который в компании позиционируют как «интерактивный дисторшн».
-Новинка предлагает многоступенчатый движок, способный производить не только традиционную обработку дисторшном (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DE22365819E65529D22B6968796017CDDAC0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376920   (1020353) от 18.04.2021
-
-SONY Sound Forge Pro 11.0 Build 299 Portable by Spirit Summer [Ru]
-
->>След.
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sound Forge™ Pro 11 обеспечивает эффективную и надежную работу монтажеров и звуковых режиссеров, с полным учетом всех аспектов звукового монтажа и мастеринга. И в студии, и в полевых условиях это исключительно полезная программа для медиа-профессионалов, которым требуется создавать и редактировать звуковые файлы - быстро и точно. С новыми прецизионными возможностями (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDE1237FC6969A73C69E0AF977A12A116996997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464278   (1019936) от 21.04.2021
-
-Acon Digital Acoustica Premium 7.3.1 (x64) [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг.
-Сразу мне хочется отметить интуитивно понятный пользовательский интерфейс в котором на самом деле приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2668FB60DFCF626909464CD2361820048F0392D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468437   (1017215) от 07.05.2021
-
-Slate Digital - Virtual Tape Machines 1.1.16.3 VST, VST3, AAX x64 RePack by R2R  [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики из Slate Digital утверждают, что их VTM-плагин является «самой продвинутой и динамичной эмуляцией аналогового магнитофона». Это смелое заявление действительно трудно оспорить. Опробуйте этот плагин на своих миксах и насладитесь классической сатурацией магнитной ленты без неудобств, с которыми вы бы столкнулись при использовании настоящего магнитофона.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A7A1632569768B96FD95E9394E2129E19AE2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468456   (1017079) от 08.05.2021
-
-TC Electronic - SYSTEM 6000 NATIVE Bundle 1.0.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017079.jpg" />
-</div>
-
-
-###  Подробнее
-
-TC Electronic выпустили серию плагинов System 6000 Native, которые были смоделированы с выпущенного в 1999 году студийного процессора эффектов TC Electronic Flagship System 6000. Коллекция включает в себя 3-х полосный компрессор / лимитер MD3, 6-ти полосный эквалайзер / компрессор MD4 HD, ревербератор NONLIN2 с управляемой огибающей, ревербератор VSS3 для обработки (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97DEFA806B9E05ABEB2C0C8B41E5587EE90281BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468495   (1017062) от 08.05.2021
-
-LiquidSonics - Illusion 1.1.7 VST, VST3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017062.jpg" />
-</div>
-
-
-###  Подробнее
-
-От моделирования естественной среды, включая красивые залы, камеры и комнаты до классических нелинейных и пластинчатых ревербераций, Illusion синтезирует невероятно разнообразный диапазон пространств, который органично сочетается с барабанами, гитарами, синтезаторами, вокальными выступлениями и оркестровыми ансамблями.
-Illusion поставляется с более чем 200 профессионально (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1617DAFA3BB47430F3E7CD58B1E80D9F450B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471184   (1015289) от 19.05.2021
-
-Pulsar Audio - 1178 1.0.8  VST, VST3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеально эмулированный и улучшенный FET компрессор. Быстрый и универсальный, это идеальный контроль для современных миксов.
-Pulsar 1178 - это аудиоподключаемый модуль, который тщательно воссоздает оригинальный аппаратный компрессор 1178 в его тональном цвете и характере сжатия, добавляя несколько дополнительных функций, превращая его в очень универсальный компрессор (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFE613E609D90E65FBBE2DA02DD5C4DF958BA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471183   (1015276) от 19.05.2021
-
-Softube - Weiss Compressor Limiter 2.5.9 VST, VST3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Weiss является синонимом качества мастеринга, и действительно исключительный компрессор / лимитер важен для любого серьезного мастеринг-инженера. Weiss DS1-MK3 является золотым стандартом для величайших гуру мастеринга, а для компрессора / лимитера Weiss мы опираемся на его суть (и кодовую базу), чтобы дать полностью сфокусированный современный ответ на вопрос: (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB5B3E1DB0B2F69BE191A57CAF1FF5B7A02EBD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1450197   (1029164) от 25.02.2021
+
+Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордАктеры: Николас Кейдж, Эмма Стоун, Райан Рейнольдс, Кэтрин Кинер, Клорис Личмен, Кларк Дьюк, Лесли Манн, Питер Динклэйдж, Келли Мари Трэн, Kailey CrawfordПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E70527E545AF34780C40A82FD1E70EE8012B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450169   (1029154) от 25.02.2021
+
+Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRemux [H.264/1080p] [2D/3D] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, АнглийскиеПродолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5152E0DBD7D677D9118F77C76AD1FD7BC11DA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450460   (1028976) от 26.02.2021
+
+Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRip 3D [H.264/1080p-LQ] [вертикальная анаморфная стереопара] [hand made 16:9]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордПеревод: Дублированный (iTunes)Субтитры: русские (форcированные)Продолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B145A24F755540B707A1DF39AC095F06922F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457626   (1024357) от 26.03.2021
+
+Повелитель драконов / Dragon Rider (2020) BDRip 3D [H.264/1080p-LQ] [вертикальная анаморфная стереопара] [hand made 16:9]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то драконы властвовали на Земле, но в наши дни их можно встретить только в кино. Однако молодой дракон, пробираясь сквозь небоскребы мегаполисов и уклоняясь от взоров вечно спешащих людей, мечтает добраться до мест, где по легендам могучие рептилии живут в спокойствии и безопасности. Он просит о помощи одного незадачливого паренька, который, как и все мы, даже (   Читать дальше...   )Производство: Германия / Constantin Film, Able & Baker, CybornЖанр: мультфильм, приключения, семейныйРежиссер: Томер ЕшедПеревод: Дублированный (iTunes)Язык озвучки: Русский, украинский, английскийСубтитры: английские (полные)Продолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA8491C80E4A9FD37A4853B43AB8CCDCC5ADEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597458   (1000330) от 02.01.2013
 
 От винта 3D (2012) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
@@ -6,7 +110,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000330.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999891.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999273.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999051.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999023.jpg" />
 </div>
 
 
@@ -143,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998807.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998217.jpg" />
 </div>
 
 
@@ -197,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997653.jpg" />
 </div>
 
 
@@ -223,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997422.jpg" />
 </div>
 
 
@@ -249,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997332.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996609.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996270.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995987.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995449.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995421.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994663.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994618.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993918.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991667.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991489.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991460.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989859.jpg" />
 </div>
 
 
@@ -574,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB12C880F50F95E7955E7947338214A65F4C0708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610709   (988968) от 30.01.2013
-
-Франкенвини / Frankenweenie (2012) [1080p] BDRip [Горизонтальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обожаемый мальчиком Виктором пес Спарки погибает в результате несчастного случая. Мальчик, не желая мириться с потерей друга, призывает науку на помощь и…возвращает питомца к жизни! Казалось бы, все не так уж плохо, но когда Спарки сбегает от Виктора, его друзья, родители, учителя и жители городка узнают, что возвращение к жизни домашнего питомца может повлечь за (   Читать дальше...   )Производство: США / Walt Disney Pictures, Tim Burton Animation Co., Tim Burton ProductionsЖанр: Мультфильм, Ужасы, Фантастика, Комедия, СемейныйРежиссер: Тим БёртонПерсонажи: Чарли Тахэн, Кэтрин О’Хара, Мартин Шорт, Мартин Ландау, Вайнона Райдер, Аттикус Шаффер, Роберт Капрон, Кристофер Ли, Кончата Феррелл, Джеймс Хироюки ЛиаоПеревод: Дублированный, Одноголосый закадровыйЯзык субтитров: Русский (Captions), Русский, Украинский (Captions), Украинский, Английский, Английский (SDH)Продолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F36D1FBD2133D176FCDBFB2C6E2B22393B8A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610204   (988913) от 30.01.2013
-
-Три богатыря и Шамаханская царица (2010) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная Шамаханская царица, которая сводила с ума многих царей и простых смертных, положила свой глаз и на Киевского князя. Тот заболел любовью странной по ней. Но чтобы доставить в целости и сохранности эту чудо-богиню в Киев-Град, срочно из отпуска вызывают всех троих, уже знакомых нам, богатырей: Алёшу Поповича, Добрыню Никитича и Илью Муромца. Теперь троица (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Сергей ГлезинПерсонажи: Дмитрий Быковский-Ромашов,  Валерий Соловьев,  Олег Куликович,  Сергей Маковецкий,  Анна Геллер,  Дмитрий Высоцкий,  Константин Бронзит,  Мария Цветкова-Овсянникова,  Елена Шульман,  Лия МедведеваПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80EB0645A0E15F81313A5B9B2F96B40FE835A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610786   (988904) от 30.01.2013
-
-Битва за планету Терра / Battle for Terra (2007) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на планете Земля пересохли все реки, исчезли леса, а воздух превратился в пыль, люди исколесили Галактику, чтобы найти себе новый дом. Прекрасная планета Терра стала надеждой людей на спасение. Хитроумное устройство землян Терраформер должен превратить Терру в рай для людей и кошмар для коренных жителей. Катастрофа для террианцев неизбежна, они обречены.
-
-Счет (   Читать дальше...   )Жанр: Мультфильм, Фантастика, Боевик, Приключения, ВоенныйРежиссер: Аристоменис ТсирбасПерсонажи: Ивэн Рэйчел Вуд,  Брайан Кокс,  Джеймс Гарнер,  Крис Эванс,  Дэнни Гловер,  Аманда Пит,  Дэвид Кросс,  Деннис Куэйд,  Люк Уилсон,  Чед АлленПеревод: Дублированный - Русский / Многоголосый закадровый - УкраинскийПродолжительность: 01:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61860E4BFB165BF860EC6F23C22B8763D429037C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970964   (988251) от 01.01.2016
-
-Упс… Ной уплыл! / Ooops! Noah is Gone... (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грядет всемирный потоп, и старина Ной вот-вот отчалит. Самое время для зверей занять свои каюты. Но, увы, повезло не всем — кое-кто фейсконтроль не прошел. Теперь ему придется как следует постараться, чтобы перехитрить судьбу и заскочить на подножку уплывающего ковчега.Производство: Германия, Бельгия, Люксембург, Ирландия, США / Fabrique d'Images, Moetion FilmsЖанр: Мультфильм, Комедия, ПриключенияРежиссер: Тоби Генкель, Шон МакКормакПерсонажи: Дермот Магеннис, Каллум Малони, Тара Флинн, Пол Тайлак, Алан Стэнфорд, Эйлин Митен, Патрик Фицсимонс, Карла Бекер, Франциска ФридеПеревод: Дублированный (Лицензия R5)Продолжительность: 01:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA4F7A0D492B8B93226A9A23DEC76BF5ED8AD51
 ```
 
 https://mybot314.ru/tekegram_catalog/

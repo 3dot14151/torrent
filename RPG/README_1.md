@@ -1,3 +1,107 @@
+###  Публикация: 1854562   (1057573) от 18.02.2026
+
+Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack Other s [Infernal Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика экшен-RPG в жанре мрачного фэнтези вернулась в обновленной версии: вас ждут новый класс, усовершенствования игрового процесса и переработанный контент на высоких уровнях. Сочетайте мощные умения и предметы, становитесь сильнее и побеждайте армии Преисподней в команде до 8 игроков.Тип издания: RepackРазработчик: Blizzard Entertainment, Inc.Жанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649422F3A729A585D99B00522012BAA864C80912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854565   (1057555) от 18.02.2026
+
+Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack FitGirl [Infernal Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика экшен-RPG в жанре мрачного фэнтези вернулась в обновленной версии: вас ждут новый класс, усовершенствования игрового процесса и переработанный контент на высоких уровнях. Сочетайте мощные умения и предметы, становитесь сильнее и побеждайте армии Преисподней в команде до 8 игроков.Тип издания: RepackРазработчик: Blizzard Entertainment, Inc.Жанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9A3B9DFC8E8EA6A19E2AAA0A15584B2CD7CEDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854572   (1057554) от 18.02.2026
+
+Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack seleZen [Infernal Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика экшен-RPG в жанре мрачного фэнтези вернулась в обновленной версии: вас ждут новый класс, усовершенствования игрового процесса и переработанный контент на высоких уровнях. Сочетайте мощные умения и предметы, становитесь сильнее и побеждайте армии Преисподней в команде до 8 игроков.Тип издания: RepackРазработчик: Blizzard Entertainment, Inc.Жанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB2BD64BEB30642792F249DA806A36F3EF247BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854326   (1057181) от 17.02.2026
+
+Diablo II: Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Scene Rune [Infernal Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика экшен-RPG в жанре мрачного фэнтези вернулась в обновленной версии: вас ждут новый класс, усовершенствования игрового процесса и переработанный контент на высоких уровнях. Сочетайте мощные умения и предметы, становитесь сильнее и побеждайте армии Преисподней в команде до 8 игроков.Тип издания: SceneРазработчик: Blizzard Entertainment, Inc.Жанр: Экшены, Ролевые игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD6B1DA37B39E12D5BADFFF2AC41C08D6ADA738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854363   (1057179) от 17.02.2026
 
 Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Let'sРlay [Supporter Bundle]
@@ -6,7 +110,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Let'sРlay [Supporter Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057179.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7.404.504czj3/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057016.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Other s [Collectors Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057014.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack FitGirl [Collectors Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057013.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Elder Scrolls V: Skyrim - Enderal: Forgotten Stories (2019) [Ru/En] (2.1.4.2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056654.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Vagrus: The Riven Realms (2020) [Ru/Multi] (1.2.80.0211V/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056620.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Back to the Dawn (2023) [Ru/Multi] (2.0.0.30-RC/dlc) Repack Let'sРlay [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056375.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Nioh (2017) [Ru/Multi] (1.24.8/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055945.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Nioh 2 (2021) [Ru/Multi] (1.28.8/dlc) Repack Let'sРlay [The Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055938.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Flowstone Saga (2024) [Multi] ((163f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055827.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Cosplayer’s Quest (2026) [Multi] (1.0.1/dlc) License GOG [16+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055826.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Ephemeral / 蜉蝣之国的囚徒 (2026) [Multi] (Build 21423814) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055808.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055670.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (2.4.8/dlc) Repack FitGirl [Digital D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055513.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-27) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055295.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Disco Elysium (2019) [Ru/Multi] (Build a0a063ab) Repack FitGirl [The Final Cut B
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054836.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Let'sРlay [Collectors
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054519.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.006/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054312.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ DuneCrawl (2026) [Ru/Multi] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053830.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053689.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/dlc) Repack seleZe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053449.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053448.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAADD608791122BA5CF3B66B34C48BA7BFB1F5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849273   (1053415) от 22.01.2026
-
-Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Юмия: Алхимик воспоминаний и Земля Грёз (2025) [Ru/Multi] (1.0.4.2/dlc) Repack seleZen [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то на одном континенте процветала Арадисская империя. Она достигла выдающихся успехов благодаря алхимии, которая держала другие нации на расстоянии. Однако империя рухнула из-за внезапного и таинственного катаклизма. Время шло. Несколько веков спустя алхимия стала считаться опасным ремеслом, что несет разрушение. Алхимия - зло и табу.Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F700C02E9488E2B7BE70DF204E8BD9129A834256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849283   (1053406) от 22.01.2026
-
-Night Swarm (2025) [Ru/Multi] (1.1.0.1) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Night Swarm - это вампирский roguelite RPG в жанре bullet heaven, где вы играете за молодого и грозного Лорда-Вампира, стремящегося к власти. Собирайте верных союзников, раскрывайте разрушительные способности и сражайтесь с беспощадными ордами оборотней, угрожающими поглотить ночь.Тип издания: RepackРазработчик: Fubu GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523570F5585062F04F8E6FCFC69BE4207764389F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848520   (1052999) от 17.01.2026
-
-The Stone of Madness (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay [Special Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052999.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Stone of Madness – тактическая стелс-игра в реальном времени, действие которой разворачивается в испанском монастыре XVIII века. Этот расположенный в Пиренеях потрепанный временем иезуитский монастырь служит домом призрения душевнобольных и тюрьмой инквизиции. Пятеро заключенных, страдающих от жестоких наказаний, безумия и отчаяния, объединяют свои навыки и ресурсы, (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3203EB23A5D6EA0996E612A6D35AB30781A2CCBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848641   (1052958) от 18.01.2026
-
-Dreamscaper (2020) [Ru/Multi] (1.1.7.4) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamscaper - это бесконечно реиграбельный экшен-рогалик с циклом геймплея «бодрствование/сновидение». Ночью погрузитесь в глубины своего подсознания, сталкиваясь с кошмарами в постоянно меняющемся мире, наполненном уникальными предметами, способностями и испытаниями. Днём исследуйте город Редхейвен, стройте отношения и открывайте постоянные улучшения, чтобы с ещё (   Читать дальше...   )Тип издания: RepackРазработчик: indie.io, Maple Whispering LimitedЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55C38FDCA0E8555F7F2181063B38969A395BAD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

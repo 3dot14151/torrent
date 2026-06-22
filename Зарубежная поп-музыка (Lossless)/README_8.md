@@ -1,3 +1,119 @@
+###  Публикация: 1462534   (1021002) от 15.04.2021
+
+Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fearless (04:02)
+02. Fifteen (04:54)
+03. Love Story (03:56)
+04. Hey Stephen (04:14)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85079D5BC4BB75110FB03B3680DC5C8A5733CCF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462933   (1020807) от 16.04.2021
+
+Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What It Feels Like for a Girl (Radio Edit)
+02. What It Feels Like for a Girl (Paul Oakenfold Perfecto Mix)
+03. What It Feels Like for a Girl (Richard Vission Velvet Masta Mix)
+04. What It Feels Like for a Girl (Calderone & Quayle Dark Side Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523981509925CB032313036776EA08AE26CCD8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464010   (1019980) от 21.04.2021
+
+Imelda May - 11 Past The Hour (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11 Past The Hour (3:59)
+02. Breathe (3:39)
+03. feat. Ronnie Wood, Gina Martin & Dr. SholaMos-Shogbamimu - Made To Love (3:25)
+04. Different Kinds Of Love (3:01)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1306ACEC58C7DE10E4E60526C0F1C6408F677BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463469   (1019967) от 21.04.2021
+
+Bonnie Tyler - Goodbye to the Island (1981) Reissue, 2010, 7T's Records [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock, Ballad, AOR>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019967.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I'm Just a Woman (5:08)
+2. We Danced on the Ceiling (4:56)
+3. Wild Love (4:36)
+4. The Closer You Get (3:49)(   Читать дальше...   )Жанр: Pop, Pop-Rock, Ballad, AORПродолжительность: 0:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC4A5436984637A0675F8818FF59377D46779E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464271   (1019946) от 21.04.2021
 
 VA - Pop Ballads Greatest Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -6,7 +122,7 @@ VA - Pop Ballads Greatest Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019946.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Lory Bonnie Bianco - My Star 2.0 (2019) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019344.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Tom Jones - Surrounded By Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019245.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Maggie Reilly - Past Present Future: The Best Of (2021) [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018604.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Amy Shark - Cry Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018435.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Dalida - Dans la ville endormie (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chans
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018261.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Ultimate Chillout (2017) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017915.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Emma Stevens - Light Year (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017246.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Wilson Phillips - Wilson Phillips (2016) 2CD [FLAC|Lossless|image + .cue] <  Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017105.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Bay City Rollers - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017097.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Greatest Covers Ever (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017077.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016738.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue (2014)
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016716.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016286.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Record
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015474.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015125.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Zolita - Evil Angel (Deluxe) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014667.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ VA - American Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014527.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ My Brothers And I - Love Is (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014202.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ Texas - Hi (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013842.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013795.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013222.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474718   (1012890) от 03.06.2021
-
-Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stasera Che Sera (3:23)
-02. Per Un'Ora D'Amore (3:59)
-03. Cavallo Bianco (4:57)
-04. Ma Perche' (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474639   (1012881) от 03.06.2021
-
-Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless|tracks+.cue] <Pop, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Day In Your Life (4:17)
-02. Rockin Robin (2:33)
-03. People Make The World Go Round (3:14)
-04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474932   (1012727) от 04.06.2021
-
-VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Sweat$ - At My Worst (2:50)
-02. Joel Corry, MNEK - Head & Heart - Acoustic Version (3:38)
-03. Charlie Puth, Selena Gomez - We Don't Talk Anymore (3:37)
-04. Griff - Good Stuff (3:13)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475251   (1012439) от 06.06.2021
-
-Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muñequita Linda
-02. Solamente Una Vez (con Israel Fernández)
-03. Esta tarde vi llover (feat. Rusowsky)
-04. Perfidia(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4C3270352C53C5915A5925354C38E39C42FBEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

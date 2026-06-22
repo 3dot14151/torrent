@@ -1,3 +1,109 @@
+###  Публикация: 1178970   (353178) от 29.10.2017
+
+Жорж Ру | Великие цивилизации Междуречья. Древняя Месопотамия: Царства Шумер, Аккад, Вавилония и Ассирия. 2700–100 гг. до н. э. (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга ассириолога Жоржа Ру охватывает политическую, культурную и экономическую историю трехтысячелетнего периода процветания региона, расположенного между Тигром и Евфратом и некогда называвшегося Месопотамией. Интерес к Древнему Ближнему Востоку и исследовательская работа автора позволили ему описать династии и религии каждой эпохи: искусство, науку и литературу (   Читать дальше...   )Жанр: История, КультурологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5871AA84140F6A8B1F0913FE6FA99EE0326E597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072423   (352395) от 13.11.2016
+
+А. Г. Белобородов (ред.) | Современная преступность [преступление, пол, репрессия, рецидив] (1927) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Относительность понятия преступления, изменчивость содержания, вкладываемого в это понятие, изменение требований, предъявляемых к целесообразно построенной системе репрессии, параллельно с изменением общеполитической и хозяйственной конъюнктуры, — все это, наряду с принципом целесообразности, составляет сумму тех основных положений, исходя из которых конструируется (   Читать дальше...   )Жанр: История, политология, экономика, правоведение, социологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682C6053EE42D2F4CB762858655AA490AF5A4DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072390   (352381) от 13.11.2016
+
+Анатолий Железный | Петр Лещенко. Биография, песни, дискография (2008) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352381.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге киевского журналиста Анатолия Железного рассказывается о творческом пути и трагической судьбе замечательного эстрадного артиста русского зарубежья 20 - 40-х годов Петра Константиновича Лещенко. В книге также приведены тексты всех песен, напетых им на грампластинку, и дана подробная дискография грамофонных записей певца.Жанр: Биографии, мемуарыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5F067A9CF9A4F204E2A2B89EB1412BAB09E61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072437   (352275) от 13.11.2016
+
+В. П. Беляев, М. И. Рудницкий | Под чужими знаменами (1954) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352275.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Национальная культура буржуазии есть факт (причем, повторяю, буржуазия везде проводит сделки с помещиками и попами). Воинствующий буржуаз­ный национализм, отупляющий, одурачивающий, разъединяющий рабочих, чтобы вес­ти их на поводу буржуазии, — вот основной факт современности.
+
+Кто хочет служить пролетариату, тот должен объединять рабочих всех наций, борясь неуклонно (   Читать дальше...   )Жанр: История, политология, экономика, религиоведение, психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A898B6A0B59C2C770B7809843A5B972D0E2DEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072417   (352014) от 13.11.2016
 
 А. Н. Каров | Проституция и новый быт (1926) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352014.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351914.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351875.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351429.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349982.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349736.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349721.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347797.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347774.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347646.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347106.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346978.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346970.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346950.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346947.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346846.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346845.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346843.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346837.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346809.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346720.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346617.jpg" />
 </div>
 
 
@@ -573,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:717CE2E0D6FF2FFDBA06716BCA7E8FF9D220D041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578428   (345539) от 23.09.2022
-
-И. С. Брагинский и др. | Книга о судах и судьях (1975) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенды, сказки, басни и анекдоты разных веков и народов о спорах и тяжбах, о судах и судьях, о хитроумных расследованиях и удивительных приговорах.Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5117C33BED718ADAF53D9457B511732F87F077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953955   (344762) от 06.11.2015
-
-Николай Надеждин | Марлен Дитрих (2011) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344762.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлена беллетризованная биография немецкой актрисы Марлен Дитрих. Эта женщина сама по себе целая эпоха в мировой кинематографии. Начав свою карьеру в Германии, Дитрих добилась статуса безусловной суперзвезды и в Голливуде. Сама создавшая свой неповторимый образ, Дитрих сыграла десятки ролей в фильмах, вошедших в золотой фонд мирового кинематографа. (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A815F6F8CD363BC8407D8A657F911B4B6208C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953958   (344658) от 06.11.2015
-
-Николай Надеждин | Фердинанд Порше (2011) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344658.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлена беллетризованная биография великого немецкого конструктора Фердинанда Порше-старшего, создавшего самый популярный автомобиль ХХ столетия «Фольксваген Жук». Изобретения Фердинанда Порше актуальны и сегодня. Любой современный автомобиль в той или иной степени последователь великих моделей Порше. Поэтому описание жизненного пути Инженера будет интересно (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA769D71BECBE194B37319AAB7F5C07869E594EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953944   (344654) от 06.11.2015
-
-Николай Надеждин | Софи Лорен (2011) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344654.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлена беллетризованная биография Софи Лорен – одной из самых знаменитых и любимых актрис современности, признанного секс-символа XX века, объекта страстного вожделения миллионов мужчин и жгучей зависти абсолютного большинства женщин.
-В этой книге постепенно раскрывается история актрисы, прошедшей тернистый путь из нищих итальянских кварталов к вершине (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C9710F4CE95B732DCB1681EFF948F4795E3235
 ```
 
 https://mybot314.ru/tekegram_catalog/

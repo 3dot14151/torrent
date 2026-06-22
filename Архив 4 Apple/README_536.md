@@ -1,3 +1,56 @@
+###  Публикация: 1511534   (233653) от 21.11.2021
+
+PullTube 1.7.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 19.11.2021Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D14B12A67A1E90CC470FD18132C48675B988880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641238   (233651) от 21.06.2023
+
+BatchOutput PDF 2.4.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233651.jpg" />
+</div>
+
+
+###  Подробнее
+
+BatchOutput PDF упрощает вашу жизнь, автоматически распечатывая файлы PDF из папок на вашем компьютере. И это единственный инструмент для автоматизации печати PDF-файлов для Mac.
+Создавайте «горячие» папки для различных настроек печати и помещайте свои PDF-файлы в эти папки. BatchOutput PDF сделает все остальное автоматически, сэкономив вам время и хлопоты, связанные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2023Разработчик: © 2012-2020 Zevrix SolutionsПоддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E5B15DC66B5BE5022F11502B73C1870782B8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643826   (233650) от 03.07.2023
 
 Ghost Buster Pro 2.2.0 [Multi/Ru]
@@ -6,7 +59,7 @@ Ghost Buster Pro 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233650.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ WonderPen 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233646.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Find Any File (FAF) 2.3.2 b7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233640.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Duplicate Photos Fixer Pro 4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233637.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Cardhop 2.0.7 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233631.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ TG Pro (Temperature Gauge Pro) 2.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233624.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Permute 3 v.3.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233623.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233616.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ One Switch 1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233600.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Timemator 2 v2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233593.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Middle 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233586.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ DMG Canvas 3.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233580.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Recordia 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233566.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ iTubeGo YouTube Downloader Pro for Mac 6.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233552.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Things 3 v3.15.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233551.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Export for iTunes 2.5.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233542.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233534.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Sketch 96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233532.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ VueScan Pro 9.8.09 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233526.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233513.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Website Watchman 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233502.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ NetWorker Pro 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233495.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ Manico 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233487.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ FastScripts 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233482.jpg" />
 </div>
 
 
@@ -626,60 +679,6 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE02955EBD2D2BB017F75FBC9BAB60951C4B045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512212   (233472) от 24.11.2021
-
-iShowU Instant (Advanced) 1.4.9  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
-iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени.Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF481F65FB79071BA97BD5288200FBDDCFAE33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627565   (233466) от 20.04.2023
-
-Things 3 v3.17.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2023Разработчик: Cultured Code GmbH & Co. KGПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6415A836A0A80E31748BFF9ED4737DC3B281E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

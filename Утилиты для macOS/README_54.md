@@ -6,7 +6,7 @@ Mirror for Arcelik TV 3.5.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129470.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FonePaw iOS Transfer for Mac 6.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123115.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cover Desk 1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123075.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Clipsy: Clipboard Manager 2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123074.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ iON: Internet Status 5.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123060.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Speedio: Internet Speed Test 3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122938.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122909.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ MacPilot 15 v.15.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122907.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Little Snitch 5.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122871.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Disk Xray 4.1.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122749.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Ethernet Status - LAN Status  5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122737.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ OnlySwitch 2.4.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122717.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ SpamSieve 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122703.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Eon Timer 2.9.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122701.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Battery Indicator for Mac 2.17.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122353.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Wattagio 1.13.1 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122342.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ GM CHM Reader Pro for Mac 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122332.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Disk Drill Enterprise 5.4.1426 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122264.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ WiFi Explorer 3 Pro 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122210.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Numi 3.32 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122193.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Eassiy Data Recovery for Mac 5.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122186.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Mac FoneLab Android Data Recovery 3.2.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122165.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ WiFi Explorer 3.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122149.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Aiseesoft Mac FoneLab for Android 5.0.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122146.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Apeaksoft Android Toolkit 1.2.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122145.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Beyond Compare 5 for Mac 5.0 beta [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122019.jpg" />
 </div>
 
 

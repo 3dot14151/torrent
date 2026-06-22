@@ -1,3 +1,29 @@
+###  Публикация: 1587820   (1046249) от 03.01.2023
+
+PhotoRoom v4.1.0 Mod by CXV [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.12.2022Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4751A3707C38BF2BB37E3543CCA168FA13C9EED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602163   (1046190) от 04.01.2023
 
 Copy Text On Screen v5.0.7 [Ru/Multi]
@@ -6,7 +32,7 @@ Copy Text On Screen v5.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046190.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046186.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ MobileSheets Music Viewer v3.6.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045808.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ SUXOV v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045271.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044176.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043385.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043026.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042860.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Solar System Scope v3.2.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042730.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Free Guitar Tuner v4.0.0 Premium [En] - Fender Tune
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042261.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ MobiDic Guitar Chords v2.6 Pro [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042250.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042236.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Folio v3.6.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042006.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ GnaCAD v2.8.48 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041995.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041987.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041704.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041697.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041308.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ VPN Russia - VPN сервера в России 1.158 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041219.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Bike Computer v1.8.4.2 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041041.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040467.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ AGAMA Car Launcher v2.7.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040452.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ AI Translate v3.1.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040290.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Old Movies v1.13.09 Premium [En] - Oldies but Goldies
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040289.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ ICQ New Мессенджер v9.20.1(824739) [Ru/Multi] - Общение, чат
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040221.jpg" />
 </div>
 
 
@@ -651,34 +677,6 @@ ICQ — мессенджер для тех, кто всегда онлайн. З
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F8448D5F62D50AEA5E03BA7D60920F3A9EFC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439183   (1040076) от 12.01.2021
-
-Tody v1.9.4 Premium [Ru] - уборка по-умному
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tody поможет Вам более эффективно организовать Ваши хозяйственные заботы.
-● Организуйте домашние дела в соответствии с Вашими нуждами и характером! Tody поможет Вам составить умный план именно для Вашего хозяйства.
-● Вы сможете выбрать задачи из встроенного стандартного каталога, а также определить Ваши собственные.Тип издания: Пиратка (Premium)Релиз состоялся: 28 декабря 2020 г.Разработчик: LoopLoop ApsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B797DF8D82CC019C083056A2E5BFE5637634D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1447777   (1031010) от 16.02.2021
+
+Sina Vodjani - Священный Будда (1998) Правительство Звука, 2002 [FLAC|Lossless|tracks + .cue] <World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031010.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот альбом Sina Vodjani вдохновили духовные наставники Мата Амританандамай и Его Святейшество, 17 Кармапа. "Эти люди изменили мою жизнь, - говорит музыкант. - Своей музыкой я всегда пытался донести до людей свет, мир, надежду и благословение. Выпуская компакт-диски, я также могу оказывать материальную поддержку тем, кто в ней нуждается, делать пожертвования (   Читать дальше...   )01. Straight to the Heart (8:10)
+02. Om Mani Padme Hung (5:47)
+03. Milarepa (5:38)
+04. Dorje Chang (3:35)(   Читать дальше...   )Жанр: World, New AgeПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48B3DA59F5DEBE29265FDC46C3D4E41FFDA297C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458607   (1023679) от 30.03.2021
 
 Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
@@ -6,7 +35,7 @@ Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023679.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021789.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019975.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018931.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016395.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016129.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016099.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Era - 7 Albums (1996 - 2010) [FLAC|Lossless|tracks + .cue]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015873.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Maneesh de Moor - Songs from the Tree of Light (2017) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015770.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Pilates and Yoga Music 2021 [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015492.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015479.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014026.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014013.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013858.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013522.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012935.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Peter Kater - Rapture (2021) [FLAC|Lossless|WEB-DL|tracks] <New age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009293.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Johnny Whitehorse - Totemic Flute Chants (2007) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008723.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ David Arkenstone - Celtic Chillout Beats (2021) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008710.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Jim Brickman - Bedtime Story Volumes Two & Three (2021) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005931.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibe
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004272.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004225.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003775.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002467.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001645.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Govi - Luminosity (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, New Flamenco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB5F9390FC8508EFD4B2FAEB440B063D47734E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710427   (1000966) от 14.01.2020
-
-Karunesh - Sounds of the Heart (1987) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clouds & Wings [6:27]
-02. Wu-wei [5:31]
-03. Fantasy Dancer [4:22]
-04. Back Home [6:10](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448EBD6B4E57E1565F2EA68C9D0F16E27DED2E70
 ```
 
 https://mybot314.ru/tekegram_catalog/

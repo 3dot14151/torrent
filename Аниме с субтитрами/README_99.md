@@ -1,3 +1,29 @@
+###  Публикация: 1605630   (203865) от 18.01.2023
+
+Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: По ту сторону [2019, Movie, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прямое продолжение сериала Soukyuu no Fafner: Dead Aggressor - ExodusЖанр: приключения, фантастика, меха, драмаПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101E520682F76DAD2904E004884F2831DB0864A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605596   (203859) от 18.01.2023
 
 Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 25 эп.] BDRip 1080p raw
@@ -6,7 +32,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203859.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Maetel Legend / Легенда Мэйтел [2000, OVA, 2 из 2] DVDrip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203576.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203554.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Seiken Densetsu: Legend of Mana - The Teardrop Crystal | Легенда свят
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202530.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202097.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Gunslinger Girl: Il Teatrino / Школа убийц: Театр марионе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201826.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Gunslinger Girl / Школа убийц (ТВ-1) [2003, TV, 13] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_201825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201825.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201719.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Mairimashita! Iruma-kun (2022) | Добро пожаловать в ад, Иру
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201696.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Fumetsu no Anata e Season 2 | To Your Eternity Season 2 | Для тебя, Бе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201342.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Toutotsu ni Egypt Shin 2 | Oh, Suddenly Egyptian God 2 | Ух ты, египет
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201232.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Idolish Seven: Third Beat! | Idolish 7: Third Beat! | Семёрка идоло�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200934.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Revenger | Мститель [2023, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200874.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Koori Zokusei Danshi to Cool na Douryou Joshi | Ледяной парень и �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200872.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Tensei shitara Slime Datta Ken Movie: Guren no Kizuna-hen | That Time I Got Rein
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200871.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200821.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Sugar Apple Fairy Tale | Сказка о сахарном яблоке [2023, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200817.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ The Legend of Heroes: Sen no Kiseki - Northern War | Легенды Героев
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200804.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200792.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | Истор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200774.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Blue Lock | Блю Лок [2022, TV, 24 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200758.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Boku no Hero Academia Season 6 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200752.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Kami-tachi ni Hirowareta Otoko 2 | By the Grace of the Gods 2 | Избранны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200717.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Yowamushi Pedal: Limit Break | Трусливый велосипедист [ТВ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200710.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Kyokou Suiri Season 2 / In/Spectre Season 2 / В/Спектре 2 / Ложные
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200706.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Kyokou Suiri Season 2 / In/Spectre Season 2 / В/Спектре 2 / Ложные
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:781DC583A6A9F815B70B8AC67E4416CABBA3464F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603566   (200691) от 27.03.2023
-
-Mononogatari | Malevolent Spirits | История о мононокэ [2023, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цукумогами — артефакты или вещи, которые в силу своего возраста (от ста лет и более) стали живыми и обрели сознание. Хотя Хёма Кутано является частью клана Саэномэ, который занимается мирной отправкой цукумогами обратно в потусторонний мир, он ненавидит их из-за одного происшествия в прошлом. Чтобы помочь преодолеть эту ненависть, дедушка Хёмы решает отправляет его (   Читать дальше...   )Производство: Студия BN Pictures / バンダイナムコピクチャーズЖанр: приключенияРежиссер: Кимура РюйтиПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8429D6FC515AB0BA967E7F2273051D21603E86C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

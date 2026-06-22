@@ -1,3 +1,82 @@
+###  Публикация: 980178   (957166) от 28.01.2016
+
+Николай Свечин | Ночные всадники [сборник] (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие повести «Последняя выставка» происходит в Нижнем Новгороде в 1896 году. Открыта XVI Всероссийская промышленная и художественная выставка. На нее приезжает молодой император Николай Второй. Сыщик Алексей Лыков заведует его охраной и после отъезда государя собирается в отпуск. Но начальство решило иначе. Убит городовой, местная полиция не в силах найти злодея. (   Читать дальше...   )Жанр: Исторические детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F4A3230B7770C69C53722F6BE07B5AAF556DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361225   (957071) от 18.02.2020
+
+Вячеслав Иванов | Перстень Луизы (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далекая западноафриканская страна, расположенная возле самого экватора, живет по своим древним и непонятным для европейцев законам. Но советскому хирургу Вадиму Карпову, приехавшему в Африку с самой, казалось бы, гуманной миссией, неожиданно для себя самого приходится с ними познакомиться: ведь им заинтересовалось таинственное общество «Сесайтис». У них своя тайная (   Читать дальше...   )Жанр: Детективы, БоевикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B70514C21806CC5FA0DF8089B88CB173E8B1A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361228   (956989) от 18.02.2020
+
+Бернар Миньер | Сестры (2020) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Май 1993-го. Две сестры, Алиса, 20 лет, и Амбер, 21 год, найдены мертвыми на берегу Гаронны. Одетые в платья для первого причастия, они сидели лицами друг к другу, привязанные к двум деревьям.
+Молодой Мартен Сервас, который только что начал службу в полиции Тулузы, проводит свой первый допрос. Очень быстро его внимание приковывает Эрика Ланг, знаменитый автор жестоких (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52921017085978DCCFBC28E135BC430DB09036AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354247   (956709) от 18.02.2020
 
 Данил Корецкий | Книжная серия «Шпионы и все остальные» [51 книга] (2015-2020) [FB2]
@@ -6,7 +85,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956709.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955643.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955059.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954057.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952972.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952894.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952259.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952187.jpg" />
 </div>
 
 
@@ -220,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951814.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951406.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_951180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951180.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950835.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950429.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950313.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949457.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949443.jpg" />
 </div>
 
 
@@ -433,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949422.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949362.jpg" />
 </div>
 
 
@@ -488,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948937.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948936.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948762.jpg" />
 </div>
 
 
@@ -568,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948737.jpg" />
 </div>
 
 
@@ -594,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948222.jpg" />
 </div>
 
 
@@ -605,90 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27D028BA2EE7E13ADE085C4AD3CE80AB6364A99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362665   (948107) от 24.02.2020
-
-Геннадий Сорокин | Лагерь обреченных (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: Андрей Лаптев, книга #2.
-
-Осень 1983 года. В небольшом сибирском поселке намечено открытие Вечного огня. Приглашенные на торжество фронтовики в предвкушении праздника. Однако в разгар мероприятия случилось ЧП: в Доме культуры найден мертвым председатель местного Совета ветеранов. Следователь Андрей Лаптев подозревает, что смерть эта – насильственная. Не случайно (   Читать дальше...   )Жанр: Детективы, Полицейский детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853E4776BC394E26FA8C0AEBF32AF06412FD9CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362660   (948079) от 24.02.2020
-
-Геннадий Сорокин | Смерть со школьной скамьи (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: Андрей Лаптев, книга #1.
-
-1983 год. Областной центр в Сибири. Начинающему оперу Андрею Лаптеву поручено расследовать убийство бывшей одноклассницы. На месте преступления сыщик находит шокирующую фотографию в стиле ню, на которой погибшая запечатлена в обнимку с… начальником Лаптева, большим милицейским чином. Оперу грозят крупные неприятности. В этот момент (   Читать дальше...   )Жанр: Детективы, Полицейский детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4827D9EE18206F09371AF966286BEDF8152C338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362690   (948065) от 24.02.2020
-
-Геннадий Сорокин | Письмо ни от кого (2019) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: Андрей Лаптев, книга #4.
-
-1988 год. В одном из сибирских городов совершен теракт. В результате управляемого взрыва в кафе погибли четверо авторитетных посетителей, собравшихся для серьезного разговора. Расследование поручено группе оперативников капитана Андрея Лаптева. Он понимает: в городе начинается новая, криминальная эпоха. Неожиданно в деле происходит (   Читать дальше...   )Жанр: Исторический детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BD7D134012D0F4CE4C67B259B2339DF92F67B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

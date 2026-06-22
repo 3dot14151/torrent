@@ -1,3 +1,116 @@
+###  Публикация: 1133451   (692940) от 13.05.2017
+
+Евровидение 2017. Второй полуфинал / Євробачення 2017. Другий півфінал / Eurovision 2017. Second Semi-Final (11.05.2017) WEB-DLRip [H.264/1080p-LQ] [UKR, BEL]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Конкурс песни Евровидение 2017 (англ. Eurovision Song Contest 2017, фр. Concours Eurovision de la chanson 2017, укр. Пісенний конкурс Євробачення 2017) — 62-й конкурс песни «Евровидение», который пройдёт в Киеве (Украина). Страна стала победительницей предыдущего конкурса «Евровидение-2016», прошедшего в Стокгольме (Швеция), с песней Джамалы «1944», набравшей (   Читать дальше...   )01. Сербия, Тияна Богичевич — In Too Deep;
+02. Австрия, Натан Трент — Running on air;
+03. Македония, Яна Бурческа — Dance alone;
+04. Мальта, Клаудия Фаниэлло – Breathlessly;(   Читать дальше...   )Телекомпания: FeedЖанр: Ток-шоу, песенный конкурсПеревод: ОтсутствуетЯзык озвучки: Украинский (Тетяна Терехова та Андрій Городиський), белорусскийСубтитры: отсутствуютПродолжительность: 02:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A86484D41E561695C82117B6BE28354639436A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134042   (686672) от 16.05.2017
+
+Евровидение 2017. Финал / Євробачення 2017. Фінал / Eurovision 2017. Final (2017) WEB-DLRip [H.264/720p-LQ] [UKR, EN]
+
+>>След.
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конкурс песни Евровидение 2017 (англ. Eurovision Song Contest 2017, фр. Concours Eurovision de la chanson 2017, укр. Пісенний конкурс Євробачення 2017) — 62-й конкурс песни «Евровидение», который пройдёт в Киеве (Украина). Страна стала победительницей предыдущего конкурса «Евровидение-2016», прошедшего в Стокгольме (Швеция), с песней Джамалы «1944», набравшей 534 (   Читать дальше...   )01. Израиль. Имри Зив – "I Feel Alive"
+02. Польша. Кася Мось – "Flashlight"
+03. Беларусь. Naviband – "Гісторыя майго жыцця"
+04. Австрия. Натан Трент – "Running On Air"(   Читать дальше...   )Телекомпания: BBCЖанр: Ток-шоу, песенный конкурсПеревод: ОтсутствуетЯзык озвучки: Украинский (Тетяна Терехова та Андрій Городиський), английскийСубтитры: отсутствуютПродолжительность: 03:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246B9A8A5EF4318CF2306E8CD8E1E56F12AA6C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289377   (686241) от 16.03.2019
+
+Голос. Дети (2019.03.15) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686241.jpg" />
+</div>
+
+
+###  Подробнее
+
+C 15 февраля в шоу Голос дети новые наставники. В этот раз ими выступят Валерий Меладзе, Пелагея и Светлана Лобода. В шестом сезоне будут участвовать вокалисты, возраст которых не превышает 14 лет. В кастинге принимали участие не только российские, но и зарубежные вокалисты. В слепых прослушиваниях будет участвовать примерно 120 человек. В процессе слепых прослушиваний (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFD06EC0AC8A6AB554DDE8CF3C740220EE6767F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535726   (682187) от 08.03.2022
+
+Маска (2022) WEBRip [H.264/1080p] (сезон 3, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон телешоу «Маска»! В это раз удивлять, восхищать, путать и радовать будут 14 новых героев «Маски»: Джокер, Дракон, Козерог, Леопард, Лошадь, Малыш, Монстрик, Мухомор, Осьминог, Павлин, Пёс, Пончик, Пчела и Сфинкс. Под невероятными костюмами скрываются певцы, актеры, спортсмены, ведущие и шоумены, в копилке которых более 10 званий народных и заслуженных (   Читать дальше...   )00:00:00 Маска
+00:09:22 Козерог — Hello, Dolly!
+00:20:51 Анубис — «Не молчи»
+00:33:16 Осьминог — Just Dance(   Читать дальше...   )Телекомпания: НТВ | «ВайТ Медиа»Жанр: ТВ-шоу, музыкаПродолжительность: 02:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE0FD5CEF57564D5EAAD689F74D5C5E7BF4E5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135526   (680818) от 19.05.2017
 
 Победитель (2017.05.19) SATRip (выпуск 1)
@@ -6,7 +119,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680818.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678974.jpg" />
 </div>
 
 
@@ -58,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678848.jpg" />
 </div>
 
 
@@ -84,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_673070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673070.jpg" />
 </div>
 
 
@@ -112,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672216.jpg" />
 </div>
 
 
@@ -138,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670172.jpg" />
 </div>
 
 
@@ -168,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667811.jpg" />
 </div>
 
 
@@ -194,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666711.jpg" />
 </div>
 
 
@@ -220,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666660.jpg" />
 </div>
 
 
@@ -246,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666585.jpg" />
 </div>
 
 
@@ -272,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666002.jpg" />
 </div>
 
 
@@ -303,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665171.jpg" />
 </div>
 
 
@@ -329,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664799.jpg" />
 </div>
 
 
@@ -360,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664783.jpg" />
 </div>
 
 
@@ -389,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664754.jpg" />
 </div>
 
 
@@ -415,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662701.jpg" />
 </div>
 
 
@@ -444,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661166.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661027.jpg" />
 </div>
 
 
@@ -496,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660712.jpg" />
 </div>
 
 
@@ -525,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660174.jpg" />
 </div>
 
 
@@ -551,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659208.jpg" />
 </div>
 
 
@@ -577,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659206.jpg" />
 </div>
 
 
@@ -588,114 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C1E6434A542491A62698791E3A448B6624F0DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903337   (659049) от 30.05.2015
-
-Танцуй. Выпуск №9 (2015.05.30) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659049.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Первом канале стартует беспрецедентный по размаху всероссийский танцевальный конкурс. Самые яркие участники из разных уголков страны – от Калининграда до Владивостока – окажутся на большой сцене, чтобы на глазах миллионов телезрителей сразиться за звание лучшего. Их имена пока не известны широкой публике, у них нет званий и наград, но каждый из них любит и умеет (   Читать дальше...   )Производство: РоссияТелекомпания: Первый каналЖанр: ТВ-ШоуРежиссер: Илья АвербухПродолжительность: 02:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D818D0C1D443C98F266AF79B91128838011062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901021   (658876) от 30.05.2015
-
-Евровидение 2015. Финал / Eurovision 2015. Final (2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конкурс песни Евровидение 2015 — 60 конкурс песни «Евровидение», который пройдёт в Австрии в 2015 году. Австрия стала страной-победительницей предыдущего конкурса «Евровидение 2014», прошедшего в Копенгагене (Дания), набрав 290 баллов с песней «Rise Like a Phoenix» в исполнении Кончиты Вурст, также были официально объявлены окончательные даты для обоих полуфиналов (   Читать дальше...   )01. Словения – Maraaya, Here for You
-02. Франция –Лиза Ангелль, N'oubliez pas
-03. Израиль – Надав Гедж, Golden Boy
-04. Эстония – Элина Борн и Стиг Ряста, Goodbye to Yesterday(   Читать дальше...   )Жанр: КонцертПродолжительность: 03:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E079F9A7811C1292ECAC191A3A57A6CD3AE5EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903612   (657772) от 31.05.2015
-
-Один в один. Сезон №3. Выпуск №16 (2015.05.31) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждую неделю десять знаменитостей в шоу "Один в один" примеряют на себя образ легендарных музыкантов прошлого и настоящего. Все участники стремятся максимально точно воспроизвести оригинальный стиль артиста - от манеры двигаться до тембра голоса. Им помогают высокопрофессиональные педагоги, стилисты, художники по гриму.
-Жюри оценивает выступления в конце (   Читать дальше...   )Производство: РоссияТелекомпания: РоссияЖанр: Тв-ШоуПродолжительность: ~ 02:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA9B28ACF874B78B13FB9BE80BD27318E02AB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 343145   (655412) от 30.05.2011
-
-Фабрика звезд. Возвращение. Выпуск 11. Финал. Части 1-2 (2011.05.28) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655412.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз конкурировать между собой будут не безвестные претенденты, а сложившиеся яркие исполнители, каждый из которых когда-то начинал свою карьеру именно в "Звездном Доме". А руководить ими будут продюсеры, которые также в разные годы дирижировали самым популярным в стране музыкальным телепроектом. Игорь Крутой, Игорь Матвиенко, Виктор Дробыш и Константин (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39D7F8883B59DE4E59727FD559121EE074AD74F
 ```
 
 https://mybot314.ru/tekegram_catalog/

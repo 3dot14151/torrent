@@ -1,3 +1,55 @@
+###  Публикация: 1864941   (1065678) от 16.04.2026
+
+Алексей Иванов | Речфлот: История речного флота Российской империи и Советского Союза (2024) [MP3, звук AI]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065678.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой аудиокниге рассказывается не только о развитии речфлота, но и о людях, которые творили речную историю России. О внутреннем устройстве речной жизни. О её взаимосвязях с политикой и культурой. О катастрофах, которые сотрясали страну и речфлот. Об удивительных проектах и фантастических мечтах. О нерасторжимом родстве простого человека и речного парохода. В конце (   Читать дальше...   )Жанр: документальная книга, научно-популярная литература, нон-фикшнЯзык озвучки: РусскийИздательство: Аудиокнига своими рукамиПродолжительность: 19:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F411B5BBDB05F82E9E4C0136EAC239D5F07B211F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864672   (1065166) от 
+
+Фёдор Раззаков | Роза для палача. Битва железных тренеров (2019) [MP3, Виталий Сулимов]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий хоккеист, замечательный футболист и гениальный тренер Анатолий Тарасов был символом советского спорта. «Британская энциклопедия» называет его «отцом русского хоккея», сделавшим СССР «доминирующей силой» в международном хоккее. И это действительно так. Анатолий Тарасов сделал, казалось бы, невозможное: совместно с заслуженным тренером СССР Аркадием Чернышёвым (   Читать дальше...   )Жанр: биографии и мемуары, спорт, фитнесИздательство: АлисторусПродолжительность: 08:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D61093902C7FCF5C03211CC0745A00C7FAF148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864206   (1064435) от 09.04.2026
 
 Монс Мусессон | Avicii. Официальная биография (2024) [MP3, Максим Полтавский]
@@ -6,7 +58,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064435.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064011.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064008.jpg" />
 </div>
 
 
@@ -91,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063879.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063827.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063759.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061746.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1059960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059960.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058792.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058161.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056668.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056111.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056110.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055864.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055132.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055131.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055130.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054446.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054181.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054031.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054021.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054020.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053758.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053432.jpg" />
 </div>
 
 
@@ -630,62 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1CCC32E2E0AA760E0671AE808CF58A0DC163C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848539   (1053177) от 20.01.2026
-
-Бао Ли | Китайская культурная революция (2025) [MP3, Евгений Шокин]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему народ поддержал Мао? Зачем потребовался этот социальный эксперимент, полный жестокости и абсурда? Книга предлагает взвешенный взгляд на одно из самых противоречивых явлений XX века, исследуя его истоки, логику и последствия.
-
-Культурная революция часто поражает современных людей степенью жестокости и абсурда. Бесконтрольное уничтожение воробьев, публичные (   Читать дальше...   )Жанр: ИсторияИздательство: Аудиокнига (АСТ)Продолжительность: 06:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D16AC9B6C019A49F77ADE99A65FB20335769D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848562   (1053176) от 20.01.2026
-
-Марк Солонин | Как Советский Союз победил в войне (2021) [MP3, Юрий Белик]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опираясь на рассекреченные в последние годы документы Министерства обороны, автор доказывает, что вся история Великой Отечественной войны – ложь! Что Советский Союз не был невинной жертвой, подвергшейся вероломному нападению, а сам готовил войну. Войну, которая пошла совсем не по советскому плану.
-
-Марк Солонин уверен, что возникший в последние годы жанр «документальных (   Читать дальше...   )Жанр: История, Военное делоИздательство: ЛитРесПродолжительность: 08:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BA49F1007F958D9E4A2A507D581D50D22F8D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

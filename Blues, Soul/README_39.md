@@ -6,7 +6,7 @@ Deep Six Blues - The Devil's Hand (2024) [MP3|320 Kbps] <Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110134.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Don Carroll - Blues Organ (2008) [MP3|320 Kbps] <Hammond, Blues, Organ>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108643.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [MP3|320 Kbps] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107575.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jay Gordon and Blues Venom - Live at Woodystock Blues Festival (2024) [MP3|320 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107547.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_107446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107446.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105017.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Omar and The Howlers - Aggressive Country (2024) [MP3|320 Kbps] <Blues Rock, Cou
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104976.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104454.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nuno Mindelis - Brazilian Blues (2013) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103960.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Joe Bonamassa - Different Shades Of Blue - Overdrive (2014) Reissue, 2024, 10th 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103709.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrys
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103193.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Marvin Gaye - Greatest Hits Live (1974) Remaster, 2024, Cult Legends [MP3|320 Kb
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101533.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mick Martin and the Blues Rockers - Way Down South (2006) [MP3|320 кб/с]<Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_99135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99135.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Bottleneck Blues Anthology (2011) 2CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_98731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98731.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ruthie Foster - Let It Burn (2012) [MP3|~245 кб/с (V0)]<Blues, Gospel, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_97145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97145.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Danny Thurmer & The Uptown Road House Devils - A Rockin Blues Album (2012) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96556.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Big Shanty - Collection (2011) (2 Disc Set) [MP3|320 кб/с]<Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_96555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96555.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93853.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Big Joe Turner - All The Classic Hits 1938-1952 (2003) 5 CD BoxSet [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90789.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Buck 69 - When She Whispers Your Name (2007) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81788.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Ray Charles - Singular Genius: The Complete ABC Singles (2011) 5CD [MP3|320 kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72105.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mourning [A] BLKstar - Flowers For The Living (2025) [MP3|320 Kbps] <Soul, afrof
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66464.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Anthony Krizan - Cool Shade of Blue (2025) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65731.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65328.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Jeff Michaels - 3 Albums (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56767.jpg" />
 </div>
 
 
@@ -770,7 +770,7 @@ Slash - Orgy of the Damned (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56347.jpg" />
 </div>
 
 

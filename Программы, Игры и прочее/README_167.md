@@ -1,245 +1,3 @@
-###  Публикация: 1782692   (25964) от 02.03.2025
-
-Fran Bow v1.0.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Став свидетельницей смерти своих родителей, своеобразная маленькая девочка Фрэн попадает в психиатрическую клинику Освальда. Чтобы выжить в жестоком мире лечебницы, Фрэн начинает пить таблетки и получает способность видеть альтернативный мир — ультрареальность.
-Отправляйтесь в путешествие в ультрареальности вместе с Фрэн, чтобы раскрыть тайну смерти её родителей, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 20 сент. 2024 г.Разработчик: Killmonday GamesПоддерживаемая ОС: Android 5.1+Жанр: AdventureЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D01DDD5CD81C024697CCD24308F97EFFE923DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782694   (25963) от 02.03.2025
-
-Cat Museum v1.2.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте причудливый мир Cat Museum — двухмерной приключенческой игры, нарисованной в сюрреалистическом стиле. Решайте странные головоломки в компании с озорной кошкой, чтобы раскрыть тайну загадочного музея.Тип издания: UnlockedРелиз состоялся: 25 авг. 2024 г.Разработчик: 751Games Co., Ltd.Поддерживаемая ОС: Android 5.0+Жанр: AdventureЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F9C951B1D802D8D88488BB7821C4ED143DA154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782698   (25960) от 02.03.2025
-
-Life Gallery v2.1.1 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Life Gallery — это необычная игра, в которой головоломки вплетены в загадочный и немного пугающий сюжет и приправлены уникальными стильными иллюстрациями.
-Игра Life Gallery разработана независимой студией 751 Games на основе серии иллюстраций. Проходя каждую иллюстрацию, игрок должен решать загадки и головоломки, раскрывать пугающие тайны и все глубже погружаться (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 19 сент. 2024 г.Разработчик: 751Games Co., Ltd.Поддерживаемая ОС: Android 7.0+Жанр: ГоловоломкиЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5334B57530AE3CBF69D2430CFBCD3F02543813D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782827   (25938) от 02.03.2025
-
-Флорист-X v1.8.177 Mod by vadj [En/Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это официальное приложение сайта floristics.info, а сайт Флорист-X – один из самых посещаемых сайтов про садоводство и цветоводство, на котором можно узнать почти все про комнатные цветы, огородные и садовые растения – их посадку, выращивание и уход. База растений регулярно пополняется!Тип издания: ProРелиз состоялся: 02.03.2025Разработчик: Флорист-XПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483F5C7F47C40BF5115B4783C130252DEF425501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782706   (25928) от 02.03.2025
-
-Little Misfortune v2.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little Misfortune - это интерактивная история, посвященная исследованиям и персонажам, как милым, так и темным, где ваш выбор имеет последствия.
-В главной роли Мисфортьюн Рамирес Эрнандес, 8-летняя девочка с богатым воображением, которая ищет приз Вечного Счастья в качестве подарка своей маме. Во главе с ее новым другом, мистером Голосом, они отправляются в лес, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 20 сент. 2024 г.Разработчик: Killmonday GamesПоддерживаемая ОС: Android 5.1+Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E155F357DCC06D92CE7C10D3BAD0E030520129B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783073   (25896) от 03.03.2025
-
-Vanced Tube v5.3.80.166 Mod by TRUMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 01.03.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB9C3F3FD57C72108879FD6EB72D868B075F429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783078   (25879) от 03.03.2025
-
-Книжная лавка v3.3.89 Mod by @Cuba@ [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое и удобное приложение, выполненное в формате библиотеки для поиска, чтения, а в некоторых случаях и скачивания электронных книг. Поддерживается смена фона в режиме чтения. В наличии возможность регулирования яркости экрана. Однократно открытые книги помещаются в кеш - и доступны без Интернета.
-Возможности приложения:
-- поиск по жанру, названию или автору; (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 01.03.2025Разработчик: HertzПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977FC992406C43D22632D434B72F902CACC12F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783056   (25859) от 03.03.2025
-
-Easy Notes 1.2.97.0225 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Easy Notes - записная книжка, блокнот бесплатно, заметки и напоминания - это новое, бесплатное и очень простое в использовании приложение для заметок для Android. В этом простом приложении-notepad вы можете быстро создавать coloful note и контрольные списки, которые помогут вам легко организовать задачи и упростить жизнь. Easy Notes - хорошее приложение-блокнот для (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 02.03.2025Разработчик: Gulooloo Tech Co., LimitedПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9330315CAA56DD6B64B171631AA0C6B38E4B3C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783113   (25781) от 04.03.2025
-
-Human Anatomy Atlas 2025 v2025.00.012 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25781.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Атласом анатомии человека вы получаете:
-* Полные женские и мужские 3D-модели для изучения общей анатомии. Просмотрите их вместе с трупными и диагностическими изображениями.
-* 3D-изображения ключевых органов на нескольких уровнях. Изучите легкие, бронхи и альвеолы; Осмотрите почки, почечные пирамиды и нефроны.
-* Модели мышц и костей, которые можно перемещать. Изучите (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 23 июл. 2024 г.Разработчик: Visible BodyПоддерживаемая ОС: Android 10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFD6FFED0C8E819CF5A1697533BFA0038F167B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783395   (25711) от 05.03.2025
 
 Lara Croft: Guardian of Light v1.2.1RC14 [Ru]
@@ -248,7 +6,7 @@ Lara Croft: Guardian of Light v1.2.1RC14 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25711.jpg" />
 </div>
 
 
@@ -274,7 +32,7 @@ Fruit Ninja Classic+ v1.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25635.jpg" />
 </div>
 
 
@@ -301,7 +59,7 @@ Alien: Isolation v1.4.1RC1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25606.jpg" />
 </div>
 
 
@@ -328,7 +86,7 @@ StudyGe - География мира v2.3.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25572.jpg" />
 </div>
 
 
@@ -356,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25548.jpg" />
 </div>
 
 
@@ -382,7 +140,7 @@ Misguided Never Back Home v1.46 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25545.jpg" />
 </div>
 
 
@@ -408,7 +166,7 @@ Snufkin Melody of Moominvalley v0.9.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25542.jpg" />
 </div>
 
 
@@ -434,7 +192,7 @@ Dandara: Trials of Fear v1.5.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25532.jpg" />
 </div>
 
 
@@ -460,7 +218,7 @@ Bad North: Jotunn Edition v2.00.20 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25529.jpg" />
 </div>
 
 
@@ -486,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25326.jpg" />
 </div>
 
 
@@ -512,7 +270,7 @@ Picture Mushroom - Mushroom ID v2.9.31 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25311.jpg" />
 </div>
 
 
@@ -541,7 +299,7 @@ Karing 1.1.0.583 (ARM64) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25201.jpg" />
 </div>
 
 
@@ -570,7 +328,7 @@ TapScanner v3.0.58 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25193.jpg" />
 </div>
 
 
@@ -599,7 +357,7 @@ PROTO - симулятор схем v1.37.0 Mod by NURIK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24714.jpg" />
 </div>
 
 
@@ -625,7 +383,7 @@ IPTV Pro v9.0.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24669.jpg" />
 </div>
 
 
@@ -651,7 +409,7 @@ LazyMedia Deluxe v3.368 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24611.jpg" />
 </div>
 
 
@@ -677,7 +435,7 @@ Dual Space - Multiple Accounts & App Cloner 6.0.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24600.jpg" />
 </div>
 
 
@@ -688,6 +446,246 @@ Dual Space — Multiple Accounts & App Cloner — невероятно поле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4251B89F1BB151638FF685DE700D7F5DCCE786CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785273   (24591) от 15.03.2025
+
+Кроссворды на русском v1.18.6 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более трехсот уникальных кроссвордов на каждый день! Способен ли ты решить их все?
+Несколько категорий на выбор:
+- Классические
+- Тематические(   Читать дальше...   )Тип издания: ModРелиз состоялся: 13.03.2025Разработчик: Litera GamesПоддерживаемая ОС: Android 5.0+Жанр: КроссвордыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8498CF8F7CB823EB692697EFBA2120B1162062BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785263   (24579) от 15.03.2025
+
+Electrical Calculations Pro / Электрические расчеты v10.3.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электрические расчеты являются лучшим приложением в секторе электроэнергии, он имеет много вычислений, которые могут помочь вам в вашей работе. Он не может пропустить в вашем смартфоне!Тип издания: ProРелиз состоялся: 14.03.2025Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82D3089B1790ACB5C5F28CE1F01F57153577DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785299   (24577) от 15.03.2025
+
+TikTok Private Plus v39.1.5 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24577.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом Моде можно выкладывать видео для РФ.
+TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 14.03.2025Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829384B4617A3370CCE08F5B39D3075452D71526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785300   (24576) от 15.03.2025
+
+Textra SMS v4.80 Pro Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надоел внешний вид стандартных "SMS"? Хочется чего-то новенького, и интересного? Попробуйте Textra! Приложение для SMS и MMS с большим количеством "фишек". Вы можете выразить свои эмоции собеседнику при помощи более, чем 800 смайликов. Новые всплывающие уведомления. Возможность отсылки SMS группе контактов. Присутствует и кастомизация. Можно поменять (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 14.03.2025Разработчик: DeliciousПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5ACC10F35FCA70CB396A77F6C1B2D6E0609C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785568   (24487) от 16.03.2025
+
+Circuit - Планировщик маршрутов v3.42.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое в использовании приложение для выполнения доставок и планирования маршрутов с несколькими остановками, которое скачали более 10 миллионов водителей. Делайте больше доставок и завершайте маршрут быстрее. Экономьте время, деньги и бензин — с помощью Планировщика маршрутов Circuit.
+Добавление остановок в маршрут занимает считанные секунды. Оптимизация всех доставок (   Читать дальше...   )Тип издания: ProРелиз состоялся: 16.03.2025Разработчик: Circuit Routing LimitedПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D194C32ADB994EF4A7CBE34820EF1A7BAF1936BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785540   (24479) от 16.03.2025
+
+Просто Радио онлайн v14.5 Mod by Dymonyxx [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24479.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении Вы найдете более 1500 радиостанций всех жанров: Наша музыка, Поп, Рок, Ретро, Диско, Танцевальная музыка, Шансон, Реп, R&B, Хип-хоп, Джаз, Электронная, Deep, House, Этническая, Фолк, Релакс, Классическая музыка, Разговорное радио. Просто радио онлайн. Вы можете слушать любимые радиостанции онлайн. Для прослушивания воспользуйтесь соединением wifi (   Читать дальше...   )Тип издания: FullРелиз состоялся: 05.03.2025Разработчик: a-labПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B72AD42AE9BE52989546ADE2723ECD4065376A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785564   (24458) от 16.03.2025
+
+Genius Art: Image AI Generator v1.2.5 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свой творческий потенциал с помощью инструментов для рисования и изображений на базе искусственного интеллекта.
+Превратите свои фотографии и идеи в потрясающие творения с помощью Genius Art: Image AI Generator. Независимо от того, являетесь ли вы художником, дизайнером или просто любителем творчества, это приложение предоставит вам всю мощь передовых инструментов (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.03.2025Разработчик: AMOBEAR TECHNOLOGY GROUPПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780554   (24423) от 17.03.2025
+
+Night clock / Ночные часы v2.10.43 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простые часы для вашего смартфона. Весьма удобны в тёмное время суток. Присутствует возможность вывода информации о погоде, уведомлениях, заряде. Даже online-радио есть.Тип издания: PremiumРелиз состоялся: 18.03.2025Разработчик: Stefan FruhnerПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFA5DBCB95C8A8EDDDB14843C3208B9E14D1A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785749   (24375) от 17.03.2025
+
+Screen Mirroring - TV Miracast v4.0.0.73 Mod by vadj [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для зеркалирования и трансляции экрана на телевизор. Хотите легко отразить экран своего телефона на телевизоре? Хотите, чтобы проекция экрана была быстрой, стабильной и отзывчивой? Используйте Screen Mirroring – Miracast for TV — бесплатное приложение для дублирования экрана, которое обеспечивает плавное зеркальное отображение вашего смартфона на экране (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.03.2025Разработчик: StudiosoolterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07092396BE64828B97410A644D80A40CCEE91FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

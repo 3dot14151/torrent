@@ -1,3 +1,56 @@
+###  Публикация: 1136629   (642238) от 14.06.2017
+
+Impact Winter (2017) [Ru/Multi] (1.0.10) License CODEX
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642238.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Помощь придет через 30 дней...»
+Таинственное радиосообщение гласит: спасатели уже в пути. Вы — Джейкоб Соломон, лидер группы людей, переживших опустошительное падение астероида. Мир изменился, и теперь он погребен под толщей снега.Тип издания: LicenseРазработчик: Mojo BonesЖанр: Adventure, Action (Survival), Top-DownЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7F3AF1CD06785628253830BDB9D0240374A0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227988   (640826) от 29.05.2018
+
+Zombie Forest 2 (2018) [Ru/En] (1.01) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640826.jpg" />
+</div>
+
+
+###  Подробнее
+
+В режиме Истории вам необходимо любой ценой добраться до бункера, по пути преодолевая жажду и голод, сложности морального выбора и различные неприятные сюрпризы. Но с каждым убитым зомби, найденным оружием, встреченным выжившим вы становитесь только сильней. Режим Выживания - это настоящий вызов. Днем вы обустраиваете убежище, строите укрепления, добываете ресурсы, (   Читать дальше...   )Тип издания: LicenseРазработчик: Alexander TavintsevЖанр: Action (Survival, Top-Down), 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBCEF46D061F39570F1D528AC34FECB381089DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228004   (640712) от 29.05.2018
 
 Zombie Forest 2 (2018) [Ru/En] (1.01) Repack Other s
@@ -6,7 +59,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640712.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Vessel [Multi5\+] (RePack/1.13) 2012 l R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640590.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Fossil Echo (2016) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637645.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Unworthy (2018) [En] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637225.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Reassembly (2015) [Ru/Multi] (2019.03.28/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636897.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636687.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Krai Mira/Край Мира (2016) [Ru/En] (1.1) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635542.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Ghostbusters (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635541.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ Aquaria (2007) [En] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635080.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Shank - Дилогия (Lossless RePack) [Ru/En] 2010-2012 l R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634791.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Shank 2 (Repack/1.0dc120305) [Ru] 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634626.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Brigador (2017) [Ru/Multi] (1.3.2a) License GOG [Up-Armored Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634585.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Salt and Sanctuary (2016) [Ru/Multi] (1.0.0.5) Repack Valdeni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633812.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ Under Night In-Birth Exe: Late (2016) [En/Ja] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631931.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ Ghostbusters (2016) [En/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631906.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ Windward (2015) [Multi] (2017-06-17.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630946.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629616.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ Rocket League (2015) [Ru/En] (1.57/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629300.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ Hoard [Multi5\-] (RePack/1.0) 2011 | R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628450.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ MechRunner (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627861.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Rolling Sun (2015) [En] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627040.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ Reservoir Dogs: Bloody Days (2017) [Ru/Multi] (1.0.12897) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626916.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ Song of the Deep (2016) [En/Multi] (1.02) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625910.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ Enter the Gungeon (2016) [Ru/Multi] (2.1.3/dlc) License PLAZA [Collector`s Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625698.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ Enter the Gungeon - это подземное приключение со стр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E2891D6270BFA252EF7A6B400EF36605843A919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035900   (623998) от 18.07.2016
-
-Ghostbusters™ (2016) [Multi] (1.0) Repack Dok2
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Ghostbusters разворачивается после событий одноименного фильма 2016 года. Однако играть за главных героинь кинокартины вам не придется. Вместо этого вы выступите в роли новичков, которые следят за домом, пока настоящие охотники находятся на задании. В игре на выбор представлено четыре персонажа, экипировку и умения которых можно будет улучшать, выполняя (   Читать дальше...   )Тип издания: RepackРазработчик: FireForge GamesЖанр: Arcade (Shoot'em up), 3D, Top-downЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E4F9A77BA31CD75DB740AB67147278DA6AC718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277626   (623601) от 10.04.2019
-
-Feudal Alloy (2019) [Ru/Multi] (1.02) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атту — обычный робот-фермер, живущий в небольшом домике посреди поля подсолнухов. Его жизнь была простой, но приятной, пока на деревню не напала банда разбойников, которые унесли с собой запасы масляной смазки и сожгли его дом.Тип издания: LicenseРазработчик: Attu GamesЖанр: Adventue, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767B7A8CF965AE847E4D13E7FD3778E9BF2DB3A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

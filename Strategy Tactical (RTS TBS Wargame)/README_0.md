@@ -1,3 +1,81 @@
+###  Публикация: 1108398   (636781) от 03.04.2019
+
+X-COM: Apocalypse (1997) [En] (1.00) License GOG
+
+>>След.
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зло нависло сегодня над городом... Землю опустошили людская невоздержанность, грязные войны и вторжение инопланетян. Жителей мира согнали в огромные города, первым из которых стал Мегапрайм. 2084 год. Утопия, а вместе с ней и социальный порядок в Мегапрайме, рухнули, в городе бушуют мятежи. Жутковатые инопланетяне терроризируют город. НЛО роями пролетают через пространственные (   Читать дальше...   )Тип издания: LicenseРазработчик: Mythos Games и MicroProseЖанр: Strategy (Manage, Busin., Real-time, Turn-based, Tactical), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD81764A5376E4541EB10270BB41D67F6E6794E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296254   (613296) от 16.04.2019
+
+Massive Assault (2003) [En/Fr] (1.2.204) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите на себя командование силами Союза Свободных Наций и уничтожьте Темную Лигу на одной из шести удаленных планет. Повстанцы решили захватить Землю, начав с завоевания космических колоний, поставляющих важнейшие энергетические ресурсы. Война за мировое господство развернулась на земле, в море и в воздухе. Имея секретных союзников, вы можете открывать войска (   Читать дальше...   )Тип издания: LicenseРазработчик: Wargaming.netЖанр: Strategy (Turn-based, Wargame), 3DЯзык озвучки: ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853D61060B4C4F0AD57471DF4B140504FF85D370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296272   (613187) от 16.04.2019
+
+Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги (2005) [En] (2.0.164) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война между ССН и Темной лигой пока не закончена. Еще недавно казалось, что силы Темной лиги разбиты и ее войска отступают по всем фронтам. После блестящих побед ССН при Новом Раю и Гордой Ржави Лига ушла в подполье и вернулась в свои мрачные секретные лаборатории, где и разработала новое чудовищное оружие. Темная лига снова вступает в игру! Удары супероружия обрушились (   Читать дальше...   )Тип издания: LicenseРазработчик: Wargaming.netЖанр: Strategy (Turn-based, Wargame), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23168FED878019504FF5313C3C4CC8FBAD7AE627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358291   (580485) от 07.07.2011
 
 Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Арулько [Ru/En] (L) 2004
@@ -6,7 +84,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580485.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573876.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550862.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550730.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Strategic Command: European Theater / Вторая мировая: Страте�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546261.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546099.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ SpellForce: The Order Of Dawn [En/Ru] (L/1.38) 2003
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537398.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536088.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529464.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528399.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519858.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Star Wars: Empire at War Collection [Ru] (RePack) 2006 | R.G. Catalyst
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_509928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_509928.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ American Civil War: Gettysburg / Гражданская Война: Решающ
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449982.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Jagged Alliance 2 / Jagged Alliance 2: Агония власти (1999) [En] (1.
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430388.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Knight Shift / Рыцари за работой [Ru] (L) 2003
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_412438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_412438.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Pendragon (2020) [En] (1.2.13) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411174.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Worms: Armageddon [Ru/En/Multi9] (RePack/3.6.31.2b) 1999 | R.G. GraSe Team
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395504.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Blitzkrieg GZM / Блицкриг GZM (2012) [Ru] (1.2/7.77.3) Repack/Mod Sprut
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350537.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ Etherlords / Демиурги (2001) [Ru/En] (1.07/1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346870.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ Magic Chronicle (2003) [En] (1.1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301772.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Original War (2001) [Ru/Multi] (1.10b) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291395.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ Warrior Kings (2002) [En] (1.4) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263700.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260849.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501552   (258579) от 26.05.2012
-
-Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть все той же пошаговой стратегии. Ничего принципиально нового.(   Читать дальше...   )Тип издания: RePackЖанр: Пошаговая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494158   (249272) от 09.05.2012
-
-Laser Squad Nemesis [Ru] (P) 2003
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laser Squad Nemesis — пошаговая тактическая стратегия. В игре отсутствует одиночная компания. Игра рассчитана на сетевые сражения. В ней предусмотрены: игра через интернет, локальную сеть, hotseat, e-mail. Одна из основных особенностей игры — одновременное выполнение приказов, отданных юнитам.Тип издания: ПираткаЖанр: СтратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143366   (249063) от 03.11.2025
-
-Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вселенная Might and Magic растет. Кому, как не вам, завоевывать открытые новые земли! Но берегитесь – ваши тактические умения и лидерские качества пройдут проверку в боях с множеством полководцев. Грамотно распоряжайтесь имеющимися ресурсами, иначе вас ждет поражение. Созовите армию героев и отправляйтесь за победой!Тип издания: LicenseРазработчик: New World Computing, Inc.Жанр: Стратегия, Пошаговая, ФэнтезиЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
 ```
 
 https://mybot314.ru/tekegram_catalog/

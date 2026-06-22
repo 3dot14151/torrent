@@ -1,3 +1,81 @@
+###  Публикация: 1491982   (238167) от 27.08.2021
+
+Журнал | Fast Ford [UK] №7 (июль 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Ford - журнал для владельцев и потенциальных покупателей автомобилей Ford, для членов их семей, друзей и знакомых, а так же для всех людей, которых интересует производитель Ford.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BA9D6D133197823556D22FC6AB4D3DF8911326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491949   (238153) от 27.08.2021
+
+Журнал | evo [UK] №8 (август 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Evo - ежемесячный журнал, посвященный исключительно автомобилям самых желанных для водителей - от доступных хэтчбеков GTI до итальянских суперкаров со скоростью 200 миль в час. Основное внимание журнала уделяется технологиям, качеству, эксклюзивности и производительности на всех уровнях. Evo стремится усадить читателя за руль, чтобы оставить прекрасные впечатления (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51648E0208EBF557BCC6A949EB9C4A11449E4D5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491972   (238145) от 27.08.2021
+
+Журнал | Fast Car [UK] №9 (сентябрь 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast Car - британский автомобильный журнал, освещающий рынок модифицированных автомобилей и автомобильную культуру. Это был первый британский журнал, посвященный этому жанру. Он принадлежит Kelsey Media, базирующейся в Westerham, Kent. Журнал выходит 13 раз в год.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F003AAD864A497CAEB3B634F3374970CFBB020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492013   (238138) от 27.08.2021
 
 Журнал | Heritage Commercials [UK] №6 (июнь 2021) [PDF] [En]
@@ -6,7 +84,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238138.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238131.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238125.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238111.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238103.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238096.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237396.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237389.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237373.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237359.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237350.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237315.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237306.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237255.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235991.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235965.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234938.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234907.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234898.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234888.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234864.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234852.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234845.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E54E9A002683734115BBCD80E20B9ECE4C025EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476718   (234838) от 12.06.2021
-
-Журнал | Custom Car [UK] №6 (июнь 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Custom Car - единственный в Великобритании журнал о стиле жизни, написанный специально для любителей хот-родов, кастомов и дрэг-рейсинга. Ежемесячная подписка на журнал Custom Car достигается за счет сочетания отчетов о событиях и предварительных обзоров, последних новостей, проектных автомобилей, эксклюзивных функций и материалов из Великобритании, США и Европы. (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C52B26C1795FA390D50E03471A29F158541E5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477149   (234696) от 13.06.2021
-
-Журнал | Diesel World [Canada] №8 (август 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Diesel World Magazine предлагает полный обзор автомобилей с дизельным двигателем, включая грузовики и автомобили с дизельным двигателем.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335EC957B9903D91CE039BA9141818013FAE292D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268247   (229803) от 09.12.2018
-
-Журнал | 5 Колесо №12 (308) (декабрь 2018) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229803.jpg" />
-</div>
-
-
-###  Подробнее
-
-"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей.В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8521095F09F5D910B7FF995A096B754A212CE4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

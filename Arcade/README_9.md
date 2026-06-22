@@ -1,3 +1,55 @@
+###  Публикация: 1057737   (840987) от 09.03.2017
+
+ClusterTruck (2016) [En] (1.1) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это безумный экшен-платформер заставит вас прыгать по крышам едущих фур, чтобы добраться живым до финиша. В игре присутствуют элементы паркура, но главная задумка все же в полном хаосе и безумии происходящего. Первые уровни будут весьма просты, вам всего-то нужно доехать на крыше фуры до финиша, но с каждым уровнем игра будет становиться все сложнее и сложнее. Очень (   Читать дальше...   )Тип издания: LicenseРазработчик: Landfall GamesЖанр: Экшены, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A6E422A9E57A16F08801A5098FAB6BC9ECA76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500359   (840943) от 06.10.2021
+
+Trine (2009) [Multi] (2.12(a)) License GOG [Enchanted Edition]
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trine – динамичная игра с реалистичной физической моделью, в которой три персонажа объединяют свои силы и навыки, решая хитроумные и опасные головоломки и побеждая грозных врагов. Игровой процесс основан на интерактивной физике, где каждый персонаж наделен своими навыками и тактикой, так что вы непременно придумаете, как преодолеть все препятствия и спасти королевство!Тип издания: LicenseРазработчик: FrozenbyteЖанр: Экшн, Приключение, ГоловоломкаЯзык озвучки: Английский, Немецкий, Французский, Испанский и другиеЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC18B8B15EFBB3F100AFF91B0AD77FC34C6C6FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112847   (840876) от 09.03.2017
 
 Lara Croft GO (2016) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +58,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840876.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Trackmania® Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack VickNet
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839179.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (1.01i) Repack R.G. Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838476.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833794.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Gone Viral (2021) [Multi] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833449.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Out of Line (2021) [Ru/Multi] (1.0.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833090.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832928.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Where is my Brain!? (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831368.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Immortal Planet (2017) [En] (16620/upd3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830755.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Adventure Time: Finn and Jake Investigations (2015) [En/Multi] (1.0) License REL
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830185.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Caravanserail (2016) [Ru/Multi] (1.0) Repack DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828296.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Monochroma (2014) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827529.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Jet Set Knights (2016) [En] (1.0) Rip Unleashed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826529.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Gryphon Knight Epic (2016) [Ru/Multi] (1.3.1) Repack ARMENIAC
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824785.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ TRON RUN/r - DISC Extender Bundle (2016) [En/Multi] (1.0/dlc) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822448.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Flat Kingdom (2016) [En/Es] (1.01) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820777.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Skullgirls 2nd Encore (2016) [En/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820653.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Outland (2014) [Ru/Multi] (1.13) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820648.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818401.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ VODKA (2017) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816740.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816733.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Jars (2021) [Ru/Multi] (1.0.1018) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815535.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Evertried (2021) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813682.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ LostWinds: The Blossom Edition (2016) [En/Multi] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812956.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ LostWinds 2: Winter of the Melodias является продолжением п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DAD7C21FD418AC80B69FCC68CA9085EB6D49F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310407   (812811) от 14.05.2020
-
-My Friend Pedro (2019) [Ru/Multi] (1.03) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812811.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Friend Pedro - это жестокая смесь дружбы, фантазии и стремления уничтожить всех на своем пути по приказу разумного банана. Стратегическое использование раздельного прицеливания, замедленного движения и старого доброго вышибания окон позволяет выстраивать одну сногсшибательную боевую сцену за другой. Устройте себе взрывную проходку по беспощадному преступному миру.Тип издания: LicenseРазработчик: DeadToast EntertainmentЖанр: Экшн, Сражения, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2B79B6819D7DD34B1386A016C0106436D83E548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009113   (811333) от 20.04.2016
-
-Steel Rain (2015) [En/De] (1.4.1) Repack ARMENIAC
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steel Rain - уникальная инди-игра, которая в равной степени совмещает в себе три жанра - горизонтальный шутер, стратегию и RPG. В промежутках между сражениями, Вы сможете строить и развивать свою собственную колонию, изучая новые технологии. Добавьте к этому десяток разноплановых уровней, эпичные сражения с боссами и множество технологий и улучшений, которые предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: PolarityFlow, Adrian ZinggЖанр: Аrcade, ScrollerЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C013661EF9B2A70C9577F9F02C152A8031F02D39
 ```
 
 https://mybot314.ru/tekegram_catalog/

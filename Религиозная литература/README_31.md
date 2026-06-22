@@ -1,3 +1,59 @@
+###  Публикация: 1385959   (795923) от 27.05.2020
+
+Архимандрит Наум (Байбородин) | О помощи Пресвятой Богородицы в Великой Отечественной войне: отрывки из проповедей и произведений (2020) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пресвятая Богородица сохраняет всех призывающих Её на жизненном пути от бед и неведения, от всяких скорбей, подаёт добродетели, помогает стяжать благодать, готовит вечное спасение.
+
+Сборник архимандрита Наума (Байбородина; 1927–2017) «О помощи Пресвятой Богородицы в Великой Отечественной войне» составлен из проповедей и произведений лаврского старца и содержит исторические (   Читать дальше...   )Жанр: Православие. Военная историяФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D116ACCD7F65E1EAA6C2C59C2006C4708B96ED83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012105   (795681) от 29.04.2016
+
+Гордей Щеглов | История и чудеса Васьковской иконы Божией Матери (2013) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено истории одной из белорусских местночтимых чудотворных икон Божией Матери, в настоящее время считающейся утраченной. В книге описаны история явления и последующая судьба иконы, а также многочисленные случаи проявления ее благодатной силы — поразительные факты чудесных исцелений.
+
+Издание рассчитано на широкий круг читателей, интересующихся христианскими (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25059B684723B1A59073E365D8E49FCF8A73B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012096   (795639) от 29.04.2016
 
 Гордей Щеглов | Год 1863. Забытые страницы (2013) [FB2]
@@ -6,7 +62,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795639.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795637.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795590.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795558.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795510.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795069.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795067.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795059.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795058.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795057.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795051.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795041.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795040.jpg" />
 </div>
 
 
@@ -350,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794957.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ A. Стульцев | Учебный православный молитвосл
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794889.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794127.jpg" />
 </div>
 
 
@@ -430,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794125.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794074.jpg" />
 </div>
 
 
@@ -482,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793015.jpg" />
 </div>
 
 
@@ -509,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792957.jpg" />
 </div>
 
 
@@ -535,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792894.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792870.jpg" />
 </div>
 
 
@@ -589,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792817.jpg" />
 </div>
 
 
@@ -617,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792815.jpg" />
 </div>
 
 
@@ -628,62 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29999FCAD2A2D1857518DBBE4475160E76603F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386986   (792635) от 31.05.2020
-
-Архимандрит Андрей (Конанос) | Лекарство от одиночества. Беседы о любви (2019) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792635.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге архимандрита Андрея (Конаноса) «Лекарство от одиночества» собраны беседы современного греческого проповедника о том, что такое настоящая любовь, как научиться любить и как с помощью любви наладить отношения со всеми людьми, что нас окружают.
-
-«Лекарством от одиночества и ропота является истинная безкорыстная любовь. Давайте начнём с тех, кто нас окружает, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA37651918D3A8B457949C09E4A680E5E52C16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386988   (792630) от 31.05.2020
-
-Святитель Николай Сербский | Вера образованных людей. Символ веры с толкованием (2013) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Символ веры — исповедание, выраженное Святыми Отцами Церкви. Многие христианские миссионеры обращались к своим современникам, разъясняя основы этого исповедания.
-
-Особенностью данного толкования на Символ веры, несомненно, является поэтический талант и святость жизни его автора — святителя Николая Сербского, выдающегося проповедника, мыслителя и духовного писателя (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873C615B46F950542EF6705C8D9300CE395BC6E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

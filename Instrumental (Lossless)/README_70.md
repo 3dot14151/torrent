@@ -6,7 +6,7 @@ Ronnie Earl and the Broadcasters - Mercy Me (2022) [FLAC|Lossless|image + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443030.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Savoy Brown, Kim Simmonds - Bring It Home (1994) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442160.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Climax Blues Band (The Climax Chicago Blues Band) - 17 albums, 2 Box sets, 26 CD
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441612.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Super Vintage - Shining Light (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440868.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bobby Flurie - Hole In The Ozone (2008) [FLAC|Lossless|image + .cue] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439050.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ George Thorogood - Party Of One (2017) [FLAC|Lossless|image + .cue] <Blues, Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438927.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Melly Frances & The Distilled Spirits - Nine Pound Hammer Heart (2011) [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438623.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Derek Trucks Band - Out of the Madness (1998) [WavPack|Lossless|image + .cue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437649.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Canned Heat & John Lee Hooker - Hooker 'n Heat (1971) 2CD, 2005 [WavPack|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437467.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Liz McComb - Soul, Peace & Love (2006) [FLAC|Lossless|image + .cue] <Blues, soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435842.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Joanna Connor - Believe It! (1989) [FLAC|Lossless|tracks + .cue] <Blues, Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435352.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jeff Liberman - Epiphany (2022) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434043.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ John Legend - Bigger Love (2020) [FLAC|Lossless|tracks + .cue] <R&B, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433957.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ O.V. Wright - Memphis Unlimited (2009) [FLAC|tracks+.cue]<Soul, Funk, Rhythm and
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433929.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Colin James - Miles To Go (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues, Electric 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433290.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Joanna Connor - Big Girl Blues (1996) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432523.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Larry Miller - Larry Miller (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432384.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rick Derringer - Back To The Blues (1993) [FLAC|Lossless|tracks + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430790.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Breezy Rodio - Underground Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429859.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jake Kershaw - Jake Kershaw (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429858.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Spencer MacKenzie - Preach To My Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429857.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sacromud - Sacromud (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429855.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Restless Sea - Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429853.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Rita Engedalen - Sun Will Come (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429850.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Dragons - It's Your Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429849.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Strongman Blues Remedy - The Strongman Blues Remedy Vol. 1 (2022) [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429847.jpg" />
 </div>
 
 

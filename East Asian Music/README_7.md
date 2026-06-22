@@ -1,3 +1,38 @@
+###  Публикация: 354223   (610483) от 23.06.2011
+
+Cecilia Cheung - 4 albums (1999-2001) [FLAC|Lossless]<Cantopop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_610483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 经验(情迷大话王电影歌曲)
+02. 神奇戏法
+03. 任何天气
+04. 留给最爱的说话
+05. 星语心愿
+06. 一直掛念
+07. 目的地
+08. 不用多说
+09. 不一样的我
+10. 迷恋爱剧场(   Читать дальше...)Жанр: CantopopПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 819126   (609187) от 02.07.2017
 
 JORMUNGAND - 3 альбома (2014-2017) KanColle Vocal /Doujin/ [FLAC|Lossless|tracks] <Power Metal>
@@ -6,7 +41,7 @@ JORMUNGAND - 3 альбома (2014-2017) KanColle Vocal /Doujin/ [FLAC|Lossless
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609187.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ ALiCE'S EMOTiON - 49 альбомов (2005-2017) Touhou Vocal, Vocaloid /Doujin
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608975.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ A-One | A1 - 36 альбомов (2008-2017) Touhou Vocal, KanColle /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608970.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Huang An - 5 albums (1993-1999) [FLAC|Lossless]<Chinese,Mandarin pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_605253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_605253.jpg" />
 </div>
 
 
@@ -128,7 +163,7 @@ Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604429.jpg" />
 </div>
 
 
@@ -157,7 +192,7 @@ Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604288.jpg" />
 </div>
 
 
@@ -186,7 +221,7 @@ One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternati
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604213.jpg" />
 </div>
 
 
@@ -215,7 +250,7 @@ The GazettE  - Дискография (9 альбомов, 6 мини-альбо
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604100.jpg" />
 </div>
 
 
@@ -242,7 +277,7 @@ Logic System (Hideki Matsutake) - Orient Express (1982) CD, Album, 1983, Express
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602233.jpg" />
 </div>
 
 
@@ -271,7 +306,7 @@ Flavor of Classical Chinese Music - Passion Of Guzheng (2009) [FLAC|Lossless]<Et
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598537.jpg" />
 </div>
 
 
@@ -300,7 +335,7 @@ Nocturnal Bloodlust - Argos (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Dea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596271.jpg" />
 </div>
 
 
@@ -329,7 +364,7 @@ The Hi-Fi Of Chinese - Coffee Parlor 1 (2CD) (2011) [FLAC|Lossless]<Pop-Folk>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583865.jpg" />
 </div>
 
 
@@ -355,7 +390,7 @@ Mitch Murder - Selection 5 (2018) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583137.jpg" />
 </div>
 
 
@@ -384,7 +419,7 @@ MACROSS 82-99 - Idol, Sakura (2017) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Nu
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583084.jpg" />
 </div>
 
 
@@ -413,7 +448,7 @@ Tears Of Tragedy - & (Acoustic) (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic,
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581885.jpg" />
 </div>
 
 
@@ -442,7 +477,7 @@ VA - The Very Best Of Japanese Music (2004) [FLAC|Lossless]<Folk>
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580802.jpg" />
 </div>
 
 
@@ -476,7 +511,7 @@ Kobukuro - 8 albums + 10 singles (2001-2011) [FLAC|Lossless]<JPop, Folk Rock>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578498.jpg" />
 </div>
 
 
@@ -502,7 +537,7 @@ VA - The First Chemical Element (Vol. I - X) (2005-2008) [MP3|320 кб/с]<Instr
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576385.jpg" />
 </div>
 
 
@@ -537,7 +572,7 @@ Whisper Records - 8 дисков (2001 - 2011) [FLAC|Lossless]<Neo Folk, New Age
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_573230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_573230.jpg" />
 </div>
 
 
@@ -572,7 +607,7 @@ Jero - Yakusoku (2009) [MP3|192 kbps]<Enka>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_572973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_572973.jpg" />
 </div>
 
 
@@ -607,7 +642,7 @@ Yuhki Kuramoto - Romancing Strings. Anthology (2011) [MP3|192 kbps]<New Age, Neo
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_567657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_567657.jpg" />
 </div>
 
 
@@ -642,7 +677,7 @@ AAA - 15 альбомов, 35 сингла (2005-2012) [MP3|128-320 кб/с]<J-P
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564458.jpg" />
 </div>
 
 
@@ -668,7 +703,7 @@ toe - Hear You (2015) [MP3|320 кб/с]<Post Rock, Math Rock, Instrumental Rock>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564340.jpg" />
 </div>
 
 
@@ -697,7 +732,7 @@ Undead Corporation - J.O.I.N.T. (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Nu Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559591.jpg" />
 </div>
 
 
@@ -726,7 +761,7 @@ Aki Misawa — Stella Musica (2008) /Doujin/ [FLAC|Lossless|tracks] <J-Pop, OST>
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555031.jpg" />
 </div>
 
 
@@ -740,33 +775,6 @@ Aki Misawa — Stella Musica (2008) /Doujin/ [FLAC|Lossless|tracks] <J-Pop, OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C685A09A2AF7F76C70B663222D640B07BFDC92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308059   (554396) от 12.06.2019
-
-Melonbooks Records — Touhou Compilation CD-BOOK (2019) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2019.12.30 東方 Compilation CD-BOOK 萃星霜 弐 -限定版- (C95)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 01:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E17E76BDCCCCCD4D63776982D7136B620D4754E
 ```
 
 https://mybot314.ru/tekegram_catalog/

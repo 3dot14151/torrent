@@ -1,3 +1,140 @@
+###  Публикация: 886715   (762377) от 10.04.2015
+
+A MusiCares' Tribute to Paul McCartney (2012) BDRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия концерта, состоявшегося 10 февраля 2012 года, и посвященного сэру Полу Маккартни, который на только что завершившейся церемонии Грэмми был объявлен персоной года.
+«Персона года» — престижная награда благотворительной организации «MusiCares», учрежденной «Американской академией звукозаписи». Присуждается ежегодно (с 1991 года) за выдающиеся заслуги в музыке (   Читать дальше...   )01. "Get Back / Hello Goodbye / Sgt. Pepper's Lonely Hearts Club Band" – Cirque du Soleil featuring The Beatles "Love" Cast
+02. "Magical Mystery Tour" – Paul McCartney
+03. "Junior's Farm" – Paul McCartney
+04. "Blackbird" – Alicia Keys(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F82600757ECA702A51276BC179573BEC8E0EE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394775   (761841) от 06.07.2020
+
+Гамильтон / Hamilton (2020) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мюзикл о жизни одного из главных отцов-основателей Америки и первого министра финансов Александра Гамильтона. Спектакль записан на Бродвее в театре Ричарда Роджерса с оригинальным бродвейским актерским составом.Производство: США / 5000 Broadway Productions, Radical Media, Walt Disney PicturesЖанр: Мюзикл, драма, биография, историяРежиссер: Томас КаилАктеры: Лин-Мануэль Миранда, Филлипа Су, Лесли Одом мл., Рене Голдсберри, Кристофер Нил Джексон, Давид Диггс, Окьерете Онаодован, Энтони Рамос, Жасмин Сепас Джонс, Джонатан ГроффПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английскиеПродолжительность: 02:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7FAF4C3AFC9C98FEFD6EC0DB4E1EE67596F932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242674   (761668) от 06.07.2020
+
+Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Эннио Морриконе в Венеции, прозвучали самые знаменитые произведения великого маэстро. Концерт записан в Венеции в ноябре 2007 года.Tre Adagi:
+1.Deborah's Theme (Once Upon a Time in America) 3:39
+2.Addio Monti (from The Betrothed) 3:18
+3.Vatel 4:23(   Читать дальше...   )Жанр: InstrumentalРежиссер: Giovanni MorriconeАктеры: Ennio Morricone, сопрано Susana Rigacci, оркестр Roma Sinfonietta Orchestra, хор Choir La FeniceПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5A0AA5F3D951F01F997CA71C940D1AC8E9D7BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320121   (761350) от 07.04.2011
+
+Горе от ума (1952) DVDRip (Малый Театр)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Телевизионный спектакльРежиссер: Сергей АлексеевФормат: AVIПродолжительность: 2:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FBA57694E4CE9554A3342A60DDAA342F84E3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320068   (761241) от 07.04.2011
+
+Веселая вдова (1984) SATRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Телеспектакль, экранизация оперетты, комедияРежиссер: Г. Анисимов, Т. КарповаФормат: AVIПродолжительность: 02:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA955FCB20CC453B2805FE935265025F0999B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 204391   (760894) от 26.05.2010
 
 Chris Norman - THE HITS! From his Smokie and Solo years (2007) DVD5
@@ -6,7 +143,7 @@ Chris Norman - THE HITS! From his Smokie and Solo years (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760894.jpg" />
 </div>
 
 
@@ -32,7 +169,7 @@ Mylene Farmer - Avant que l'ombre... A Bercy (2006) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760571.jpg" />
 </div>
 
 
@@ -61,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760321.jpg" />
 </div>
 
 
@@ -90,7 +227,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760311.jpg" />
 </div>
 
 
@@ -119,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759938.jpg" />
 </div>
 
 
@@ -151,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759697.jpg" />
 </div>
 
 
@@ -177,7 +314,7 @@ Erasure - Berlin Live '2017 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759625.jpg" />
 </div>
 
 
@@ -206,7 +343,7 @@ Lindsey Stirling ft. Lzzy Hale - Shatter Me (2014) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759480.jpg" />
 </div>
 
 
@@ -232,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759392.jpg" />
 </div>
 
 
@@ -258,7 +395,7 @@ Rainbow - The Definitive Review 1975-1979 (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759344.jpg" />
 </div>
 
 
@@ -284,7 +421,7 @@ Rainbow - The Definitive Review 1979-1997 (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759342.jpg" />
 </div>
 
 
@@ -310,7 +447,7 @@ Annie Lennox - An Evening of Nostalgia with Annie Lennox (2015) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759025.jpg" />
 </div>
 
 
@@ -340,7 +477,7 @@ A MusiCares Tribute to Barbra Streisand (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758984.jpg" />
 </div>
 
 
@@ -371,7 +508,7 @@ Iron Maiden - Rock in Rio (2002) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758972.jpg" />
 </div>
 
 
@@ -397,7 +534,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758862.jpg" />
 </div>
 
 
@@ -426,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758628.jpg" />
 </div>
 
 
@@ -452,7 +589,7 @@ Coldplay - Higher Power (2021) WEBRip [VP9/1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758536.jpg" />
 </div>
 
 
@@ -478,7 +615,7 @@ VA - Official UK Top 40 Video Chart (Febr, 2019) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758347.jpg" />
 </div>
 
 
@@ -507,7 +644,7 @@ Alcatrazz - Parole Denied - Tokyo 2017 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756832.jpg" />
 </div>
 
 
@@ -536,7 +673,7 @@ MTV Europe Music Awards - London (2017) UHDTV [H.265/2160p] [4K, SDR, 10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756014.jpg" />
 </div>
 
 
@@ -562,7 +699,7 @@ Metallica: Français pour une nuit 1080(2009) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755711.jpg" />
 </div>
 
 
@@ -573,143 +710,6 @@ Metallica: Français pour une nuit 1080(2009) BDRip
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018083   (755669) от 20.05.2016
-
-Фёдор Сологуб - Мелкий бес (1983) WEBRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 1902 года был окончен роман "Мелкий бес", а вышел отдельной книгой в марте 1907-го. Ардальон Передонов - учитель гимназии, мечтает по протекции получить место инспектора и женится ради этого на своей давней сожительнице Варваре. Желаемой должности он так и не получает, в результате чего сходит с ума, творя бесчинства и смущая своим поведением весь (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Спектакль, трагикомедияРежиссер: Давид КарасикАктеры: Юрий Орлов, Ирина Комарова, Сергей Заморев, Михаил Долгинин, Наталья Малыгина, Ирина Кушнир, Ирина Пярсон, Кира Крейлис-Петрова, Ирина Соколова (II), Ефим Каменецкий, Кирилл Датешидзе, Валерий Кузин, Анна Алексахина, Галина Гудова, Ирина Коровина, Николай Мартон, Сергей Лосев, Анатолий Насибулин, Валерий Кухарешин, Настя Гудкова, Павел Гудков (II), Сергей ГавличПродолжительность: 01:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0508EF575B9F3B80058E89D2FB642EB1D68787D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018081   (755621) от 20.05.2016
-
-Джон Пристли - Доктор Солт уезжает (1967) TVRip (2 части)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755621.jpg" />
-</div>
-
-
-###  Подробнее
-
-По произведению Джона Б.Пристли "Доктор Солт покидает город".
-О таинственном исчезновении владельца книжного магазина и загадочном убийстве пациентки доктора Солта. Поиски преступника, сопряженные с постоянной опасностью, интригами, шантажом, приводят к неожиданной развязке.Производство: СССР, Ленинградское ТВЖанр: Телеспектакль, детектив, экранизацияРежиссер: Юрий МаляцкийАктеры: Ростислав Катанский, Галина Фигловская, Рэм Лебедев, Михаил Ладыгин, Александр Соколов, Леонард Борисевич, Лариса Леонова, Пётр Горин, Эра Зиганшина, Лидия Штыкан, Вера Кузнецова, Анатолий Абрамов, Герман Хованов, Николай КарамышевПродолжительность: 2 х ~ 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7796AEB101E78F7D66E19F50FD974271A3369D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522958   (754658) от 09.01.2022
-
-Сборник видеоклипов (2021) WEBRip [H.264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.1.Ava Max - Everytime I Cry
-2.Becky G, Natti Natasha - Sin Pijama
-3.Benny Benassi feat. Gary Go - Let This Last Forever
-4.BLACKPINK - How You Like That(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136207894285ADDFCF0AE349466AFC0106DE61A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215720   (754599) от 28.03.2018
-
-Квартирник на НТВ у Маргулиса. Пилот (03.24.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754599.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к ведущему Евгению Маргулису пришла известная рок-группа «Пилот». Лидер коллектива Илья Кнабенгоф вспомнил, как в детстве он втихаря слушал пластинки брата и отца, рассказал, как выступал в коллективе «Эксгуматор» и как впервые в 16 лет оказался на сцене рок-клуба, где группа очень удивила зрителей своей манерой исполнения. Также музыкант вместе с хозяином (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBEE18BD07A47269636B5567D2D5AF9AC8CC1ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781114   (754303) от 29.04.2014
-
-Europe - Live at Sweden Rock: 30th Anniversary Show (2013) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754303.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 июня 2013 года Europe вышли на сцену на своей родине Швеции по особому поводу: празднование своей 30-й годовщины в рок-музыке.01. Riches To Rags
-02. Firebox
-03. Not Supposed To Sing The Blues
-04. Scream Of Anger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFBF3F82C766E290063D86AEE23019EA3EE89D2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1638956   (211683) от 12.06.2023
+
+Discovery: Махинаторы / Wheeler Dealers (2021-2022) WEBRip [H.264/1080p] (сезон 17, серии 1-20 из 20)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Бюджет всегда ограничен, к примеру, в первом сезоне он составлял 1000 , во 2-м — 2000 , в 3-м — 3000 . Иногда Майк добивается разрешения продюсера на увеличение суммы для покупки эксклюзивных и редких авто.
+Майк покупает машину, передаёт (   Читать дальше...   )Производство: Великобритания, AttaBoy for Discovery ChannelЖанр: телепередача, автомобилиУчастники: Майк Брюэр, Paul Brackley, Ant AnsteadПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 каждая серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99F829CD84A8B63D7CD74C4BAD2B344232D1ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638984   (211681) от 12.06.2023
+
+Discovery: Махинаторы / Wheeler Dealers (2020-2021) WEBRip [H.264/1080p] (сезон 16, серии 1-16 из 16)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Бюджет всегда ограничен, к примеру, в первом сезоне он составлял 1000 , во 2-м — 2000 , в 3-м — 3000 . Иногда Майк добивается разрешения продюсера на увеличение суммы для покупки эксклюзивных и редких авто.
+Майк покупает машину, передаёт (   Читать дальше...   )Производство: Великобритания, AttaBoy for Discovery ChannelЖанр: телепередача, автомобилиУчастники: Майк Брюэр, Paul Brackley, Ant AnsteadПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 каждая серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1410E7493B041573D595C9D0509130EF939748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638942   (211622) от 12.06.2023
+
+Discovery: Махинаторы / Wheeler Dealers (2023) WEBRip [H.264/1080p] (сезон 18, серии 1-10 из 10) [AD]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Бюджет всегда ограничен, к примеру, в первом сезоне он составлял 1000 , во 2-м — 2000 , в 3-м — 3000 . Иногда Майк добивается разрешения продюсера на увеличение суммы для покупки эксклюзивных и редких авто.
+Майк покупает машину, передаёт (   Читать дальше...   )Производство: Великобритания, AttaBoy for Discovery ChannelЖанр: телепередача, реальное ТВУчастники: Майк Брюэр, Paul Brackley, Ant AnsteadПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 каждая серияРеклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD6D46AD8C97B270E114E27B6EEA13AE5904D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641842   (210645) от 24.06.2023
+
+Главная дорога (24.06.2023) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самому или за деньги? Переезд страшнее пожара, но когда сталкиваются с таким испытанием, нужно решить сразу несколько важных вопросов, например — все сделать своими силами или заплатить профессионалам? Сколько на самом деле стоит переезд? Андрей Федорцов и Денис Юченков посчитали, как дешевле перевезти вещи, а заодно показали, как правильно их упаковать и безопасно (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A9F74FD6167FBE280DA1D61E892B435E9F8F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641806   (210631) от 24.06.2023
 
 Минтранс (24.06.2023) WEB-DL [H.264/720p-LQ]
@@ -6,7 +113,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210631.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ History Channel. Детейлинг по-американски / Dirty Old Cars
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209449.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209384.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207635.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206430.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205358.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204263.jpg" />
 </div>
 
 
@@ -200,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204144.jpg" />
 </div>
 
 
@@ -226,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203744.jpg" />
 </div>
 
 
@@ -252,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202429.jpg" />
 </div>
 
 
@@ -281,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202158.jpg" />
 </div>
 
 
@@ -309,7 +416,7 @@ GAC GS8: преимуществ и недостатки кроссовера и�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202123.jpg" />
 </div>
 
 
@@ -338,7 +445,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012-2020) HDTVRip [
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198077.jpg" />
 </div>
 
 
@@ -364,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197328.jpg" />
 </div>
 
 
@@ -390,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197322.jpg" />
 </div>
 
 
@@ -416,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196604.jpg" />
 </div>
 
 
@@ -442,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196488.jpg" />
 </div>
 
 
@@ -468,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196405.jpg" />
 </div>
 
 
@@ -494,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195101.jpg" />
 </div>
 
 
@@ -520,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193103.jpg" />
 </div>
 
 
@@ -549,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193058.jpg" />
 </div>
 
 
@@ -576,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192983.jpg" />
 </div>
 
 
@@ -589,112 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E551F2F40D0CDA6474DCB1BDCE096372D006301E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657433   (192743) от 03.09.2023
-
-Первая передача на НТВ. Автомобильная передача (03.09.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заразный каршеринг: что можно подхватить на заднем сиденье?
- «Куда прешь?!»: почему за маневры велосипедистов отвечают водители?
- Находка или кража: что делать, если на дороге валяется куча денег?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D12E3D70F569F58D88C091B661400FFD9C9D25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588572   (191421) от 05.11.2022
-
-Минтранс (05.11.2022) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8897A230A406E62D23BD072F5F5C3D5EFCE3E74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588592   (191385) от 05.11.2022
-
-Главная дорога (05.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотели, как лучше, но вышло сомнительно: по всей России на неосвещенных участках дорог устанавливают освещение на нерегулируемых пешеходных переходах. Казалось бы — благое дело, но освещать нужно правильно. Внимание водителя привлечет ярко освещенный переход, а яркий фонарь — ослепит! Андрей Федорцов и Денис Юченков проверили, насколько опасны резкие границы света (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0741FC9BE5AB2EC3F578389D05EC6D47B700A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588792   (191124) от 06.11.2022
-
-Первая передача на НТВ. Автомобильная передача (06.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хроническая неисправность автомобиля, дело о подбитой машине и кругосветное автопутешествие с собакой.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21789ABEB126CD3BEBCB08A4307C0442F35E477F
 ```
 
 https://mybot314.ru/tekegram_catalog/

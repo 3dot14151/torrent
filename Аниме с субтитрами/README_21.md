@@ -1,3 +1,31 @@
+###  Публикация: 742707   (977930) от 06.01.2014
+
+Saint Seiya(Jashin Eris|Kamigami no Atsuki Tatakai|Shinku no Shounen Densets|Saishuu Seisen no Senshi-tachi|Overtur) / Рыцари Зодиака [1986,MV,5из6] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было время, когда боги правили землей. Тогда существовала группа молодых людей, защищавших богиню Афину и звавшихся Бронзовыми Рыцарями. Их задача — борьба с воплощением зла. Так было раньше; теперь же, много столетий спустя, история повторяется. Афина возродилась в теле японки Саори Кидо, и снова ее защищают рыцари в святых доспехах. Но зло тоже не дремлет…
+
+Однажды (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Морисита Кодзо;Субтитры: •Продолжительность: 45 мин. + 46 мин. + 75 мин. + 45 мин. + 83 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135C982B5DAAC5810AA914D4F0136F51D9CFB186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 844110   (977787) от 10.01.2016
 
 Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёной планете: Морские тропы за горизонт [2014, OVA, 2 эп.] BDrip 1080p raw
@@ -6,7 +34,7 @@ Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977787.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977751.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёно
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977677.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Hellsing Ultimate / Хеллсинг OVA [2006, OVA, 10 из 10] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977090.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ Haja Taisei Dangaiou | Dangaioh: Hyper-Combat Unit | Гигантский зве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975533.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ Katanagatari / Sword Stories / Истории мечей [2010, OVA, 12 сери
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974647.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс Убийц [ТВ-1] [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974096.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ Etotama / Eto Tamashii / История одной кошечки [2015, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973193.jpg" />
 </div>
 
 
@@ -225,7 +253,7 @@ Mushishi Tokubetsu-hen: Hihamukage / Мастер Муси [2014, TV-sp, 1 ep.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972900.jpg" />
 </div>
 
 
@@ -253,7 +281,7 @@ Trinity Blood | Кровь Триединства [2010, TV, 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972833.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ Kandagawa Jet Girls: Tokyo Girls Take a Shot at Promotions | Кандагава:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970555.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ Tatakae! Iczer-1 / Bouken! Iczer 3 / Sen-shoujo Iczelion [1985,1990,1995, OVA] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970545.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ Fate/Stay Night: Unlimited Blade Works (2015) | Судьба: Ночь схва�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968456.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatteiru / Труп под ногам�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967398.jpg" />
 </div>
 
 
@@ -385,7 +413,7 @@ Tonari no Seki-kun / Сэки, мой сосед по парте [2014, OAD, 2 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960050.jpg" />
 </div>
 
 
@@ -413,7 +441,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957273.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957260.jpg" />
 </div>
 
 
@@ -465,7 +493,7 @@ Dirty Pair no Ooshoubu: Nolandia no Nazo | Dirty Pair: Affair of Nolandia | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955733.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ Dirty Pair (1987) | Грязная парочка [1987, OVA, 10 из 10] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955637.jpg" />
 </div>
 
 
@@ -517,7 +545,7 @@ Dirty Pair: Lovely Angels Yori Ai o Komete | Dirty Pair: With Love From the Love
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955632.jpg" />
 </div>
 
 
@@ -543,7 +571,7 @@ Dirty Pair: Project Eden | Грязная парочка: Проект Эдем 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955613.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ Dirty Pair Flash | Ослепительная грязная парочка [199
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955606.jpg" />
 </div>
 
 
@@ -595,7 +623,7 @@ Dirty Pair: Bouryaku no 005-bin | Dirty Pair: Flight 005 Conspiracy | Грязн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955513.jpg" />
 </div>
 
 
@@ -623,7 +651,7 @@ Dirty Pair | Грязная парочка [1985, TV, 24 из 24] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955491.jpg" />
 </div>
 
 
@@ -649,7 +677,7 @@ Katanagatari / Sword Stories / Истории мечей [2010, ТВ, 12 сер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955086.jpg" />
 </div>
 
 
@@ -660,32 +688,6 @@ Katanagatari / Sword Stories / Истории мечей [2010, ТВ, 12 сер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:861621670EC41453DDB8BCC7500D634B00B3698B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 279438   (955001) от 07.01.2011
-
-Gekijouban Trigun: Badlands Rumble / Триган: Переполох в пустыне / Trigun the Movie [2010, Movie] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: приключения, драма, комедия, фантастика.Формат: mkv от Yousei-raws.Продолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC291B9C94F9D1A697374D76FB24A7BB31745E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

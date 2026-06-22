@@ -1,3 +1,226 @@
+###  Публикация: 1327326   (374111) от 25.09.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 3 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся сила энергия и мощь понастоящему крутой музыки! Это 3я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 3 — Intro
+01. Cinderella — The More Things Change
+02. Van Halen — Don’t Tell Me
+03. 3 Doors Down — Duck & Run(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89118020E59E4514FAA7891C3A0087EE9FE71267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175540   (374069) от 20.10.2017
+
+Сборник клипов - Reggae от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374069.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые мелодичные клипы мирового рэгги. Эта музыка пропитана ямайским духом и жарким климатом тропиков. Для всех любителей солнечных мелодий и почитателей легендарного Боба Марли. От себя добавлю, Если б я мог превратиться в музыку, то стал бы позитивным ямайским солнечным рэгги! Это 1 часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для (   Читать дальше...   )001 Robert Palmer and UB40 - I`ll Be Your Baby Tonight
+002 Mark Wonder & Sizzla Guiding Light
+003 Mattafix - Cool Down The Pace
+004 Inner Circle - Games People Play(   Читать дальше...   )Жанр: ReggaeПродолжительность: 03:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A669C26E15B7B739B417F3DCDFF7057483FBD483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175701   (373927) от 20.10.2017
+
+VA - Viva Music (1996) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов легендарного немецкого музыкального телеканалаDJ Hooligan - System Ecstasy
+Rhythm of Sylvia - Rhythm of Sylvia
+CJ Bolland - Camargue
+Der dritte Raum Trommelmaschine(   Читать дальше...   )Производство: Viva MusicЖанр: Музыка,клипыСубтитры: отсутствуютПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D8558D78FB6CEABEFD7328311F451CBA39BA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176076   (369192) от 22.10.2017
+
+Сборник клипов - Русский шансон от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мой подарок всем любителям русского шансона. В сборник вошли самые хитовые кабацкие песни, романсы, ну и конечно же много блатной темы. Это 1 часть сборника. Да прибудет с нами качественная музыка! Все лучшее для вас в натуре! =)  ALEXnROCK000 Интро
+001 Жека - Растревоженная птица
+002 Вячеслав Добрынин - Капитан запаса
+003 Бутырка - Малец(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6CD4E3DC0B7625616AD4F8057DC8B1CDB99BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070221   (368450) от 06.11.2016
+
+Assorti Creative 50 (2016) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приглашаю вас в мир моей музыки! Надеюсь, что каждый здесь найдет что-то для себя. Пусть музыка наполнит вас гармонией и в вашей жизни всегда все будет хорошо! Клипы исполнителей Enigmatic направления. Для любителей проэкта Enigma.01. Achillea ( Jens Gad ) - Amadas Estrellas [05:30]
+02. Deep Forest - Deep Forest [03:30]
+03. Enigma - Fata Morgana [03:05]
+04. Conjure One - Sleep [05:03](   Читать дальше...   )Производство: Assorti CreativeЖанр: Enigmatic, New AgeПродолжительность: 04:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD40D76020C2942A0C29AAB0E727EC3DAF71115E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575573   (367907) от 15.11.2012
+
+DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectroПродолжительность: 00:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E598918AB0D717FBF07847D23DF4B830FE8D3A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 405851   (367808) от 04.11.2011
+
+Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипРежиссер: Леди ГаГа, Лори Энн Гибсон, Haus of GaGaПродолжительность: 00:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F55F773E2A68E01CA6EC1FB92D89EB18B235D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 406067   (367786) от 04.11.2011
+
+VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367786.jpg" />
+</div>
+
+
+###  Подробнее
+
+“The best video clips ” -  Музыкальные видеоклипы. Большинство видео материала записано с музыкальных каналов высокой чёткости.Жанр: МузыкаРежиссер: N/AАктеры: DEV, Jennifer Lopez, Selena Gomez & The SceneПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 5x ~00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B797F046A5D5D8FCF9DBAF8ACFF7BA3C8F95172A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575992   (366309) от 16.11.2012
 
 Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
@@ -6,7 +229,7 @@ Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366309.jpg" />
 </div>
 
 
@@ -32,7 +255,7 @@ JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365576.jpg" />
 </div>
 
 
@@ -58,7 +281,7 @@ VA - Осенний марафон № 200 / Видеоклипы (Презен�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365072.jpg" />
 </div>
 
 
@@ -88,7 +311,7 @@ Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365066.jpg" />
 </div>
 
 
@@ -114,7 +337,7 @@ The best of Zero project (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360351.jpg" />
 </div>
 
 
@@ -143,7 +366,7 @@ Epica - Abyss of Time - Countdown to Singularity (2020) WEB-DL [VP9/2160p-LQ] <S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360212.jpg" />
 </div>
 
 
@@ -169,7 +392,7 @@ Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358725.jpg" />
 </div>
 
 
@@ -195,7 +418,7 @@ Usher - Numb (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358722.jpg" />
 </div>
 
 
@@ -221,7 +444,7 @@ Usher - Dive (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358716.jpg" />
 </div>
 
 
@@ -247,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358546.jpg" />
 </div>
 
 
@@ -273,7 +496,7 @@ Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358544.jpg" />
 </div>
 
 
@@ -299,7 +522,7 @@ Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358366.jpg" />
 </div>
 
 
@@ -325,7 +548,7 @@ Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358356.jpg" />
 </div>
 
 
@@ -351,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358348.jpg" />
 </div>
 
 
@@ -377,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358345.jpg" />
 </div>
 
 
@@ -403,7 +626,7 @@ Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358335.jpg" />
 </div>
 
 
@@ -429,7 +652,7 @@ Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358229.jpg" />
 </div>
 
 
@@ -455,7 +678,7 @@ Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358221.jpg" />
 </div>
 
 
@@ -466,214 +689,6 @@ Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:181CCEE2223589BC5E54990E2820F343EABCBE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577519   (358213) от 19.11.2012
-
-Robbie Williams - Candy (2012) [1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577924   (358211) от 19.11.2012
-
-Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CD23A2DE62CEE880D1715E5AACCE13A8AC99FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577526   (358056) от 19.11.2012
-
-No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC21FF70F15E98B5B3E1442D766A2856620D43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577463   (358052) от 19.11.2012
-
-Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F056F05B267065B23067D29E1FE6C66F102EF304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577916   (358044) от 19.11.2012
-
-Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDEA2F3A68C4C92CE99E6A651E6EBC29E1C6412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577730   (358040) от 19.11.2012
-
-ПРЕМЬЕРА! Анастасия Стоцкая - Преступник (2012)  [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4C4415D7F5BD586D6521D6FA3734D7309EBCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577886   (358038) от 19.11.2012
-
-Чай Вдвоем - Время-вода (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E6F19898E2419CDCB352C34C7F13A37A30D2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577908   (358028) от 19.11.2012
-
-Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4166F2CA86DF4FE41E93457C63BD100B60D12BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

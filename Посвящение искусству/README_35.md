@@ -1,3 +1,81 @@
+###  Публикация: 1416422   (367188) от 16.10.2020
+
+Blackpink: Зажги небо / Blackpink: Light Up the Sky (2020) WEBRip [H.264/1080p]  [EN / RU, EN Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о стремительном взлёте и пути к мировой славе южнокорейской женской К-поп группы Blackpink. Тайка Лиса, кореянки Дженни, Джису и Розэ — обрели мировую известность, побили кучу рекордов и помогли кей-попу рекрутировать ещё несколько миллионов поклонников. «Блинки» — так называют фанатов Blackpink — смогут насладиться интервью с участницами группы, (   Читать дальше...   )Производство: США, RadicalMedia, NetflixЖанр: Документальный, музыкаРежиссер: Кэролайн СуПеревод: отсутствуетСубтитры: Русские, английскиеПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BA872279209361B329B5890DACC1837AA70B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32773   (365406) от 17.10.2018
+
+В глубокой глотке / Inside Deep Throat (2005) DVDRIP
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365406.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1972 году порнофильм под названием "Глубокая глотка", на который было потрачено 25 тыс. долларов и 6 съемочных дней, произвел эффект разорвавшейся бомбы. Это был первый фильм категории ХХХ, вышедший в Америке в широкий прокат. Правительство США объявило ему войну, пытаясь уничтожить его. Его запретили в 23 странах. Его смотрели кинозвезды и шоумены, президенты (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Фентон Бэйли /Fenton Bailey/, Рэнди Барбато /Randy Barbato/Актеры: Линда Лавлэйс /Linda Lovelace/, Дик Кэветт /Dick Cavett/, Питер Барт /Peter Bart/, Тони Билл /Tony Bill/, Уэс Крэйвен /Wes Craven/, Джерард Дамиано /Gerard Damiano/Перевод: ПрофессиональныйПродолжительность: 1:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7BC8EC89A611607209E8E863A7B789B6E471C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416824   (365112) от 17.10.2020
+
+Смехоностальгия (2000-2011) DVB [H.264] (серии 1-23 из ?) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и над чем смеялись лет двадцать - сорок тому назад, над чем шутили наши родители, дедушки и бабушки, над чем мы смеемся сейчас… Об этом и многом другом рассказывает развлекательная программа "Смехоностальгия". "Смехоностальгия" предоставляет зрителям уникальную возможность познакомиться с номерами из коллекции Гостелерадиофонда - лучшими образцами (   Читать дальше...   )Телекомпания: Россия / КультураЖанр: Документальный, Искусство, ИсторияСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85D0865F2223E184C314781E1B7E29449AA4C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576633   (364138) от 15.09.2022
 
 Шабаш ведьм во мгле лесов: История фолк-хоррора / Woodlands Dark and Days Bewitched: A History of Folk Horror (2021) BDRip [H.264/1080p] [DVO]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364138.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364046.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363848.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362845.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361494.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361042.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360414.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358894.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356118.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355741.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354314.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353806.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353652.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349877.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349476.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345655.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345523.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345345.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Brutto Nostra (2019) WEBRip
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343540.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343526.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343521.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343519.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343301.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22F1693C40480AEA3BFB76473F88FFD6FEF1D94A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954383   (341880) от 07.11.2015
-
-Группа "The Who". История альбома "Tommy" / The Who: The Making of Tommy (2013) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный документальный фильм, созданный при всесторонней поддержке группы, рассказывает о том, как "The Who" трудились над созданием первой рок-оперы, и как успех изменил их жизнь. В 1968 году британская рок-группа «The Who» находилась в поисках хита, который вознес бы ее на вершину музыкального Олимпа. На тот момент у рокеров было всего лишь три сингла, (   Читать дальше...   )Телекомпания: Великобритания, Eagle Rock ProductionsЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66206671D0DBC3B6CDA2E706F3493959818C9AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954330   (341808) от 07.11.2015
-
-Екатерина Великая. Женская доля (2015) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенью 2015 года на "Первом канале" состоится премьера сериала о русской императрице Екатерине Второй. История становления личности самодержицы с момента ее приезда в Россию на правах невесты Петра III и до восхождения на российский престол. Вокруг этой сильной и противоречивой исторической фигуры всегда существовало много мифов. В фильме принимают участие: (   Читать дальше...   )Телекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF6CACC16B2F51CEDB0BE8073F2E31FE806E4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954220   (341804) от 07.11.2015
-
-Игорь Тальков: Приговоренный (2015) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера документального фильма РЕН ТВ к 59-летию певца. 24 года назад был убит Игорь Тальков - один из самых популярных музыкантов времён перестройки. Для популярной музыки такой срок - целая вечность. Однако песни Талькова сегодня помнят и любят ничуть не меньше, чем в восьмидесятых. Специально ко дню рождения музыканта журналисты РЕН ТВ подготовили двухсерийный (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйПродолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EA9FC19C073563209115F7EEB6ABCF614BDD22
 ```
 
 https://mybot314.ru/tekegram_catalog/

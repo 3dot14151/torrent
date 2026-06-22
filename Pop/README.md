@@ -1,4 +1,207 @@
 https://t.me/izofen
+###  Публикация: 1876341   (1073565) от 17.06.2026
+
+Basshunter - LOL (2008 yellow bonus version/no videos_France) (2008) [FLAC|Lossless|tracks] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073565.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Now You're Gone (feat. DJ Mental Theos Bazzheadz) 3:26
+2. DotA (Radio Edit) 3:21
+3. I'm Your Bass Creator 5:24
+4. Russia Privjet 4:08(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8610C7C236B4C2058393B52B15622FEFBF7720B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876899   (1073540) от 17.06.2026
+
+Olivia Rodrigo - you seem pretty sad for a girl so in love (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. drop dead
+02. stupid song
+03. honeybee
+04. maggots for brains(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752CBDECF254D329632EE15A14DB6F2DFC1F2775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876569   (1073483) от 
+
+Dagny - Dancefloor Erotica (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (This Is The Mantra) (0:56)
+02. Dancefloor Erotica (2:52)
+03. GOSH! (2:23)
+04. C’est La Vie (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DA19674ADAB52D1B8058B404A65ADBFE2FD245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875994   (1073154) от 
+
+Silk - Lose Control (1992) [FLAC|Lossless|tracks + .cue] <Contemporary R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interlude [0:01:25.35]
+02. Silk feat. Keith Sweat / Happy Days [0:05:20.52]
+03. Don’t Keep Me Waiting [0:04:16.20]
+04. Girl U for Me [0:04:32.53](   Читать дальше...   )Жанр: Contemporary R&BПродолжительность: 00:42:34.893 (112 670 796 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D32E5BCF0EFB9E196DCFCA82CF71514FFA2312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875649   (1072913) от 
+
+Alesha Dixon - The Alesha Show (2008) Enhanced, 2009 [FLAC|Lossless|image + .cue] <Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Alesha Show (0:25)
+02. Let's Get Excited (3:22)
+03. Breathe Slow (4:12)
+04. Cinderella Shoe (2:41)(   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACD615B21B9C4B8CE432C1CFE2C7F4F7BE87E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875353   (1072912) от 
+
+Ofra Haza - DeLuxe Collection (2001) Compilation, Limited Edition, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Im Nin' Alu (New Version) - 3:38
+02 - Give Me A Sigh - 4:17
+03 - Im Nin' Alu (Original Version) - 3:29
+04 - I Want To Fly - 4:23(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0051F3FB22B2A3EE9F0F872BD567C82BAA3A957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875226   (1072909) от 
+
+VA - Mega 90 (2007) 4 CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua - Barbie Girl (3:16)
+02. The Bucketheads - The Bomb! (These Sounds Fall Into My Mind) (3:23)
+03. Shabba Ranks - Mr. Loverman (4:17)
+04. Lady - Easy Love (3:55)(   Читать дальше...   )Жанр: Eurodance, HouseПродолжительность: 05:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3C74B15D17EB4CE184CCBAC2EED5139A4A5A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875664   (1072803) от 
 
 VA - Future Nu Disco (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -7,7 +210,7 @@ VA - Future Nu Disco (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072803.jpg" />
 </div>
 
 
@@ -36,7 +239,7 @@ The Carpenters - The Carpenters (1971) Reissue, 1993,	Karussell [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072800.jpg" />
 </div>
 
 
@@ -65,7 +268,7 @@ Boney M. - Remix 2005 (2005) Compilation, Unofficial Release [FLAC|Lossless|imag
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072704.jpg" />
 </div>
 
 
@@ -94,7 +297,7 @@ Mode-One - The Fourth Album (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072702.jpg" />
 </div>
 
 
@@ -123,7 +326,7 @@ Melissa - Fresh (1992) [FLAC|Lossless|image + .cue] <Europop, Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072701.jpg" />
 </div>
 
 
@@ -152,7 +355,7 @@ VA - 101 80s Hits (2008) 5 CD, Compilation [FLAC|Lossless|image + .cue] <Electro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072696.jpg" />
 </div>
 
 
@@ -181,7 +384,7 @@ VA - 80s: The Box Set Series (2014) 4 CD, Compilation [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072695.jpg" />
 </div>
 
 
@@ -210,7 +413,7 @@ Giorgio Moroder - DeLuxe Collection (2001) Compilation, Limited Edition, Unoffic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072693.jpg" />
 </div>
 
 
@@ -239,7 +442,7 @@ VA - Mega Hits 2026 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072489.jpg" />
 </div>
 
 
@@ -268,7 +471,7 @@ Barry Manilow - What A Time (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072291.jpg" />
 </div>
 
 
@@ -297,7 +500,7 @@ Mirko Hirsch - The Instrumental Versions, Vol. 1 (2026) [MP3|320 Kbps] <Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071851.jpg" />
 </div>
 
 
@@ -326,7 +529,7 @@ Mirko Hirsch - The Instrumental Versions, Vol. 1 (2026) [FLAC|Lossless|WEB-DL|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071850.jpg" />
 </div>
 
 
@@ -355,7 +558,7 @@ Sandie Shaw - The Collection (2007) Compilation [FLAC|Lossless|image + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071706.jpg" />
 </div>
 
 
@@ -384,7 +587,7 @@ Carole King - Natural Woman (The Very Best Of Carole King) (2000) Compilation [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071705.jpg" />
 </div>
 
 
@@ -413,7 +616,7 @@ VA - Summer Dance Hits 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071704.jpg" />
 </div>
 
 
@@ -442,7 +645,7 @@ Various Artists - ZYX Italo Disco New Generation Vol. 28 (2026) 2 x CD [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071599.jpg" />
 </div>
 
 
@@ -463,6 +666,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1873601   (1071289) от 29.05.2026
+
+DEAD BLONDE - ДЕЛО МЁРТВОЙ БЛОНДИНКИ (2026) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1071289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Допрос. Начало
+2. Преступление
+3. Допрос (Дело №2)
+4. Казино(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B38704DDEEFA3571A4919D516A7B79BBA10DA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1872837   (1070804) от 24.05.2026
 
 A-Ha - Analogue (2005) 2CD 2026 20th Anniversary Edition [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
@@ -471,7 +703,7 @@ A-Ha - Analogue (2005) 2CD 2026 20th Anniversary Edition [FLAC 24/96|Lossless|WE
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070804.jpg" />
 </div>
 
 
@@ -500,7 +732,7 @@ Denis Walter - Through the Years (1992) Compilation [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070802.jpg" />
 </div>
 
 
@@ -514,238 +746,6 @@ Denis Walter - Through the Years (1992) Compilation [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B37A8E34B269C32689E847A0920E831DFDDC399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872690   (1070801) от 24.05.2026
-
-Euphoria - Total Euphoria (1992) [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		The Power (Intro)	0:23
-02.		Love You Right	3:35
-03.		One In A Million	3:56
-04.		Do For You	4:24(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78A1F140FC5319475DE264987A10414ED053D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872841   (1070795) от 24.05.2026
-
-DJ BoBo - Best Of (2026) [FLAC|Lossless|tracks + .cue] <Eurodance, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The Dream Come True
-02. Everybody
-03. Somebody Dance With Me
-04. Love Is All Around(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FF010E81F11C4585BA194C9E11C9D2AD93C8AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872683   (1070794) от 24.05.2026
-
-Men At Work - The Essential Men At Work (2003) Compilation, Remastered [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		Down Under	3:44
-02.		Who Can It Be Now?	3:23
-03.		It's A Mistake	4:45
-04.		Be Good Johnny	3:37(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAED693C7F1D2B47B7C4EAD8E0A47F2C44353BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871640   (1070275) от 23.05.2026
-
-VA - The Unity Mixers – Dance Computer Volume 2 (1994) [FLAC|Lossless|WEB-DL|image + .cue] <Euro House, Hard Trance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corona - The Rhythm of the Night 2:12
-02. Jam & Spoon - Right in the Night 1:33
-03. Intermission - Piece of My Heart 2:16
-04. Latino Brothers - The Musik 1:43(   Читать дальше...   )Жанр: Euro House, Hard TranceПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C1D2077ED985962FB1291EA15B3507DA9ACBD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872067   (1070231) от 20.05.2026
-
-Bananarama - Now Or Never (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Now Or Never (Martha and Poupon Mix) (3:52)
-2. La La Love (3:32)
-3. Moves Like Jagger (3:26)
-4. Now Or Never (3:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC334A9C8BA34D218D09D5DEEC8A021595786F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871957   (1070207) от 20.05.2026
-
-Vanessa Williams - The Sweetest Days (1994) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro-Lude [0:00:55.58]
-02. The Way That You Love [0:04:48.47]
-03. Betcha Never [0:03:57.53]
-04. The Sweetest Days [0:03:31.22](   Читать дальше...   )Жанр: Contemporary R&B, BalladПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D2AC92E79AC711F9E88BAD6C28A7A0C927FE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871626   (1069973) от 18.05.2026
-
-Backstreet Boys - Millennium (1999) [FLAC|Lossless|tracks + .cue] <Funk / Soul, Pop, Contemporary R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larger Than Life [0:03:52.62]
-02. I Want It That Way [0:03:33.23]
-03. Show Me the Meaning of Being Lonely [0:03:54.72]
-04. It’s Gotta Be You [0:02:57.25](   Читать дальше...   )Жанр: Funk / Soul, Pop, Contemporary R&BПродолжительность: 00:46:06.293 (121 993 536 samples)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB1146FEC930B3AEB2C8A7CDFFC08EA1508DAFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871001   (1069772) от 16.05.2026
-
-VA - Let's Get 2 It (1992) 2 x CD [FLAC|Lossless|tracks + .cue] <House, Hip Hop, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salt 'N' Pepa - Let's Talk About Sex 3:33
-02. Ce Ce Peniston - Finally 4:10
-03. P.M. Dawn - Set Adrift on Memory Bliss 4:00
-04. Cathy Dennis - Touch Me (All Night Long) 4:10(   Читать дальше...   )Жанр: House, Hip Hop, PopПродолжительность: 02:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8477747151BA20364D39F09FE671A406E64F2B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

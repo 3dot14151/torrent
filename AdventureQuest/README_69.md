@@ -1,3 +1,133 @@
+###  Публикация: 1678964   (141095) от 23.11.2023
+
+Daylight (2014) [Ru/Multi] (Build 432586/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы просыпаетесь, в заброшенной больнице. Ваш телефон является единственным источником света. Вы заблудились в лабиринтах и пытаетесь найти путь назад, постоянно слыша странные звуки и чувствуя за спиной чье-то жуткое присутствие...Тип издания: RepackРазработчик: Zombie StudiosЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1C5F49A5A0CF74DA66F2833BBE4AF2367FBEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262265   (139961) от 29.12.2018
+
+The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139961.jpg" />
+</div>
+
+
+###  Подробнее
+
+В The Room Three вас снова ждут тактильно решаемые головоломки из предыдущих частей в сочетании со значительно выросшим миром для исследования. Команда Fireproof Games переработала и снабдила новыми текстурами и освещением все объекты и локации, сделав игру по-настоящему живой. В The Room Three вы, не устояв перед зовом неизведанного, прибываете на далекий остров, (   Читать дальше...   )Тип издания: LicenseРазработчик: Fireproof GamesЖанр: Adventure, Puzzle, Logic, CasualЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222AA46DE0A9F22E531C939244A5F13071BE4B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679252   (138735) от 24.11.2023
+
+UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы испытать удачу? Отправляйтесь в погоню за собственным наследием и оставьте свой след на карте в игре UNCHARTED: Наследие воров. Коллекция. Насладитесь захватывающими кинематографическими сюжетами и популярнейшими играми культовой серии UNCHARTED вместе с обаятельными и хитрыми ворами – всеми любимыми Натаном Дрейком и Хлоей Фрейзер.Тип издания: LicenseРазработчик: Naughty Dog LLC, Iron Galaxy StudiosЖанр: Action, AdventureЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8628F6EEC2D45AA9450620E6BF2118DD93187023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273090   (138343) от 30.12.2018
+
+103 (2018) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помогите Лили использовать ее воображение, чтобы разблокировать ее воспоминания и пережить события в ночь, которая изменила ее жизнь. Узнайте, что произошло и что такое 103.Тип издания: RepackРазработчик: Dystopia InteractiveЖанр: Adventure, Logic, Casual, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B083865E502DECCD4FFC95B38F55C5237040BD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088554   (137875) от 31.12.2016
+
+Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых необычных, сложных и опасных квестов. Сюжет занимателен, но всё-таки не поражает: вам предстоит вступить в битву с Лордом Тьмы, похитившим музыкантов (!), с помощью которых он собирается устраивать в нашем и без того многострадальном мире катастрофы… А спасать вам предстоит Ангела, захваченного Дьяволом… А для этого надо освободить семерых злых призраков…Тип издания: LicenseРазработчик: Tribal DreamsЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970807   (137360) от 31.12.2015
 
 Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. Механики [Episodes 1-4]
@@ -6,7 +136,7 @@ Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137360.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137259.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137217.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137073.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137013.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136844.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Mundaun (2021) [Ru/Multi] (1.0.444) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134434.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ MAMIYA: A Shared Illusion of the World's End (2021) [Multi] (7.1.2/dlc) Scene Te
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134104.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ The Closing Shift (2022) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134063.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Slender: The Arrival (2013) [Ru/Multi] (3.0.46.992) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134053.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132978.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132863.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ Another Day (2023) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132824.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132161.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130648.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128997.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128891.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128811.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ Journey to the Center of the Earth / Путешествие к центру Зе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127013.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126995.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126842.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEDCD280BD9EB3FE774BE94B3F325954A16CCC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686457   (126572) от 23.12.2023
-
-Stay Still 2 (2023) [En] (1.0) Repack DjDI
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Stay Still 2 - Хунг, адреналиновый наркоман в погоне за острыми ощущениями, оказывается втянутым в леденящий душу эксперимент: он проводит ночь в печально известном жутком доме. Эта ветхая гробница секретов может похвастаться историей, в которой шепчут об убийстве молодой девушки, и эта мрачная нота, которую ненасытное любопытство Хунга не замечает. (   Читать дальше...   )Тип издания: RepackРазработчик: Tarba Paul Cornel, Kpa QuốcЖанр: Action, Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D2AE09742F25BDB7D26CCDE5BE4CD5E844E822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823959   (126066) от 13.10.2025
-
-Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис отправляется вглубь бесконечно генерируемых коридоров студии Joey Drew. Чтобы выжить, придется собирать припасы и оружие, а также спасаться от разных чернильных монстров. На локациях есть ловушки, которые можно использовать против врагов.Тип издания: SceneРазработчик: Joey Drew StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BCF336F6F29D5563DC2D1BF8D3C9F7AC2E91C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505415   (125949) от 12.10.2025
-
-Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмеченное многочисленными наградами приключение Kathy Rain возвращается в режиссерской версии: вас ждет дополненная история, еще больше загадок и новые локации. Примите участие в классическом детективе и раскройте мрачные тайны, скрывающиеся под налетом провинциальной благопристойности.Тип издания: LicenseРазработчик: Clifftop GamesЖанр: Point & Click, Adventure, Detective, MysteryЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3E2303C415CF2BFA0BB04E5A702013E34989B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565287   (125815) от 12.10.2025
-
-Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в мрачное приключение мальчика с протезом на лице и тяжёлым прошлым. В первом эпизоде под названием «Странные соседи» Салли-кромсали и его отец переезжают в новую квартиру, встречают самых разных жильцов здания и понимают, что чуть не стали свидителями преступления. Они и не подозревали, что невзгоды только начинаются. Распутайте зловещую тайну истории (   Читать дальше...   )Тип издания: LicenseРазработчик: Steve GabryЖанр: Приключенческие игры, КвестыЯзык субтитров: Русский, Английский, Немецкий, Итальянский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1EFE74ADE663424A7B84BEC5F8E69F7EB46E187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687788   (125512) от 27.12.2023
-
-Peaks of Yore (2023) [En] (1.3.8) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Peaks of Yore - захватывающая экшен-адвенчура, погружающая в сложный мир альпинизма. Действие разворачивается в 1887 году, в то время, когда альпинизм только зарождался и увлекался, и она предлагает уникальный опыт всем, кто отправляется в виртуальное восхождение. Игроки исследуют захватывающие дух ландшафты Великих Галов - региона, напоминающего величественные Альпы. (   Читать дальше...   )Тип издания: SceneРазработчик: Anders Grube JensenЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBC1C67B91675E44CF9D7ACA1C8ED327DA52239
 ```
 
 https://mybot314.ru/tekegram_catalog/

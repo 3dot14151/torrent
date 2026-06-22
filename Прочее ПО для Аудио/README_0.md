@@ -1,3 +1,55 @@
+###  Публикация: 1441024   (1037909) от 20.01.2021
+
+Music Collector 21.01 [Multi]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Collector позволяет автоматически каталогизировать ваши компакт-диски в базе данных. Просто вставьте компакт-диск в привод CD-ROM, отсканируйте его штрих-код или введите исполнителя и название, чтобы загрузить все данные из различных источников в Интернете. Используйте встроенную поддержку TWAIN для сканирования изображений обложек непосредственно в приложение. (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A345B61C3B619CD8F27927D3E6C30C0171213C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617043   (1035529) от 05.03.2023
+
+Denemo 2.6 Portable [En]
+
+>>Мультимедиа и Графика
+>>Прочее ПО для Аудио
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Denemo — ещё один бесплатный инструмент, призванный облегчить рабочую жизнь музыкантов, это приложение не нужно воспринимать как нотный редактор, это просто визуальный интерфейс, позволяющий быстро вводить ноты. Программа идеально подходит для нотного редактора LilyPond, позволит быстро  подготавливать нотные партитуры для редактирования и публикации в вышеуказанном (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8478F8E22BB73F9BBB7269349F1AB96791236DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600090   (998714) от 08.01.2013
 
 IK Multimedia Miroslav Philharmonik Orchestra & Choir Workstation 1.1 [Eng][VST, RTAS, DXi]
@@ -6,7 +58,7 @@ IK Multimedia Miroslav Philharmonik Orchestra & Choir Workstation 1.1 [Eng][VST,
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998714.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Similarity 1.8.1 build 1624 [Мульти/Русский]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996283.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Adobe Audition FLT Filters 2012 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995361.jpg" />
 </div>
 
 
@@ -94,7 +146,7 @@ AP Guitar Tuner 3.08 [Английский]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906130.jpg" />
 </div>
 
 
@@ -120,7 +172,7 @@ Plug&Mix - V.I.P. Bundle v.2.0.0 x86.x64[VST][En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903599.jpg" />
 </div>
 
 
@@ -146,7 +198,7 @@ Nuance Vocalizer Expressive: Katya, Milena, Yuri, Allison, Susan 5.2.3 RePack by
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870985.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ Pinnacle Steinberg MyMp3PRO 5.1.0.21 Portable [ENG]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838833.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ Voxal Voice Changer Plus 2.0 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802844.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ Neuratron PhotoScore & NotateMe 8.0.4 Ultimate [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789342.jpg" />
 </div>
 
 
@@ -252,7 +304,7 @@ Tag&Rename 3.9.5 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778214.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ Jajuk 11.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766058.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ LMMS (Linux MultiMedia Studio) 1.2.2 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764358.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ Aerodrums 1.0.22 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723723.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ Tag&Rename 3.9.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636678.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ Line6 - Pod Farm Platinum 2.50.0 STANDALONE, PORTABLE (VST, RTAS) [Eng]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_622885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_622885.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ VOCALOID4 Editor 4.3.0 Repack by AlexVox и csf22 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577521.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ AudioBook Reader 0.0.7.1 + Portable [Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564571.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ Sam Broadcaster STUDIO 2016.7
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548939.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ Sam Broadcaster PRO 2016.7 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548915.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ Virtual Audio Cable 4.15 Retail [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526246.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ MiniLyrics 7.7.49 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523813.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Tag&Rename 3.9.15 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517782.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ Magix Mp3 Deluxe 19.0.1.47 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499070.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ Album Art Downloader 1.0.5 + Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411326.jpg" />
 </div>
 
 
@@ -639,58 +691,6 @@ Album Art Downloader - это легкое приложение для Windows, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0438B1A019912B18420F288FA7B255DF01641872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328876   (358384) от 02.10.2019
-
-Js Stuff - jBridge 1.74 RePack by unknown author [En]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358384.jpg" />
-</div>
-
-
-###  Подробнее
-
-jBridge - приложение использует межпроцессные способы передачи информации, и позволяет запускать 32 битные плагины в 64 битном хосте или 64 битные плагины в 32 битном хосте, или запускать 32 битные плагины в 32 битных хостах, минуя ограничение по объему памяти 32 битного процесса.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE97F005C276DC6D4AA3B59E9DB4819D2255494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955460   (333345) от 11.11.2015
-
-TuneBlade 1.4.1.0 [En]
-
->>Мультимедиа и Графика
->>Прочее ПО для Аудио
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333345.jpg" />
-</div>
-
-
-###  Подробнее
-
-TuneBlade это простое приложение, которое позволяет Вам транслировать системный аудио поток на устройства AirPort Express, Apple TV, а так же на беспроводные динамики с поддержкой AirPlay и приложения позволяющие принимать AirPlay аудио поток, такие как: ShairPort, XBMC/Kodi и TuneAero.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F70A0DA5623C72DB51B586BB586450340C79FD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

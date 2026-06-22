@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209944.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209822.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209793.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209753.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209733.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205794.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Sting / Live in Berlin (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204735.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204288.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204124.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203817.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203525.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Tarja Turunen - Best Of: Living The Dream Circus Life (2022) BDRip [H.265/1080p-
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202964.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201767.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201115.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198917.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ SHAMAN – «Я русский» (2023) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198653.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197427.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197409.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197172.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196656.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196451.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Original ENIGMA Voices LIVE 2019 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196204.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Golden Voice of ENIGMA - МИР Сибири (2023) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195555.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Two Steps From Hell - Wacken Open Air 2023 (2023) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193515.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192634.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191026.jpg" />
 </div>
 
 

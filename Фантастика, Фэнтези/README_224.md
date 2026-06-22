@@ -1,3 +1,59 @@
+###  Публикация: 1344511   (169693) от 11.12.2019
+
+Татьяна Буглак | Параллельщики (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Контора»
+Неожиданно оказаться в другом мире – классическая завязка фантастической истории. Только вот Ната не супергероиня, а обычный музейный работник, да и новый мир мало отличается от нашего. Или все же отличается? Что связывает музейщицу Нату, закованную в колодки крепостную Машу и не помнящего свое детство инженера Лаки – только ли то, что (   Читать дальше...   )Жанр: Социальная фантастика, попаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B9600D158BD864B9EDC9CB148468B79E52D8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430925   (169684) от 11.12.2020
+
+Макс Максимов | Максимов³ [сборник] (2020) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс Максимов – известный видео-блогер, аудитория которого перешагнула отметку в три с половиной миллиона. Он ведет собственный канал на YouTube, а также пишет книги, моментально попадающие в категорию бестселлеров.
+В сборник «Максимов³» вошли сразу три романа автора:
+
+«Апокалипсис³» – три катастрофических сценария нашего будущего.(   Читать дальше...   )Жанр: Боевая фантастика, Социальная фантастикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF55BBC6CD7383A394337A60A63379FA26EB3828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344638   (169613) от 11.12.2019
 
 Ирина Котова, Ольга Куно | Снежный король [сборник] (2020) [FB2]
@@ -6,7 +62,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169613.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169608.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169299.jpg" />
 </div>
 
 
@@ -90,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169152.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168994.jpg" />
 </div>
 
 
@@ -142,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168863.jpg" />
 </div>
 
 
@@ -170,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168794.jpg" />
 </div>
 
 
@@ -196,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168743.jpg" />
 </div>
 
 
@@ -225,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168736.jpg" />
 </div>
 
 
@@ -251,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168700.jpg" />
 </div>
 
 
@@ -277,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168670.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168269.jpg" />
 </div>
 
 
@@ -331,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167837.jpg" />
 </div>
 
 
@@ -358,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167582.jpg" />
 </div>
 
 
@@ -385,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167354.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167335.jpg" />
 </div>
 
 
@@ -439,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167282.jpg" />
 </div>
 
 
@@ -467,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167266.jpg" />
 </div>
 
 
@@ -494,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167242.jpg" />
 </div>
 
 
@@ -523,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167214.jpg" />
 </div>
 
 
@@ -549,7 +605,7 @@ Simon Spurrier | Warhammer 40K - Xenology (2006) [PDF] [En]
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167149.jpg" />
 </div>
 
 
@@ -578,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167057.jpg" />
 </div>
 
 
@@ -605,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166795.jpg" />
 </div>
 
 
@@ -631,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166786.jpg" />
 </div>
 
 
@@ -642,58 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEDC61CE5578EEAABC9704900392EAEF4A5399F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516353   (166733) от 10.12.2021
-
-Виктория Козлова | Последний костер (2021) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, в котором боги реальны. Мир, в котором бог Огня в стародавние времена был похищен беззаветно влюбленной в него богиней Зимы. Мир, в котором добыть огонь и развести костер могут только жрецы, истово верующие в своего пропавшего бога. Янар – молодой жрец, не имеющий цели в жизни и не знающий, чего он от нее хочет. Ивон – его давняя возлюбленная, напротив, твердо (   Читать дальше...   )Жанр: Героическая фантастика, Приключения, Славянское фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A728731B3F7EA8050DF9364C3F0CBEB2BECEE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516343   (166708) от 10.12.2021
-
-Екатерина Герасимова | Тайна магов (2021) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где, казалось бы, больше не осталось магии, юная принцесса Вильена внезапно сталкивается с колдовством – на нее наложили любовное заклятие! Она решается покинуть свой дом, и отправляется в таинственное приключение по зову сердца. На пути ее ждут удивительные люди, верные друзья и новые загадочные места, но все окажется не таким, как было на первый взгляд. (   Читать дальше...   )Жанр: Героическая фантастика, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5111BB3395B6E2A137AE87C367EF30B9BDD1D1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

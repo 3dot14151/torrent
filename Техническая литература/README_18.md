@@ -1,3 +1,30 @@
+###  Публикация: 914136   (598338) от 02.07.2015
+
+Н. Эрнест | Мотоцикл в армии (1936) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для широких кругов командного и начальствующего состава кадра и запаса РККА, а также для актива Осоавиахима и автосекций ВСФК.
+Книга содержит краткую характеристику современных мотоциклов и освещает некоторые основные вопросы их боевого применения, главным образом, по взглядам германской армии, а также по личным взглядам автора (в тех случаях, (   Читать дальше...   )Жанр: Техника, МотоциклыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6447F976241B9771F91DC1143E364854FEA3DE8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149797   (597861) от 12.07.2017
 
 А.В. Белов | Программирование микроконтроллеров для начинающих и не только… (2016) [PDF]
@@ -6,7 +33,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597861.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597259.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595906.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595901.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595816.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595812.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595787.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594816.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594662.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ DDiX LABS | Спутниковое ТВ, Интернет - это просто!
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594292.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593856.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593542.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592604.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592594.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ Trevor Linsley | Basic Electrical Installation Work, 6th Edition (2011) [PDF] [E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590634.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590620.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590533.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590528.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589751.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ Trevor Linsley | Basic Electrical Installation Work 9th Edition (2018) [PDF] [EN
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589743.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ Terrell Croft и др. | American Electricians' Handbook, Sixteenth Edition (201
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589734.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ Charles R. Miller | Ugly’s Electrical References, 2020 Edition 6th Edition (20
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589727.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588287.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586133.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581671.jpg" />
 </div>
 
 
@@ -649,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0367B3B86D108DA7C9CE0B037231683F0F4736A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553928   (580931) от 27.05.2022
-
-Shoaib Khan | Industrial Power Systems (2007) [PDF] [EN]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модернизация промышленных энергосистем сдерживается принятием промышленностью крайне устаревшей практики. Промышленность не решается отойти от практики проектирования энергосистем под влиянием экономических проблем и технологий периода после Второй мировой войны. Для того чтобы освободиться от устаревших методов и обеспечить качество продукции и непрерывность работы, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D100DAE8D7406398DFF03C04B443B3AB987ECCD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

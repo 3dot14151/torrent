@@ -6,7 +6,7 @@
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278358.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278356.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278355.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278354.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278287.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278282.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278269.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278260.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278211.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278209.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278177.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277032.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276921.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276920.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276919.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276731.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276689.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VideoHive - Winter Photo Slideshow - 25022035 [AEP]
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275771.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275683.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275595.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275594.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275592.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275589.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275586.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275511.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275508.jpg" />
 </div>
 
 

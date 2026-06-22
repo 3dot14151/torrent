@@ -1,3 +1,107 @@
+###  Публикация: 1263406   (288141) от 19.11.2018
+
+Э. К. Пименова | Эро де Сешель — творец французской конституции 1793 г. (1923) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эро был сторонником революции, но ему претила слава палача контрреволюции. В Савойе он должен был организовать казни аристократов, священников и всех недовольных новой властью. Вместо этого он предпринимал неоднократные поездки в Ле–Шарметт, где некогда Руссо отдыхал в объятиях г–жи де Варан, и, кроме того, влюбился в жену «аристократа и изменника», Бельгарда, эмигрировавшего (   Читать дальше...   )Жанр: История, политология, социология, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F74D4738715C12931704F96F4BC23EAE19B1957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263042   (288009) от 19.11.2018
+
+П. Н. Третьяков и др. (ред.) | История Болгарии [2 тома] (1954-1955) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отсутствие обобщающей работы по истории Болгарии, основанной на методологии марксизма-ленинизма и учитывающей современное состояние источников, побудило Институт славяноведения Академии Наук СССР предпринять попытку создания такой работы. Этот труд по замыслу авторов рассчитан на широкий круг советских читателей, интересующихся историей Народной Республики Болгарии. (   Читать дальше...   )Жанр: политология, экономика, документалистика, культурология, искусство, археология, этнографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6DCCC1E9D0F563132E73523A2E9D893E71159B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186262   (287823) от 24.11.2017
+
+Л. П. Меньщиков | Охрана и революция. К истории тайных политических организаций, существовавших во времена самодержавия [4 книги] (1925-1932) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящие очерки основаны, главным образом, на моих личных воспоминаниях и на документах, которые во времена самодержавия были секретными, но к которым я, в силу своего особого служебного положения, имел свободный доступ. Прошлое русского освободительного движения было скрыто под двойной печатью запрета: с одной стороны, оборонительные конспирации революционных партий, (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3100DF1503FF95760CED001C3A74DD1E591B6A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263331   (287633) от 19.11.2018
+
+Екатерина Кулиничева | Кроссовки. Культурная биография спортивной обуви (2018) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кроссовки давно стали не только феноменом современной моды, но и феноменом современной культуры, привлекательным и противоречивым одновременно. Книга историка спортивного дизайна и журналиста Екатерины Кулиничевой представляет собой попытку посмотреть на историю этого вида обуви не через историю брендов и моделей, а через ту роль, которую спортивная обувь играла (   Читать дальше...   )Жанр: История дизайна, История культурыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF204D2271F8FD0BB10AED75B3F198FE5F03E513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962784   (287446) от 08.12.2015
 
 Ю. Г. Акимов | От межколониальных конфликтов к битве империй: англофранцузское соперничество в Северной Америке в XVII — начале XVIII в. (2005) [DJVU]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287446.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287433.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287427.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287425.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286404.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286402.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286277.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286234.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285471.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284567.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284435.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283778.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282909.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282545.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282433.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282432.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282431.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282420.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282380.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281156.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280907.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280762.jpg" />
 </div>
 
 
@@ -570,114 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297569021DA3037E1215033BCDD377F26E8A703E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082148   (280756) от 11.12.2016
-
-Михаил Ильинский | Жизнь и смерть Бенито Муссолини (2000) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280756.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Бенито Муссолини - одна из самых ярких и загадочных фигур XX века, вокруг которой сложилось немало тайн. Какую роль сыграл лидер итальянского фашизма во Второй мировой войне? Каково его личное отношение к Гитлеру, Сталину, Черчиллю, Рузвельту? Кто и почему спас папу римского от берлинского плена? Как и кем был убит сам Муссолини? Какова была личная жизнь (   Читать дальше...   )Жанр: Биографии. МемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444265638328DFAC7230300502738C89C3B2371D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187281   (280608) от 28.11.2017
-
-Елена Грузнова | На распутье Средневековья. Языческие традиции в русском простонародном быту (конец XV-XVI вв.) (2013) [MOBI, FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена малоизученному периоду в истории язычества на территории Восточной Европы. Рассматривается место языческих традиций в жизни низших слоев русского общества в конце XV-XVI вв., тенденции их развития в условиях становления идеологии православной монархии и роль в дальнейшем формировании народного мировоззрения и быта. Особое внимание уделено исследованию (   Читать дальше...   )Жанр: История, археология, этнография, история Древней РусиФормат: MOBI, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B9112234D3692FB460D46D3D3588D1E29899AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264581   (279532) от 24.11.2018
-
-А. К. Коленковский | Маневренный период первой мировой империалистической войны 1914 г. (1940) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий труд, излагая события первой мировой империалистической войны 1914—1918 гг., обнимает маневренный ее период, т. е. первый год войны.
-
-Перед автором стояла задача предложить читателю оперативный очерк. Однако при изложении некоторых операций явилась необходимость дать также и краткое описание тактических моментов, иллюстрирующих правильное применение или (   Читать дальше...   )Жанр: политология, экономика, дипломатия, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB000E70423F1AF567D0149A91D2415101C5790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264579   (279515) от 24.11.2018
-
-В. И. Ленин | Хронологические таблицы к истории империализма (1940) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вошедшие в настоящий сборник хронологические таблицы и сводки взяты из ленинских „Тетрадей по империализму" и являются частью подготовительной работы В. И. Ленина к книге „Империализм, как высшая стадия капитализма".
-
-Изучая гигантский фактический материал, характеризующий империализм, его историю, борьбу империалистических хищников за раздел и передел (   Читать дальше...   )Жанр: История, политология, экономика, хронологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF193599CA90A9121664C4A46BC86CBC73AD1D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

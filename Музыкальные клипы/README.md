@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1876644   (1073436) от 16.06.2026
+
+YouTube канал "80rec" - Музыкальные клипы (1978-1991) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "80rec" / UC6fZ9cmqSAx5N4hw1x0InlQ по состоянию на июнь 2026 года.
+
+Канал "80rec" был открыт в 2011 году, перестал обновляться с сентября 2016 года.
+За 5 лет было опубликовано более 130 музыкальных видеоклипов, большая часть из которых сохранена для данной раздачи.Жанр: музыка, концерт, искусство, история, телепередачаПродолжительность: 8:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F527D4F22A9D65CDDB530CFC22005B02A79D7200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876646   (1073435) от 16.06.2026
+
+YouTube канал "TopPop" - Музыкальные клипы (1970-1988) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "TopPop" / UCxjzlr0hdKWfIwK2lY0SvEg по состоянию на 15 июня 2026 года.
+
+Канал "TopPop" был открыт в сентябре 2015 года.
+За 11 лет было опубликовано более 3400 музыкальных видеоклипов, большая часть из которых сохранена для данной раздачи.Жанр: музыка, концерт, искусство, история, телепередачаПродолжительность: 224:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18CF361E3868D19F0C7582A11C7A6116CDFBAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875227   (1072534) от 
 
 C.C. Catch - Сборник видеоклипов (1985-2024) WEBRip, HDRip [H.264/720p-1440p]
@@ -7,7 +65,7 @@ C.C. Catch - Сборник видеоклипов (1985-2024) WEBRip, HDRip [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072534.jpg" />
 </div>
 
 
@@ -37,7 +95,7 @@ aespa - Lemonade (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071372.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ I.O.I - Suddenly (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070377.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ Jin Young - EverLove (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070039.jpg" />
 </div>
 
 
@@ -117,7 +175,7 @@ woo!ah! - WXW (Wish With W) (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069492.jpg" />
 </div>
 
 
@@ -143,7 +201,7 @@ Daita (Daitah Itoh) - EUPHONY (2003) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069367.jpg" />
 </div>
 
 
@@ -173,7 +231,7 @@ YouTube канал "NoMadU55555" - Музыкальные клипы (1936-2009)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068910.jpg" />
 </div>
 
 
@@ -202,7 +260,7 @@ Rose - On The Ground (2021) WEBRip [H.265/2160p] [60fps] [Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068211.jpg" />
 </div>
 
 
@@ -229,7 +287,7 @@ Lisa - Dream (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068207.jpg" />
 </div>
 
 
@@ -257,7 +315,7 @@ MinSeo (woo!ah!) - Endlessly You (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068195.jpg" />
 </div>
 
 
@@ -286,7 +344,7 @@ Kanye West - Седая ночь (2026) WEBRip [H264/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065113.jpg" />
 </div>
 
 
@@ -312,7 +370,7 @@ Yena - Catch Catch (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065034.jpg" />
 </div>
 
 
@@ -340,7 +398,7 @@ Hwasa - So Cute (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065027.jpg" />
 </div>
 
 
@@ -367,7 +425,7 @@ Kanye West - Белые розы (2026) WEBRip [H264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065011.jpg" />
 </div>
 
 
@@ -393,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065007.jpg" />
 </div>
 
 
@@ -419,7 +477,7 @@ Laibach - Musick (feat. Wiyaala) (2026) WEBRip [AV1/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065006.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065003.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062907.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062198.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Narin - No Savior (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062190.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061855.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ MTV 80s Video Hits Collection (2026) SATRip [ex VH1] (parts 1-4)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061335.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061000.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Crematory - Born (2026) WEBRip [H.265/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060999.jpg" />
 </div>
 
 
@@ -649,58 +707,6 @@ Crematory - Born (2026) WEBRip [H.265/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:332661DF1CFB71092F441776A0C77A4310114E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859256   (1060810) от 15.03.2026
-
-Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1060810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E103F3DEC6B79714CE2B55E6F5892FC089E0AC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857797   (1060477) от 10.03.2026
-
-Madein - Pung! (2026) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Южная КореяЖанр: KpopПродолжительность: 00:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E60C75A4CBF0D9DE034E4FAABF914BB5287407C
 ```
 
 https://mybot314.ru/tekegram_catalog/

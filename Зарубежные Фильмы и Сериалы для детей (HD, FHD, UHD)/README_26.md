@@ -1,3 +1,81 @@
+###  Публикация: 1660252   (189617) от 12.09.2023
+
+Русалочка / The Little Mermaid (2023) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русалочку Ариэль, одну из дочерей морского царя Тритона, ужасно интересует человечество. Несмотря на неодобрение отца, она поднимается к поверхности и спасает попавшего в кораблекрушение принца Эрика. Узнав об этом, Тритон приходит в ярость и навсегда запрещает дочери покидать морское дно — этим и решает воспользоваться морская ведьма Урсула. В обмен на голос она (   Читать дальше...   )Производство: США / Walt Disney Pictures, Lucamar Productions, Marc Platt ProductionsЖанр: фэнтези, мелодрама, мюзиклРежиссер: Роб МаршаллАктеры: Холли Бейли, Джона Хауэр-Кинг, Мелисса Маккарти, Хавьер Бардем, Нома Думезвени, Арт Малик, Давид Диггс, Джейкоб Тремблей, Аквафина, Джессика АлександрПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (2x Forced, 2x Full), английские (Full, SDH), иврит, украинские (Forced, Full)Продолжительность: 02:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F525710514B64E26A215451A58CB15B8A842EA20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590069   (189246) от 12.11.2022
+
+Соник в кино / Sonic the Hedgehog (2020) BDRip [H.265/1080p] [10-bit]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отвязный ярко-синий ёжик Соник из параллельного мира вместе с новообретённым лучшим другом-человеком по имени Том знакомится со сложностями жизни на Земле и противостоит злодейскому доктору Роботнику, который хочет пленить ёжика и использовать его безграничные суперсилы для завоевания мирового господства.Производство: США, Япония, Канада / Blur Studio, Digital Makeup Group, DJ2 Entertainment, Marza Animation PlanetЖанр: боевик, комедия, фантастика, приключения, семейныйРежиссер: Джефф ФаулерАктеры: Джеймс Марсден, Бен Шварц, Наташа Ротуэлл, Тика Самптер, Нил Макдонаф, Адам Палли, Джим Керри, Ли Мадждуб, Том Батлер, Фрэнк Ч. ТёрнерПеревод: ДублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (full, forced), английские (SDH)Продолжительность: 01:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A367150E588FDD1EEA4D5896A3F4A19201D01501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590184   (189241) от 12.11.2022
+
+Соник 2 в кино / Sonic the Hedgehog 2 (2022) BDRip [H.265/1080p] [10-bit]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поселившись в Грин-Хилз, Соник стремится доказать, что у него есть все задатки настоящего героя. И геройское испытание не заставляет себя долго ждать: злодейский доктор Роботник вновь строит козни. На этот раз — с загадочным напарником Наклзом. Вместе они разыскивают бесценный изумруд, в котором заключены силы, способные уничтожать целые цивилизации. Соник объединяется (   Читать дальше...   )Производство: США, Япония / Blur Studio, Marza Animation Planet, Original Film, Paramount Pictures, Sega Sammy GroupЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Джефф ФаулерАктеры: Джеймс Марсден, Джим Керри, Бен Шварц, Тика Самптер, Идрис Эльба, Наташа Ротуэлл, Адам Палли, Шемар Мур, Ли Мадждуб, Коллин О’ШонессиПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские (full, forced), украинские (full, forced), английские (full, forced, SDH)Продолжительность: 02:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B38C7DC49B4A56117F59BD895847409BCB6A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661737   (188461) от 15.09.2023
 
 Русалочка / The Little Mermaid (2023) BDRemux [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188461.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188205.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188085.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_187957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_187957.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187763.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187618.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186531.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186421.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186397.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186376.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186215.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186207.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186203.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185865.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185844.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185841.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185313.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183874.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183597.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183548.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182338.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181432.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180280.jpg" />
 </div>
 
 
@@ -589,86 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960F7AD117C290CEDDF2C71BAD324EE09F507FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535302   (179100) от 29.11.2022
-
-Высший пилотаж / Sky high (2005) WEB-DL [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилл Стронгхолд — типичный подросток из довольно нетипичной семьи. Его родители, Командор Стронгхолд и Джетстрим, — супергерои, причем самые «успешные» и горячо любимые.
-
-А Уиллу, как продолжателю семейного дела, предстоит пойти не в обычный колледж, а в заведение, где из одаренных детей готовят будущих супергероев. Однако есть одна проблема — Уилл абсолютно обычный (   Читать дальше...   )Производство: США  / Gunn Films,  Max Stronghold Productions Inc, Walt Disney PicturesЖанр: фантастика, боевик, комедия, семейныйРежиссер: Майк МитчеллАктеры: Майкл Ангарано, Даниэль Панабэйкер, Мэри Элизабет Уинстед, Курт Расселл, Келли Престон, Стивен Стрэйт, Ди Джей Дэниэлс, Дэйв Фоули, Линда Картер, Кевин Хеффернан, Клорис Личман, Брюс КэмпбеллПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB138FC09264FB184504D8291079449EF12BF810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594247   (178651) от 30.11.2022
-
-Расмус-бродяга / Rasmus pa luffen (1981) BDRip [H.264/720p] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по книге Астрид Линдгрен "Расмус по Люффену". История о приключениях мальчика Расмуса, сбежавшего из приюта, и его друга, странствующего поэта Оскара. Действие происходит в Швеции в начале XX века. Не выдерживая тюремных порядков и придирок управляющей фрекен Хёк, Расмус убегает из приюта и присоединяется к бродяге Оскару-Перекати-поле. Они начинают (   Читать дальше...   )Производство: Швеция, Svensk Filmindustri (SF) ABЖанр: драма, приключения, семейныйРежиссер: Улле ХелльбумАктеры: Аллан Эдвалль, Эрик Линдгрен, Ярл Кулле, Хакан Сернер, Улоф Бергштрём, Рольф Ларссон, Лена Брогрен, Томми Джонсон, Ларс Амбле, Лена НюманПеревод: любительский одноголосый (Вячеслав Прошин)Субтитры: русские, английскиеПродолжительность: 01:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0047CCEBFDD48A4180B768106505DCBAE6099822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667395   (176799) от 08.10.2023
-
-Супербрат / Superbror / SuperBrother (2009) WEB-DL [H.264/1080p] [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что Антону всего лишь десять лет, во многом он уже должен быть старшим. Ведь его старший брат Буллер страдает аутизмом и Антону приходится часто помогать ему. А Антону так бы хотелось иметь озорного и сильного брата, который поможет и ему в отношениях с постоянно задирающими его сверстниками. И однажды желание Антона сбылось. Благодаря вмешательству (   Читать дальше...   )Производство: Дания / Nordisk Film A/SЖанр: фэнтези, драма, приключенияРежиссер: Биргер ЛарсенАктеры: Лукас Один Клориус, Виктор Крузе Пальсхог, Андреа Реймер, Vibeke Ankjær, Janus Nabil Bakrawi, Ханс Хенрик Клеменсен, Тильде Майя Фредериксен, Томас Хван Х. Андерсен, Nicolai Borch Kelstrup, Лоне ЛиндорффПеревод: одноголосый любительский (Хуан Рохас)Язык озвучки: русский, датскийСубтитры: русские (Наталья Рудольф), русские (Nike),, английские, датские, чешские, немецкие, греческие, испанские, французские, хорватские, нидерландские, финские, венгерские, итальянские, норвежские, польские, португальские, румынские, шведскиеПродолжительность: 01:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AC540B0EB18B6B849B6A4E353DC76BDE4F668E
 ```
 
 https://mybot314.ru/tekegram_catalog/

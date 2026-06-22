@@ -1,3 +1,30 @@
+###  Публикация: 1320975   (463275) от 22.08.2019
+
+студия Диафильм | Тайна трех бананов (1972) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести-сказки зарубежных писателей. Чехия.
+Для детей младшего возраста.Жанр: Детская проза, СказкаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4722BB39F77B9FCC5E5F7A4A3BED7073A3FA878C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320972   (463274) от 22.08.2019
 
 студия Диафильм | Тень Каравеллы (1974) [JPG]
@@ -6,7 +33,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463274.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457724.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453464.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453091.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444982.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442402.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440216.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437896.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435820.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433858.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433099.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429710.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429709.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429704.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429603.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428167.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428144.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427407.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427353.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427343.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425358.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425285.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422711.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418759.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417200.jpg" />
 </div>
 
 
@@ -654,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2B8ED9B7A869759FA2B31E21EF9CA97A2A2BE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167453   (417189) от 20.09.2017
-
-Н.Д. Беляков | Мои затеи (1929) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Купил я новую веревку стометровую, крученую, привязал к змею пустил. Думаю: высоко ли поднялся мой змей? Думал, думал и придумал прибор, с помощью которого можно высоту полета узнать.
-Взял я фанерку, начертил на ней циркулем окружность, а через центр по угольнику провел две линии— два диаметра под прямым углом.Жанр: Авиамодельный спорт, самоделкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9D0B6F7D37AE574BE6C7249B68D0B4287854EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

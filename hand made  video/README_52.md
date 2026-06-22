@@ -1,3 +1,32 @@
+###  Публикация: 1292167   (642810) от 31.03.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
+01. Guns N' Roses - You Could Be Mine
+02. Kingdom Come - Should I
+03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E11FCCB50BF5744E9B19CF569E02DD50CEFC06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 800146   (641874) от 28.06.2014
 
 Бросок кобры / G.I. Joe: The Rise of Cobra (2009) BDRip [720p] [hand made 60fps]
@@ -6,7 +35,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641874.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) BDRip [720p] 
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639915.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_639859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639859.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639837.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639046.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638746.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637959.jpg" />
 </div>
 
 
@@ -189,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636976.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636936.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636905.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636860.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634277.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633704.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633590.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633168.jpg" />
 </div>
 
 
@@ -403,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632477.jpg" />
 </div>
 
 
@@ -429,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632397.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630544.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630474.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629336.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628258.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628099.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) BDRip [1080p]
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_627418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_627418.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627352.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627347.jpg" />
 </div>
 
 
@@ -651,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C9ACBC9DBDFE71A7125A6C9A4505FA5FDA7989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802634   (626211) от 06.07.2014
-
-Трон: Наследие / TRON: Legacy (2010) BDRip [1080p] [hand made 60fps]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэм Флинн, технически одарённый 27-летний сын Кевина Флинна, начинает расследовать исчезновение своего отца и оказывается втянутым в тот же мир жестоких программ и гладиаторских игр, в котором его отец жил на протяжении 20 лет. Вместе с помощницей Кевина отец и сын пускаются в рискованное путешествие за жизнью по поражающей взгляд кибер-вселенной, которая стала ещё (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джозеф КосинскиАктеры: Джефф Бриджес, Гаррет Хедлунд, Оливия Уайлд, Брюс Бокслайтнер, Джеймс Фрейн, Бо Гарретт, Майкл Шин, Серинда Свон, Йайа ДаКоста, Элизабет МэтисПеревод: ДублированныйЯзык субтитров: Rus (форс.), Rus (полные), Eng (полные)Продолжительность: 02:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238ED185D8C925202DCC82B83E40FFF89423BE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

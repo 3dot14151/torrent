@@ -1,3 +1,57 @@
+###  Публикация: 1263558   (287110) от 19.11.2018
+
+GSG HDRI Studio  for Cinema4d 2.148 (Обновление от 2018-05-09) [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287110.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDRI Studio Rig - это плагин GSG, разработанный для упрощения и ускорения вашего рабочего процесса Physical and Standard Render. С помощью этого инструмента вы можете просматривать различные настройки освещения, бесшовные фоны и отражения на ваших 3D-моделях.  Это обновление для HDRI Studio Rig делает плагин более быстрым и легким.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E57207497E818E02D72951BC5A1A01735CA8BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337229   (275552) от 09.11.2019
+
+Marvelous Designer 9 Enterprise 5.1.311.44087 Portable by Deodatto [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marvelous Designer - это программа для создания моделей одежды, обеспечивающая реалистичную симуляцию ткани и поддерживающая экспорт и импорт 3D-моделей в большинство популярных форматов.
+Она включает в себя довольно удобные инструменты трехмерного проектирования, с помощью которых можно точно "подгонять" одежду под модели.
+В процессе работы над проектом (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493B7AABA14D848E5019DF7041C725795E02A852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337471   (273537) от 11.11.2019
 
 The Foundry Katana 3.2v2 [En]
@@ -6,7 +60,7 @@ The Foundry Katana 3.2v2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273537.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ The Foundry Mari 4.6v1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273370.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Ashampoo Home Design 5.0.0 Portable by Deodatto [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265203.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ CLO Enterprise 3.2.45 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264341.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Exoside QuadRemesher 1.01 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262811.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ AMS Ландшафтный Дизайн 3D 11.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260906.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260789.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259774.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ Marvelous Designer Enterprise 2025.2.81 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257764.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ AMS Мой Дом 3D 4.15 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256665.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ V-Ray 6.00.03 for SketchUp 2019-2023 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252198.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ SpeedTree Modeler v9.1.1 Cinema Edition Win x64 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234893.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ Terragen Professional 4.5.71 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231414.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Adobe Substance 3D Sampler 3.3.1 Build 1866 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230614.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ Nitro4D NitroCap v1.55 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227164.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ SpeedTree Cinema v8.4.2 + Game Engines UE4/Unity/Indie v8.4.2/Clarisse v8.4.1 [E
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219123.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_215102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215102.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ Adobe Substance 3D Stager 1.2.1 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213330.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ Chaos Vantage 3.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212202.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ ColorCorrect for 3ds Max 1 - 2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211106.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ Gaea 1.3.1.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208781.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207376.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ Bricklink Studio 2.23.7 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207287.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ Agisoft Metashape Professional 1.8.5.14930 (x64) [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207239.jpg" />
 </div>
 
 
@@ -624,59 +678,6 @@ Agisoft Metashape Professional - это передовое программно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EB947D1ACEBCDC7E7347EC936CE386089BD401F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580485   (206836) от 01.10.2022
-
-3DF Zephyr 6.512 + 3DF Scarlet + 3DF Masquerade (x64) [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206836.jpg" />
-</div>
-
-
-###  Подробнее
-
-3DF Zephyr - программное решение для фотограмметрии от 3Dflow для автоматического восстановления 3D-моделей по фотографиям: справьтесь с любой задачей 3D-реконструкции и сканирования.
-3DF Zephyr имеет удобный интерфейс и возможность экспортировать во многие распространенные 3D-форматы или даже создавать видео без потерь без использования внешних инструментов. Кроме (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1A3BF41B4C5579728B8AB0DCDAFD726C039158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623307   (200533) от 01.04.2023
-
-The Foundry Modo 16.1v1 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modo является полным решением для исследования дизайна, создания контента для игр, анимации персонажей и производства качественных рекламных изображений. Созданный для художественных рабочих процессов, Modo позволяет достичь легкого создания цифрового контента и дизайна. Художники и дизайнеры могут свободно исследовать и сосредоточиться на творческих усилиях, которые (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E83967FA937BD3A766BE8C2DFFC35F48C9ED05
 ```
 
 https://mybot314.ru/tekegram_catalog/

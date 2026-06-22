@@ -1,54 +1,25 @@
-###  Публикация: 1326269   (385110) от 20.09.2019
+###  Публикация: 1065660   (416484) от 24.10.2016
 
-Yujiro Mabuchi '68 All Stars - Okizari Ni Shita Kanashimi Wa / Soshun No Minato (1973) [FLAC 2.0|48/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385110.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ai No Banka
- A2 Okizari Ni Shita Kanashimi Wa
- A3 Maruyama Hanamachi Haha No Machi
- A4 Ken To Mary - Ai To Kaze No Yoni(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62046206D8BC624EE55326F6E99665A95C91B372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068002   (384781) от 30.10.2016
-
-В. Полянский - П. Чайковский. Литургия Святого Иоанна Златоуста (1990) [WavPack|96/32|tracks|Vinyl-Rip] <Classical, Vocal, Religious>
+Зоопарк - Позавчера... и вчера - уездный город N (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416484.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-01. Господи помилуй  2:58
-02. Слава Отцу и Сыну и Святому Духу  3:36
-03. Приидите, поклонимся  4:36(   Читать дальше...   )Жанр: Classical, Vocal, ReligiousПродолжительность: 00:52:32
+1. Странные дни  2:54
+2. Если ты хочешь  2:48
+3. Дрянь  4:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F09940735D84F1A49E0FD1EF3951DC9C9BA281A9
+magnet:?xt=urn:btih:5B42223412DC3B121F461FD29E0A8AEBF1ACF7F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 833575   (384428) от 22.10.2014
+###  Публикация: 1066043   (416172) от 24.10.2016
 
-Пикник - Чужестранец (2014)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+The Rolling Stones - Emotional Rescue (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Кем бы ты ни был (4:00)
-A2. Чужестранец (3:54)
-A3. Потерянный (3:57)
-A4. Азбука Морзе (4:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:03
+A1. Dance (4:23)
+A2. Summer Romance (3:15)
+A3. Send It To Me (3:43)
+A4. Let Me Go (3:52)(   Читать дальше...   )Производство: Rolling Stones Records - ESS-81285Жанр: RockПродолжительность: 00:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C17B31487749AA733E92EA929CC704A65804826
+magnet:?xt=urn:btih:3750246EDB63CFBE915CF22E4B28727E61A0E093
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +56,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068063   (384349) от 30.10.2016
+###  Публикация: 1412901   (413465) от 01.10.2020
 
-Кино - Кино (1990) [FLAC 2.0|32/192|image + .cue|Vinyl-Rip] <Rock, Русский Рок>
+T.Rex - Electric Warrior (1971) 2020 [DSD 128|tracks|Vinyl-Rip] <Glam Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mambo Sun (3:39)
+ 02. Cosmic Dancer (4:31)
+ 03. Jeepster (4:11)
+ 04. Monolith (3:50)(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBDC4F8C6D58B0F07C260EC5A5D07E2AC791A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573396   (412209) от 31.08.2022
+
+The Jimi Hendrix Experience - Are You Experienced (1967) 2020 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Psychedelic Rock, Hard Rock, Acid Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Haze
+02. Manic Depression
+03. Hey Joe
+04. Love Or Confusion(   Читать дальше...   )Жанр: Psychedelic Rock, Hard Rock, Acid RockПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1C6A8F35D48D38D4979DA34A98D46591BCED85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066900   (409401) от 27.10.2016
+
+The Beatles - Вкус мёда (1986) WavPack|192/32|tracks|Vinyl-Rip] <Beat, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409401.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-01. Кончится лето
-02. Красно-желтые дни
-03. Нам с тобой(   Читать дальше...   )Жанр: Rock, Русский РокПродолжительность: 00:42:28
+01. P.S. Я люблю тебя - P.S. I Love You  2:02
+02. Хочешь узнать тайну? - Do You Want To Know A Secret?  1:54
+03. Вкус мёда - A Taste Of Honey  2:00(   Читать дальше...   )Жанр: Beat, Rock & RollПродолжительность: 00:35:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58B6824B5AE132B1C5DE346D91FA0155CDD32013
+magnet:?xt=urn:btih:B8016860C410274BB321059A7AAFF06967012F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,86 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574673   (383653) от 06.09.2022
+###  Публикация: 948576   (408054) от 22.10.2015
 
-VA - Folk Rock Collection 1965 - 1975 (2022) Compilation, Unofficial Release [FLAC 2.0|44.1/24|image+.cue|MC-Rip] <Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Byrds - All I Really Want to Do
-Mr. Tambourine Man
-1965 - Columbia - Dylan
-02. The Lovin' Spoonful - Darling Be Home Soon(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358880C8009362C10586FE4DC93E1E5826FA08BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414674   (383165) от 09.10.2020
-
-VA - Рок-панорама-87 (1988) 3LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <New Wave, Avantgarde, Punk>
+Оскар Питерсон и Каунт Бейси - Оскар Питерсон и Каунт Бейси (1982) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Jazz, Swing>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383165.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Г. Рябцев - Найти И Потерять = Find And Lose
-A2 Алиби - Выше Голову = Raise Your Head Higher
-A3 Зодчие - Юла = Whirligig
-A4 Ва-Банк - Максималист = Maximalist(   Читать дальше...   )Жанр: New Wave, Avantgarde, PunkПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB40DB677524F1F1F8DAA0B20AE52A8BAE3F0F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068641   (380449) от 01.11.2016
-
-Владимир Минин - С. Рахманинов - Литургия Святого Иоанна Златоуста, Соч. 31 (1990) [WavPack|96/32|tracks|Vinyl-Rip] <Classical, Vocal, Religious>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408054.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-01. Благослови, душе моя, Господа  4:02
-02. Слава Отцу и Единородный  2:36
-03. Во Царствии твоем  4:52(   Читать дальше...   )Жанр: Classical, Vocal, ReligiousПродолжительность: 00:53:16
+1. Булочки (Buns)  4:28
+2. Эти пустяки напоминают мне о тебе (These Foolish Things)  5:34
+3. RB  5:26(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:48:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACC1CB55A6EA91B7A9FFFE0CE3183EA54990A86B
+magnet:?xt=urn:btih:35BB934EC2AF75F7DBC56404EE85A75F7C9BD876
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,86 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 947960   (379261) от 22.10.2015
+###  Публикация: 866783   (407914) от 06.10.2018
 
-VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ленинград - Меня зовут Шнур
-02. Тела - Шизофрения
-03. Ber-Lin - Даша
-04. Пираньи - Плати(   Читать дальше...   )Жанр: Original SoundtrackПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF1630512B22B5A3B0C4375BBA87CB05F14185F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947860   (378990) от 22.10.2015
-
-VA - Шедевры инструментальной музыки части 1 - 3 (1999) [FLAC 2.0 16/44,1|tracks+.cue (MC-Rip)]<Easy Listening>
+М. Кабалье, К. Бергонци - Джузеппе Верди - Сцены и арии из опер (моно) (1978) [FLAC 1.0 24/192|traks(Vinil-Rip)]<Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. История любви - Поль Мориа
- 02. Одинокий пастух - Джеймс Ласт
- 03. К Элизе - Ричард Клайдерман
- 04. Эммануэль - Фаусто Папетти(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 03:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73A71FB3328BCB5F9E052B853B1ECA49C126D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068882   (378154) от 02.11.2016
-
-Колокольные звоны - The Chimes (1980) [WavPack|96/32|tracks|Vinyl-Rip] <Church bells/Russian Falc>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407914.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сторона 1
-Троице-Сергиева лавра:
-1. Звонница Духовской церкви 05:16
-2. Большая лаврская колокольня 12:04(   Читать дальше...   )Жанр: Church bells/Russian FalcПродолжительность: 00:42:16
+Гарольд
+1. Сцена и ария Мины и сцена Мины и Годвино (2 д.)  12:00
+Альзира(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0B9EE225700663909ADEA543A1933DE4975754B
+magnet:?xt=urn:btih:B3D2ED7E392126831C16D57FF494B94D8616FEC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,29 +201,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 573034   (375650) от 12.11.2012
+###  Публикация: 120478   (407625) от 06.10.2018
 
-Johann Sebastian Bach–Piano concertos: BWV1061,BWV1060,BWV1062 Zoltan Kocsis, Andras Schiff it is digitized from vinyl (1977/1978, Hungaroton /[FLAC|Lossless]<Chamber>
+Freddie Mercury & Montserrat Caballe - Barcelona (1988) VinylRip 24 bit/96 kHz [FLAC]<Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407625.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Side 2
-05 - II.Adagio, attacca
-06 - III.Allegro
-Concerto in C minor BWV1062
-07 - I.Жанр: ChamberПродолжительность: 00:22:16
+Side 1A1.Жанр: Rock, Classical CrossoverПродолжительность: 00:39:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:555FE2D2DDD5ECA2E2A1567AFBA20AFE89DDC569
+magnet:?xt=urn:btih:3C0E6F50AD5D2C963D3827305630B4FF73C53D96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575340   (375376) от 10.09.2022
+###  Публикация: 1326075   (407367) от 18.09.2019
 
-Dan Spătaru/Дан Спатару – Песни Из Кинофильма «Песни Моря» (1971) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack>
+VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Rip] <Pop, Instrumental>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Пой, гитара
-(Т. Попa - Р. Рождественский)
-02. Ты не понимаешь
-(Т. Попa - Р. Рождественский)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:05:35
+01. Shungo Sawada - Koi No Kisetsu
+02. Shungo Sawada - Tenshi No Yuwaku
+03. Shungo Sawada - Koi No Hallelujah
+04. Shungo Sawada - Mona Lisa No Hohoemi(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CD317CEB5BC8B3619D40C2771E4BFFB989D7CDD
+magnet:?xt=urn:btih:A907E39A90C84424D2D2F3DF477F72BC0FF9228E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,25 +256,63 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 948997   (374956) от 24.10.2015
+###  Публикация: 397652   (404404) от 08.10.2011
 
-This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Electronic; Rock>
+Fourplay - Energy (2008) [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R]<Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fortune Teller
+02 - The Whistler
+03 - Ultralight
+04 - Cape Town
+05 - The Yes Club
+06 - Prelude For Lovers
+07 - Look Both Ways
+08 - Argentina
+09 - Comfort Zone
+10 - Sebastian(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DD7A7523C12D3DD88EEAD2D70549F0143649AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169413   (403027) от 27.09.2017
+
+Alice Cooper - Paranormal (2017) 2LP, 45RPM [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kangaroo (3:30)Жанр: Electronic; RockПродолжительность: 00:43:49
+A1. Paranormal (4:10)
+A2. Dead Flies (2:24)
+A3. Fireball (4:49)
+B1. Paranoiac Personality (3:10)(   Читать дальше...   )Производство: Ear Music - 0212198EMUЖанр: RockПродолжительность: 00:41:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6AA6D921F9BA64051DF912A12BAD6695F30985B
+magnet:?xt=urn:btih:3A58D410D05CBE2CF1B8A0E4EF6494B9482A7CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +320,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 949866   (374861) от 24.10.2015
+###  Публикация: 1169724   (401420) от 29.09.2017
 
-The Doors - The Doors (1967) Reissue /1980, Warner Pioneer / [FLAC 2.0 24/96|image (Vinyl-Rip)]<Psychedelic Rock>
+Рома Жуков - Пыль Мечты (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Break On Through (To The Other Side) (2:28)
-A2. Soul Kitchen (3:32)
-A3. The Crystal Ship (2:33)
-A4. Twentieth Century Fox (2:32)(   Читать дальше...   )Производство: Elektra Records / Warner PioneerЖанр: Psychedelic RockПродолжительность: 00:43:58
+01. Пыль мечты (07:22) -Жанр: Pop, DiscoПродолжительность: 00:39:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EE4C3463260518783618A23B2960ECA6298FDE5
+magnet:?xt=urn:btih:39D7C3E023985F76D2240913DBAECCF95754B19D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +346,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176340   (371810) от 21.10.2017
+###  Публикация: 1169430   (401416) от 29.09.2017
 
-Rockets - Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
+ВИА Пламя - 200 лет (1982) [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Radiate (4:44)
-A2. Imagine E.S.P. (5:05)
-A3. Ziga Ziga 999 (4:03)
-A4. Hypnotic Reality (3:51)(   Читать дальше...   )Производство: Rockland Records - RKL 20279Жанр: Space RockПродолжительность: 00:36:32
+01. Вячеслав Малежик - Двести лет
+02. ПЛАМЯ - Гороскоп
+03. ПЛАМЯ - Синяя птицаЖанр: PopПродолжительность: 00:10:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28A04B4CBBA2C61FA374EF435B0324396B7E4409
+magnet:?xt=urn:btih:95712713C652BEE36B456A6A73544FE6606AD37B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,28 +374,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 719412   (371657) от 11.11.2013
+###  Публикация: 713828   (401294) от 21.10.2013
 
-Inside The Music: New Age (2001) [DTS 5.1|44.1/16|wav+.cue|DVD-Audio] <new age>
+Nirvana - Nevermind (1991) [LPCM2.0 96/24, DTS HD MA 2.0 96/24, Dolby TrueHD 2.0 96/24 |Blu-Ray]<Grunge, Alternative Rock>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. "Here Comes The Night" - 3rd Force 06:22
-2. "Bandalero" - Neal Schon 04:53
-3. "Cielo Sin Nubes" - Lara & Reyes 03:55
-4. "Blue Universe" - Craig Chaquico 05:15(   Читать дальше...   )Жанр: new ageПродолжительность: 00:59:16
+01. Smells Like Teen Spirit
+02. In Bloom
+03. Come as You Are
+04. Breed(   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:378118D83235952AF405E6735CB603643CB21189
+magnet:?xt=urn:btih:A65B42EB7BF03A5B6ABEEFC67C6D2010FED8A0B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,57 +403,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 719362   (371489) от 11.11.2013
+###  Публикация: 717382   (392005) от 31.10.2013
 
-Blackfield - Blackfield IV (2004) [DTS 5.1|44.1/16|.wav+.cue (DVD-Audio)] <art rock, pop rock, progressive rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pills
-2. Springtime
-3. X-Ray (featuring Vincent Cavanagh - Anathema)
-4. Sense of Insanity(   Читать дальше...   )Жанр: Art rock, pop rockПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153A677E00E5CB92318C5E7C0D8BB68AE8131FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415819   (371435) от 14.10.2020
-
-Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
+Аленький цветочек - Пьеса по сказке С. Аксакова (1991) [FLAC 1.0 24/48|traks(Vinil-Rip)]<Children's, Story>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Мисс Мелодия = Miss Melodia
-A2 Следи За Своими Шагами = Follow Your Steps
-A3 Время Должно Измениться = Time Must Be Changed
-B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
+Часть 1  (27:10)
+Часть 2  (26:20)
+
+Действующие лица и исполнители:
+Купец - С.Бобров
+Алёнушка - К. Осколкова
+Сёстры - Т. Тихомирова, М. Фонина
+Антон - Ю. Фомичев
+Няня - Е. Руднева
+Баба-Яга - Н. Новлянский(   Читать дальше...   )Жанр: Children's, StoryПродолжительность: 00:53:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
+magnet:?xt=urn:btih:7C3EBEB566ACF8D405EDC9AB8F7D625BB4B35E5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,57 +438,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176194   (371361) от 21.10.2017
+###  Публикация: 717240   (391665) от 31.10.2013
 
-The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <rock, psychedelic rock, blues rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Do You Love (6:25)
-02. Soul Kitchen (3:34)
-03. Hello, I Love You (2:17)
-04. People Are Strange (2:13)(   Читать дальше...   )Жанр: psychedelic rockПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D304A65DACA89C3DB56CFED0732812A6B9963C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254967   (370157) от 15.10.2018
-
-Modern Talking - The 1-st Album (1985) [FLAC 2.0 24/96|Lossless|tracks|Vinyl-Rip] <Electronic, Synth-pop>
+Браво - Bravo (1987) Finland [FLAC 2.0 24/192|Image (Vinyl-Rip)] <Rock'n'Roll, Beat, Rockabilly>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. You're My Heart, You're My Soul (5.36)
-A2. You Can Win If You Want (3.55)
-A3. There's Too Much Blue In Missing You (5.30)
-A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:38
+Группа была основана в 1983 году гитаристом Евгением Хавтаном и ударником Павлом Кузиным, покинувшими группу «Постскриптум» из-за стилевых разногласий. Вокалисткой нового коллектива стала Жанна Агузарова, известная под псевдонимом Иванна Андерс. К группе присоединились саксофонист Александр Степаненко и басист Андрей Конусов. Дебютный концерт «Браво» 18 марта 1984 (   Читать дальше...   )A1.  Кошки (Koshki)  :: 02:50
+A2.  Медицинский Институт (Meditsinskij Institut)  :: 02:36
+A3.  Верю Я (Verju Ja)  :: 03:03
+A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  :: 02:26(   Читать дальше...   )Жанр: Rock'n'Roll, Beat, RockabillyФормат: Vinyl, LP, AlbumПродолжительность: 00:27:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
+magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,28 +467,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328062   (368157) от 28.09.2019
+###  Публикация: 569449   (388996) от 06.11.2012
 
-Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|tracks +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
+Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Alternative Rock, Brit Pop>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kasbah No Onna
-02. Omoide No Koibito
-03. Koyubi No Omoide
-04. Shiritakunai No(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:33:14
+01. Hello 3:21
+02. Roll With It 3:59
+03. Wonderwall 4:18
+04. Don’t Look Back In Anger 4:47
+05. Hey Now! 5:41
+06. Swamp Song #1 0:44
+07. Some Might Say 5:28
+08. Cast No Shadow 4:51
+09. She’s Electric 3:39
+10. Morning Glory 5:03(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:50:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:345B0C02C05BE67D1FDB3FD9EE5CDDBFDF3062D0
+magnet:?xt=urn:btih:6187815C96657727BA20A817577F38B471779E80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +502,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328046   (368012) от 28.09.2019
+###  Публикация: 718427   (387809) от 04.11.2013
 
-Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.0|44,1/16|tracks +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+Genesis - ...Calling All Stations... (1997) Europe/2007 Reissue [FLAC 5.1 24/88,2|Image+cue (SACD-R)]<Progressive Rock, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Watashi No Kare Wa Hidarikiki
-02. Hitorikko Amaekko
-03. Muneippai No Kanashimi
-04. Ai No Kurashi Dosei Jidai(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:43:40
+Calling All Stations - пятнадцатый и последний студийный альбом британской прогрок-группы Genesis, выпущенный 2 сентября 1997 года. Группа лишилась в конце концов и второго в своей истории вокалиста Фила Коллинза, так что на этот раз их осталось двое - Майк Ратерфорд и Энтони Бэнкс. Коллинз был не только прекрасным вокалистом и барабанщиком, но он еще и песни писал (   Читать дальше...   )01.  Calling All Stations  :: 05:45
+02.  Congo  :: 04:52
+03.  Shipwrecked  :: 04:24
+04.  Alien Afternoon  :: 07:53(   Читать дальше...   )Жанр: Progressive Rock, Pop RockФормат: SACD, Album, Hybrid, ReissueПродолжительность: 01:07:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
+magnet:?xt=urn:btih:1A377301DE424163F43ACE17D91F90E45F1E903E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,28 +531,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 950683   (367881) от 27.10.2015
+###  Публикация: 570577   (387342) от 07.11.2012
 
-Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Rock'n'Roll>
+Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acoustic Guitar>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Can Can You Party
-02. Best Of British
-03. Still In Love
-04. Sounds Like Fun(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 01:32:52
+01. Just Like Love
+02. Angel
+03. Youngstown
+04. Old Crow
+05. Dead Man’s Handle
+06. Jennie Mae
+07. Brother Mule
+08. Sunday Best
+09. The Dirt
+10. Lord Franklin(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:64:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
+magnet:?xt=urn:btih:924836D0767049A6BA00D4958ACAB9BFC90AC248
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +566,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327959   (367684) от 28.09.2019
+###  Публикация: 570603   (387222) от 07.11.2012
 
-The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
+Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1. Need Some1 (2:43)
-A2. Light Up The Sky (3:20)
-A3. We Live Forever (3:43)
-B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
+1. Berimbau Jam - 03:34
+2. Sange - 03:34
+3. Okesa Prayer - 06:46
+4. Wataru - 02:47
+5. Maracatú - 05:13
+6. Psychopomp - 03:26
+7. Daraijin - 06:36
+8. Oya y Ogun - 04:17
+9. Echo Bells - 05:22
+10. Kashira - 04:07(   Читать дальше...   )Жанр: World musicПродолжительность: 00:53:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
+magnet:?xt=urn:btih:16F302003D0FA60D914F2D5E554933E8BDFC54D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +601,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328054   (367505) от 28.09.2019
+###  Публикация: 570616   (387218) от 07.11.2012
 
-Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
+Los Angeles Guitar Quartet - LAGQ’s Guitar Heroes (2004) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical, Jazz, Blues, Folk-Rock>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sekai Wa Futari No Tameni
-02. Kitaguni No Aoi Sora
-03. Koi
-04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
+1. Ralph Towner – Icarus - 3:31
+2. Norman Blake & David Bromberg – B & B - 4:18
+3. John McLaughlin – We Know You Know: Reverie For Mahavishnu - 5:02
+4. Jimi Hendrix – Pluck, Strum, And Hammer - 4:15
+5. Pat Metheny – Letter From Home - 3:25
+6. Assad Duo – Uarekena - 8:19
+7. Steve Howe – Aire Para Un Día (Mood For A Day) - 4:13
+8. Django Reinhardt – Gypsy Flower - 5:58
+9. Duane York – Pop - 2:16
+10. Los Romeros – El Baile De Luis Alonso - 3:22(   Читать дальше...   )Жанр: Classical, Jazz, Blues, Folk-RockПродолжительность: 01:00:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
+magnet:?xt=urn:btih:599FB8A3785DF5DF0A7FF4FBD4BAF654A104FFD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,34 +636,166 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 252811   (366279) от 03.11.2010
+###  Публикация: 570584   (387197) от 07.11.2012
 
-Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
+Meat Loaf - Bat Out Of Hell (1977) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Hard Rock, Progressive Rock>
 
 >>HD Audio и Многоканальная Музыка
->>DTS-Audio
+>>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_366279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tsbol
-02. Separation
-03. Paths
-04. Wrong
-05. It's All Coming Back
-06. Pour Te Parler
-07. Trance Shapes
-08. Connections
-09. Release Me
-10. Improvisations Part 1(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:03:52
+1. Bat Out Of Hell
+2. You Took The Words Right Out Of My Mouth (Hot Summer Night)
+3. Heaven Can Wait
+4. All Revved Up With No Place To Go
+5. Two Out Of Three Ain’t Bad
+6. Paradise By The Dashboard Light
+7. For Crying Out Loud
+8. Great Boleros Of Fire (Live Intro)
+9. Bat Out Of Hell (Live)Жанр: Hard Rock, Progressive RockПродолжительность: (2.0 / 5.1): 01:01:29 / 01:01:31
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5F9882744F3AC91240F8CAA9762B6D16AEE5DF1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570626   (387069) от 07.11.2012
+
+Los Angeles Guitar Quartet - Spin (2006) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-R]<Classical, Latin, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn to the Sea 03:41
+02. Hidden Realm of Light 02:21
+03. Spin 07:07
+04. Freaky Dancer 06:30
+05. Quiccan 06:12
+06. Night Furniture – Pillow Pretending 03:09
+07. Night Furniture – Chair with Hands for Feet 01:47
+08. Night Furniture – Shadowed Credenza 02:39
+09. Catwalk 01:50
+10. Did You See the Moon Last Night? 06:00(   Читать дальше...   )Жанр: Classical, Latin, AcousticПродолжительность: 01:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48B53F6E901AA76112535629AA05EC8E27217C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570613   (386908) от 07.11.2012
+
+Los Angeles Guitar Quartet - LAGQ Latin (2002) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-R]<Classical, Latin, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile 03:59
+02. Hasta Alicia Baila 05:09
+03. Fuga Y Misterio 03:52
+04. Forrobodo 06:23
+05. Cuban Landscape With Rain 07:01
+06. La Trampa 05:02
+07. Paisaje Mexicano 03:09
+08. Danza De Jalisco 03:45
+09. Sevillanas 03:13
+10. Syzygy 07:48(   Читать дальше...   )Жанр: Classical, Latin, AcousticПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B31BDBB53DB02025D22045494D8E840C16FD5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570608   (386899) от 07.11.2012
+
+Kodo - One Earth Tour Special (2003) [DSD 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World, Ethnic, Taiko>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_386899.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kiyari [02:07]
+2. O-daiko [09:16]
+3. Yatai-Bayashi [08:59]
+4. Kenbai(interlude) [01:17]
+5. Tomoe [08:41]
+6. Furyu(interlude) [00:19]
+7. Hyoshigi-Kono Mine no [03:38]
+8. Sado e [21:23]
+9. ENCORE:Nami ni Saku Hana-Sado e-Hachijyo-Kiyari [08:26]Жанр: World, Ethnic, TaikoПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C615B989E39B87A286DEE8E3A03EA398E52EB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571724   (386777) от 07.11.2012
+
+Bob Dylan - Limited Edition Catalog Box Set (2003 Remaster) (1963-2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Folk Rock, Blues Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386777.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All I Really Want To Do - 3:13 / 3:13
+2. Love Minus Zero/No Limit - 2:48 / 2:48
+3. Stuck Inside Of Mobile With The Memphis Blues Again - 7:04 / 7:04
+4. Tangled Up In Blue - 5:45 / 5:43(   Читать дальше...   )Жанр: Folk Rock, Blues Rock, Country RockПродолжительность: (2.0 / 5.1): 00:33:17 / 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B87EBF1B71E006B83E95C5A338FF6F1381E5EBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

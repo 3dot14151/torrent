@@ -1,3 +1,29 @@
+###  Публикация: 1816005   (4568) от 03.09.2025
+
+Палестина. Пешие прогулки (2023-2025) WEBRip [AV1/VP9/2160p] [Коллекция, фильмов 71]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы — группа путешественников-одиночек, снимающих видео о пеших прогулках по арабским странам. Если вы живёте за границей и скучаете по родному городу, эти видео оживят приятные воспоминания. Если вы планируете поездку, эти видео могут дать вам уникальный взгляд на город или места, которые вы хотели бы посетить, и, возможно, вдохновят вас на новые открытия. Мы посвятили (   Читать дальше...   )Жанр: видовой, пешие прогулкиПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: отсутствуетПродолжительность: 71х ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B0038274E0E1EC636D48D2B9A82B874061EA5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594037   (4298) от 05.09.2025
 
 Экскурсии по Абхазии (2011) DVDRip [H.264]
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4298.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4023.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2899.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1812.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1775.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_458.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1412904   (1029932) от 21.02.2021
+
+The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|image + .cue] <Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перси Фейт (англ. Percy Faith; 7 апреля 1908 - 9 февраля 1976) — канадский музыкант, композитор, руководитель эстрадного оркестра. Известность ему принесли пышные оркестровые аранжировки популярных песен. Его часто считают создателем "легкой музыки" или "музыки настроения": его оркестр, в отличие от биг-бэндов 1940-50-х гг., опирался на классический (   Читать дальше...   )01.  Theme From A Summer Place (02:45)
+02.  Love Theme From Romeo & Juliet (A Time For Us) (03:08)
+03.  Laras Theme From Dr Zhivago (03:20)
+04.  A Man And A Woman (02:18)(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CA83A0DD93D638AB24FFBE31F160DBE6355CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 19013   (1027979) от 04.03.2021
 
 The Best of Paul Mauriat 10 CD
@@ -6,7 +35,7 @@ The Best of Paul Mauriat 10 CD
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027979.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indi
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026120.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Deep Forest - 15 альбомов (1992-2020) [FLAC|Lossless|image + .cue|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025688.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010005.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006219.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [F
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002263.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <Ne
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001252.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Sacred Spirit (Claus Zundel) 11 альбомов (1994 - 2003) [APE|lossless|ima
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000731.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993423.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989089.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985265.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967578.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966182.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (19
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962057.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961979.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ Ultrasone - S-Logic Demo-CD (2008) [FLAC|Lossless|tracks + .cue] <Audiofile, Tes
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960766.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952810.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ The Cactus Blossoms - The Cactus Blossoms (2011) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948422.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948413.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ The Cactus Blossoms - You're Dreaming (2016) [FLAC|Lossless|tracks + .cue] <Coun
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948224.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944548.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917510.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911723.jpg" />
 </div>
 
 
@@ -687,7 +716,7 @@ Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905075.jpg" />
 </div>
 
 
@@ -716,7 +745,7 @@ Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Co
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881573.jpg" />
 </div>
 
 
@@ -729,35 +758,6 @@ Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF50D3AE2E9596310D3C4599444EEA4C45C8E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999700   (861972) от 23.03.2016
-
-Иеродиакон Герман (Рябцев) - Псалмы Давидовы (2001) 5CD Box Set [FLAC|Lossless|image + .cue] <Песнопение>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псалтирь — это одна из книг Библии. Псалмы являются неотъемлемой частью богослужения в храме и молитвенного правила православных христиан. В псалмах ярко выражены многие чувства и переживания человека: покаяние и смирение, сознание своего недостоинства перед величием Божиим, благодарение за Его великие милости, надежда на милосердие Вседержителя и взывание к Нему (   Читать дальше...   )CD 1
-01. Начало обычное (01:24)
-02. Тропари, глас 6 (01:39)
-03. Господи, помилуй. 40 (00:43)(   Читать дальше...   )Жанр: ПеснопениеПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B654B730D7CA4C8F943253B71D78BA7DE6F5ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

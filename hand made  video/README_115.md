@@ -1,3 +1,29 @@
+###  Публикация: 1705221   (63622) от 08.03.2024
+
+Сестры (2001) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дина и Света ненавидят друг друга, хотя в них течет одна кровь. Вышедший на свободу отец Дины оказывается в тяжёлой ситуации. Бандиты собираются похитить его ребёнка, и он вынужден прятать обеих девочек. Но убежище оказывается ненадёжным, и детям приходится бежать. Столкнувшись с жестокостью жизни, девочки станут настоящими сестрами.Производство: Россия, кинокомпания CTB, РТР-ФильмЖанр: драма, криминалРежиссер: Сергей Бодров мл.Актеры: Оксана Акиньшина, Екатерина Горина, Роман Агеев, Татьяна Колганова, Дмитрий Орлов, Кирилл Пирогов, Александр Баширов, Андрей Краско, Татьяна Ткач, Сергей Бодров мл.Перевод: не требуетсяЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7613EB9610381FA68CD4D38F4B4820F36A05272D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705766   (63533) от 09.03.2024
 
 Другой мир: Восстание ликанов / Underworld: Rise of the Lycans (2009) WEB-DLRip [H.264/1080p-LQ] [Open Matte] [handmade AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63533.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63473.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63448.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63432.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63428.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63426.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63419.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63394.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63380.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63351.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63270.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63242.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63215.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63108.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63094.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63067.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63001.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62999.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62986.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62935.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62903.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62859.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62856.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62823.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62790.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E690BD5743991F327E23A88B852694E00D649D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707335   (62775) от 16.03.2024
-
-Лабиринты / Dedales (2003) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клод, 25-летняя психически больная девушка, обвиняется в серийных убийствах. Для вынесения окончательного приговора судье необходимо получить окончательное свидетельство о невменяемости подсудимой. Чтобы выяснить это, психиатр Карл Фрод погружается в темные лабиринты сознания Клод и проходит весь смертельный путь кровавой бойни в парижском метрополитене, сохранившийся (   Читать дальше...   )Производство: Франция, БельгияЖанр: триллер, драма, криминал, детективРежиссер: Рене МанзорАктеры: Ламбер Вильсон, Сильви Тестю, Фредерик Дифенталь, Мишель Дюшоссуа, Эдуард Монтут, Томер СислеПеревод: Многоголосый профессиональныйЯзык озвучки: русский, немецкий, французскийСубтитры: русский, немецкий, ангглийскийПродолжительность: 01:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7290D186AD513751627BB5D5E297BE35C333C673
 ```
 
 https://mybot314.ru/tekegram_catalog/

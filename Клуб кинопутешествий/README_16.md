@@ -1,3 +1,29 @@
+###  Публикация: 1126004   (767096) от 16.04.2017
+
+Орел и решка. Перезагрузка (2017.04.16) WEB-DLRip (сезон 14: Кито)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D18AEF71A0C998CE4BF546D284475ECCC0585E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125981   (767082) от 16.04.2017
 
 Орел и решка. Перезагрузка (2017.04.16) WEB-DL [H.264/1080p-LQ] (сезон 14: Кито)
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767082.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767075.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767044.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766857.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766565.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764488.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762554.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761098.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760682.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757193.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756969.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755737.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755583.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755494.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755492.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755491.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755490.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755483.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755404.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ NG: Новый Шелковый путь / The Silk Railroad (2018) SATRip (се
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755193.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754088.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753744.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753726.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752764.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752335.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D70088176012DFB86CAD39D7728758363325B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395782   (752279) от 12.07.2020
-
-Города у моря. Как живут в Дакаре / Cities by the Sea (2017) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дакар - столица Сенегала, расположен на побережье Атлантического океана, на полуострове Зелёный мыс. Дакар является самым западным городом Африканского континента..Производство: EU, Albatross, ARTE G.E.I.EЖанр: Документальный, познавательный, путешествияРежиссер: Рольф ЛамбертПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C858A5593FCDCABFB38B9F18F609D9EC1EA3F39
 ```
 
 https://mybot314.ru/tekegram_catalog/

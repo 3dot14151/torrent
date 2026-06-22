@@ -1,3 +1,29 @@
+###  Публикация: 1206678   (765640) от 20.03.2018
+
+History Channel: Охота на Гитлера / Hunting Hitler (2017-2018) HDTVRip [H.264/1080i-LQ] (сезон 3, серии 8 из 8)
+
+>>След.
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765640.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2014 году ФБР рассекретило документы, в которых говорится, что Гитлер, возможно, сбежал в Южную Америку. В сериале рассказывается о расследовании с целью раскрыть тайну исчезновения одного из самых опасных преступников в истории.Жанр: Документальный, История, Реальное ТВПеревод: Двуголосый закадровый, профессиональныйПродолжительность: каждый эпизод ~00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121C6B1A6494876817B2430F3D76EE0B13B1B957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277404   (758332) от 04.02.2019
 
 Шесть королев Генриха VIII / Henry VIII and His Six Wives / The Six Queens of Henry VIII (2016) HDTVRip [H.264/1080p-LQ] (серии 4 из 4)
@@ -6,7 +32,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758332.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip [H.264/720p-LQ] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747936.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ History Channel. Боссы мафии / Kingpin (2018) HDTVRip (1-4 серия 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747834.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747830.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728092.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ History Channel: Жизнь и смерть в Древнем Риме / Life an
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722273.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712609.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712605.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ History Channel: Охота за трансильванским золотом /
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696721.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ History Channel: Проклятие острова Оук / The Curse of Oak Isl
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682844.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ History Channel. Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676868.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ History Channel. Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676753.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670629.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666353.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ History Channel. Древнеегипетская Книга Мертвых / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649201.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ History Channel: Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648469.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ History Channel: Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648361.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644609.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ History Channel.  History: Эволюция. Битва за жизнь /  Evolv
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_643266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643266.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634761.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629146.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ History Channel. Кто на самом деле открыл Америку / W
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628282.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Viasat History: Запретная история / Forbidden History (2013 - 20
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628041.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ History Channel. Бойцовский клуб Юрского периода / J
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614919.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ History Channel. Бойцовский клуб Юрского периода / J
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614829.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ History Channel. Бойцовский клуб Юрского периода / J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF0C09D2F3D76D137A8D89F658A17BA7FD034391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524459   (610939) от 19.07.2012
-
-History Channel: Военная машина Гитлера / Hilter's War Machine (1993-1994) [H.264] DVDRip [4 серий из 4]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный цикл "Вооруженные силы: Военная машина Гитлера" (Weapons At War - Brute Force: Hitler's War Machine ) расскажет о четырех основных подразделениях: подводных лодках, бронетанковых войсках, люфтваффе и элитных частях Вермахта.Жанр: ДокументальныйПеревод: Профессиональный (одноголосый)Продолжительность: 4 х ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57D7D1ED47F0128BC9592F634BBC34B0658B9AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

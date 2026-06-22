@@ -6,7 +6,7 @@ Gemini 1.5.17 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809773.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VMware Fusion Pro 8.1.1 (3771013) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807190.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Image Uploader Lite [WineSkin] 1.3 (4222) [Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806466.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ OnyX 4.0.1 for macOS Big Sur 11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806386.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stellar Drive ToolBox 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805059.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ SmartBackup 4.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803463.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ App Uninstaller 4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803360.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ iBoysoft Drive Manager -For External/Network Drive 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803132.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ CrossOver 17.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801495.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Clone X 4.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800986.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Dropzone 3.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800515.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Wi-Fi Speed Test 2.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800475.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Duplicate Detective 2 v1.0.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800247.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Fresh 4 v4.0.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800243.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Leap 4 v4.0.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800240.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Weather Guru 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800186.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ NTI Dragon Burn 4.5.0.45 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800144.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Mirror for Sony TV 1.4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799594.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ PDF Squeezer 4 v4.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799500.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ QuickRes 4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799486.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ QuickRes 4.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799222.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Cinch 1.2.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799130.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Display Maestro 5 v5.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798764.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ iNet Network Scanner 2.8.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798755.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Battery Health 3 v1.0.28 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798454.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Disk Drill Media Recovery 4.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798421.jpg" />
 </div>
 
 

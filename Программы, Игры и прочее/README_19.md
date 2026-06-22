@@ -1,3 +1,29 @@
+###  Публикация: 1840363   (1047285) от 04.12.2025
+
+Открытки с поздравлениями, gif v1.27.1 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытки и поздравления на все случаи жизни от лидера РУнета - OtkritkiOK.ru. Самый большой каталог красивых открыток с днем рождения, прикольных картинок с поздравлениями, а также стикеры для WhatsApp и ежедневные гифки с добрым утром и спокойной ночи. Более 15 млн. пользователей ежегодно отправляют наши картинки и стикеры (wasticker), порадуйте и вы своих друзей, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 03.12.2025Разработчик: OtkritkiOKПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8007367B31CDA42B2B36E0C9D85892A740870B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840225   (1047172) от 03.12.2025
 
 Horary Chart / Астрология: Хорарная Карта v4.1.4 [Ru/Multi]
@@ -6,7 +32,7 @@ Horary Chart / Астрология: Хорарная Карта v4.1.4 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047172.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Astrological Charts / Астрологические Карты Pro v11.1.10 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047171.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047170.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047169.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047168.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ SD Card Test Pro v2.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046852.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ GPS АнтиРадар v51.2(G) Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046714.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046713.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Grok - ИИ ассистент v1.0.81-release.04 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046709.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Vanced Tube v5.5.80.178 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046707.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ LazyMedia Deluxe v3.417 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046706.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Photo Editor v12.2 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046646.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Photo Editor v12.2 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046645.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046643.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Listen Audiobook Player v5.3.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046604.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ VivaVideo Video Editor v9.32.2 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046595.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Channel - AI Videos and Chat v1.6.1.3174 Mod by kljovyj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046585.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Cozy Timer - Sleep timer v4.0.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046583.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ PhotoRoom v4.1.0 Mod by CXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046249.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Copy Text On Screen v5.0.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046190.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046186.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ MobileSheets Music Viewer v3.6.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045808.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ SUXOV v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045271.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043385.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Bob The Robber 4 v1.44 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043059.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Bob The Robber 4 - очередная глава приключений вори
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49DB3F9BE0537EC1DE9478FAA91E519CE20655EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436598   (1043045) от 01.01.2021
-
-War of Kings: Эпическая Стратегия PvP v69 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043045.jpg" />
-</div>
-
-
-###  Подробнее
-
-War of Kings: Эпическая Стратегия PvP - многопользовательская стратегия в сеттинге средневековья с эпичным геймплеем, качественной графикой и крутым саундтреком.Тип издания: Пиратка (Мод)Релиз состоялся: 27 декабря 2020 г.Разработчик: Falcon Studios.Поддерживаемая ОС: Android 4.4 и вышеЖанр: СтратегияЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33448E2348880EB5F23FA57527ADD794955D098
 ```
 
 https://mybot314.ru/tekegram_catalog/

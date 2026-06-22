@@ -6,7 +6,7 @@
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747050.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738095.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730609.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719623.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714627.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705137.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702994.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702489.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700293.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700287.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700071.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689709.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_682059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682059.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680072.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679566.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670345.jpg" />
 </div>
 
 
@@ -419,6 +419,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340656   (662504) от 24.05.2011
+
+Споттерское видео / Spotting guide in Japan: Takashi Hoshizawa (2007) DVD5
+
+>>Документалистика и Телепередачи
+>>Авиация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео японского споттера Takashi Hoshizawa из японских аэропортов Haneda, Narita, Itami, New Chitose, Shimojishima, Naha, Oka.
+Очень зрелищно показаны особенности японских аэропортов - уходящие в море приводы, морские волны в 50 метрах от ВПП, оригинальные ливреи японских авиакомпаний, вечерние-ночные взлеты и посадки, борт №1 Японии, много дальнемагистральников - A330-340, Б747-767-777, touch'n'go на JAL 777, взлеты и посадки зимой с вихрями снега.Жанр: ВидовойПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 04:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13103B953D87527353236AA9986DF9F15E8BCA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226691   (654613) от 21.05.2018
 
 Чкалов. Мифы и факты (2010) WEBRip [H.264/1080p-LQ]
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654613.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637127.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615863.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615373.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615277.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615166.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606598.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602406.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599789.jpg" />
 </div>
 
 
@@ -647,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB77C3871F135DA55EABF9C7A90124EC3A57DA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908648   (596205) от 03.07.2015
-
-Мессершмитт Bf 109 / The Messerschmitt Bf 109 (1995) DVDRip
-
->>Документалистика и Телепередачи
->>Авиация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596205.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом документальном фильме описывается история создания и боевого применения Мессершмитта Bf-109 - одного из лучших истребителей Второй мировой войны. Фильм создан на материалах уникальной кинохроники из архивов США. Комментарии самых известных переживших войну пилотов из Германии, Великобритании, США.Телекомпания: США, Classic PicturesЖанр: Документальный, авиация, историяПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A327780FFE9233A4B1B9730B02BF3B63C06B8C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 952875   (353667) от 02.11.2015
+
+М.Ю. Реутин | Мистическое богословие Майстера Экхарта (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является первым русскоязычным исследованием творчества великого средневекового мистика и мыслителя Иоанна Экхарта из Хоххайма. Экхартовское богословие рассматривается на широком культурно-историческом фоне. При этом особое внимание уделено сопоставлению доктрины Экхарта с доктриной его современника идеолога византийского исихазма Григория Паламы. В приложении (   Читать дальше...   )Жанр: Философия, богословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4C50C46558B6537CB1D797C241BDE0A583164B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724328   (352968) от 19.11.2013
+
+И.А. Дворецкая, Н.В. Симонова (сост.) | Христианская Церковь в Высокое Средневековье (2011) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие, подготовленное ведущими преподавателями МПГУ И. А. Дворецкой и Н. В. Симоновой, включает фрагменты источников по истории Христианской Церкви в эпоху Высокого Средневековья. Тексты подобраны по тематическому принципу и сопровождаются вступительными очерками об авторах и эпохе, а также научными комментариями.
+
+Пособие может быть использовано при организации (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9722AD91F32644C07C4133617583900E510A585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952891   (351672) от 03.11.2015
+
+Майстер Экхарт | Об отрешенности (2001) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351672.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны основные средневерхненемецкие и латинские трактаты великого мистика Средневековья Майстера Экхарта. В дополнительную часть включены все известные на сегодняшний день материалы к инквизиционному процессу против Экхарта, включая буллу папы Иоанна XXII `In agro Dominico`, а также посмертную апологию Экхарта, написанную его учеником, констанцским (   Читать дальше...   )Жанр: Богословие, философияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14DC586BBCCC2887324CE09D67B96C22C2B0906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952885   (351663) от 03.11.2015
+
+Майстер Экхарт | Духовные проповеди и рассуждения (2013) [FB2, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мейстер Экхарт - знаменитый средневековый немецкий теолог и философ, один из крупнейших христианских мистиков, проповедующий учение о присутствии Бога во всем существующем. Титул "Meister", означающий по-немецки "мастер учитель", указывает на академическое звание магистра теологии.
+По концепции Экхарта, человек способен познать Бога, поскольку (   Читать дальше...   )Жанр: БогословиеФормат: FB2, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61897116B8E471D0DF9BACF102F6BBDCF78654CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418031   (351479) от 23.10.2020
 
 И. Булгакова (сост.) | Духовный цветник оптинских старцев. Избранные наставления (2019) [FB2, EPUB]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351479.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351358.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351357.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350147.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349699.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349434.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349169.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347628.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346961.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346937.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346804.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345961.jpg" />
 </div>
 
 
@@ -320,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345747.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344764.jpg" />
 </div>
 
 
@@ -372,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344708.jpg" />
 </div>
 
 
@@ -398,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344665.jpg" />
 </div>
 
 
@@ -424,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344650.jpg" />
 </div>
 
 
@@ -450,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344648.jpg" />
 </div>
 
 
@@ -476,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344516.jpg" />
 </div>
 
 
@@ -502,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343564.jpg" />
 </div>
 
 
@@ -528,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343055.jpg" />
 </div>
 
 
@@ -556,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343003.jpg" />
 </div>
 
 
@@ -567,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C41278394ED5063769AD8C7F8F3E711008C5D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580741   (342996) от 25.11.2012
-
-Триод Цветная [1648] [PDF] (Раритетное издание)
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Триодь (греч. Triodion), богослужебная книга, содержащая части богослужения с изменяемыми молитвословиями для подвижных дней года (в зависимости от празднования Пасхи, начиная с Недели о мытаре и фарисее и заканчивая Неделей всех святых). Название книги связано с тем, что каноны (вид церковного гимна), содержащиеся в ней, большей частью состоят из трех песней. Триодь Цветная содержит изменяемые части служб от первого дня Пасхи до Недели Всех святых. Электронная копия Триоди Цветной - один из старинных памятников церковно-славянской письменности. Его данные бесценны как для историков языка, так и для историков искусства. Оно отпечатано в Москве 17 марта 1648 года [01.09.7155 - 17.03.7156].Жанр: Раритеты, Духовная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA94CE33BF4C808844218E5A08681B7F4E7E435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580761   (342719) от 25.11.2012
-
-Евангелие учительное [1633] [PDF] (Раритетное издание)
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учительное Евангелие - один из старинных памятников церковно-славянской письменности. Его данные бесценны как для историков языка, так и для историков искусства. Оно отпечатано в Москве 17 марта 1633 года [6.10.7140 - 17.03.7141] и содержит поучения на тексты от недели о мытаре и фарисее, на праздники. Инициалы и буквицы выделены красной краской. Изображения в книге отсутствуют. Учительное Евангелие хорошо известно в научных кругах. К нему обращался искусствовед и сотрудник Отдела рукописей ГБЛ Ю.А. Неволин, который справедливо писал, что рукопись входит в группу книг, созданных в Московском Кремле и близка к таким книгам, как Лицевое Житие Николая Мирликийского и Лицевой сборник.Жанр: Раритеты, Духовная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EEE01F8DA719CCEC9704F413F7C9CA9EF8A8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954465   (341888) от 07.11.2015
-
-Александр Милеант | Что такое Библия? История создания, краткое содержание и толкование Священного Писания (2013) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341888.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге русского зарубежного православного богослова епископа Александра (Милеанта) простым и доступным языком изложена история написания Библии, разъясняется смысл и значение библейских текстов, приводится толкование книг Ветхого и Нового Заветов. Она будет интересна как методично изучающим, так и всем, кто хочет узнать больше о Библии, об эпохе и ее людях.Жанр: Религия, православиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7C4C27B4C9EBE806B6F196063C6E8F5B73C56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330395   (341315) от 10.10.2019
-
-Схиигумен Гавриил (Виноградов-Лакербая) (ред.-сост.) | Краткое правило для благочестивой жизни (2018) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Духовные наставления этой небольшой книги написаны для тех, кто не желает годами топтаться на одном месте, но стремится к деятельной жизни во Христе и к духовно-нравственному самосовершенствованию через ежедневную работу над собой. Эти поучения будут чрезвычайно полезны всем, кто твёрдо намерен следовать путём спасения.Жанр: ПравославиеФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46D76BD97C47FB9421BF58D8BB746B1CB5E20BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

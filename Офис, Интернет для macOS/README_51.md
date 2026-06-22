@@ -1,3 +1,55 @@
+###  Публикация: 1680506   (134360) от 29.11.2023
+
+Nifty File Lists 1.15 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nifty File Lists позволяет сохранять списки файлов в MS Excel, форматах CSV (значения, разделенные запятыми), TSV (значения, разделенные табуляцией) и даже HTML, удобных для работы с числами и страницами.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2023Разработчик: © 2023 Frank ReiffПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D504402E9BA7B92759773689E2D47154573B8D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680440   (134358) от 29.11.2023
+
+WonderPen 2.4.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134358.jpg" />
+</div>
+
+
+###  Подробнее
+
+WonderPen - приложение для как для профессиональных, так и для писателей любителей. WonderPen - простой в использовании текстовый редактор с поддержкой Markdown с поддержкой полноэкранного режима. Документы могут быть экспортированы в качестве Image, PDF, HTML и т.д. WonderPen поддерживает автоматическое сохранение при редактировании, возможность добавления заметок (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2023Разработчик: © 2023 TominLabПоддерживаемая ОС: macOS 10.13.0 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD1E8E6B4817F760C7ED53FB3E10333911E2A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680374   (134309) от 29.11.2023
 
 Librarian Pro 7 v.7.4 [En]
@@ -6,7 +58,7 @@ Librarian Pro 7 v.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134309.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ iCompta 6 v.6.1.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133955.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ CryptoEdit 2 v.2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133919.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Recompress 22.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133901.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ JSON Wizard for Mac 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133856.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Flyingbee PDF to Word for Mac 8.5.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133816.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Balsamiq Mockups For Desktop 4.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133777.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Network Security Scanner for Mac 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133451.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Easy File Organizer for Mac 3.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133425.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ iA Writer 7.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133014.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Initiater 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130373.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Byword 2 v2.9.5 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129981.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Keep It 1.11.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129963.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Alarm Clock Pro 15 v.15.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123087.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Translator App : Linguist 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123076.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ EzyCal: Time & Date 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123073.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Butler 4.4.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123071.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ TransData: Internet Data Speed 3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123066.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ FontLab 8 v.8.3.0.8766.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122369.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ PDF Checkpoint 1.9.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122368.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Chain - Study & Workout Timer 10.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122359.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ PaintCode 3 v.3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122340.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ BatchOutput PDF 3.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122324.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ News Headlines 4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122156.jpg" />
 </div>
 
 
@@ -625,60 +677,6 @@ News Headlines 4.2 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68481B013048FF0287902D7709FF43FF119D87E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692998   (122152) от 18.01.2024
-
-Greeting Card Shop v.4.0.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый быстрый и простой способ создания поздравительных открыток и приглашений.
-Greeting Card Shop поможет вам создать открытки для особых моментов в жизни: приглашения на день рождения, свадьбу или просто выразить симпатию, программное обеспечение позволяет легко сделать именно ту, которую вы хотите.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2018Разработчик: © 2024 Chronos Inc.Поддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05F892940487D809DF7066361FBF29B611EA158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692810   (122148) от 18.01.2024
-
-Wizard 2 for Mac 2.0.16 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wizard — это новый способ анализа данных на вашем Mac. Никакого программирования, никакого набора текста. Просто нажмите и исследуйте.
-Возможно, часть вашей работы связана с работой с данными. Возможно, у вас на работе есть масса данных, но у вас нет времени вникать в них. Возможно, вы тот человек, который читает сенсационный заголовок и хочет знать, что говорят (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2023Разработчик: © 2012-2023 Evan MillerПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCF7F2970CC328296FABEF0EF81C7E28BF51FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

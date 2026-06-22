@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967080.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Magisters | Photoshop для веб-дизайнера (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963113.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961941.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956843.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_956807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956807.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950651.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Pluralsight.com | Основы Cinema 4D Mograph / Cinema 4D Mograph Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943495.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Udemy.com | InDesign CC 2019 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940516.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939448.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lendwings | User Experience: детальное руководство по Юз
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928182.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Side FX, John Lynch | Houdini 16 Ocean Tools (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927066.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Side FX, Omar Zarifi | Houdini 17 Masterclass: Whitewater System (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927046.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Side FX, Andreas Glad | Splashmesh Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927040.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Blender Cloud, Kjartan Tysdal | Low Poly Character Creation (2017) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926806.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926693.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926534.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Udemy, Darrin Lile | Create Game Characters with Blender (2017) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925183.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ CG Cookie, Jonathan Williamson | Low Poly Character Creation in Blender (2011) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925077.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Gumroad, Lu Dongjun | Lava Stone (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923683.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Gumroad, Lu Dongjun | Snow Rock (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923565.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Specialist, Эпов Дмитрий Андреевич | Autodesk 3ds Max 2013 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923430.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ TheNewBoston | Адоб Иллюстратор CS6 для начинающих /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921768.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Udemy | Blender 2.8 Полное руководство от новичка до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921480.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Diskill | Logo Start. Создание логотипов (2021) WEB-DL [AD]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916670.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ lynda.com | CINEMA 4D R17 Essential Training (2016) PCRec [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912906.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 1 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912078.jpg" />
 </div>
 
 

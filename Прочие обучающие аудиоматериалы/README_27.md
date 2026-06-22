@@ -1,3 +1,86 @@
+###  Публикация: 1583556   (228803) от 15.10.2022
+
+Яна Хлюстова | Шнобелевская премия (2021) [MP3, Саша Степанов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятные истории и неординарные открытия, которые сначала вызвали улыбку, а потом уверенно вошли в повседневную жизнь!
+За что присуждают «Шнобелевскую премию»? Создатель премии Марк Абрахамс ответил на этот вопрос так: «Шнобелевская премия – это не о лучшем и не о худшем. Она о тех вещах, которые заставляют сначала посмеяться, а потом – задуматься». И с ним трудно (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 08:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9ABA887B248DC4FE3041D3949DC983DE1359E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649995   (227517) от 30.07.2023
+
+Брюс Голдфарб | Убийство в кукольном доме. Как расследование необъяснимых смертей стало наукой криминалистикой (2022) [MP3, Виктор Попов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительная история Фрэнсис Глесснер Ли — матери современной криминалистики — и увлекательный рассказ о том, как зарождалась судебная медицина.
+
+На протяжении большей части человеческой истории подозрительные смерти практически не расследовались. Убийства в подавляющем большинстве случаев сходили преступникам с рук.
+(   Читать дальше...   )Жанр: биографии и мемуары, истории из жизни, криминалистикаПеревод: Елизавета Пономарева, Ирина МатвееваИздательство: Манн, Иванов и Фербер (МИФ)Продолжительность: 10:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4179741A97B87EA885D55FCF5E5921639B626C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650703   (224852) от 03.08.2023
+
+Патрисия Варгас и др. | Жизнь с роботами (2022) [MP3, Дмитрий Чепусов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие особенности роботов заимствованы у животных и насекомых? Почему у нас возникают чувства к роботам? Какие человеческие способности роботу трудно повторить?
+Рут Айлетт – профессор компьютерных наук Университета Хериота-Уатта. Более 30 лет занимается исследованиями робототехники, специализируется на аффективном и социальном аспекте, программном обеспечении и взаимодействии (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 06:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8421B8FD4E1F6C54A9432044FF0B987D3B3B7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651102   (223042) от 05.08.2023
 
 Внутренний Предиктор СССР | Язык наш — как объективная данность и как культура речи (2013) [MP3, Алекс Варшо]
@@ -6,7 +89,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223042.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222616.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220890.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220203.jpg" />
 </div>
 
 
@@ -110,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216813.jpg" />
 </div>
 
 
@@ -136,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216734.jpg" />
 </div>
 
 
@@ -162,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216281.jpg" />
 </div>
 
 
@@ -189,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216027.jpg" />
 </div>
 
 
@@ -215,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214345.jpg" />
 </div>
 
 
@@ -244,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214175.jpg" />
 </div>
 
 
@@ -271,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213605.jpg" />
 </div>
 
 
@@ -297,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212213.jpg" />
 </div>
 
 
@@ -324,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212088.jpg" />
 </div>
 
 
@@ -351,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211946.jpg" />
 </div>
 
 
@@ -378,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211787.jpg" />
 </div>
 
 
@@ -405,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211702.jpg" />
 </div>
 
 
@@ -431,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211600.jpg" />
 </div>
 
 
@@ -457,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211510.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210828.jpg" />
 </div>
 
 
@@ -512,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210708.jpg" />
 </div>
 
 
@@ -539,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210638.jpg" />
 </div>
 
 
@@ -565,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210598.jpg" />
 </div>
 
 
@@ -591,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210304.jpg" />
 </div>
 
 
@@ -603,84 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33956E10087C8004965437AC21CC9549C36E325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645402   (209390) от 09.07.2023
-
-Бенедикт Спиноза | Этика (2011) [MP3, Игорь Мурашко]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бенедикт Спиноза (1632-1677) - один из величайших философов-рационалистов. Его сочинения составляют эпоху в истории европейской мысли, и их изучение стало необходимым моментом всех учебных курсов по метафизике. Характерной чертой трактатов Спинозы является строгая последовательность мысли и четкая организация текста. Идеи Спинозы, особенно его центрального произведения, (   Читать дальше...   )Жанр: ФилософияИздательство: Нигде не купишПродолжительность: 15:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1142F745C3DC2713FB3FEFCAF854C78B6AA98AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645583   (209323) от 10.07.2023
-
-Джон Бергер | Искусство видеть (2015) [MP3, Владимир Левашев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых обсуждаемых и влиятельных книг об искусстве, когда либо изданных в мире. Она написана по мотивам знаменитого фильма BBC и впервые была опубликована вслед за его премьерным показом в 1972 году. В том же году критик Sunday Times писал: «Бергер не просто открывает нам глаза на то, как мы видим произведения изобразительного искусства, он почти наверняка (   Читать дальше...   )Жанр: изобразительное искусство, история искусства, культурологияПеревод: Eвгения ШрагаЯзык озвучки: русскийИздательство: ВИМБОПродолжительность: 02:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A4CAF0FF6C6446A6FF68085AEA7CACDDAB092E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646677   (208845) от 15.07.2023
-
-Николай Константинович Рерих | Агни-йога (2007) [MP3, Николай Савицкий]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208845.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Агни-йога» [1929] – одна из книг Живой Этики, в которой Николай Константинович Рерих передаёт человечеству учение Великих Мудрецов – тайное мистическое искусство слияния с Высшими Силами, искусство обретения Себя в Сущем и Божественного в Себе. Это уникальный сплав человеческих исканий и духовной мудрости Высших Откровений, синтез мировых религий и эзотерических (   Читать дальше...   )Жанр: йога, эзотерика / оккультизмИздательство: АРДИСПродолжительность: 13:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F5951B8CF5C7C506944F4AC6AA6F0AAE37AFB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 970064   (987310) от 02.01.2016
+
+Концерт в Париже / Evanescence - Anywhere But Home (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anywhere but Home («Куда угодно, только не домой» — англ.) — концертный альбом американской рок-группы Evanescence, записанный на концерте Zenith in Paris в Париже в 2004 году, включающий, помимо записи концерта, бонусный би-сайд-трек «Missing». Выпущен на CD и DVD в 2004 году.01. Haunted (Intro)
+02. Haunted
+03. Going Under
+04. Taking Over Me(   Читать дальше...   )Жанр: Концерт, Alternative rockПродолжительность: 02:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC7CFCC381B4E81FA84CB828635162CD2C97D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610556   (987256) от 01.02.2013
+
+Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rap, Hip-hop, R'n'BПродолжительность: 00:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6455DEE0B3112A84A9D00D44A8E55ECF742226C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970997   (987145) от 02.01.2016
+
+Легенды Ретро FM на РенТВ (2015.12.31) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступление 2016 года в эфире Пятого ознаменует новогоднее супершоу лучшей музыки 70-х, 80-х и 90-х с участием Юрия Антонова, ВИА «Верасы», Сандры, Юрия Шатунова, Игоря Николаева, Рикардо Фольи, E-Type, дуэтов «Оттаван» и Baccara, группы «Технология» и других исполнителей.01. Комбинация - "Бухгалтер", "Вишневая девятка", "Американ бой"
+02. Электроклуб - "Кони в яблоках", "Схожу с ума", "Ты замуж за него не выходи"
+03. Технология - "Полчаса", "Странные танцы", "Нажми на кнопку"
+04. Золотые голоса группы "Мираж" (М. Суханкина, М. Гулькина, (   Читать дальше...   )Телекомпания: РЕНЖанр: КонцертПродолжительность: 03:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EECE4D14492FAE6CF144724BEE517F53AB9446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611234   (987098) от 01.02.2013
 
 Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
@@ -6,7 +90,7 @@ Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987098.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987096.jpg" />
 </div>
 
 
@@ -60,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987089.jpg" />
 </div>
 
 
@@ -86,7 +170,7 @@ Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987009.jpg" />
 </div>
 
 
@@ -112,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986984.jpg" />
 </div>
 
 
@@ -141,7 +225,7 @@ Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986705.jpg" />
 </div>
 
 
@@ -167,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986610.jpg" />
 </div>
 
 
@@ -196,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985875.jpg" />
 </div>
 
 
@@ -225,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985820.jpg" />
 </div>
 
 
@@ -251,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985721.jpg" />
 </div>
 
 
@@ -277,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985686.jpg" />
 </div>
 
 
@@ -305,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985476.jpg" />
 </div>
 
 
@@ -331,7 +415,7 @@ VA - Зимний марафон № 217: Новогодний Хит Парад
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985469.jpg" />
 </div>
 
 
@@ -360,7 +444,7 @@ Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985465.jpg" />
 </div>
 
 
@@ -386,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985399.jpg" />
 </div>
 
 
@@ -415,7 +499,7 @@ System Of A Down - Rock in Rio [1080p] (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985283.jpg" />
 </div>
 
 
@@ -433,6 +517,61 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740936   (984637) от 02.01.2014
+
+Песня года 2013. Часть №1  (2014.01.01) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_984637.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" главный концерт страны! Участвуют все звезды!01 Николай Басков - Но кто сказал тебе
+02 Натали - О боже,какой мужчина
+03 Филипп Киркоров - Любовь пять звезд
+04 Ани Лорак - Зажигай сердце(   Читать дальше...   )Жанр: Концерт, PopПродолжительность: ~ 02:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC23B426C173C26CAB3E4CE6AAE9B7B35F9B0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741064   (984636) от 02.01.2014
+
+Песня года 2013. Часть №2  (2014.01.02) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_984636.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" главный концерт страны! Участвуют все звезды! Каждый раз в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, На любой дороге, в стороне любой Песне ты не скажешь "до свидания", Песня не прощается с тобой…" И этот год - не исключение. На сцене "Олимпийского" (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC839501E2CF76ECDB163D66C7D389667E913A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741183   (984633) от 02.01.2014
 
 Лучшие песни-2013 (2014.01.01) SATRip
@@ -441,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984633.jpg" />
 </div>
 
 
@@ -470,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984597.jpg" />
 </div>
 
 
@@ -497,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984551.jpg" />
 </div>
 
 
@@ -524,7 +663,7 @@ Michael Flatley Riverdance Live From New York (1998) DVDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984507.jpg" />
 </div>
 
 
@@ -542,163 +681,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 740939   (984497) от 02.01.2014
+###  Публикация: 740989   (984502) от 02.01.2014
 
-Легенды Ретро FM (2014) SATRip [эфир от 01.01.2014]
+Золотой граммофон  (2014.01.01) HDTVRip
 
 >>Театр и Музыкальное видео
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_984502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжит новогодний вечер на Пятом незабываемая встреча с легендами 70-х, 80-х и 90-х на концерте "Легенды Ретро FM" - одном из самых масштабных фестивалей популярной музыки в России! Всех, кто соберётся перед экранами своих ТВ, ждут российские и зарубежные суперзвёзды: Ricchi e Poveri, Олег Газманов, Samantha Fox, Алёна Апина, Bad Boys Blue, Самоцветы, (   Читать дальше...   )Производство: Жанр: ТелепередачаПродолжительность: ~ 03:29:57
+«Золотой Граммофон» - самый авторитетный и объективный в нашей стране музыкальный хит-парад. Была учреждённая радиостанцией «Русское радио» и проводится ежегодно с 1996 года. Ведущие церемонии – Иван Ургант и Дмитрий Нагиев. От их шуток не спасется ни одна звезда.Жанр: КонцертПродолжительность: ~ 02:55:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A1498EEAEF156726AF1613F63637087722A5B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970641   (984470) от 04.01.2016
-
-Константин Райкин "Мои любимые стихи" (2003) TVRip (Сатирикон)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный актёр, режиссёр, руководитель театра "Сатирикон" Константин Райкин исполняет стихи своих любимых поэтов - Давида Самойлова, Николая Рубцова, Осипа Мандельштама, Николая Заболоцкого. Программу завершают стихи Александра Сергеевича Пушкина. По мнению Райкина, мало кто из поэтов может прозвучать после Пушкина. Съёмки проходили на сцене, за кулисами (   Читать дальше...   )Производство: Россия, Телеканал "Культура", Российский государственный театр "Сатирикон" им. А. РайкинаЖанр: Моноспектакль, литературное чтение, поэзияРежиссер: Пётр КротенкоАктеры: Константин РайкинПродолжительность: 00:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4F1AE81DCF201C65E04139758F9736A19F8470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971477   (984280) от 04.01.2016
-
-Stromae - Racine Carree Live (2015) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984280.jpg" />
-</div>
-
-
-###  Подробнее
-
-В международной истории, Stromae со своим альбомом Racine Carrée, который разошёлся тиражом более чем 3 млн единиц, представляет вам живой концерт. Это живое видео является уникальным, так как это след этой необыкновенной экскурсии в мир Stromae. Концерт был снят в течение 2 дней сентября, в Centre Bell(Монреаль). Качество снятых кадров является совершенно невероятным, (   Читать дальше...   )01. Introduction	(3:45)
-02. Ta fete (Racine carree)	(4:18)
-03. Batard (Racine carree)	(3:36)
-04. Peace or Violence (Cheese)	(4:43)(   Читать дальше...   )Жанр: Концерт, МузыкаРежиссер: Luc Junior Tam / Gautier & LeducАктеры: StromaeПеревод: ОтсутствуетЯзык субтитров: ENПродолжительность: 01:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0750751F7398C39960AA7146772B820BC504084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612580   (983877) от 03.02.2013
-
-DJ Smash & Семён Слепаков/Откат (2013).HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE78A467A99BFE5B90341158B8335E76EFB4411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354626   (983443) от 26.01.2020
-
-In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983443.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 In This Moment - Beautiful Tragedy (Official Video)
-2007 In This Moment - Prayers (Official Video)
-2008 In This Moment - Forever (Official Video)
-2009 In This Moment - Call Me (Official Video)(   Читать дальше...   )Производство: Atlantic RecordsЖанр: MetalcoreПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04FC5DBB42616289FDE5C7C4E0B508C4A52045E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355337   (983439) от 26.01.2020
-
-Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983439.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 Pet Shop Boys - Leaving (Promotional Video)
-2020 Pet Shop Boys - Monkey business (Official video)
-2020 Pet Shop Boys (feat. Years & Years) - Dreamland (Official lyric video)Жанр: Synthpop, Dance-PopПродолжительность: 00:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF33B513B67039B76F766F99CC9E630CC97647DC
+magnet:?xt=urn:btih:0A1DD563D7DDB33185450B6C4B200DAF7DC06BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

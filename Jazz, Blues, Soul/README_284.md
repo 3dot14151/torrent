@@ -1,3 +1,32 @@
+###  Публикация: 1318419   (494834) от 06.08.2019
+
+Don Byas - Midnight at Minton's (1941) 1999, HighNote [FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust [9:09]
+02. Exactly Like You [9:06]
+03. Uptown [2:48]
+04. Body and Soul [7:34](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EA01116273C2A8B893317FBF47988165FFCE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936678   (494505) от 12.09.2015
 
 Lennie Tristano & Buddy DeFranco - Cool & Quiet (1949) /2015, Universal/ [FLAC|tracks+.cue]<Cool, Bop>
@@ -6,7 +35,7 @@ Lennie Tristano & Buddy DeFranco - Cool & Quiet (1949) /2015, Universal/ [FLAC|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494505.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ John Coltrane - Jupiter Variation (1967) /2015, Universal/[FLAC|tracks+.cue]<Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494462.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Bill Evans - Montreux II (1970) /2013, King Records/[FLAC|tracks+.cue]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494458.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Art Blakey And The Jazz Messengers Big Band - Live At Montreux And Northsea (198
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494457.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Big John Patton - Oh Baby! (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz-Funk,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494455.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Jay Willie Blues Band - Johnny's Juke Joint (2015) [MP3|320 кб/с]<Electric Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494452.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Etta Scollo - Blu: (1999) [MP3|320 Kbps] <Folk, Pop, Jazz >
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494418.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Masayoshi Takanaka - The White Goblin (1997) [FLAC|Lossless|tracks + .cue] <Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494417.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Laidback Jazz (Chill Lounge Vibes) (2015) [MP3|320 кб/с]<Jazz, Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494367.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Warne Marsh & Kenny Drew Trio - I Got A Good One For You (1980) 1999, Storyville
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494231.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Lawrence Lebo - Old School Girl (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494212.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Pop In Jazz (The Greatest Jazz Covers of Pop Hits) (2016) [MP3|320 Kbps] <P
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494201.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Big Boss Band - Love Wins (2018) [MP3|320 Kbps] <Blues, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494125.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Cafe R&B - 4 Albums (1998 - 2012) [FLAC|Lossless|image + .cue|tracks + .cue] <Mo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493972.jpg" />
 </div>
 
 
@@ -403,6 +432,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382181   (493958) от 01.09.2011
+
+Willie Trice - Blue & Rag'd (1995) [MP3|320 kbps]<Guitar, Vocals>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_493958.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Trying To Find My Baby - 4:57
+2. You Have Mistreated Me - 5:13
+3. New Diddey Wah Diddey - 4:42
+4. Troublesome Mind - 3:24
+5. Shine On - 3:57
+6. I Love You, Sweet Baby - 3:41
+7. I've Had Trouble - 4:31
+8. Good Time Boogie - 5:40
+9. New Careless Love Blues - 4:15
+10. Goin' To The Country - 4:38(   Читать дальше...   )1995Жанр: Guitar, VocalsПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B8F5AE3FCF53F9EB085CD03AC0CADB3C26FFE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158308   (493836) от 15.08.2017
 
 Edna McGriff - Start Movin' In My Direction (1954 - 1959) 2012, Bear Family Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -411,7 +475,7 @@ Edna McGriff - Start Movin' In My Direction (1954 - 1959) 2012, Bear Family Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493836.jpg" />
 </div>
 
 
@@ -440,7 +504,7 @@ Harrison Kennedy - This Is From Here (2015) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493823.jpg" />
 </div>
 
 
@@ -469,7 +533,7 @@ VA - The Best of Big Band (2008) [FLAC|Lossless]<Jazz, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493738.jpg" />
 </div>
 
 
@@ -504,7 +568,7 @@ Aynsley Lister - Equilibrium (2009) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493716.jpg" />
 </div>
 
 
@@ -533,7 +597,7 @@ VA - The Smooth Jazz Piano - Ebony & Ivory (2001) 3 CD[FLAC|Lossless]<Piano Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493601.jpg" />
 </div>
 
 
@@ -568,7 +632,7 @@ Max Roach His Chorus And Orchestra - It's Time (1962) 1996, Impulse! [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493348.jpg" />
 </div>
 
 
@@ -597,7 +661,7 @@ Neal Black - 10 Albums (1993 - 2020) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493029.jpg" />
 </div>
 
 
@@ -626,7 +690,7 @@ Pete Candoli & Conte Candoli - Two Brothers (1999) Hindsight Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492920.jpg" />
 </div>
 
 
@@ -655,7 +719,7 @@ Stefano Cantini - L'amico del vento (2005) Egea [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492683.jpg" />
 </div>
 
 
@@ -684,7 +748,7 @@ Hurricane Dave and the Storm Chasers - Blooze Blowdown (2022) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492679.jpg" />
 </div>
 
 
@@ -698,64 +762,6 @@ Hurricane Dave and the Storm Chasers - Blooze Blowdown (2022) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EB6988FBD35CE9C0A52960D7DFB2AF135ED933C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318750   (492618) от 07.08.2019
-
-VA - The 26th Annual Byron Bay Bluesfest (2015) 2CD [MP3|320 Kbps] <Blues, Blues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George Clinton - Atomic Dog
-02. Michael Franti & Spearhead - I’m Alive (Life Sounds Like)
-03. Jimmy Cliff - Guns Of Brixton
-04. Rodrigo Y Gabriela - The Soundmaker(   Читать дальше...   )Жанр: Blues, Blues Rock, RockПродолжительность: 02:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF4C4791EB87200859877F0E5AFC4B4C250DE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318721   (492610) от 07.08.2019
-
-Baba Blues - Glimmer of Gold (2019) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Me Through The Day
-02. St. James Infirmary
-03. Walk On
-04. Gshud(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3AC9AFF82E0CFE2D5E5A1359C59368D8C94DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 506462   (687404) от 06.06.2012
-
-30 seconds to Mars - Rock am Ring 2010 (Comlpete) HDTV [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт группы 30 seconds to Mars 5 июня 2010 года в Германии в рамках фестиваля Rock am Ring.Жанр: Alternative RockПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028869   (686091) от 24.06.2016
 
 Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
@@ -32,7 +6,7 @@ Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686091.jpg" />
 </div>
 
 
@@ -63,7 +37,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684681.jpg" />
 </div>
 
 
@@ -89,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683984.jpg" />
 </div>
 
 
@@ -115,7 +89,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683235.jpg" />
 </div>
 
 
@@ -144,7 +118,7 @@ Within Temptation / Within Temptation - Black Symphony (2008) (1080p) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_680678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680678.jpg" />
 </div>
 
 
@@ -170,7 +144,7 @@ Foreigner - Live at the Rainbow '78 (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680129.jpg" />
 </div>
 
 
@@ -198,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676563.jpg" />
 </div>
 
 
@@ -227,7 +201,7 @@ Rammstein: Paris (2017) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676342.jpg" />
 </div>
 
 
@@ -256,7 +230,7 @@ Rammstein: Paris (2017) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676183.jpg" />
 </div>
 
 
@@ -285,7 +259,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [h.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673915.jpg" />
 </div>
 
 
@@ -312,7 +286,7 @@ Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672117.jpg" />
 </div>
 
 
@@ -338,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668571.jpg" />
 </div>
 
 
@@ -364,7 +338,7 @@ Adam by Eve: Анимационный концерт / Adam by Eve: A live in An
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667719.jpg" />
 </div>
 
 
@@ -390,7 +364,7 @@ Kiss - Rocks Vegas (2016) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666394.jpg" />
 </div>
 
 
@@ -419,7 +393,7 @@ Deep Purple - California Jam (1974/2016) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666315.jpg" />
 </div>
 
 
@@ -445,7 +419,7 @@ David Gilmour - Rattle That Lock (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666309.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666218.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Gipsy Kings / Live at Kenwood House in London (2004) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_664599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_664599.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ ONUKA и НАОНИ (06.04.2017) WEB-DL [H.264/1080p-LQ] [UKR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664095.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662031.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661771.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ Royal Hunt - 2016 (25 Anniversary) (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660000.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ Ken Hensley: Blood On The Highway, Albert Hall (2007) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_658693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658693.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ UK - Curtain Call (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656684.jpg" />
 </div>
 
 
@@ -703,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655763.jpg" />
 </div>
 
 
@@ -714,6 +688,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD18EBE0BA4F3A8C57D003F0DC14C6A7EF750D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140432   (655737) от 06.06.2017
+
+UK - Curtain Call (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовая группа 70-х. Запись сделана на последнем японском туре 8 ноября 2013 года.1. In The Dead Of Night
+     -In The Dead Of Night (Jobson, Wetton)
+      -By The Light Of Day (Jobson, Wetton)
+      -Presto Vivace and Reprise (Jobson, Wetton)(   Читать дальше...   )Производство: Ward RecordsЖанр: Progressive RockПеревод: ОтсутствуетПродолжительность: 01:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F649239CB9356F86A36E5F13B4A534975D94B22B
 ```
 
 https://mybot314.ru/tekegram_catalog/

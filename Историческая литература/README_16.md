@@ -1,3 +1,108 @@
+###  Публикация: 1093498   (933721) от 15.01.2017
+
+Максим Гуреев | Альберт Эйнштейн. Теория всего (2017) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933721.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Альберт Эйнштейн – лауреат Нобелевской премии по физике, автор самого известного физического уравнения, борец за мир и права еврейской нации, философ, скрипач-любитель, поклонник парусного спорта… Его личность, его гений сложно описать с помощью лексических формул – в той же степени, что и создать математический портрет «теории всего», так и не поддавшийся (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8AD67E248C127F6B19E737F849F42A4C63979C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093667   (933481) от 15.01.2017
+
+О. А. Хорошилова | Костюм и мода Российской империи: Эпоха Николая II (2012) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, основанная на архивных документах, дает визуальный портрет эпохи через костюмы и моду. Источники - указы, распоряжения императора и различных министерств, правила ношения мундиров, табели имуществ, обмундирования и т.п., дневники и письма современников, воспоминания свидетелей того времени, журнальная периодика и многое другое. Показано влияние политических (   Читать дальше...   )Жанр: историографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271C81CAC46AD885DA3F7AB21987AD54348B4AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093668   (933476) от 15.01.2017
+
+О. А. Хорошилова | Костюм и мода Российской империи: Эпоха Александра II и Александра III (2015) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая монография Ольги Хорошиловой посвящена костюмам и моде эпохи Александра II и Александра III. Автор изучает, как и во что одевались члены императорской семьи, какими были основные виды форменного костюма, особенности крестьянского и купеческого стиля в одежде, "униформа" городского обслуживающего персонала.
+Большая часть книги посвящена развитию русской (   Читать дальше...   )Жанр: историографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBEAC9B40593812751989B2CB3549B670442321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986070   (932617) от 13.02.2016
+
+Ю. Ларин | Алкоголизм и социализм (1929) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932617.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге освещаются причины существования пьянства и алкоголизма в СССР времен нэпа, рассказывается о мерах Советской власти по борьбе с "зеленым змием" среди рабочих.Жанр: История, политология, медицина, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012D81B05FC224732FC4E153892D51BB32B1F59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986066   (932616) от 13.02.2016
 
 Г. Я. Ясковец | Правда и ложь о рабочем классе (1978) [PDF]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932616.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932535.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932377.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930738.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927898.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927690.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927671.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927663.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927661.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927164.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927150.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927033.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925829.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925822.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924607.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924593.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924586.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924199.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922806.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922617.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922358.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921151.jpg" />
 </div>
 
 
@@ -572,113 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E521EA8A0776354F5CD179674212BF6F2676DFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988537   (920935) от 20.02.2016
-
-Юрий Сушко | Друзья Высоцкого: проверка на преданность (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скульптор Эрнст Неизвестный, актеры Даниель Ольбрыхский и Олег Даль, режиссёр Станислав Говорухин, драматург Эдуард Володарский…
-Эти известные деятели культуры были для Владимира Высоцкого друзьями. В то время значение слова «друг» означало совсем не то, что ныне подразумевается в соцсетях. Друзья Высоцкого были частью его судьбы. Они были его сподвижниками, отражением (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36E7AB29807D01CB79E52C993F89F3E733355C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096315   (920762) от 23.01.2017
-
-Альберто Анджела | Один день в древнем Риме. Повседневная жизнь, тайны и курьезы (2016) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний Рим времен расцвета империи похож на современный мегаполис гораздо больше, чем мы могли бы подумать. Полтора миллиона его жителей сталкивались с теми же проблемами, что и их потомки две тысячи лет спустя: дороговизна жилья и дорожные пробки, наплыв иммигрантов и необходимость «подмазывать» городских чиновников…
-
-Альберто Анджела – знаменитый итальянский палеонтолог, (   Читать дальше...   )Жанр: История, этнография, культурологияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE560B1E94AD482C43ECA6D4D5EF3DC7EE5EB8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971251   (920431) от 20.02.2016
-
-Андрей Фурсов (сост.) | О заговоре / De Conspiratione (2014) [PDF, FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920431.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике анализируются скрытые механизмы мировой истории, политики и экономики, деятельность закрытых (тайных) обществ мирового согласования и управления ("закулисы"), спецслужб и криминальных синдикатов.Жанр: Историография, Политология, КонспирологияФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D219FFEE711C3F7C182B57BCB9B96FB17249F00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096452   (919212) от 24.01.2017
-
-С. С. Хромов (гл.ред.) | Гражданская война и военная интервенция в СССР. Энциклопедия (1983) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919212.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается важный период в истории Советского государства. В это время одновременно с героической борьбой советского народа на фронтах против интервенции и внутренней контрреволюции в условиях разрухи промышленности, транспорта, сельского хозяйства велась напряжённая борьба за хлеб, уголь, металл. Энциклопедия содержит свыше 2700 статей. В ней освещены (   Читать дальше...   )Жанр: ИсториографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED08B3DAF7F88D33A72E378FE1D049383EDF75DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

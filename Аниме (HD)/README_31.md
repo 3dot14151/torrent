@@ -6,7 +6,7 @@ Toaru Kagaku no Accelerator / Некий научный Акселератор [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362654.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362653.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? II / Danmachi II / Мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362652.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_361463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361463.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360452.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cop Craft | Мастерство копа [2019, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360448.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fruits Basket (2019) | Корзинка фруктов [ТВ-2] [2019, TV, 25] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360444.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Musashino! | Мусасино! [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359382.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Yurei Deco | Духи Деко [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356889.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Konoyo no Hate de Koi o Utau Shoujo Yu-No / Yu-No: A Girl Who Chants Love at the
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353803.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Yami Shibai / Театр тьмы [ТВ-7] [2019, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351868.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351765.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Natsume Yuujinchou Roku / Тетрадь дружбы Нацумэ [ТВ-6] [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350667.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349873.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349526.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Shadows House 2nd Season | Дом теней [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345372.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Shoot! Goal to the Future | Удар! Гол в будущее [2022, TV, 13 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343007.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Bucchigire! | Shine On! Bakumatsu Bad Boys! | Сияйте, головорезы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342974.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Teppen!!!!!!!!!!!!!!! | Teppen! Laughing 'til you Cry | Апогей! [2022, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342952.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Arifureta Shokugyou de Sekai Saikyou | Arifureta: From Commonplace to World's St
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342843.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340667.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Hanabi-chan wa Okure-gachi | Hanabi-chan Is Often Late | Ханаби посто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340662.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Extreme Hearts | Экстремальные сердца [2022, TV, 12 эп. + 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338405.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Himouto! Umaru-chan / Dried Fish Sister! Umaru-chan / Моя двуличная 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336565.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336473.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335196.jpg" />
 </div>
 
 

@@ -1,3 +1,134 @@
+###  Публикация: 1263066   (290820) от 17.11.2018
+
+Альфа / Alpha  (2018) BDRemux [H.264/1080p] [EN / EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290820.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 000 лет назад Земля была холодным и неуютным местом, в котором смерть подстерегала человека на каждом шагу, а жизнь зависела от того, удалось загнать добычу или нет. Молодой охотник из племени, которое по уровню жизни и культуры было одним из самых развитых на планете, оказывается один на один с враждебным миром, полным смертельных опасностей. Ему предстоит взглянуть (   Читать дальше...   )Производство: США / Studio 8Жанр: драма, приключения, семейныйРежиссер: Альберт ХьюзАктеры: Коди Смит-МакФи, Йоуханнес Хёйкьюр Йоуханнессон, Марцин Ковальчик, Йенс Хультен, Наташа Мальте, Спенсер Богерт, Мерседес Де Ла Зерда, Леонор Варела, Морган Фриман, Нестор де ла Серда, Патрик ФлэнеганПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английский, Китайский, Французский, Индонезийский, Корейский, Малайский, Испанский, Тайский, ВьетнамскийПродолжительность: 01:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554E1840241F45CADCFE57EC9A0374C0B3EA7D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962654   (290745) от 06.12.2015
+
+Костяной томагавк / Bone Tomahawk  (2015) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой город живёт своими традициями, и здесь редко происходит что-то интересное. Именно сюда приходит грабитель Бадди, только что потерявший напарника: старика убили странные дикари, когда приятели после очередного налёта решили пройти через их территорию.
+В баре он ссорится с шерифом и получает пулю в ногу. Хотя парня, скорее всего, повесят, служитель закона (   Читать дальше...   )Производство: США, Caliber Media Company.Жанр: ужасы, вестернРежиссер: С. Крэйг ЗалерАктеры: Патрик Уилсон, Курт Рассел, Шон Янг, Занн МаКларнон, Лили Симмонс, Мэттью Фокс, Дэвид Аркетт, Ричард Дженкинс, Брэндон Молале, Кэтрин Моррис, Сид Хэйг, Майкл ПареПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F35F7F8073A4F11FB8E97CCE052F1A86FEE2A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185429   (290629) от 22.11.2017
+
+Наёмник / American Assassin (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайный наёмник ЦРУ Митч Рэпп раздавлен потерей невесты в результате теракта. Заместитель директора ЦРУ назначает Стэна Хёрли обучать убитого горем, но серьёзно настроенного Митча для предотвращения террористических операций и охоты на преступников. Вместе они исследуют волну, на первый взгляд, случайных нападений на военные и гражданские объекты. Но позже напарникам (   Читать дальше...   )Производство: США, CBS Films, Lionsgate, Di Bonaventura PicturesЖанр: Боевик, ТриллерРежиссер: Майкл КуэстаАктеры: Дилан О’Брайен, Майкл Китон, Санаа Лэтэн, Шива Негар, Тейлор Китч, Дэвид Суше, Навид Негабан, Скотт Эдкинс, Шарлотта Вега, Кристофер УэбстерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Forced)Продолжительность: 01:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB4398655ABB354E28E98392AB3F53BBB2A3FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185575   (290628) от 22.11.2017
+
+Сделано в Америке / American Made (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был самым юным пилотом Боинга 747 в США, а уже через несколько лет стал одним из богатейших людей в Америке. Его стиль жизни был столь же экстремальным, как и его бизнес. Закрытые приемы, роскошные блондинки, крутые тачки и рисковые сделки. Он обладал талантом делать деньги из воздуха.Производство: США, Universal Pictures, Cross Creek Pictures, Imagine EntertainmentЖанр: Боевик, Биография, КомедияРежиссер: Даг ЛайманАктеры: Том Круз, Донал Глисон, Сара Райт, Джесси Племонс, Калеб Лэндри Джонс, Лола Кёрк, Джейма Мейс, Алехандро Эдда, Бенито Мартинес, Э. Роджер МитчеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Forced)Продолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598311426DD7CFACF2F7F5550E3F647E3EEB8AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263097   (289402) от 18.11.2018
+
+Маленькая Италия / Little Italy  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители Лео, как и родители Никки, приехали в Канаду из Италии и открыли здесь свою пиццерию. Между двумя ресторанами и двумя семьями устанавливается ожесточенная конкуренция. Тем временем между Лео и Никки, вопреки всему, завязывается роман.Производство: Канада, США / Firsttake EntertainmentЖанр: мелодрама, комедияРежиссер: Дональд ПитриАктеры: Хейден Кристенсен, Эмма Робертс, Алисса Милано, Дэнни Айелло, Андреа Мартин, Джейн Сеймур, Гэри Басараба, Адам Феррара, Васант Саранга, Линда Кэш, Амрит КаурПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3A5FC9CC5772D6F7A8E6B06DC1AA81C14A475F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263119   (289399) от 18.11.2018
 
 Мара. Пожиратель снов / Mara  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
@@ -6,7 +137,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289399.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288725.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288281.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288120.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287636.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287626.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287368.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287182.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286960.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286264.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_286112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286112.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285934.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285581.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285324.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285209.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285120.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284443.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) WEB-D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283573.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283488.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283370.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280263.jpg" />
 </div>
 
 
@@ -538,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D8A384EDFE52F6A1D761D07E0BB47D02327FA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264833   (277503) от 25.11.2018
-
-Поиск / Searching  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277503.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летняя дочь Дэвида Кима пропадает без следа, полиция разводит руками. Отчаявшийся отец взламывает компьютер девочки, чтобы понять, что он ничего не знает про дочь...Производство: США, Россия / Screen Gems, Stage 6 Films, Bazelevs ProductionЖанр: триллер, драма, детективРежиссер: Аниш ЧагантиАктеры: Джон Чо, Сара Сон, Алекс Джейн Гоу, Меган Лью, Кайя Доун Лау, Мишель Ла, Джозеф Ли, Доминик Хоффман, Сильвия Минасян, Мелисса Дисней, Коннор Макрэйт, Колин ВуделлПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B026B9D3E2BF6B4873D5E557A648E659F11369C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082588   (277242) от 13.12.2016
-
-Ласточки и амазонки / Swallows and Amazons  (2016) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277242.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о детях-мечтателях, бегущих на парусной шлюпке от скучной домашней жизни. Они разбивают лагерь на диком острове, играют в робинзонов и пиратов, соперничают с экипажем сестер-«амазонок», но главное – узнают ценность дружбы, мужества и ответственности, готовясь к проблемам и угрозам взрослого мира.Производство: ВеликобританияЖанр: семейныйРежиссер: Филиппа ЛоуторпАктеры: Келли Макдоналд, Рейф Сполл, Эндрю Скотт, Джессика Хайнс, Гарри Энфилд, Ричард Бреммер, Джон Хеншоу, Орла Хилл, Тедди-Роуз Маллсон-Аллен, Серен Хоукс, Дэйн Хьюз, Ханна Джейн ТорпПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B178FBD98EAFF84929EE4BA6E2AC2D859348EC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082591   (277126) от 13.12.2016
-
-Ласточки и амазонки / Swallows and Amazons  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277126.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о детях-мечтателях, бегущих на парусной шлюпке от скучной домашней жизни. Они разбивают лагерь на диком острове, играют в робинзонов и пиратов, соперничают с экипажем сестер-«амазонок», но главное – узнают ценность дружбы, мужества и ответственности, готовясь к проблемам и угрозам взрослого мира.Производство: ВеликобританияЖанр: семейныйРежиссер: Филиппа ЛоуторпАктеры: Келли Макдоналд, Рейф Сполл, Эндрю Скотт, Джессика Хайнс, Гарри Энфилд, Ричард Бреммер, Джон Хеншоу, Орла Хилл, Тедди-Роуз Маллсон-Аллен, Серен Хоукс, Дэйн Хьюз, Ханна Джейн ТорпПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF99D02F2683259F541195900B4DE286E170DB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336876   (277048) от 08.11.2019
-
-Она убивала в экстазе / Sie totete in Ekstase / She killed in Ecstasy (1971) BDRemux [H.264/1080p] [GER / EN Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой доктор Джонсон проводил эксперименты с человеческими эмбрионами, за что был осужден и лишен практики комиссией, состоящей из четырех авторитетных коллег — трех мужчин и женщины. Не в силах перенести этот удар судьбы, Джонсон наложил на себя руки. Его безутешная вдова задумала страшную месть: она соблазнила и убила членов той злополучной комиссии одного за (   Читать дальше...   )Производство: Германия (ФРГ), Испания / Tele-Cine Film- und FernsehproduktionЖанр: ужасыРежиссер: Хесус ФранкоАктеры: Соледад Миранда, Фред Уильямс, Пауль Мюллер, Говард Вернон, Ева Стрёмберг, Хорст Тапперт, Бени Кардосо, Хесус Франко, Рудольф Херцог, Карл Хайнц МаннхенПеревод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: Английские (.pgs)Продолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776F5C3547C9A262C1C356F4B8CB716F7B5E7CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187914   (276761) от 30.11.2017
-
-Вечеринка / The Party (2017) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дома у Билла и Джэнет собираются старые друзья — посидеть, выпить вина, поделиться новостями, тем более, что в жизни всех участников встречи происходит что-то интересное. Вечер удался бы на славу, но тут Билл сделал такое заявление, что настроение у всех резко испортилось. Теперь старые друзья уже готовы вцепиться друг другу в глотку, как в переносном, так и во вполне (   Читать дальше...   )Производство: Великобритания, Adventure Pictures, Oxwich MediaЖанр: Комедия, ДрамаРежиссер: Салли ПоттерАктеры: Патришия Кларксон, Бруно Ганц, Черри Джонс, Эмили Мортимер, Киллиан Мёрфи, Кристин Скотт Томас, Тимоти СполлПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F016098BA4B6C7F68574266CAB7C3979D0DA0934
 ```
 
 https://mybot314.ru/tekegram_catalog/

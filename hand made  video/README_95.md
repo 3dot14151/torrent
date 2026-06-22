@@ -1,3 +1,29 @@
+###  Публикация: 1665935   (180531) от 02.10.2023
+
+С широко закрытыми глазами / Eyes Wide Shut (1999) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180531.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам повести Артура Шницлера "Новелла о снах" (1925). Билл и Элис Харфорд - супружеская пара, производящая впечатление счастливых людей, живущих размеренной жизнью в полном достатке. Но за фасадом идеальных отношений скрываются потоки ревности, неудовлетворенности, тайных желаний и жажды чего-то запредельного. Первый шаг делает Элис, рассказывая мужу (   Читать дальше...   )Производство: Великобритания, США, Hobby Films, Stanley Kubrick Productions, Warner Bros.Жанр: триллер, драма, детектив, эротикаРежиссер: Стэнли КубрикАктеры: Том Круз, Николь Кидман, Сидни Поллак, Мария Рихардсон, Раде Шербеджия, Тодд Филд, Винесса Шоу, Скай Дюмон, Фэй Мастерсон, Лили СобескиПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английские, испанские, португальские, румынские, хорватские, польские, чешские, иврит, венгерскиеПродолжительность: 02:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C33F47C36F0626DA0FFF4330E846152028E88C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665903   (180473) от 02.10.2023
 
 Троя / Troy (2004) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Hand made upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180473.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180470.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180413.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180185.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179944.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179748.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179715.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179706.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179249.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178751.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178670.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178661.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178649.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178610.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178600.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178569.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178102.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178095.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177979.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177861.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177846.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177180.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176998.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176614.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176570.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78F495448AE193B44E4F7091553C40B776CD7CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667439   (176544) от 08.10.2023
-
-Хочу в тюрьму (1998) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семён Лямкин, разработчик и конструктор «Запорожца», легко обгоняющего «Мерседесы» и плавающего не хуже моторной лодки, попал в неприятную историю. Когда с его помощью ограбили банк, Семён не стал дожидаться ареста. Сев в «Запорожец», он отправился в тюрьму. Но не российскую, а голландскую, поскольку тюрьмы за границей намного комфортабельнее.Производство: Россия, НТВ-ПрофитЖанр: КомедияРежиссер: Алла СуриковаАктеры: Владимир Ильин, Наталья Гундарева, Алла Клюка, Сергей Баталов, Борис Щербаков, Кира Сурикова, Олег Бочаров, Наталья Коренченко, Егор Акмен, Игорь МигуновСубтитры: отсутствуютПродолжительность: 01:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9489E0FFB69C6D768934267A1094746D756EE76F
 ```
 
 https://mybot314.ru/tekegram_catalog/

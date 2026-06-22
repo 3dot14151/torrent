@@ -6,7 +6,7 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139263.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138553.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137453.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137359.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137314.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137208.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Houseki no Kuni / Land of the Lustrous / Сказания о самоцвета�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137168.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что т
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137155.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137138.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137005.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136029.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124444.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122429.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Chuu Bra!! / Chu-Bra!! / Чу-Бра!! [2010, TV, 12] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86186.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61064.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61025.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54859.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52253.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Danball Senki W | Little Battlers eXperience W | LBX – Битвы малень
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43667.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Inazuma Eleven | Одиннадцать Молний [2008, TV, 127 эп.] WEB-D
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36299.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Gekijouban Inazuma Eleven: Saikyou Gundan Ogre Shuurai | Inazuma Eleven the Movi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34014.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Gekijouban Inazuma Eleven Go vs Danbooru Senki W | Inazuma Eleven GO vs Danball 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33884.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Gekijouban Inazuma Eleven Go: Kyuukyoku no Kizuna Gryphon | Inazuma Eleven GO th
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33883.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Inazuma Eleven: Chou Jigen Dream Match | Одиннадцать молний: М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33854.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Inazuma Eleven GO | Одиннадцать молний: Только вперё
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19386.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Kanchigai no Atelier Meister: Eiyuu Party no Moto Zatsuyou-gakari ga, Jitsu wa S
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1336.jpg" />
 </div>
 
 

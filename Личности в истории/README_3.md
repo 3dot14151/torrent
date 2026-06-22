@@ -1,3 +1,29 @@
+###  Публикация: 1011367   (796965) от 27.04.2016
+
+Жириновский (2016) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионный документальный фильм Игоря Кожевина к 70-летию одного из самых ярких политиков современности позволит зрителю заглянуть за кулисы жизни лидера ЛДПР. Владимир Вольфович сам откроет двери своего дома и кабинета, объяснит, что в обстановке из детства, почему он хранит Библию и требует, чтобы его поручения выполняли бегом. Что скрывается за его эпатажем, (   Читать дальше...   )Телекомпания: Россия, ВГТРКЖанр: ДокументальныйПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0597395E862EC8C23B2B5F617EC678EBD3CB6A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509504   (794819) от 12.11.2021
 
 Стать Уорреном Баффеттом / Becoming Warren Buffett (2017) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794819.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793246.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792862.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792098.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792095.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790907.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ NG. Три вождя / Inside North Korea's Dynasty (2018) WEBRip [H.264/1080p-
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788953.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788600.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787901.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787885.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787884.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787883.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787855.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787473.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787466.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787462.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787461.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787108.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785904.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780240.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779796.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779069.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778347.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776165.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776146.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA3773CB0B4CE9354A0DDE14D8CF8EE7694FE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015089   (775759) от 09.05.2016
-
-Генерал Карбышев. Смерть и жизнь (2005) DVB
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-портрет Героя Советского Союза Дмитрия Карбышева глазами его внуков. Дмитрий Михайлович Карбышев (1880–1945) — военный инженер, генерал-лейтенант инженерных войск, профессор, доктор военных наук, посмертно Герой Советского Союза. Участник 1-й мировой и Гражданской войн, профессор ряда военных академий. Его труды по военно-инженерному искусству и военной истории (   Читать дальше...   )Телекомпания: Россия, ГрандСтоун-МЖанр: Документальный, БиографияРежиссер: Ольга ОльгинаПродолжительность: 00:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714C56416D59815EB6A92708C6F034D43CE0CD8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

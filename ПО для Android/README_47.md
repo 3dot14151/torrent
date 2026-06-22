@@ -1,3 +1,55 @@
+###  Публикация: 1398503   (735618) от 26.07.2020
+
+Фентези – бесплатные книги v3.30 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читайте книги фэнтези легально и бесплатно. Обширная коллекция ярких и удивительных фэнтезийных книг! Благодаря этому приложению библиотека вашей читалки или телефона на андроид совершенно бесплатно пополнится лучшими новинками Генри Лайона Олди в жанре боевого фэнтези и свежими книгами о приключениях волшебников от Ника Перумова и Алексея Пехова. Поклонникам юмористической (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 17.07.2020Разработчик: КучаКниг.РуПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97F2B5AE33A91524A91F15F8F8D6866496858BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398744   (735122) от 27.07.2020
+
+Саморазвитие - бесплатные книги v3.30 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучитесь практической психологии по серии «Менталист» или нетрадиционной медицине с «Другим Норбековым», развейте в себе сверхспособности по методам Валентина Штерны и Юлии Свияш. Читайте онлайн такие новые бестселлеры, как «НЛП-допинг», «Сам себе психолог» и «Популярная психология», а также скачивайте их для своего ридера или телефона на платформе Android! Модные (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 17.07.2020Разработчик: КучаКниг.РуПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CD73B44AAB64CB4EFECE1CB4BC7CEA8E4CB1FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399654   (732915) от 01.08.2020
 
 Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
@@ -6,7 +58,7 @@ Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732915.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Librain v1.1.11 [Ru/Multi] - развитие памяти и внимания (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732863.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Mind Diary Journal / Дневник для самоанализа и самор�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732640.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Lanos (Daewoo/ZAZ/Chevrolet) v1.0.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731744.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731623.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Music Theory Companion v2.6.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730660.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729568.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Bluetooth Scanner v1.2.2 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729567.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Snapseed 2.17.0.150426010 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729362.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ My Android Tools Pro 1.3.7.2  [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729208.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728914.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728802.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ Erectile Dysfunction Cure Yoga v6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728695.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728077.jpg" />
 </div>
 
 
@@ -388,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727622.jpg" />
 </div>
 
 
@@ -414,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727204.jpg" />
 </div>
 
 
@@ -440,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726514.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ RawBT служба печати v5.52.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726505.jpg" />
 </div>
 
 
@@ -497,7 +549,7 @@ iHeart: #1 for Radio, Podcasts v10.12.0 [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726255.jpg" />
 </div>
 
 
@@ -525,7 +577,7 @@ Onkyo HF Player v2.9.1 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726037.jpg" />
 </div>
 
 
@@ -551,7 +603,7 @@ Runtastic PRO GPS Бег и фитнес v6.8.1 [Ru/Multi] - GPS трекер, �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725617.jpg" />
 </div>
 
 
@@ -577,7 +629,7 @@ Terabox: облачное хранилище v2.10.3 Premium MegaMod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723986.jpg" />
 </div>
 
 
@@ -603,7 +655,7 @@ Month: виджет календаря 2.9.16.5.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723828.jpg" />
 </div>
 
 
@@ -630,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723633.jpg" />
 </div>
 
 
@@ -642,58 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:711CE46D82ED90BCB0855E39FEC05902C5629D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993021   (723527) от 05.06.2016
-
-Legs Workout and Exercises v1.3.31 [Ru/Multi] - Комплекс упражнений для ног
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723527.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ТРЕНИРУЙТЕСЬ ГДЕ ХОТИТЕ, КАК ХОТИТЕ И КОГДА ХОТИТЕ!». В спортзале или в парке, с гимнастическим оборудованием или даже без гирь и штанг и т.д.  Теперь вы можете тренировать ноги (бёдра, ягодицы и икры), выбирая тренировочные программы различной длительности и сложности.  Есть ли у вас всего несколько минут или несколько часов, доступен ли вам целый спортзал или только (   Читать дальше...   )Тип издания: Пиратка (Paid features Unlocked)Релиз состоялся: 01.04.2016Разработчик: Passion4Profession AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FE33A51D5D7E4FD2458124067670F3212D0935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993015   (723523) от 05.06.2016
-
-Butt Workout v1.3.31 [Ru/Multi] - Тренировка Ягодиц
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое и эффективное упражнение для повышения упругости ягодиц, не требующее спортивного снаряжения. Можете выполнять это упражнение, когда и где вам это удобно. Идеальное решение для женщин, которые хотят вернуть себе форму перед летним отпуском.  Вы когда-либо думали о том, что тренировки могут из монотонного занятия превратиться в развлечение?  Благодаря этому (   Читать дальше...   )Тип издания: Пиратка (Paid features Unlocked)Релиз состоялся: 01.04.2016Разработчик: Passion4Profession AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5D4C1000F5992D98D6D29B158C12DA12F730BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

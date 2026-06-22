@@ -1,3 +1,107 @@
+###  Публикация: 1288342   (697269) от 10.03.2019
+
+Labyrinths of the World 9: Lost Island / Лабиринты Мира 9: Затерянный остров (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фантастической серии игр Labyrinths of the World. После исчезновения вашего брата в разных уголках света начали происходить катаклизмы. Вы начинаете расследование и вскоре понимаете, что опасный преступник хочет уничтожить жизнь на земле. И ваш брат с ним заодно. Сможете ли вы не дать брату совершить ужасную ошибку - и спасти свой мир?Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06564E15F8ABDC4090D867B84B64813F14E44354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895788   (696988) от 07.05.2015
+
+Dark Dimensions 5: Homecoming / Темные измерения 5: Возвращение домой (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте пятую часть серии "Dark Dimensions"! Ваши родители исследовали явление под названием "Темные Измерения" и много лет назад бесследно пропали. Вы и Коррин выросли, и ваша сестра даже стала полицейским, чтобы раскрыть правду о загадочном исчезновении ваших родителей. Расследование приводит вас в старинный Особняк Бартонов, где родители проводили свои последние исследования. Но когда вы прибыли туда, Сверхъестественные силы похитили Коррин! Теперь именно Вам придется проникнуть внутрь (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Daily Magic ProductionsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079F2E72A6D76A1C8CFF0C00B0BB058F4289CBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133075   (696710) от 11.05.2017
+
+Mystery Trackers 11: Train to Hellswich / Охотники за тайнами 11: Поезд до Хеллсвича (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агент тоже должен отдыхать от расследований, однако преступники не дадут уйти в отпуск. В поезде таинственные фигуры в капюшонах терроризируют пассажиров. Сможет ли агент противостоять им?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51D9287443F49706A3F1E4AECC723AEBAF16688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221115   (696618) от 23.04.2018
+
+Nevertales 7: Creators Spark / Несказки 7: Искра Создателя (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение захватывающей серии игр Nevertales. Десятилетиями исследуя таинственно исчезновение своего отца, Ваша работа наконец-то начинает приносить плоды! Вам удалось найти путь в волшебный мир Taleworld, но вот как убежать из этого мира вместе, это уже другая история. В опасном и незнакомом мире сможете ли Вы одолеть зло, которое намеревается заточить Вас там (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DD7644768834F5C30FC8F82AA9AB3B294485ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221124   (696499) от 23.04.2018
 
 Saga Of The Nine Worlds 2: The Four Stags / Сага о Девяти Мирах 2: Четыре оленя (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Saga Of The Nine Worlds 2: The Four Stags / Сага о Девяти Мирах 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696499.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Cadenza 5: The Eternal Dance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694184.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Noir Chronicles: City of Crime (2018) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694183.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Demon Hunter 4: Riddles of Light (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694180.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Haunted Train 2: Frozen In Time (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693702.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Haunted Hotel 8: Eternity / Проклятый отель 8: Вечность (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_693353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693353.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Grim Facade 8: The Red Cat / За гранью жестокости 8: Крас�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692946.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Worlds Align 2: Deadly Dream / Слияние миров 2: Смертельна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692083.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Ominous Tales. The Forsaken Isle / Зловещие истории. Покину
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691129.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dark Romance 8: Winter Lily (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690388.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Labyrinths of the World 7: A Dangerous Game (2018) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690385.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Mystery Case Files 21: The Harbinger (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690333.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Whispered Secrets 9: Cursed Wealth (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690226.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Grim Tales 14: The Time Traveler (2018) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690223.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dark Tales 12: Edgar Allan Poe's Morella (2017) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_690222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690222.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Lost Lagoon 2: Cursed & Forgotten / Затерянная лагуна 2. Нов�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689473.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Whispered Secrets 13: Tying the Knot (2022) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_688489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688489.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Chimeras 5 Mark of Death / Химеры: Метка смерти (2017) [Ru] (1.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686961.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Queens Quest 4 Sacred Truce Collector's Edition/Королевский Квес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686733.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Wanderlust 2: The City of Mists (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686243.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Mystery Case Files 20: Black Crown / За семью печатями 20: Чёр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686179.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Hidden Expedition 19: The Price of Paradise / Секретная экспеди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686176.jpg" />
 </div>
 
 
@@ -563,116 +667,6 @@ Hidden Expedition 19: The Price of Paradise / Секретная экспеди�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9943163494AB59B3400720B288852DA4D7742AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507313   (685275) от 07.06.2012
-
-Mortimer Beckett And The Secrets Of Spooky Manor / Мортимер Бэккетт и секреты усадьбы с привидениями (P) [Ru] 2008
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мортимер Бэккетт получает письмо от своего дядюшки Джерома, которого не видел уже много лет. Встревоженный дядюшка вкратце пытается рассказать племяннику о беде, произошедшей с его чудо-машиной Призраков. Машина была почти готова, но стартер украден, и теперь запуск Машины на грани срыва. Мортимер отправляется в дом дяди на поиски частей стартера.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский (официальная версия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4792FBD626DEF89D7C8AD0FBE3DD3906FC8D0582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558870   (685265) от 14.06.2014
-
-DeathMan / Кощей Бессмертный (L) [Русский] (2012)
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685265.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тридесятом царстве переполох — сказочный злодей похитил матушку-царицу! Седлайте коня, приготовьте булатный меч и отправляйтесь на выручку вместе с младшим царевичем. Помогите ему до конца пройти путь, полный загадок, мистики и неожиданных открытий!
-
-Захотел Кощей Бессмертный жениться, взял волшебное зеркало и повелел ему показать самую пригожую красавицу земли русской. Показало зеркало на царицу пригожую, и вот она уже томится в замке за тридевять земель. Кто сможет ей помочь?
-
-Прежде чем отправляться в дорогу, необходимо как следует вооружиться и выбрать надежного коня. Затем — пройти долгий путь по лесам да горам, через земли Бабы Яги прямо в логово Кощея. Будьте внимательны и осторожны — злодей хитер и коварен, повсюду у него слуги верные да ловушки хитрые. Только смелый и отважный сможет добраться до цели, разгадать все загадки и обойти все опасности!
-
-Вас ждет удивительный мир русских сказок, в котором каждая деталь кажется знакомой, но предстает в новом свете. Интересные головоломки, увлекательные задания (   Читать дальше...   )Тип издания: LЖанр: Приключения, Квест, Логическая, Поиск предметовЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2504506A8571E84799161E2E147C16677F4B852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289745   (684327) от 17.03.2019
-
-Hiddenverse. The Iron Tower (2018) [En] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой лорд Маркус узурпировал трон королевства и похитил великого механика Леонардо - единственного человека, который мог противостоять новому правителю. Теперь, Сара, дочь Леонардо,хочет спасти своего отца и свергнуть лорда Маркуса. Помогите ей попасть в цитадель и закончить свое царствование.Тип издания: UnofficialРазработчик: Shaman GamesЖанр: Квест, Поиск предметовЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8375F9C5F4E952E4B509E35FC7FA95CB5F18F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289744   (684233) от 17.03.2019
-
-Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks (2018) [En] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоко внизу, на дне моря Лагуна, назревает проблема. Мэр Финн исчез, и теперь Леону и Тео предстоит разобраться с подлыми уловками нового мэра Пибоди самостоятельно. Доброжелательные жители подводного царства снова нуждаются в Вашей помощи. Готовы ли Вы к новым приключениям и многочисленными загадкам? Заработайте сотни достижений, трофеев и бонусов и спасите парк (   Читать дальше...   )Тип издания: UnofficialРазработчик: Playcademy GamesЖанр: Квест, Поиск предметовЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3915BFA57E7928C07DFEB08FCBFB7168DD19742E
 ```
 
 https://mybot314.ru/tekegram_catalog/

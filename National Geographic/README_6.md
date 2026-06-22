@@ -1,3 +1,81 @@
+###  Публикация: 164658   (799432) от 03.04.2017
+
+NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799432.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждой культуры существуют свои традиции и свои правила жизни. Мы знакомимся с самыми странными и порой неприемлемыми для природы человека обрядами и ритуалами, которые являются неотъемлемой частью культуры некоторых народностей на нашей земле. Что заставляет некоторых людей вставлять стальные рыболовные крючки в кожу на спине своего приятеля, чтобы подвесить его (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~30 -00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507056   (798375) от 04.11.2021
+
+NGW: Холодное королевство снежного барса / The Frozen Kingdom of The Snow Leopard (2020) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это рассказ об одной самке снежного барса, которой пришлось родить и воспитывать детенышей в негостеприимной и враждебной долине.Производство: Франция / ZED, Regard Du Vivant, Doclight, CCTV9Жанр: ДокументальныйРежиссер: Фредерик ЛаррейПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22294EE7E4FAA5AEEAFC7F8EAAB73B707023EF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656187   (798359) от 04.11.2021
+
+NG: Самый опасный наркотик / The World`s Most Dangerous Drug (2006) HDTVRip [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798359.jpg" />
+</div>
+
+
+###  Подробнее
+
+У него множество названий: кристалл, лед, тина, и заводка, большинство просто называют его MET – сокращенно от метамфетамин. Он сильнее и дешевле чем кокаин, действие стандартной дозы продолжается от 6 до 12 часов, кроме того его можно изготовить прямо на заднем дворе, если вы умеете готовить шоколадное печенье, то сможете изготовить и метамфетамин. Для изучения (   Читать дальше...   )Жанр: ДокументальныйРежиссер: David MurdockПеревод: Одноголосый профессиональныйПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9794E524ED30C159333E06503B3703A314D90699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385425   (797759) от 24.05.2020
 
 NG. Дикая природа Тайваня: остров джунглей / Wild Taiwan: Jungle Island (2018) WEBRip [H.264/1080p-LQ] [PR]
@@ -6,7 +84,7 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797759.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797473.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797332.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797138.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797132.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797109.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ NG: Дикая природа Новой Зеландии: затерянный 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796549.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796541.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795250.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793855.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793690.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ NG: В Поисках гигантского осьминога / Search for the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793370.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792749.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792713.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792700.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792431.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791776.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791201.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791194.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791193.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791190.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791144.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788783.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:554573D162FF09C76F2650FCB4FF1CD8B3AB67B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511803   (788338) от 22.11.2021
-
-NGW: Львицы: борьба за выживание / Lions: The Hunt For Survival (2021) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Львы - самый страшный, самый культовый хищник в Африке, но лев - это не просто лев. Каждый из них очень отличается от другого. Разные части Африки требуют от львов определенных вещей, чтобы выжить. Секрет в том, чтобы быть очень легко адаптируемым. В конце концов, средства к существованию прайда ложатся на плечи женщины. Она та, кто должен преуспеть. Следуйте за (   Читать дальше...   )Производство: Южная Африка / Earth Touch, National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Бенджамин Г. ХьюеттПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6288A028B895397F4A1D6A7C4DF9DE50CB84F2CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511871   (788313) от 22.11.2021
-
-NG. Аляска: Новое Поколение / Life Below Zero: Next Generation (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом сердце труднодоступной дикой природы Аляски группа дерзких поселенцев ведет жизнь вдали от общества. Играть по собственным правилам нелегко, ведь они борются за выживание в суровом арктическом климате.Производство: США, BBC Studios, National GeographicЖанр: документальный, природа, выживаниеПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 8x ~00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7243AF29E64D5E2A264A677220B5F68AF61655F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276633   (788148) от 16.01.2019
-
-NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда эта великая река сначала замерзает на всем своем гигантском протяжении, а потом сметает все на своем пути в период таяния, дикий животный мир отважно противостоит стихиям и бьется на смерть за право на выживание.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D83E1A639BBEA761B71FDD1EB96CC544516A00
 ```
 
 https://mybot314.ru/tekegram_catalog/

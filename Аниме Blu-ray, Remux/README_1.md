@@ -6,7 +6,7 @@ Hotaru no Haka / Grave of the Fireflies /  Могила светлячков [19
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437980.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422425.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gin no Guardian | The Silver Guardian | Серебряный страж [TV1+TV2
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407853.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Akira | Акира [1988, Movie] Blu-Ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376066.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kumo no Mukou, Yakusoku no Basho / Beyond the Clouds, The Promised Place / За 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319521.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Toki wo Kakeru Shoujo / The Girl Who Leapt Through Time / Девочка, пок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314740.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Kari-gurashi no Arietti / The Secret World of Arrietty / Ариэтти из с�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311950.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ No Game No Life Zero | Нет Игры - Нет Жизни: Начало [2017, 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302749.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] UHD BDRemux HEVC 10-bi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285453.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249987.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249388.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243344.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233407.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRe
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232717.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Inu-Oh | Inu-Ou | Ину-о: Рождение легенды [2022, Movie] BDRem
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232433.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2001,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_230747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230747.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228403.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211229.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Darling in the FranXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208766.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205020.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194353.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Hotaru no Haka | Grave of the Fireflies | Могила светлячков [198
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194340.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189503.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188096.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] Blu-ra
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135138.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Jormungand | Ёрмунганд [ТВ-1] [2012, TV, 12] BDRemux 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105521.jpg" />
 </div>
 
 

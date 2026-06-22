@@ -1,3 +1,29 @@
+###  Публикация: 1221890   (691043) от 26.04.2018
+
+Light Fall (2018) [Ru/Multi] (1.0.0) License CODEX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте затерянный мир Нумбры, чтобы пролить свет на свое таинственное прошлое и спасти эту землю и ее обитателей от нависшей угрозы. В этой стране вечной ночи вы будете полагаться на Сердце Теней, чтобы преодолеть множество испытаний и сокрушить противников, стоящих на вашем пути. Сумеете ли вы выжить в опасной Нумбре?Тип издания: LicenseРазработчик: Bishop GamesЖанр: Adventure, PuzzleЯзык озвучки: Английский, Французский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CB51A8CE75C528A7C7C7644821CCC34E33E69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260585   (685564) от 16.03.2019
 
 Steel Rats (2018) [Ru/Multi] (1.0/upd2/dlc) License CODEX
@@ -6,7 +32,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/upd2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685564.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shio (2017) [Ru/Multi] (1.0.1) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684365.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ On Rusty Trails (2016) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681857.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Hob (2017) [Ru/Multi] (1.17.3.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678691.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Koloro (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656465.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Randall (2017) [En] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654662.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ RC Racing Off Road 2.0 (2016) [En/De] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652965.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Orbital Bullet - The 360° Rogue-lite (2022) [Ru/Multi] (1.0.3) License GOG [Sav
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651903.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Streets of Fury EX (2015) [En] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649933.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ World of One (2017) [Ru/Multi] (1.1.3 B4) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644185.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639041.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ GoNNER (2016) [Ru/Multi] (1.0.16111501) License GOG [BluEBERRY EDiTiON]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636775.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Wonder Boy: The Dragon's Trap (2017) [Multi] (1.02.16) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636673.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ MechaGore (2016) [Ru/Multi] (1.6) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634038.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ MilitAnt (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633815.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ MechaGore (2016) [Ru/Multi] (1.6) SteamRip ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632055.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Ghost 1.0 (2016) [Ru/Multi] (1.0.24) Repack Let's Play
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629811.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Sonic Mania (2017) [Multi] (1.06.0503/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629463.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Rogue Legacy (2013) [Ru/En] (1.0.13) RePack e2e4
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629419.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Valdis Story Abyssal City (2013) [Ru/En] (1.0.0.24) SteamRip Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629130.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ osu! (2007) [Ru/Multi] (b20180510.4) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624053.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ de Blob 2 (2017) [Multi] (0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623267.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Super Meat Boy (2010) [Ru/Multi] Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619396.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Audiosurf 2 (2015) [En] (1.0rls) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617341.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Mahluk: Dark demon (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616792.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Mahluk: Dark demon — увлекательный платформер в мра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB3E234B9BA8301B3A4C79AE71724C8EA96462A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037221   (615073) от 23.07.2016
-
-Full Mojo Rampage (2014) [Ru/En] (1.0.129D) Repack Mizantrop1337
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Full Mojo Rampage - аркада с ролевыми элементами, в которой герой изучает подземелья, уничтожает орды нежити и поклоняется богам, что дарует ему особые способности. Сюжет игры крутится вокруг тайных обрядов черной магии и историях о куклах VooDoo. Вам предстоит уничтожать орды оживших зомби, скитаться по подземельям, выбивать всяческое снаряжение и прокачивать своего (   Читать дальше...   )Тип издания: RepackРазработчик: Over the Top GamesЖанр: Arcade, RPGЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5C508820E37BEBBF7F6D6D108505F54F44E726
 ```
 
 https://mybot314.ru/tekegram_catalog/

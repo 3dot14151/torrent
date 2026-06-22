@@ -1,3 +1,55 @@
+###  Публикация: 953010   (331791) от 12.11.2015
+
+Универ. Новая общага (2015) SATRip (сезон 9, серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>Универ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антон и Кристина переезжают в своё собственное любовное гнёздышко. Вот только оказывается, что свить его не так-то просто, даже если все расходы берёт на себя папа-олигарх Лев Андреевич. Майкл, как ни странно, продолжает встречаться с Варей. Всё бы ничего, но теперь, когда Зуев знает об их отношениях, Майклу приходится общаться с начальником не только по рабочим (   Читать дальше...   )Производство: Россия / "Комеди Клаб Продакшн", Телеканал ТНТЖанр: комедияРежиссер: Константин Смирнов, Максим Зыков, Тимофей Шоталов, Рустам МосафирАктеры: Станислав Ярушин, Арарат Кещян, Александр Стекольников, Настасья Самбурская, Анна Кузина, Анна Хилькевич, Елена Валюшкина, Константин Шелягин, Андрей Лебедев, Сергей Пиоро и др.Продолжительность: ~ 00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FCD63873CAC77ED409517B5D83BF0581F5C9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946283   (330761) от 13.11.2015
+
+Универ. Новая общага (2015) WEB-DLRip [H.264] (сезон 9, серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>Универ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антон и Кристина переезжают в своё собственное любовное гнёздышко. Вот только оказывается, что свить его не так-то просто, даже если все расходы берёт на себя папа-олигарх Лев Андреевич. Майкл, как ни странно, продолжает встречаться с Варей. Всё бы ничего, но теперь, когда Зуев знает об их отношениях, Майклу приходится общаться с начальником не только по рабочим (   Читать дальше...   )Производство: Россия / "Комеди Клаб Продакшн", Телеканал ТНТЖанр: комедияРежиссер: Константин Смирнов, Максим ЗыковАктеры: Арарат Кещян, Станислав Ярушин, Анна Кузина, Настасья Самбурская, Анна Хилькевич, Владимир Фекленко, Елена Валюшкина, Андрей Лебедев, Сергей Пиоро, Роман Куперман, Дмитрий Калистратов, Алексей Шаранин, Дарья Щёголева, Наталья Рудова, Иван Руденко, Анатолий Носов, Дмитрий Кузин, Мария Беляева, Александра Булычева, Галина Глушкова, Александр Стекольников, Анастасия (   Читать дальше...   )Продолжительность: ~ 00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F9FC34B128B006CDB36A0D06150AA052F074BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946279   (330758) от 13.11.2015
 
 Универ. Новая общага (2015) WEB-DLRip [H.264/720p-LQ] (сезон 9, серии 1-20 из 20)
@@ -6,7 +58,7 @@
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330758.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329848.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290497.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268451.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268435.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268432.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267573.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267498.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267485.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266742.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266525.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_252116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252116.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247377.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197240.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155117.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146247.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144220.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143574.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143478.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143473.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143446.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142366.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141846.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Универ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141832.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6DD723E5C50A6E5D4B301DEA3FBAD1DE1735595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073039   (141578) от 29.12.2016
-
-СашаТаня (2016) WEB-DLRip (сезон 3, серии 1-20 из 39 + Новогодняя серия)
-
->>Отечественные сериалы
->>Универ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Производство: Россия / "Comedy Club Production"Жанр: комедияРежиссер: Михаил Старчак, Сергей КазачанскийАктеры: Андрей Гайдулян, Валентина Рубцова, Алексей Климушкин, Елена Бирюкова, Татьяна Орлова, Андрей Лебедев, Ксения Хаирова, Олег Новиков, Сергей Рудзевич, Сергей Мурзин, Андрей Свиридов, Павел Кассинский, Виталий Гогунский, Арарат Кещян, Ёлка, Алексей Гаврилов, Лариса Баранова и др.Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278C124FAB4150FAF1A92B11592BD1F86B54D005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195397   (137753) от 31.12.2017
-
-СашаТаня. Новогодняя серия (2017.12.28) WEB-DL [H.264/720p-LQ]
-
->>Отечественные сериалы
->>Универ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Производство: Россия / "Comedy Club Production", ТНТЖанр: комедияРежиссер: Михаил Старчак, Сергей КазачанскийАктеры: Андрей Гайдулян, Валентина Рубцова, Алексей Климушкин, Елена Бирюкова, Татьяна Орлова, Андрей Лебедев, Ксения Хаирова, Олег Новиков, Сергей Рудзевич, Сергей Мурзин и др.Продолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4FA86C2731C8F96BCBE5CD919694637CB13DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

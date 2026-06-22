@@ -1,3 +1,133 @@
+###  Публикация: 1839871   (1046898) от 01.12.2025
+
+Тролль 2 / Troll 2 (2025) WEB-DL [H.264/1080p] [NO / RU, NO, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046898.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Норвегии вновь неспокойно: в горах Доврефьелль просыпается гигантский тролль, хранитель древних тайн и мифов. Он гораздо агрессивнее и злее своего предшественника, и его цель — нанести разрушительный урон не только близлежащей деревне, но и всей стране. Отважная палеонтолог Нора Тидеманн снова берётся за борьбу с чудовищем. Ей помогают её коллеги — Андреас и офицер (   Читать дальше...   )Производство: Норвегия / Motion Blur FilmsЖанр: фэнтези, боевикРежиссер: Роар УтхаугАктеры: Ине Марие Вильман, Ким Фальк, Мадс Сьёгор Петтерсен, Сара Хорами, Агота Дунаи, Molly Feeley, Каролине Виктория Слеттенг Гарванг, Pål Richard Lunderby, Иштван Алдотт, Карой БакшаиПеревод: СубтитрыЯзык озвучки: НорвежскийСубтитры: Русские, Норвежские (forced, full, SDH), АнглийскиеПродолжительность: 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65D260A4DF2F97968069FE7903627D8962F85AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839885   (1046892) от 01.12.2025
+
+Тролль 2 / Troll 2 (2025) WEB-DL [H.264/1080p] [NO, EN / RU, EN, UKR and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нора, Андреас и капитан Крис снова вступают в борьбу, когда пробуждается новый опасный тролль. В этот раз они не смогут справиться без подмоги.Производство: Норвегия / Motion Blur FilmsЖанр: фэнтези, боевикРежиссер: Роар УтхаугАктеры: Ине Марие Вильман, Ким Фальк, Мадс Сьёгор Петтерсен, Сара Хорами, Агота Дунаи, Molly Feeley, Каролине Виктория Слеттенг Гарванг, Pål Richard Lunderby, Иштван Алдотт, Карой БакшаиПеревод: СубтитрыЯзык озвучки: Норвежский, английскийСубтитры: Русские, английские, украинские и др. (см. MediaInfo)Продолжительность: 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E695DDE4D7493DAD7066EE1944ECD18AEE252C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601986   (1046245) от 03.01.2023
+
+Меню / The Menu (2022) WEB-DL [H.264/1080p] [EN / EN, ES Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая пара отправляется на отдаленный остров, чтобы попасть на ужин к известному шеф-повару.Производство: США / Searchlight Pictures, TSG EntertainmentЖанр: триллер, комедияРежиссер: Марк МайлодАктеры: Рэйф Файнс, Аня Тейлор-Джой, Николас Холт, Хонг Чау, Джанет Мактир, Пол Адельштейн, Джон Легуизамо, Эйми Карреро, Рид Бирни, Джудит ЛайтПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (full, SDH), испанские, французскиеПродолжительность: 01:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A469B835CD001A63D303DA88918A1820095FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604534   (1045287) от 14.01.2023
+
+Пропала собака / Dog Gone (2023) WEBRip [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень и его родители организуют большие поиски, чтобы найти любимого пса и успеть дать ему жизненно необходимое лекарство.Производство: США / Blackjack Films Inc., Story InkЖанр: драма, семейный, биографияРежиссер: Стивен ХерекАктеры: Роб Лоу, Кимберли Уильямс-Пэйсли, Johnny Berchtold, Сьюзэн Галлахер, Содзи Араи, Annabella Didion, Ник Пейн, Мези Этвуд, Брайан Дэвис, Брюс СоскьяПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские, немецкие и др.Продолжительность: 01:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9D02C73C13D15B0845874EC6DBC36236F9DC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609508   (1043212) от 03.02.2023
+
+Инфьесто / Infiesto (2023) WEB-DL [H.264/1080p] [ES / RU, EN, ES Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока коронавирус разрушает их жизни, двое детективов упорно преследуют похитителей ребенка и узнают, что это преступление - лишь часть зловещей картины.Производство: Испания / Vaca FilmsЖанр: триллер, драма, криминалРежиссер: Пачи АмескуаАктеры: Исак Феррис, Ирия дель Рио, Антонио Буиль, Хуан Фернандес, Andrea Barrado, Ана Вилья, Изабель Навейра, Хосе Мануэль Ривера, Исмаэль Фричи, Мария МераПеревод: отсутствуетЯзык озвучки: испанскийСубтитры: русские, английские (full, SDH), испанские (forced, full, SDH)Продолжительность: 01:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED1F4B4F0FCBEAC9FB1387BCCDC3C96F2411DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436793   (1042644) от 02.01.2021
 
 Воздушный бой / Shadow in the Cloud (2020) WEB-DL [H.264/1080p-LQ] [EN]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042644.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038964.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037057.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036810.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035116.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034530.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034497.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033604.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031466.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031057.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029961.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029506.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024843.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022857.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022773.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022756.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022755.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022752.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022746.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022740.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022723.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AD0A42330D14D135EAD4B6AB62776F85BE05B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459776   (1022719) от 04.04.2021
-
-Нектар / Honeydew (2020) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая городская пара Сэм и Райли во время загородной поездки обращается за помощью к местной пожилой селянке по имени Карен. Старушка проживает с очень странным возрастным сыном — тот все время ест и смотрит по телевизору старые мультики. Так как их машина не заводится, а вызванный Карен на подмогу сосед-фермер не торопится, ребята вынуждены остаться в доме на (   Читать дальше...   )Производство: США / Little Sky Film, Rubber Road ProductionsЖанр: ужасыРежиссер: Деверо МилбернАктеры: Сойер Спилберг, Малин Барр, Барбара Кингсли, Стивен Д’АмброузПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C4371ACC22FB856835F546F8A4F4562943982F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459556   (1022703) от 04.04.2021
-
-Минари / Minari (2020) WEB-DL [H.264/1080p-LQ] [KOR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая корейская семья переезжает в американскую глубинку, где отец-мечтатель намеревается в чистом поле возвести сад, построить ферму и наконец-таки стать успешным членом общества. Следом приезжает бабушка, которая почитает традиции, относится ко всему с юмором, но становится незримой поддержкой для молодого семейства, которому предстоит испытать невероятные сложности (   Читать дальше...   )Производство: США / Plan B EntertainmentЖанр: драмаРежиссер: Ли Айзек ЧунАктеры: Стивен Юн, Хан Е-ри, Юн Ё-джон, Алан С. Ким, Ноэль Чо, Уилл Пэттон, Скотт Хэйз, Эрик Старки, Эстер Мун, Дэррил КоксПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: Английские (хардсаб)Продолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A24D70B15E46725A7F2185CF626D48CB6F3895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459574   (1022689) от 04.04.2021
-
-Крошка Шива / Shiva Baby (2020) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцатилетняя еврейка Даниэль вынуждена посещать Шиву вместе со своими религиозными родителями. На траурном мероприятии так же присутствует взрослый любовник Даниэль со своей женой и ребенком и ее бывшая школьная возлюбленная Майя. Родители героини не в курсе о ее бисексуальности, поэтому Даниэль пытается сделать все, чтобы ее секреты не раскрылись.Производство: США, Канада / Neon Heart ProductionsЖанр: комедияРежиссер: Эмма СелигманАктеры: Рэйчел Сеннотт, Молли Гордон, Полли Дрэйпер, Дэнни Деферрари, Фред Меламед, Дианна Агрон, Джеки Хоффман, Сондра Джеймс, Дебора Оффнер, Вивьен ЛандауПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F78D9A4CC8F601908501A85CC015270082BB076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459778   (1022688) от 04.04.2021
-
-Заблудший космический корабль / A Mother of No Destination (2021) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022688.jpg" />
-</div>
-
-
-###  Подробнее
-
-После гибели планеты богатая элита с президентом во главе пытаются утаить причину исчезновения человечества, находясь на космическом корабле. Вся жизнедеятельность и существование поддерживаются за счет обслуживающего квалифицированного персонала, который давно превратился в рабов. Однако отлаженная система жизнедеятельности дает трещину, когда один из сотрудников (   Читать дальше...   )Производство: СШАЖанр: фантастика, триллерРежиссер: Michele PlunkettАктеры: Tommy Fury, William Gannon, Edward Dirgo, Clark Hurlburt, Чарльз Ф. Роузней, Aimee Malasankas, Linda Rivera, Tony Sciarra, Zakariya Narowski, Christina MunizПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3970C4201D23BB8EF7991DB691C0496F435548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349476   (1020391) от 18.04.2021
-
-Вторженцы / Trespassers (2018) BDRip [H.264/720p] (EN / EN Sub) [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две пары снимают современный роскошный дом, чтобы приятно провести выходные. Вскоре после заселения на пороге дома появляется женщина, утверждающая, что у неё сломалась машина. И вот тут начинаются опасные игры со смертельным исходом.Производство: США, 1inMM Productions, The Hallivis BrothersЖанр: ужасы, триллерРежиссер: Орсон ОбловитцАктеры: Анджела Тримбур, Джанел Пэрриш, Джонатан Ховард, Зак Эйвери, Файруза Балк, Карло Рота, Джои Абрил, Себастьян Соцци, Крис Гэнн, Шон В. ЛойзерПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: английские (отключаемые)Продолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F334252FEF5696A7C1172FBAA862E30129671ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

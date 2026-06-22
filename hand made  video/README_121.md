@@ -1,3 +1,29 @@
+###  Публикация: 1722448   (56715) от 13.05.2024
+
+Крепкий орешек / Die Hard (1988) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56715.jpg" />
+</div>
+
+
+###  Подробнее
+
+В суперсовременном небоскребе Лос-Анджелеса полицейский Джон Макклейн ведет смертельную схватку с бандой политических террористов, взявших в заложники два десятка человек, в число которых попадает и его жена. Началось все с того, что парень приехал в город к жене, оказался на рождественском приеме, а кончилось настоящей войной...Производство: США / Twentieth Century Fox, Gordon Company, Silver PicturesЖанр: боевик, триллер, криминал, приключенияРежиссер: Джон МактирнанАктеры: Брюс Уиллис, Алан Рикман, Бонни Беделиа, Реджинальд ВелДжонсон, Пол Глисон, Уильям Этертон, Харт Бокнер, Джеймс Сигэта, Александр Годунов, Роберт ДавиПеревод: Дублированный (Blu-ray CEE), двухголосый (Лазер Видео), многоголосый (Карусель/Супербит)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 02:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B2D4EE2710429B4BBDBC1D011A913A4DB79CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722986   (56705) от 13.05.2024
 
 Обитель зла 3 / Resident Evil: Extinction (2007) BDRip [H.264/1080p-LQ] [handmade AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56705.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56701.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56624.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56605.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56601.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56589.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56578.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56577.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56509.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56495.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56413.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56381.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56165.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56151.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56125.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56077.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56075.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56070.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55978.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55893.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55859.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55857.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55847.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55838.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55768.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:442C5727050A17391679475BC907D889786B6FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725044   (55735) от 22.05.2024
-
-Кунг Фьюри / Kung Fury (2015) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майами, 1985 год. В городе появляется самый опасный преступник всех времен - Адольф Гитлер по прозвищу Кунг Фюрер. Суперкоп Кунг Фьюри решает совершить путешествие во времени в нацистскую Германию, чтобы убить Гитлера и положить конец нацистской империи.Производство: Швеция / Algoryx Simulation, Lampray, Laser Unicorns, Polyphony DigitalЖанр: короткометражка, фантастика, фэнтези, боевик, комедияРежиссер: Дэвид СандбергАктеры: Дэвид Сандберг, Йорма Такконе, Стивен Чю, Леопольд Нильссон, Андреас Калинг, Пер-Хенрик Арвидиус, Эрик Хёрнквист, Фрэнк Сэндерсон, Элени Янг, Хелен АлсонПеревод: Многоголосый профессиональный (Jaskier), Многоголосый профессиональный (Петр "Гланц" Иващенко, Александр Дасевич и др.), Многоголосый профессиональный (OMSKBIRD records), Одноголосый авторский (Дмитрий "Гоблин" Пучков), Одноголосый авторский (Леонид Володарский)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 00:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B224407A5783F57935C604ACE55AFD62D92503AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

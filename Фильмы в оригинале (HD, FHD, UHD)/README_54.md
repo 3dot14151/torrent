@@ -1,3 +1,133 @@
+###  Публикация: 1831768   (212211) от 29.10.2025
+
+Баллада о маленьком игроке / Ballad of a Small Player (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лорд Дойл затаился в Макао, проводя дни и ночи в казино, пьянствуя и играя на те немногие деньги, что у него остались. Пытаясь расплатиться с быстро растущими долгами, он получает спасение от таинственной Дао Мин, сотрудницы казино, хранящей свои тайны. Однако за ним по пятам следует Синтия Блайт — частный детектив, готовая напомнить Дойлу от чего он бежит. Пока (   Читать дальше...   )Производство: Германия, Великобритания / Good Chaos, Nine Hours, Stigma FilmsЖанр: триллер, драма, криминал, детективРежиссер: Эдвард БергерАктеры: Колин Фаррелл, Chik-Ka Lai, Alan Chang, Маргарет Чунг, Джейсон Тобин, Тильда Суинтон, Чэнь Фала, Динни Ип, Selena Fong, Christina YongПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EAF774762F51C2708F47C4081050B93C06EAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585451   (211709) от 22.10.2022
+
+Стримеры / Slayers (2022) WEB-DL [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приехав в особняк затворника-миллиардера, группа интернет-знаменитостей оказывается в логове злого вампира. Спасти их могут только известный онлайн-игрок и охотник на вампиров.Производство: США / BondIt Media Capital, Buffalo 8 Productions, Fasehun FilmsЖанр: ужасы, фэнтези, комедияРежиссер: К. Эшер ЛевинАктеры: Томас Джейн, Кара Хэйуорд, Джек Доннелли, Лидия Хёрст, Малин Акерман, Эбигейл Бреслин, Эшли Рейс, Райли Дель Рей, Сойер Шарбино, Адам АмбрусоПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A86A9A6D0D797B47D1D38F7E3C3775942598FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585448   (211694) от 22.10.2022
+
+З/Л/О 99 / V/H/S/99 (2022) WEB-DL [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211694.jpg" />
+</div>
+
+
+###  Подробнее
+
+На видеокассете, куда подросток записывал свои игры в солдатики, обнаруживаются свидетельства других ужасающих событий. Музыкальная группа залезает в подвал, где несколько лет назад погибли другие музыканты; студентка, очень желающая вписаться в сообщество популярных девчонок, соглашается провести ночь в гробу; на детском телешоу происходит несчастный случай; компания (   Читать дальше...   )Производство: США / Cook Filmworks, Winterspectre EntertainmentЖанр: ужасыРежиссер: Flying Lotus, Мэгги Левин, Тайлер МакИнтайрАктеры: Джесси ЛаТуретт, Кеануш Тафреши, Дэшил Дерриксон, Джексон Келли, Тайби Дискин, Верона Блу, Aminah Nieves, Келли Миссал, Мелисса Маседо, Элли ИоаннидесПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC382CC796948F51418555314185D125209C6F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585456   (211689) от 22.10.2022
+
+Ужасающий 2 / Terrifier 2 (2022) WEB-DL [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211689.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот Хэллоуин в городке округа Майлз снова пробуждается зло: клоун Арт возвращается после воскрешения из мертвых. Чтобы остановить его, девушке с братом предстоит раскрыть секрет Арта и понять, из какого мира он пришел.Производство: США / Dark Age Cinema, Fuzz on the Lens ProductionsЖанр: ужасыРежиссер: Дэмиен ЛеонеАктеры: Дэвид Ховард Торнтон, Дженна Кэнелл, Лорен ЛаВера, Катрин Коркоран, Саманта Скаффиди, Фелисса Роуз, Кэти Магуайр, Гриффин Сантопьетро, Кэйси Хартнет, Kailey HymanПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 02:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83ECBB1A1893D560B45EBB1C21B4D13232728CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572341   (209633) от 26.08.2022
+
+Время для себя / Me Time (2022) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об отце, который впервые за много лет находит время для себя, пока его жена и дети отсутствуют. Он воссоединяется с другом для диких выходных.Производство: США / 5150 Action, Hartbeat ProductionsЖанр: комедияРежиссер: Джон ГамбургАктеры: Марк Уолберг, Кевин Харт, Луис Херардо Мендес, Реджина Холл, Джимми О. Ян, Джон Эймос, Таж Моури, Анна Мария Хорсфорд, Эндрю Сантино, Карло РотаПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские и др.Продолжительность: 01:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595823267B66C219FB1AE11D6ED7BEF001BE0139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644992   (209609) от 07.07.2023
 
 Родители в законе / The Out-Laws (2023) WEB-DL [H.264/1080p] [EN / RU, UKR, EN, Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209609.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209601.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209468.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208667.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208542.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208314.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208187.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207390.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207285.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207160.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207112.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206652.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206560.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206342.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206320.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205907.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205573.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205084.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204343.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203614.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203478.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60BB4AD9C2BBEEECCC54F441EA5C49B62FAF5161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609666   (203117) от 04.02.2023
-
-Вавилон / Babylon (2022) WEB-DL [H.264/1080p] [EN / Ru, En, Fr Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_203117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голливуд, конец 1920-х. Звезды немого кино пытаются найти место в новом мире, где набирают популярность звуковые фильмы. Успешная карьера старых кумиров неумолимо близится к закату.Производство: США / Paramount Pictures, C2 Motion Picture Group, Marc Platt ProductionsЖанр: драма, комедия, историяРежиссер: Дэмьен ШазеллАктеры: Брэд Питт, Марго Робби, Диего Калва Эрнандес, Джин Смарт, Джован Адепо, Ли Цзюнь Ли, Оливия Хэмилтон, П.Дж. Бирн, Лукас Хаас, Макс Мингелла, Тоби МагуайрПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (Forced, Full, SDH), французскиеПродолжительность: 03:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC1C9D1EC0038E111778150678CE9BCD2DFED2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615778   (202089) от 28.02.2023
-
-Любовь как искупление / Redeeming Love (2022) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потеряв мать, Эйнджел ещё в детстве оказалась в борделе. Теперь она самая востребованная проститутка в городе. Однажды на улице её видит фермер Майкл и влюбляется в девушку.Производство: США / Nthibah Pictures, Pinnacle Peak Pictures, Mission Pictures InternationalЖанр: драма, мелодрамаРежиссер: Ди Джей КарузоАктеры: Эбигейл Ф. Коуэн, Том Льюис, Эрик Дэйн, Фамке Янссен, Логан Маршалл-Грин, Нина Добрев, Ливи Бирч, Джеми-Ли О’Доннелл, Уилли Уотсон, Джош ТейлорПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B067A0287BCD6E3A4C7F44C5B566D5E23EFD183A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616028   (201735) от 04.03.2023
-
-Царство небесное / Kingdom of Heaven (2005) Blu-ray [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция, XII век. Молодой кузнец Бэлиан вынужден бежать со своей родины. Он присоединяется к отряду крестоносцев, во главе которого стоит его отец. В одной из битв тот получает тяжёлое ранение и перед смертью посвящает сына в рыцари.Производство: США, Испания / Twentieth Century FoxЖанр: боевик, драма, приключения, военный, историяРежиссер: Ридли СкоттАктеры: Орландо Блум, Ева Грин, Мартон Чокаш, Дэвид Тьюлис, Гассан Массуд, Лиам Нисон, Джереми Айронс, Эдвард Нортон, Брендан Глисон, Александр СиддигПеревод: Многоголосый профессиональныйЯзык озвучки: итальянский, английский, русский (отдельным файлом)Субтитры: итальянские (PGS), английские (PGS)Продолжительность: 03:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999818DD9D7FCBF2DE27177B237D32D02F0EAD03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617752   (201599) от 09.03.2023
-
-Триплексоголик / xxxHOLiC (2022) BDRip [H.264/1080p] [JP / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кимихиро Ватануки обладает особой способностью видеть аякаси (призраков). Однажды бабочка приводит его в таинственный магазин, торгующий исполнением желаний. Там он встречает хозяйку магазина Итихару Юко (Фамилия и Имя не настоящие). Она говорит ему, что исполнит его желание за соразмерную плату в отношении самого драгоценного для него...Производство: Япония / Asmik Ace, Hachinoji, ShochikuЖанр: фэнтези, мистика, триллерРежиссер: Мика НинагаваАктеры: Рюносукэ Камики, Ко Сибасаки, Хокуто Мацумура, Тина Тамасиро, Сюри, Даоко, Серена Мотола, Нанасэ Нисино, Сакурако Охара, Тэнка ХасимотоПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно)Продолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B592019BAD2F92C7A37693D2306B7C5FAF3D53BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602711   (201579) от 09.03.2023
-
-Падающая звезда / Nagareboshi / Shooting Star (2021) HDTVRip [MPEG-2/1080i] [JP / RU, JP Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хосино Нацко закрывает пансионат «Хосюкан» в связи с непопулярностью данного формата гостиниц. Её муж уходит на собрание ассоциации жителей. Тогда она видела его в последний раз... На сорок девятый день перед ней возникает из ниоткуда девушка назвавшаяся «Юмэно Мари». Юная особа предложила вдове исполнить четыре её желания. Первым невысказанным желанием Нацко было (   Читать дальше...   )Производство: Япония, NHKЖанр: фантастика, мелодрамаРежиссер: Коно КэйтаАктеры: Мацудзака Кэйко, Куросима Юина, Тайра Юна, Кирияма Акито, Хории Арата, Окавара Мэгуми, Ёкояма Рё, Вакабаяси Гэнта, Оми Тосинори, Фунакоси ЭйитироПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно), Японские (ASS, отдельно)Продолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48FBB846E812A1DE28605320EA3361BD99A2754
 ```
 
 https://mybot314.ru/tekegram_catalog/

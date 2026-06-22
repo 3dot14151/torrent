@@ -1,3 +1,82 @@
+###  Публикация: 1148777   (402221) от 28.09.2017
+
+Dive!! / Дайв!! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето в самом разгаре, а значит пора остудить жару освежающим аниме! История повествует нам о клубе "Мизуки”, в котором обучаются прыжкам в воду. Дела у этого клуба идут не особо радужно, провалы преследуют спортсменов раз за разом. Спонсорами было принято решение прекратить финансирование клуба, но после продолжительных просьб они предложили воистину издевательское (   Читать дальше...   )Жанр: комедия, спортРежиссер: Судзуки КаоруЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2DB83732F4E257DADB09E2C64F9438B9F21B94C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147877   (401059) от 29.09.2017
+
+Knight's & Magic / Рыцари и Магия [2017, TV, 13 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в наше время и повествует нам о главном герое, 28 летнем отаку по имени Курата, который увлекается мехой и работает в издательстве . Однажды после окончания работы в офисе, по пути домой его сбивает машина и он перевоплощается в другом мире под именем Эрнести Эшевалье, также известного как Эру. В этом мире существует огромное человекоподобное (   Читать дальше...   )Жанр: приключения, фантастика, меха, школаРежиссер: Ямамото ЮсукэЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31817B6496743E78EFD18624EEB945F42F8C420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565007   (400642) от 25.10.2012
+
+Pokemon: Master Quest (5 season) / Покемон: Путь Мастера (5 сезон) [2003, TV, 1-65 из 65] DVDRip 480p Eng+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключение Эша и его друзей в Джото подходит понемногу к своему финалу!
+С новыми покемонами и старыми противниками, Эш, Мисти и Брок почти достигли своей цели - Чемпионат Лиги Джото... Сможет ли Эш пройти путь мастера? Никто этого незнает, смотрим продолжение...Жанр: кодомо, комедия, фэнтезиРежиссер: Юяма КунихикоЯзык субтитров: РусскийПродолжительность: 21 мин
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 713261   (400491) от 22.10.2013
 
 Clannad After Story / Кланнад. Продолжение истории / Кланнад [ТВ-2] [2008-2009, TV, 12+3] BDrip 720p Hi10p raw+rus
@@ -6,7 +85,7 @@ Clannad After Story / Кланнад. Продолжение истории / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400491.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ Action Heroine Cheer Fruits | Героиня поддерживает фрукт
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400110.jpg" />
 </div>
 
 
@@ -62,7 +141,7 @@ Kaito x Ansa | Кайто и Анса [2017, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396342.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ Ikemen Sengoku: Toki o Kakeru ga Koi wa Hajimaranai | Красавчики из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396341.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ Jikan no Shihaisha / Chronos Ruler / Повелители Времени [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391639.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ Isekai wa Smartphone to Tomo ni / In Another World With My Smartphone / В ин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391638.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ Motto To Love-Ru: Trouble / Любовные неприятности (ТВ-2) [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391432.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ Starship Troopers / Звездный десант [1988, OVA, 6 из 6] DVDRip r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388822.jpg" />
 </div>
 
 
@@ -220,7 +299,7 @@ Shingeki no Bahamut: Virgin Soul / Rage of Bahamut: Virgin Soul / Ярость �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388707.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e / Добро пожаловат�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386409.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385186.jpg" />
 </div>
 
 
@@ -300,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384660.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382496.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ Joker Game / Игра Джокера [2016, TV, 12 ep + 2 sp] WEB-DL 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381819.jpg" />
 </div>
 
 
@@ -379,7 +458,7 @@ Hyakuren no Haou to Seiyaku no Valkyria | The Master of Ragnarok & Blesser of Ei
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380958.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ Koi Koi Seven / Koikoi 7 / Дружная семерка (2005, TV, 13 эп.) DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380714.jpg" />
 </div>
 
 
@@ -434,7 +513,7 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / За �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379682.jpg" />
 </div>
 
 
@@ -460,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374684.jpg" />
 </div>
 
 
@@ -486,7 +565,7 @@ Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374106.jpg" />
 </div>
 
 
@@ -512,7 +591,7 @@ Shokugeki no Souma: Ni no Sara / Кулинарные Поединки Сомы:
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372685.jpg" />
 </div>
 
 
@@ -538,7 +617,7 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? / Hensuki / Влюбишьс�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371727.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ Gekijouban Fate/Stay Night: Unlimited Blade Works / Fate/Stay Night: Unlimited B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370715.jpg" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367971.jpg" />
 </div>
 
 
@@ -603,87 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7670B39E8BEE4D447A478CBC0FFE1611792E4C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416790   (364515) от 17.10.2020
-
-Crusher Joe: Hyouketsu Kangoku no Wana | Крушила Джо OVA-1 [1989, OVA, 1 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чрезвычайное происшествие, команде крушителей предстоит выступить в роли спасателей. В результате сбоя в системе была почти полностью уничтожена космическая тюрьма, а также из-за отклонений в орбите теперь останки тюрьмы рискуют упасть на жилую планету. Теперь команда должны присоединиться в спасательной экспедиции. Все бы даже хорошо, но на носу возможность войны (   Читать дальше...   )Производство: Япония,Жанр: приключения, фантастикаРежиссер: Такидзава ТосифумиПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E2BB5FA308D5F274EB686B2B5AA357C3552453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416795   (364514) от 17.10.2020
-
-Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая (заключительная) ОВА серии "Crusher Joe". На этот раз команде крушителей предстоит спасать майора Татьяну, которой было доверено сверхсекретное оружия массового уничтожения "Пепел". Отличная классическое аниме в лучших традициях космической фантастики 80х.Производство: Япония,Жанр: приключения, фантастикаРежиссер: Такидзава ТосифумиПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 55 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614048CAEC7869EF4899A8599AAA284E3079A4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416740   (364513) от 17.10.2020
-
-Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказывали? [2014, TV, 12 эп.] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди пышной зелени раскинулся маленький идиллический город с опрятными домиками в европейском стиле, узкими улочками и уютными кафе. Воздух здесь пропитан ароматом кофе, а по улицам свободно гуляют кролики. В этот радушный пасторальный уголок и попадает наша главная героиня — энергичная, жизнерадостная и немного взбалмошная Кокоа.
-Идя по благоухающей цветами улице (   Читать дальше...   )Производство: White Fox, ЯпонияЖанр: Повседневность, комедияРежиссер: Хасимото ХироюкиОзвучка: Трёхголосая закадроваяЯзык озвучки: Японский и русскийСубтитры: Надписи, Полные (Продолжительность: 12 эпизодов по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9193095F24B73D327F851A92DB3A74096CE07F8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1509572   (793676) от 13.11.2021
+
+Blightbound (2021) [Ru/Multi] (1.1-128893/dlc) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мира, который мы знали, больше нет. Десятилетие назад великие воины сразили Теневого Колосса после долгой и яростной битвы, но радость их была недолгой. Даже смерть была всего лишь частью его плана: из останков Колосса на окрестные земли хлынула Чума - ужасный туман, обращающий ко злу все, чего он касался.Тип издания: LicenseРазработчик: Ronimo GamesЖанр: RPG, Action, Adventure, PlatformerЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130CDD7EB9EE2B5EB7B1D813F06F6FB676751B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509579   (793675) от 13.11.2021
+
+Orcs Must Die! 3 (2021) [Ru/Multi] (1.1.0.0/dlc) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режьте, поджигайте, расплющивайте, испепеляйте, перемалывайте и потрошите огромные орды отвратительных орков в Orcs Must Die! 3. Опробуйте огромный арсенал оружия и ловушек. Режьте, сжигайте, швыряйте и бейте током полчища гнусных орков. Orcs Must Die! 3 - продолжение полюбившейся серии! Игроки будут сражаться с самыми большими орочьими армиями, какие только видел (   Читать дальше...   )Тип издания: LicenseРазработчик: Robot EntertainmentЖанр: Arcade/ActionЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602CCAF7C59BB8B89F009D05C567094D4610BEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012676   (793326) от 01.05.2016
 
 The Bridge (2013) [Ru/Multi] (30.04.2016) Repack R.G. Механики
@@ -6,7 +58,7 @@ The Bridge (2013) [Ru/Multi] (30.04.2016) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793326.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Definitiv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793202.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru] (1.07) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792705.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Epic Chef (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792625.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Binding of Isaac: Rebirth (2014) [Ru/Multi] (1.75/dlc) License PLAZA [Comple
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792551.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/Multi] (02.31.01/dlc) License CODEX [D
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792544.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Pray for Death (1996) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792334.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Halfway (2014) [En] (1.2.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790882.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790793.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dead or Alive 5: Last Round (2015) [Ru/En] (1.10C/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790777.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790290.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790140.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789253.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0rc1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788724.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Wulverblade (2018) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788440.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Graveyard Keeper (2018) [Ru/Multi] (1.404/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788255.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Johnny Graves—The Unchosen One (2017) [Ru/En/Ge] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786470.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Sonic Forces (2017) [Ru/En] (1.04.79/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785181.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack xatab (обновля�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785056.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Team Sonic Racing (2019) [Ru/En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784419.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Zombie Derby 2 (2016) [Ru/Multi] (1.1/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783981.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Treasure Adventure World (2018) [En] (1.02) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783740.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/Multi] (1.0.684579) 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783704.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Rock of Ages (2011) [Ru/Multi] (1.11) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782836.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Rock of Ages (2011) [Ru/Multi] (1.11) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8FFD59B7DB4BAC245C2BB952B8EBFE80B76DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206044   (782812) от 12.02.2018
-
-Rock of Ages 2: Bigger & Boulder (2017) [Ru/Multi] (1.07/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rock of Ages 2: Bigger & Boulder продолжает сокрушительные традиции величайшей игры в жанре Tower Defense про историю, искусство и гигантские валуны. Само название намекает, что в Bigger & Boulder еще больше абсурда и драйва. Вас ждут новые безумные многопользовательские баталии двое на двое и новые эпохи, а также улушенные графика, физика и разрушаемость (   Читать дальше...   )Тип издания: RepackРазработчик: ACE TeamЖанр: Экшены, Инди, Гонки, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1425E9C2A71EB9C802302944B002F3B0A359DA32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188511   (782366) от 13.02.2018
-
-Redeemer (2017) [Ru/Multi] (1.5) Repack R.G. Catalyst
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте в качестве элитного оперативника, Василия, который когда-то работал для одного из крупнейших производителей кибернетического оружия в мире. Во время работы в сфере безопасности, вам давали задания, такие как проникновение, убийство, вымогательство и пытки. Но когда в конце концов корпорация решила превратить вас в одного из своих солдат-киборгов, вам удалось (   Читать дальше...   )Тип издания: RepackРазработчик: Sobaka StudioЖанр: Arcade (Fighting), Action, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4C991ED8A09D6E6764513AD92BBF887F0E53F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

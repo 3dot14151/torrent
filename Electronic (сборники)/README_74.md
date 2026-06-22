@@ -1,3 +1,90 @@
+###  Публикация: 1020885   (743955) от 27.05.2016
+
+VA - Tropical Island Paradigm (2016) [MP3|236-320 кб/с] <House, Progressive House, Indie Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabelhaft Ft. Carmen & Camille - Bringing Me Back (Club Mix) 05:51
+02. Tyler Ace & Renegade - Colombia (Radio Edit) 03:02
+03. Trvpers - Boeing (Radio Edit) 03:05
+04. Joe K Ft. Jonny Rose - Together Again (Vee Brondi & Pontifexx Remix) 04:22(   Читать дальше...   )Жанр: House, Progressive House, Indie DanceПродолжительность: 07:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C63F2A496106CF7AC5EA924197981B34C6B6D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020820   (743947) от 27.05.2016
+
+VA - Sun Goes Down: Chill Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743947.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sev Bastian - Little More
+002. Skendo - Romantic Beach Dinner
+003. Cablu - Stalkerman
+004. Mari Billa - Kids of the Moon(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD993D36B07790B053F7433D8CB4221B5CDB63C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020724   (743891) от 27.05.2016
+
+VA - Sweet Supernova: Ibiza Deep House Mix (2016) [MP3|320 кб/с] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743891.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerial Revision - Acid Six (Original Mix)
+002. Fritzbeat - Your Hero - Radio Version
+003. Cycle Of Life - Set the Tone
+004. Eddy Chrome - Feel It in Your Soul - Vocal Mix(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA2B3E4A0B20BB2E71899D17589DE6C57E7E1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020903   (743885) от 27.05.2016
 
 VA - Depth Of Perception: Uplifting Trance Mix (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
@@ -6,7 +93,7 @@ VA - Depth Of Perception: Uplifting Trance Mix (2016) [MP3|320 кб/с] <Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743885.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Ibiza In The House (2016) [MP3|192-320 кб/с] <Trap & Bass, Urban, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743791.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Breaks Pro V.01 [Compiled by GvertO] (2018-2019) [MP3|320 Kbps] <Breaks, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743743.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - House Garden Music: Progressive Selection (2019) [MP3|320 Kbps] <Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743739.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Extra Trance (episode 11) (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743697.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Deep Inspirational Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743478.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Chillout Hits - Spring Session (2018) [MP3|320 Kbps] <Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743469.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Oblivion - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743442.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Bellatrix - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743318.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Sense Of Exotic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742541.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Techno Atmospheric (2019) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742535.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - The Audio Files: Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742510.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Music For Everyone - Vocal Trance & Progressive Vol.5 (2016) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742423.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - The Last Sun Rays (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742345.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Trance 100 World Fashion (2018) [MP3|320 Kbps] <Harmonic, Emotional, Tunefu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742264.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Yoga Spirits: Wellness Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741083.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - DabSTEP Mistik MiX by zXz. Vol.1 (2013-2014) [MP3|192 кб/с] <DubStep, Gl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740993.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Psy Trance Timewarp (2018) [MP3|320 Kbps] <Psy Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740946.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Неформатная Электронная Музыка Vol.1 [Compiled 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740680.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740262.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ VA - Hits of My Soul Vol. 44 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740145.jpg" />
 </div>
 
 
@@ -619,7 +706,7 @@ VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739724.jpg" />
 </div>
 
 
@@ -648,7 +735,7 @@ VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739672.jpg" />
 </div>
 
 
@@ -662,93 +749,6 @@ VA - Record Super Chart 574 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13AA89FADCC37B6AEE023ED6BB0BDB9B92C1391E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283473   (739662) от 17.02.2019
-
-VA - Soulful Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739662.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fbtms - Phony Pool (Original Mix)
-002. Al Mar - Moon Bounce (Tokyo Mix)
-003. Gui Boratto - Halluciantion
-004. Kim Broberg - Centrum (Deepdust Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4AB0F1D194C15BBE9653C681A19EC8CCC6ED1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283553   (739524) от 17.02.2019
-
-VA - Empire Records - Red Star 4 (2019) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ogre - Revengeance Overcharge
-02. Blaze of Gunfire - We Were So Young
-03. Dance With The Dead - Venom
-04. Powernerd - Dystopia(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58E2906E7094AB4E8620FF9886E57335B1FFF9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283564   (739520) от 17.02.2019
-
-VA - Empire Records - Red Star 5 (2019) [MP3|320 Kbps] <SpaceSynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. STARLANDER - One Last Thing
-02. Starfounder - It's All About Darkness
-03. NightStop - Backseat Lover
-04. Syntax - Startseite(   Читать дальше...   )Жанр: SpaceSynthПродолжительность: 01:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018743718D0E079587C24A0E397D6682B8B08214
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,267 @@
+###  Публикация: 1094390   (929853) от 17.01.2017
+
+Syberia Dilogy / Сибирь. Дилогия (2002-2004) [Ru] (1.0.0.0/11) Repack Other s
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929853.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгих поисков потерянного наследника в Восточной и Западной Европе, Кейт Уолкер наконец завершила свой долгий трудный путь, получив подпись Ганса Форальберга и заключив тем самым договор о покупке фабрики автоматонов. Миссия выполнена? Не для этой Нью-Йоркской девушки-адвоката, не ищущей легких путей…Тип издания: RepackРазработчик: MC2-MicroidsЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D3E7A84B3A678B444B5523E3D6CA3C4B043DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987218   (927190) от 16.02.2016
+
+Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Механики [Complete Edition]
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотели ли вы иметь свою собственную автомобильную мастерскую? Проект польской студии Red Dot Games под названием Car Mechanic Simulator 2014 предоставляет вам такую возможность. В игре Car Mechanic Simulator 2014 вам предстоит взять на себя роль автомобильного механика. Диагностика, заказ необходимых деталей, ремонт - ваша задача. Игровой процесс усложняют самые (   Читать дальше...   )Тип издания: RepackРазработчик: PlayWay S.A., Red Dot GamesЖанр: Simulator, 3DЯзык озвучки: -/-Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A078F4CEB597097B828263325B5EC350489525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631137   (926174) от 16.03.2013
+
+Galactic Civilizations: Ultimate Edition [En] (L) 2003 | PROPHET
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Galactic Civilizations является космической пошаговой стратегией, в которой на ваши плечи ляжет судьба всего человечества.
+
+В 2178 году Земной Альянс изобрел новую технологию, позволившую людям совершать межзвездные путешествия за короткие промежутки времени. Но такое открытие века, в скором времени, стало достоянием и других цивилизаций, населяющих нашу планету, что послужило началом гонки за мировой господство.
+
+Вам как лидеру United Earth предстоит исследовать новые технологии, развивать экономику, накапливать военную мощь, вести политическую деятельность, развивать дипломатию и торговлю, чтобы получить неоспоримое превосходство над другими расами в борьбе за господство в Галактике.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy (TBS)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53719C9DA5273E91D5837625CF4126CAC08865CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363892   (925038) от 10.03.2020
+
+WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (Beta, 1.00-1.27b) Unofficial [Patches]
+
+>>Win Старые Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальные exe-патчи Warcraft ROC/TFT Beta-1.00-1.27b. Так как официальные ftp сервера со старыми патчами отключены, то раздача имеет статус коллекционной. Включает в себя 231 патч, отсутствуют 10 патчей.Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времени, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D884E7FF6A6B0E67DA29F9DBECA1EFF8970EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363894   (924920) от 10.03.2020
+
+WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) Unofficial [Patches]
+
+>>Win Старые Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вариация официальных exe-патчей для Warcraft ROC/TFT 1.00-1.27b. Предназначены для копирования файлов с заменой.Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времени, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F93C0966FAFCB03B2C8B220BCBE0C0CBDB8BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363895   (924909) от 10.03.2020
+
+WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) Unofficial [Patches]
+
+>>Win Старые Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вариация официальных exe-патчей для Warcraft ROC/TFT 1.00-1.27b. Предназначены для запуска через программу WarCraft Version Switcher.Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времени, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1F4359B6DE4297328ED14A1CBE2D1298F2B8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096088   (921937) от 22.01.2017
+
+Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет Forgotten Realms: Demon Stone рассказывает о том, как однажды много лет назад могущественный волшебник заключил предводителей демонов в особый магический камень. Те были в заключении очень долго, но однажды один из них сумел подчинить своей воле сразу троицу героев. Те, не ведая что они делают, разбили многолетнюю тюрьму демонов, после чего сразу же началась (   Читать дальше...   )Тип издания: LicenseРазработчик: Stormfront Studios и ZonoЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764C7D0886DFF76443568F433E1C36EF90CCA4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096345   (920124) от 23.01.2017
+
+Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack R.G. Catalyst
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Штат Невада, маленький городок Рейчел, находящийся в 85 милях к северо-востоку от игорной столицы мира Лас-Вегаса. Ничем не примечательный, за исключением одного «но»: неподалеку располагается база, официально принадлежащая военно-воздушным силам США, – Зона 51. Также, по заверениям официальных источников, на базе в основном занимаются разработкой и тестированием (   Читать дальше...   )Тип издания: RepackРазработчик: Midway Studios AustinЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCA7E98B5923F764497D7E2B7EC6CCABA3A1F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097203   (915125) от 26.01.2017
+
+SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915125.jpg" />
+</div>
+
+
+###  Подробнее
+
+В SWAT 3: Tactical Game of the Year Edition вы выступите в роли офицера специального элитного подразделения по борьбе с терроризмом SWAT. Под вашим командованием окажется отряд профессионалов, состоящий из пяти человек, основными задачами которого будет борьба с террористами и спасение заложников. В игре вам будет доступна 21 миссия, различные виды оружия с разными (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra NorthwestЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F4079377F3F8328FBEFF010A8ECDFC771600B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097277   (914996) от 26.01.2017
+
+Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack =nemos=
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Max Payne 2: The Fall of Max Payne — жестокая любовная история в стиле фильмов «нуар». Темная, трагичная и напряженная глубокая история, полная шокирующих поворотов и открытий. Любовь причиняет боль. Max Payne 2: The Fall of Max Payne предлагает самый напряженный игровой опыт, какой только можно представить. Динамичные и стильные экшн-эпизоды, а также игры с оружием (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4BA0067DA4F0B35A1F3A5290FB9A063259B0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097812   (911914) от 28.01.2017
 
 Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
@@ -6,7 +270,7 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911914.jpg" />
 </div>
 
 
@@ -32,7 +296,7 @@ Police Quest: SWAT 2 (1998) [En] (1.0.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911789.jpg" />
 </div>
 
 
@@ -58,7 +322,7 @@ Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911604.jpg" />
 </div>
 
 
@@ -84,7 +348,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911590.jpg" />
 </div>
 
 
@@ -110,7 +374,7 @@ Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905978.jpg" />
 </div>
 
 
@@ -136,7 +400,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905972.jpg" />
 </div>
 
 
@@ -162,7 +426,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904786.jpg" />
 </div>
 
 
@@ -188,7 +452,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904415.jpg" />
 </div>
 
 
@@ -214,7 +478,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904245.jpg" />
 </div>
 
 
@@ -240,7 +504,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903626.jpg" />
 </div>
 
 
@@ -266,7 +530,7 @@ Metal Gear (1987) [Multi] (1.0.cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903342.jpg" />
 </div>
 
 
@@ -292,7 +556,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903337.jpg" />
 </div>
 
 
@@ -318,7 +582,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903333.jpg" />
 </div>
 
 
@@ -344,7 +608,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903330.jpg" />
 </div>
 
 
@@ -370,7 +634,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902643.jpg" />
 </div>
 
 
@@ -396,7 +660,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902642.jpg" />
 </div>
 
 
@@ -407,266 +671,6 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BE43847DC74525A8021294C6CEF9E163980B13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100554   (898952) от 04.02.2017
-
-Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игроку предлагается перевоплотиться во Фредди Фаркаса, фармацевта образца 80-х годов XIX века из захолустного калифорнийского городка Корсголд. Когда-то Фредди был известным стрелком Фронтира, но сменил профессию после трагического инцидента: в последней перестрелке некто Малыш Кенни отстрелил ему ухо. Вместо него Фредди иногда надевает протез из серебра (серебряное (   Читать дальше...   )Тип издания: LicenseРазработчик: Screw Loose Amusements и Sierra On-LineЖанр: Приключение, Квест, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5258B91E582EAF47EAA47DBB2866C305D296BC17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729271   (898689) от 10.02.2015
-
-The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G. Механики
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_898689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры "The Incredible Adventures of Van Helsing" происходит в мрачном готическом мире, напоминающем Европу XIX века, но с монстрами, магией и причудливыми технологиями. В этой мрачной сказке, наполненной черным юмором и живыми диалогами, вам отводится роль сына знаменитого охотника Ван Хельсинга - выдающегося героя, наделенного загадочностью и темным шармом. Ваш путь будет лежать в зловещие земли Борговии, куда бывшие мистические враги героя призвали его на помощь, чтобы вместе побороть новую угрозу, нависшую над городом Западной Европы. Яркие персонажи, захватывающий сюжет и потрясающий готический мрачный стиль игры "The Incredible Adventures of Van Helsing" вернут любителей классических боевых РПГ в строй и отправят их в новое незабываемое приключение!(   Читать дальше...   )Тип издания: RepackРазработчик: Neocore GamesЖанр: RPG (Rogue/Action), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB063EC684DACF6E31236FD644E865704F6C177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992902   (895036) от 05.03.2016
-
-Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много сотен лет назад, на заре европейской цивилизации, на полуострове Пелопоннес возник греческий полис Спарта. Его жители прославились на весь мир как отважные и доблестные воины, которые никогда не ведали страха. Спарта, или Лакедемон, как она тогда называлась, вела непрерывные войны со всеми своими соседями. Короткие мирные передышки использовались для подготовки (   Читать дальше...   )Тип издания: LicenseРазработчик: Slitherine SoftwareЖанр: Strategy (Turn-based), 3D, Top-downЯзык озвучки: РусскийЯзык субтитров: -/-Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6139E2A7AAC6AB5A42030720C19EFEA9317EABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493874   (891995) от 05.09.2021
-
-MicroProse™ Soccer (1988) [En] (2.0) License GOG
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбольный симулятор, который можно окрестить «самым серьёзным и продвинутым из аркадных». Главная отличительная особенность игры – то, что состоит она из двух частей. Первая и основная – это нормальный европейский футбол, выполненный сравнительно реалистично, хотя некоторые комбинации и удары очень странные и даже забавные. Есть возможность самому выбрать команду, (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroProseЖанр: Спорт, Симулятор, ФутболЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE48DFF8EE02809DCF66B15F95297FC61F078776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494083   (890531) от 06.09.2021
-
-King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы когда-либо играли в Age of Empires 2, то должны помнить замечательный вступительный ролик к этой игре: ночь, замок, дрова, потрескивающие в камине, и два короля за массивным столом, которые, изредка прихлёбывая горячий пунш, ведут между собой «поединок умов», играя в шахматы в виде замечательных резных фигур. Теперь и у вас есть возможность сыграть в нечто (   Читать дальше...   )Тип издания: LicenseРазработчик: ImagitecЖанр: Стратегия, Пошаговая, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD9BC1859F56C443F8F08B1E5458041EA312A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371278   (889717) от 31.03.2020
-
-Fallout Resurrection (2016) [Ru] (1.5.116) Repack/Mod Pyran
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Resurrection разворачивается в промежутке между первой и второй играми на территории Нью Мексико. Разработчики обещают карту, сравнимую по размерам с оригинальной Fallout, однако сдобренную куда большим количеством квестов и вариантов их решения. Resurrrection берёт за основу именно первую игру культовой серии, делая ставку на мрачную атмосферу безысходности (   Читать дальше...   )Тип издания: RepackРазработчик: Black Isle StudiosЖанр: RPGЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ECEB5CEA6112D63AEC75F7DC76CFA9233BA587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102722   (888799) от 10.02.2017
-
-Caesar (1993) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caesar - компьютерная игра в жанре стратегия, разработанная компанией Golden Sector Design и изданная Impressions Software в 1993 году. Игра отличалась хорошей графикой и интерфейсом, игроку приходилось решать сложные вопросы градостроения, такие как выбор правильного числа и расположения школ, театров, библиотек, бань и т. п.Тип издания: LicenseРазработчик: Golden Sector DesignЖанр: Strategy (Manage, Busin., Real-time), Top-downЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5459C7BB053A17A0E77D9F3640B51E6E2FB97699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102906   (888746) от 10.02.2017
-
-Caesar 2 (1995) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caesar II - это прежде всего отличнейший продуманный симулятор жизни города, эдакий SimCity по-древне-римски. При этом количество тонкостей столь велико и сами они настолько разнообразны, что даже не надейтесь достигнуть высот за несколько часов. Разработчики идеально соблюли баланс, и всё это великолепие не отпугнет новичка в жанре запутанностями и условностями, (   Читать дальше...   )Тип издания: LicenseРазработчик: Impressions SoftwareЖанр: Strategy (Manage, Busin., Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADB7B42F91DF8A5E15880A19F2636CCC43713EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102947   (888638) от 10.02.2017
-
-Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний исторический градостроительный симулятор от компании Sierra, посвящённый Древнему Китаю. Игра охватывает весьма большой период - от IV тысячелетия до н.э. до XIII века эры уже нашей. Кампаний непривычно много, они непривычно длинны, но, думаю, лучше рассказать об игровом процессе, чем о сюжете миссий, - отмечу лишь, что игра отличается достаточно высокой (   Читать дальше...   )Тип издания: LicenseРазработчик: BreakAway Games и Impressions GamesЖанр: Strategy (Manage, Busin., Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABC8CCED250898E2D3BE023237FF7E118B705B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102976   (888566) от 10.02.2017
-
-Wing Commander™ 4: The Price of Freedom (1995) [En] (3.0.1.0) License GOG
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888566.jpg" />
-</div>
-
-
-###  Подробнее
-
-2673 год. С момента подписания мира в Торго и окончания войны с Килрати прошло четыре года. Сражения утихли, и Земную конфедерацию занимают более тривиальные проблемы: восстановление того, что было разрушено, и борьба с космическими пиратами. Даже знаменитый пилот Кристофер Блэр по кличке Бродяга, принесший Земле победу, ушел в отставку и стал фермером. Привыкнув (   Читать дальше...   )Тип издания: LicenseРазработчик: Origin SystemsЖанр: Simulator (Space), 3D, Int.MovieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F60B1C62D1C71FA0B684CFF9140F5FCD11BBDE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

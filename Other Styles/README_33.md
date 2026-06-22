@@ -1,3 +1,264 @@
+###  Публикация: 1109183   (860759) от 26.02.2017
+
+The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [MP3|320 Kbps] <Soundtracks, Classical, Epic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title ("from Game of Thrones")
+02. Goodbye Brother
+03. Season 1 Finale
+04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A8C2670D20363F347BAAE3CA0C40BE4C39AB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109184   (860664) от 26.02.2017
+
+The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Classical, Epic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title ("from Game of Thrones")
+02. Goodbye Brother
+03. Season 1 Finale
+04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5B5163DC7975BDCA967B4DA751B2C3F44F1862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375776   (859982) от 17.04.2020
+
+David Arkenstone - The Delicate Balance (2020) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isolamento
+02. What We Do In Life... Echoes In Eternity
+03. You Can Only Come To the Morning Through The Shadows
+04. The Measure of Existence(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A1F07185DD074E8DD51B5987A9D1283A55D219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000081   (859324) от 25.03.2016
+
+Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Sky   02:37
+02. Hot Spring   04:10
+03. The Slop of Green Grass   04:59
+04. The Sea of Seven Stars   04:57(   Читать дальше...   )Жанр: International, New Age, Easy ListeningПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C094B6B60F2D1F14D2C11022DB21B5F19167B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999883   (859067) от 25.03.2016
+
+VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norwegian Mountains (O. Sevag) [03:37]
+02. Gala (Gala Gala) [04:52]
+03. Le Reve (M. Lepisto) [04:08]
+04. The Waves Of Life (Wimme) [04:09](   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7244863EBC84EB25F3BD28771BD9430DC24235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109311   (859007) от 27.02.2017
+
+E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antissa
+02. Tikal
+03. Harappa
+04. Ulaid(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F479CB6BCEFDF9387459139DDBC843AE63645C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000377   (858865) от 25.03.2016
+
+Floex (Tomas Dvorak) - Samorost 3 (2016) [FLAC|Lossless|WEB-DL] <Soundtrack, Downtempo, Jazz, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858865.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Samorost 3 Main Theme 07:56
+2.Going On An Adventure 04:02
+3.Mushroom Picker Dance 01:49
+4.Behind The Cosmic Curtain 02:28(   Читать дальше...   )Жанр: Soundtrack, Downtempo, Jazz, AmbientПродолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE444844DFEBB9618F245EA089E2FA3545A4F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109796   (857162) от 28.02.2017
+
+Paul Mauriat - Transparence & Serenade (1985,1989) Reissue, 2017 [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transparence (1985)
+01. Alla Figaro (3:25)
+ 02. Careless Whisper (3:38)
+ 03. Like a Virgin (3:33)(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 01:19:39 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4213CF43C787330E77FF580739B31AD624098C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376714   (856665) от 19.04.2020
+
+Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk Rock, Darkwave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Flute Song [00:02:08]
+02 Шуми [00:04:30]
+03 Skejgored [00:04:43]
+04 Urzala [00:04:04](   Читать дальше...   )Жанр: Trip Hop, Folk Rock, DarkwaveПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F35002D024C76493D311C3D8EA49409E3F8B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000484   (855823) от 27.03.2016
 
 Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
@@ -6,7 +267,7 @@ Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855823.jpg" />
 </div>
 
 
@@ -35,7 +296,7 @@ Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yog
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855566.jpg" />
 </div>
 
 
@@ -64,7 +325,7 @@ VA - T2 Trainspotting (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855213.jpg" />
 </div>
 
 
@@ -93,7 +354,7 @@ Ansia Orchestra - The Order, Vol. 1 (2020) [MP3|320 Kbps] <dubchestral, soundtra
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854917.jpg" />
 </div>
 
 
@@ -122,7 +383,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854787.jpg" />
 </div>
 
 
@@ -151,7 +412,7 @@ Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854726.jpg" />
 </div>
 
 
@@ -186,7 +447,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854699.jpg" />
 </div>
 
 
@@ -215,7 +476,7 @@ John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854654.jpg" />
 </div>
 
 
@@ -250,7 +511,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tra
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854588.jpg" />
 </div>
 
 
@@ -279,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853994.jpg" />
 </div>
 
 
@@ -308,7 +569,7 @@ Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrosso
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853735.jpg" />
 </div>
 
 
@@ -337,7 +598,7 @@ VA - The Best of Instrumental Music (2004) Compilation [FLAC|Lossless|image + .c
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853606.jpg" />
 </div>
 
 
@@ -366,7 +627,7 @@ Various - Полонезы И Вальсы Русских Композиторо
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853020.jpg" />
 </div>
 
 
@@ -401,7 +662,7 @@ John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852107.jpg" />
 </div>
 
 
@@ -430,7 +691,7 @@ Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Wo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852095.jpg" />
 </div>
 
 
@@ -459,7 +720,7 @@ Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Tradi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852093.jpg" />
 </div>
 
 
@@ -488,7 +749,7 @@ Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852089.jpg" />
 </div>
 
 
@@ -502,267 +763,6 @@ Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001843   (852053) от 29.03.2016
-
-Немного Нервно - День Габриэля (2016) [MP3|320 кб/с] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852053.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник «День Габриэля» вошли восемь тех самых песен, которые «А на каком они альбоме? А пока ни на каком». Все, чего вы так долго ждали. И кое-что совершенно новое. Треки записаны в сотрудничестве с четырьмя разными студиями в Запорожье, Москве, Эдинбурге и Воронеже. В числе приглашенных музыкантов проявились Владимир Кристовский (Uma2Rman), Василий Уриевский, (   Читать дальше...   )01. Поцелуй меня, я - ирландец (feat. В. Кристовский)
-02. Габриэль
-03. Тяжко мені
-04. Восхождение (feat. А. Чикуров)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A515D6E4C984FC06D34CE19F66BB809BEF28D740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000518   (852051) от 29.03.2016
-
-Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Igitur Servus
-02. An Oiche
-03. Riu Riu
-04. Incantations(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020C12B2BFCF05243F621EA3947E76E1F78B9C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110726   (851961) от 03.03.2017
-
-Guy Sweens - Karmic Journey (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Nature
-02. Varanasi
-03. Cause and Effect
-04. Inner Strength(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F648F535FA63C0C08847C06C45235AD23FE9057A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000766   (851799) от 29.03.2016
-
-VA - The Best World Instrumental Hits (2009) Vol.1,2,3 (6CD) [FLAC|Lossless|tracks] <Instrumental, Easy Listening, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Lai - Emmanuelle   03:22
-02. Paul Mauriat - Aloette   02:11
-03. James Last - Little Man   03:22
-04. Ricky King - La Corrida   03:12(   Читать дальше...   )Жанр: Instrumental, Easy Listening, New AgeПродолжительность: 07:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0218929DF42FC59E116FA2DA939B764A5BDA3DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001983   (850469) от 30.03.2016
-
-Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Military, New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Me Prelude    00:51
-02. Fiesta Patria    03:14
-03. Thirty-One Nights    03:59
-04. The Swallows of Na' Lu'um    05:29(   Читать дальше...   )Жанр: Brass & Military, New Age, InstrumentalПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110808   (850242) от 04.03.2017
-
-Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (02:21)
-02. Laura (02:25)
-03. The Grim Reavers (01:33)
-04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AC3A8882CD4C7E38861FAF594F4D93DDF4C962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110809   (850184) от 04.03.2017
-
-Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (02:21)
-02. Laura (02:25)
-03. The Grim Reavers (01:33)
-04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595CFD36D93865E8B4B64F99FBDDBAA18AD048EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110989   (850183) от 04.03.2017
-
-Armik - Enamor (2017) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enamor
-02. Lost Love
-03. La Guitarra De Oro
-04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic guitarПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B781535AA047CC603B968E8ABF029BC22B53D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377748   (850089) от 23.04.2020
-
-Aesop Rock - Freedom Finger (Music from the Game) (2020) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play Dead (3:22)
-02. KOWP (3:39)
-03. Drums On The Wheel (3:45)
-04. Play Dead (Instrumental) (3:22)(   Читать дальше...   )Производство: RhymesayersЖанр: Hip-Hop, Beats, SoundtrackПродолжительность: 00:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02AF0ABB1CF8684B2A376F8AD114E566FAADBEB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

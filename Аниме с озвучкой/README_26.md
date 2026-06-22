@@ -1,3 +1,81 @@
+###  Публикация: 1523393   (640360) от 05.04.2022
+
+Контратака женщины-полицейского | Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod [2022, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маи Кавай работает в полиции, и это занятие ей не очень-то по душе. Служба ей порядком осточертела. Но когда она решает уйти, судьба подбрасывает приятный сюрприз: новой начальницей в отделении становится Сэйко Фуджи — женщина, удивительная во всех отношениях, настоящий пример для подражания! Проработав какое-то время под ее руководством, Кавай понимает: кажется, (   Читать дальше...   )Жанр: Комедия, повседневность, сэйнэнРежиссер: Сато ЮдзоЯзык озвучки: Русский двухголосый, закадровыйСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C7566827184AFCC57A774D6D9E5D7171A098AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006091   (639352) от 10.07.2016
+
+Seisen Cerberus / Шестой Цербер [2016, TV, 13] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается на континенте под названием Кунааан, где поддерживается неустойчивый баланс сил между тремя государствами — Священным царством Амория, королевством Ишльфен и королевством Ванродис. Мир крайне хрупок: стоит одной из сторон потерять хоть толику могущества, как весь континент окажется погружен в хаос войны. Однако на Кунааане существует и четвёртая (   Читать дальше...   )Производство: Япония, Bridge / ブリッジЖанр: ПриключенияРежиссер: Кондо НобухироПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CAC876C5DE84CD22C7D49D79E978274851AC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907273   (637003) от 12.06.2015
+
+Bakuretsu Tenshi / Burst Angel / Ангелы Смерти [2004, TV, 24 + 1 эп.] BDRip 1080p raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будущее, год 20XX. Токио все больше погружается в хаос преступности и жестокости. Чтобы хоть как-то сохранить порядок, правительство разрешает обычным гражданам носить оружие. Но даже специально созданное полицейское спецподразделение РАПТ не в силах защитить людей, живущих в постоянном страхе. Кто может спасти раздираемый насилием, обреченный город? Только ангелы. (   Читать дальше...   )Производство: Япония, Gonzo DigimationЖанр: приключения, комедия, меха, эттиРежиссер: Охата КойтиЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Формат: mp4Продолжительность: 25 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40ED28E5009FDDB37EAF42784E09A29ECDF1EC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 681661   (635646) от 20.07.2013
 
 Eiga K-On! / K-ON! The Movie / Кэйон! [2011, MV] BDRip Hi10p 1080p Raw+Eng+Rus x4(ext)
@@ -6,7 +84,7 @@ Eiga K-On! / K-ON! The Movie / Кэйон! [2011, MV] BDRip Hi10p 1080p Raw+Eng+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635646.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tenshi na Konamaiki / A Cheeky Angel / Нахальный ангел [2002, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633798.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Golden Boy / Золотой парень [1995, OVA, 6] DVDrip upconvert raw + r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632564.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ Elf o Karu Mono-tachi / Those Who Hunt Elves / Те, кто охотятся н�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631898.jpg" />
 </div>
 
 
@@ -117,7 +195,7 @@ VIPER'S CREED / Змеиное кредо [2009, TV, 12] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629798.jpg" />
 </div>
 
 
@@ -144,7 +222,7 @@ Elf o Karu Mono-tachi II / Those Who Hunt Elves II / Те, кто охотятс
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629797.jpg" />
 </div>
 
 
@@ -173,7 +251,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629312.jpg" />
 </div>
 
 
@@ -199,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628898.jpg" />
 </div>
 
 
@@ -225,7 +303,7 @@ Dominion Tank Police / Доминион: Танковая полиция [1988, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627830.jpg" />
 </div>
 
 
@@ -251,7 +329,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627322.jpg" />
 </div>
 
 
@@ -277,7 +355,7 @@ High School DxD Hero | Демоны старшей школы 4 [2018, TV, 13] H
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627321.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi / Мастерска
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626200.jpg" />
 </div>
 
 
@@ -331,7 +409,7 @@ Kurogane no Linebarrels / Linebarrels of Iron / Стальные Лайнбар�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625900.jpg" />
 </div>
 
 
@@ -357,7 +435,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных до�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622262.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ Ayakashi / Аякаси [2007, TV, 12] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622141.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ Lupin Sansei: Cagliostro no Shiro / Lupin III: The Castle of Cagliostro / Люп
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622140.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ Shinsekai Yori / From the New World / Из Нового Мира [2012, TV, 25 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621452.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ Busou Shoujo Machiavellianism / Armed Girl's Machiavellism / Тирания во
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621224.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records / Акашийские хрон�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621222.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ Shikioriori / Flavors of Youth / Вкусы Молодости [2018, MV] WEB-DL
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619930.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ Yakusoku no Neverland / The Promised Neverland / Обещанный Неверл
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619926.jpg" />
 </div>
 
 
@@ -571,7 +649,7 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618258.jpg" />
 </div>
 
 
@@ -597,7 +675,7 @@ Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617568.jpg" />
 </div>
 
 
@@ -608,86 +686,6 @@ Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:025616A83C0D94BB8A195E40AD0613FAA2908084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632125   (617303) от 09.05.2023
-
-Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в Зазеркалье [2022, Movie] WEBRip HEVC 10-bit 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь прогуливающих школу подростков одновременно обнаруживают, что в их спальнях стали странно сиять зеркала. Прикоснувшись к стеклу, они переносятся в чудесный замок, где их встречает загадочная девушка, представившаяся Королевой-волчицей. Замок в Зазеркалье становится для ребят убежищем от нелюбимой школы, куда они сбегают...
-
-© FumodubПроизводство: Япония, студия A1Жанр: драма, фэнтези, детективРежиссер: Хара КэйитиЯзык озвучки: Русский (Fumodub)Субтитры: ОтсутствуютПродолжительность: 1 серия по 116 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32049428A2CFB596EDE18124BA953C8195DDA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134697   (615874) от 28.06.2017
-
-Renai Boukun / Love Tyrant / Любовь тирана [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы задумывались, почему мы влюбляемся именно в какого-то конкретного человека? Ответ есть! Среди нас ходят купидоны, которые записывают в свою тетрадь поцелуев имена, создавая из них пары. Новоиспечённые влюблённые, указанные в этой тетради, поцелуются в течение 24 часов, а потом обязательно поженятся. Но что будет, если тетрадь поцелуев попадёт в безответственные (   Читать дальше...   )Жанр: комедияРежиссер: Нигорикава АцусиПеревод: MedusaSubЯзык озвучки: Японский и РусскийСубтитры: ASS, Встроенные, Полные | Надписи «AOS Team»Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F38E3DC0A5764D970583060EAA8082998542F1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296135   (614703) от 15.04.2019
-
-Kakegurui XX | Безумный азарт XX [2019, TV, 12] HDTV 720p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частная академия Хяккао. Престижное учебное заведение для привилегированных особ с необычной программой обучения. Ведь детям из престижных семей ни к чему корпеть над книгами или завоёвывать первые места на спортивных соревнованиях. Им надо уметь понимать, что творится в голове у оппонента, научиться искусству заключения сделки. Разве для этих целей есть что-то лучшее (   Читать дальше...   )Производство: Япония, MAPPAЖанр: драмаРежиссер: Хаяси ЮйтироСубтитры: Полные, отключаемые (Вшитые) | RusПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35501CEB6515899550BB274624FD5C14922C23F
 ```
 
 https://mybot314.ru/tekegram_catalog/

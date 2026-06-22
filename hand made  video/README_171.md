@@ -1,3 +1,29 @@
+###  Публикация: 1793883   (20059) от 27.04.2025
+
+Плохие парни до конца / Bad Boys: Ride or Die (2024) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейские Майами Маркус Бернетт и Майк Лоури узнают из теленовостей, что их погибшего капитана полиции Конрада Говарда обвиняют в коррупции и связях с наркокартелями. Маркус и Майк отказываются в это верить, а вскоре получают видеозапись от самого Говарда, снятую им перед смертью, в которой он просит найти своих убийц и восстановить его честное имя. Сделать это (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Jerry Bruckheimer Films, Westbrook StudiosЖанр: боевик, комедия, криминалРежиссер: Адиль Эль Арби, Билал ФаллаАктеры: Уилл Смит, Мартин Лоуренс, Ванесса Энн Хадженс, Александр Людвиг, Паола Нуньес, Эрик Дэйн, Йоан Гриффит, Джейкоб Скипио, Мелани Либёрд, Таша СмитПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40914D140E796B28CF82E37FFF87315A0769614D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766834   (20045) от 28.04.2025
 
 Гарри Поттер и философский камень / Harry Potter and the Sorcerer's Stone (2001) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20045.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20022.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20020.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20019.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20018.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20017.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20016.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20004.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19995.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19983.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19979.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19973.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19972.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19967.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19961.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19952.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19948.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19944.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19942.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19921.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19918.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19917.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19913.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19901.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19900.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467D9282418D045D1AB2E05B3359558A4121E033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794520   (19896) от 29.04.2025
-
-Джеки Браун / Jackie Brown (1997) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеки Браун работает стюардессой и подрабатывает контрабандой наличных денег в страну для торговца оружием. Все складывается отлично до того момента, пока ее не арестовывают федеральные агенты. На свободе она может остаться, только «заложив» торговца. Рисковая девушка принимает решение и полмиллиона присвоить, и от торговца оружием избавиться.Производство: США / A Band Apart, Lawrence Bender Productions, Mighty Mighty Afrodite Productions, Miramax FilmsЖанр: триллер, драма, криминалРежиссер: Квентин ТарантиноАктеры: Пэм Грайр, Сэмюэл Л. Джексон, Роберт Форстер, Бриджит Фонда, Майкл Китон, Роберт Де Ниро, Майкл Бауэн, Крис Такер, Лиза Гэй Хэмилтон, Томми ЛистерПеревод: Многоголосый (West-Video, Супербит), двухголосый (Премьер Мультимедиa), авторский (А. Гаврилов, Ю. Живов)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F77CD393448F8C2BE2B002786993EA92A58F7FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

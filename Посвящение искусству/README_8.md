@@ -1,3 +1,81 @@
+###  Публикация: 1359855   (962976) от 13.02.2020
+
+Полицейский с Рублевки. Новогодний беспредел 2. Фильм о фильме (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что осталось за кадром.Производство: Россия / ТНТ, LEGIO FELIXЖанр: Документальный, фильм о фильмеРежиссер: Марина СтепановаАктеры: Сергей Бурунов, Роман Попов, София Каштанова, Рина Гришина, Светлана Суханова, Александр Дерепко, Сергей Штатнов, Ростислав Гулбис, Ирина Вилкова, Александра Бортич и др.Субтитры: ОтсутствуютПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC87DED9B3F288F77165A7490D246E2D04470493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977957   (962409) от 24.01.2016
+
+Как Чарли Чаплин стал бродягой / La naissance de Charlot (2013) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень многое уже рассказано о легенде Чарли Чаплина. Но как же все-таки вышло, что дитя улицы, родившийся в одном из самых неблагополучных кварталов Лондона, за столь короткий срок стал самым знаменитым человеком в мире?Телекомпания: Франция, Arte France, Lobster Films, Roy Export Company EstablishmentЖанр: Документальный, биографияПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCBC59169B89DE2038AE12DDB9CD502E9D251FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978451   (962284) от 24.01.2016
+
+Приключения со "Звездной командой Джейсона" / The Adventures of Jason of Star Command (2005) DVDRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о том как снимался легендарный сериал "Звездная команда Джейсона"Производство: США, FilmationЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый (Трамвай-фильм)Субтитры: Русские (softsub (SRT), коментарии и надписи)Продолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A752DAAF820FD71CDBD1D75F6878AFFB13E9FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360827   (959332) от 16.02.2020
 
 Сорокин трип (2019) WEBRip [H.264/1080p-LQ] [PR]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959332.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959327.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ ZZ TOP: Старая добрая группа из Техаса / ZZ TOP: that 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959261.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958078.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955306.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Bee Gees: В наши времена / The Bee Gees: In Our Own Time (2010) BDRi
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953413.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950973.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950832.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950646.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949147.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949067.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947925.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947430.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ Backstreet Boys: Покажи им, из какого ты теста / Backstre
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945755.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945222.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945204.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944944.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944853.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944772.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944752.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944743.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944484.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940225.jpg" />
 </div>
 
 
@@ -596,85 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27DA9C4181E397C4BBCB36F6348991328403D6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984231   (940158) от 08.02.2016
-
-Тайны нашего кино. Тени исчезают в полдень (2016) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940158.jpg" />
-</div>
-
-
-###  Подробнее
-
-С этого фильма началась история сериалов в СССР. Однако он мог оказаться на полке. От запрета спас чиновник Госкино, который при режиссёрах разорвал требования цензуры, – случай беспрецедентный. Как за успех фильма пришлось расплачиваться исполнителям главных ролей? Почему так трагично сложились их судьбы? Правда ли, что съёмки в сериале "Тени исчезают в полдень" (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ДокументальныйРежиссер: Максим ВолодинПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AC8C091CDFDF0599CD2F3C63992181EAD7A59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092189   (940120) от 11.01.2017
-
-Кин-дза-дза! Территория Данелии (2008) DVBRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Кин-дза-дза! Территория Данелии» рассказывает о создании фильма Георгия Данелия «Кин-дза-дза!».Телекомпания: «СТУДИЯ 8» по заказу ТРК «Петербург 5 канал»Жанр: ДокументальныйРежиссер: Михаил АнаньевПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F622E261FB15E4F8BBB59FC9B1750353E3757F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092227   (939949) от 11.01.2017
-
-Аспирин для Брюса Ли (2009) DVBRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брюсу Ли, который от природы вовсе не был атлетом, потребовалось всего несколько лет, чтобы потрясти устои Голливуда и создать принципиально новый вид кинематографа. Он сумел добиться необыкновенной скорости движений и развить феноменальную координацию, стал легендой в области боевых искусств и вызвал множество подражателей в кино и на телевидении.
-Великий мастер (   Читать дальше...   )Телекомпания: "Останкино" по заказу ТРК "Петербург - 5 канал"Жанр: ДокументальныйПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087906145CC9B36DE49D3384194FF375FC514445
 ```
 
 https://mybot314.ru/tekegram_catalog/

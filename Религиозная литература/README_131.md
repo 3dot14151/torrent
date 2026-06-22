@@ -1,3 +1,108 @@
+###  Публикация: 921639   (25658) от 05.03.2025
+
+С. Лавров (Архимандрит Амвросий (Юрасов)) | Яко с нами Бог (2004) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25658.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части этой книги описан пример диспута между просвещённым научными знаниями атеистом и верующим человеком. Такие диспуты проводились в советское время в целях антирелигиозной пропаганды, но были впоследствии запрещены партийным руководством, так как в подавляющем большинстве случаев верх в этих философских спорах одерживали верующие.
+Вторая часть содержит (   Читать дальше...   )Жанр: ПравославиеИздательство: Задонский Рождество-Богородицкий МонастырьФормат: PDF, DJVUКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F25E7F1B50794775557465B4045E9E67CE7B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784541   (24936) от 12.03.2025
+
+Рамачандра Рао | Тантра. Мантра. Янтра. Тантрические традиции Тибета (2014) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24936.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу включены две лучшие работы современного исследователя буддийской Тантры Рамачандры Рао "Тантра. Мантра. Янтра" и "Тантрические традиции Тибета". Автор развенчивает привычные для массового читателя апелляции к тантрическому буддизму как к набору практик, ориентированных на интимную сферу человека. Прослеживая историю становления и развития (   Читать дальше...   )Жанр: Эзотерические знания. Религиоведение. Духовные ученияПеревод: А. ИванниковИздательство: БеловодьеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8E069D8448FBAD8AA725C53558FF48A3918524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788761   (22847) от 01.04.2025
+
+Гюстав Доре | Библия. Книга Священного Писания Ветхого и Нового Завета (2025) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библия является не только основой христианства, но и важнейшей частью всей мировой культуры. Ее Ветхий Завет был написан на древнееврейском языке. Эти тексты, создававшиеся с XV по I в. до н. э., тщательно сохранялись при переписывании и к X в. н. э. благодаря усилиям еврейских ученых — масоретов, — работавших с древними рукописями Священного Писания, обрели окончательно (   Читать дальше...   )Жанр: Религиозные книгиИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCAEBC9A4E6B282E826DB866FE86CE54884C450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788787   (22828) от 01.04.2025
+
+СЗКЭО (изд.) | Библия. Новый завет (2024) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синодальный перевод Нового Завета Библии (четыре Евангелия, Деяния святых апостолов, двадцать одно послание апостолов и Откровение Иоанна Богослова) в этой книге украшают более трехсот великолепных цветных рисунков, выполненных выдающимся живописцем, портретистом и гравером Джеймсом Тиссо (1836–1902). Его монументальные и точные в деталях иллюстрации делают это издание (   Читать дальше...   )Жанр: Религиозные книгиИздательство: СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EACF01FF440B75AAA6F98B3923148F10C8A718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788790   (22824) от 01.04.2025
 
 СЗКЭО (изд.) | Библия. Ветхий Завет (2024) [PDF]
@@ -6,7 +111,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22824.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22820.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16084.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15961.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15958.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15938.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8712.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8678.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8675.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7921.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7685.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7671.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7155.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7125.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6822.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6821.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1367.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1202.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_607.jpg" />
 </div>
 
 

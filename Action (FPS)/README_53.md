@@ -1,3 +1,29 @@
+###  Публикация: 1391199   (24649) от 15.03.2025
+
+Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Берите верный револьвер и отправляйтесь на помощь другу в атмосферной и энергичной игрушке roguelike. Colt Canyon - двухмерный шутер с пиксельной графикой. Вы управляете ковбоем или одним из многих других открываемых персонажей - и спешите на помощь другу, которого похитили подлые бандиты. Берите пушку и динамит и готовьтесь к опасному путешествию через каньон, где (   Читать дальше...   )Тип издания: LicenseРазработчик: RetrificЖанр: Экшны, Приключение, RoguelikeЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE105CB2C2C1979A8E109F6567AC3DFCBC34DD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785958   (24267) от 18.03.2025
 
 Deep Rock Galactic (2020) [Ru/Multi] (1.39.113250.0/dlc) Repack Other s
@@ -6,7 +32,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.113250.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24267.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Chernobylite Complete Edition (2019) [Ru/Multi] (50563/dlc) Repack Let'sРlay [P
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24240.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24225.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Heretic: Shadow of the Serpent Riders (1994) [En] (1.3/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24215.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Hexen: Deathkings of the Dark Citadel (1996) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24191.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24182.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24091.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23976.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23871.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Battlefield 4 (2013) [Ru/Multi] (1.8.2.48475) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23785.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23767.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23673.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ ROBOBEAT (2024) [Ru/Multi] (1.3.10) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23603.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23593.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Unreal Tournament (1999) [En] (451) Unofficial [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23390.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23367.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23154.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Battlefield 4 (2013) [Ru/Multi] (4700144/dlc) Repack Other s [Premium Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22942.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22935.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Men of Valor (2004) [Ru] (1.3) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22910.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ I Am Your Beast (2024) [En] (March 20 Minor Update) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22417.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) R
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21922.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Prey (2006) [Ru] (1.4) Repack/Mod seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21902.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Echo Point Nova (2024) [Ru/Multi] (1.41) Repack Let'sРlay [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21400.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitiv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21375.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9D77C79759615FBC93CD43F2B0AAAD8F325046B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157937   (21285) от 16.04.2025
-
-Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_21285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев.Тип издания: RepackРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Не озвученаЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E828028610CDFFF50B8E54644D1B1E91F730924
 ```
 
 https://mybot314.ru/tekegram_catalog/

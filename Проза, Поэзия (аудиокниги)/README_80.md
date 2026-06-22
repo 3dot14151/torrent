@@ -1,3 +1,81 @@
+###  Публикация: 1340983   (262913) от 26.11.2019
+
+Кристин Хармель | Забвение пахнет корицей (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцатишестилетняя Хоуп, когда-то мечтавшая о профессии юриста, вынуждена спасать от разорения доставшуюся ей по наследству семейную кондитерскую в небольшом городке недалеко от Бостона. В её жизни наступил трудный период: умерла мама, ушел муж, после развода осложнились отношения с дочерью-подростком и, в довершение ко всему, любимая бабушка - её последняя опора (   Читать дальше...   )Жанр: Зарубежная литератураПродолжительность: 13:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6688D5CAC5C3D9223FFD5A74F09CDF53157A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341544   (262353) от 28.11.2019
+
+Борис Лавренёв | Ветер (1981) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262353.jpg" />
+</div>
+
+
+###  Подробнее
+
+"...Позднею осенью над Балтийским морем лохматая проседь туманов, разнузданные визги ветра и на черных шеренгах тяжелых валов летучие плюмажи рассыпчатой, ветром вздымаемой пены. Позднею осенью (третью осень) по тяжелым валам бесшумно скользят плоские, серые, как туман, миноносцы, плюясь клубами сажи из склоненных назад толстых труб, рыскают в мутной зге шторма (   Читать дальше...   )Жанр: Проза. ДрамаПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A563529263A46DB4F9465C5FDFC632698AF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192953   (262230) от 20.12.2017
+
+Альберто Васкес-Фигероа | Океан [Трилогия] (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опаленный солнцем негостеприимный остров Лансароте был домом для многих поколений отчаянных моряков из семьи Пердомо, пока на свет не появилась Айза, наделенная даром укрощать животных, призывать рыб, усмирять боль и утешать умерших. Ее таинственная сила стала для жителей острова благословением, а поразительная красота — проклятием. Спасая честь Айзы, ее брат убивает (   Читать дальше...   )Жанр: Зарубежная литератураПродолжительность: 34:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D682855AEAE54C257EE2F286571A7F55DAEB6E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838952   (261646) от 26.11.2025
 
 Алексей Иванов | Невьянская башня (2025) [MP3, Всеволод Кузнецов]
@@ -6,7 +84,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261646.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261592.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261489.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260578.jpg" />
 </div>
 
 
@@ -117,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255550.jpg" />
 </div>
 
 
@@ -143,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255233.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255229.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255132.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249762.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249754.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245902.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245763.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245626.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245310.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245167.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245124.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245110.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244993.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244970.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244660.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244400.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244392.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244148.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D02FD04FC9273512405201FE59AEB2CCECE65E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626257   (243961) от 13.04.2023
-
-Тур Хейердал | Аку-аку. Тайна острова Пасхи (2021) [MP3, Илья Дементьев]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каменные статуи на острове Пасхи веками завораживали всех, кто их видел. Но как на почти безлюдном острове оказались каменные гиганты? Почему они стоят, отвернувшись от всесильного океана, и смотрят вглубь островных вулканов? Бесстрашный норвежский исследователь Тур Хейердал (1914–2002) берется разгадать эти загадки. Он снаряжает экспедицию на остров, на котором (   Читать дальше...   )Жанр: документальная литература, путешествияПродолжительность: 12:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC921B501FF8A7B348C7F4EF4A70969D4E636ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538026   (243655) от 19.03.2022
-
-Тейлор Дженкинс Рейд | Настоящая любовь (2021) [MP3, Анастасия Дадыко)]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмме Блор повезло встретить настоящую любовь. Она планировала провести с Джессом много лет, чтобы у их истории был счастливый конец. Вместе они пережили взросление, объездили полмира и всегда знали – они родственные души, с рождения. Когда вертолет Джесса пропал над Тихим океаном, Эмма потеряла частичку себя. Нельзя полюбить кого-то так же сильно. Он был слишком (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 10:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2234A2986869813192597BC0E532B118A853E269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539854   (243272) от 27.03.2022
-
-Лиана Мориарти | Яблоки не падают никогда (2022) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243272.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Стэна и Джой Делэйни, некогда известных теннисистов, четверо взрослых детей, которые, несмотря на внешнюю успешность, страдают от психологических травм родом из детства, вызванных соперничеством на теннисном корте и борьбой за внимание родителей. Ревность к родителям еще больше усиливается после того, как внезапно появившаяся в доме незнакомая молодая женщина по (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26781F276E06461F95E1618021D8E41CC68A44C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

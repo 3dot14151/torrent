@@ -1,3 +1,107 @@
+###  Публикация: 1485019   (1005709) от 23.07.2021
+
+City Legends: The Curse of the Crimson Shadow (2021) [En] (1.0) Unofficial [Colleсtors's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный писатель в стиле хоррор решил отправиться на поиски опасного духа из легенд. Однако все пошло не так, как планировалось. После того как писатель посмотрел видео о Багровой Тени, призрак сам решил начать охоту на человека. Писателю предстоит узнать историю Ордена Ведьм и найти связь между ним и призраком, чтобы избежать страшной участи...Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C43DE95449F9F947146F3CCC68A8ADC70BDC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486808   (1004548) от 01.08.2021
+
+Haunted Hotel 20: A Past Redeemed / Проклятый отель 20: Искупленное прошлое (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительная часть мистической серии игр Haunted Hotel. День свадьбы должен быть волнующим и радостным... но не все бывает так, как хочется. Призраки появились на празднестве, и ваш родственник пропал без вести. Сможете ли вы одержать победу над старым противником и изменить ход судьбы?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE9B610CA9F5A6A540F54F0E0E4C2B405F5F6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349744   (1004224) от 02.01.2020
+
+Labyrinths of the World 11: The Wild Side (2020) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фантастической серии игр Labyrinths of the World. Сестра Маргарет подарила вам на День рождения часы и туристическую поездку в Индию. Путешествие началось весьма неожиданно. Обезьянка-хулиганка, стащившая ваши новые часы, вдруг открыла портал в параллельный мир - мир, где власть принадлежит животным: слонам, пантерам, обезьянам. И... началось ваше фантастическое (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B5E260CA638DEA37917378F4045DE8986FFF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487151   (1004089) от 03.08.2021
+
+Reflections of Life 10: Meridiem / Отражения жизни 10: Меридием (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательное продолжение сказочной серии игр Reflections of Life. Сошествие Богини Звёзд это всегда праздник - праздник единства духа и хрупкого баланса, поддерживающего миры Меридиема! Но на этот раз что-то пошло не так! Космический катаклизм вызвал цепочку событий, грозящих уничтожить жизнь во всех мирах. И теперь отважная Хранительница Ордена Грейс со своей верной (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBF20754507935705D60FD95260EB0E90E95042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350507   (1003204) от 06.01.2020
 
 Spirit Legends 3: Time for Change / Легенды Духов 3: Время перемен (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -6,7 +110,7 @@ Spirit Legends 3: Time for Change / Легенды Духов 3: Время пе
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003204.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Chimeras: What Wishes May Come (2021) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003049.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Edge of Reality 6: Mark of Fate / Край Реальности 6: Метка С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002665.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Christmas Stories 7: Alice's Adventures / Рождественские исто�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002413.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Veil of Mystery. Seven Little Gnomes / Под покровом тайны. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000986.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Secret City 4: Chalk of Fate (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992568.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989725.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Mystery Trackers 17: The Secret of Watch Hill / Охотники за тайна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989692.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Cadenza 6: The Following / Каденция 6: Следуя за прошлым 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988930.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dark Romance 3: The Swan Sonata (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987485.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Sable Maze 5: Soul Catcher (2015) [En] Unofficial [Collector's Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987391.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Dark Romance 3: The Swan Sonata / Венок Романсов 3: Лебедин�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987148.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Surface 8: Return to Another World / Внешние пределы 8: Возвр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987143.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Unseen Fears 5: Ominous Talent (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986113.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Surface 3: The Soaring City Collector's Edition / Над водой 3: Паря�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985349.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Labyrinths of the World 10: Fools Gold / Лабиринты мира 10: Зол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984750.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Labyrinths of the World 11: The Wild Side / Лабиринты мира 11: Ди
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983246.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Antichamber [En] (Repack/1.0) 2013 | THETA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982235.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Mythic Wonders: The Philosopher's Stone (2014) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981916.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Darkarta. A Broken Hearts Quest / Darkarta: Поиск разбитого сер
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980422.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Hidden Expedition 10: The Fountain of Youth (2015) [En] Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980168.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Living Legends 8: The Crystal Tear (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978726.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Living Legends 8: The Crystal Tear (2020) [En] (1.0) Unofficial [Collector's Edi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA972E94A602ECCA4D2BB10E61C17E9CEDB5161F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356582   (977546) от 31.01.2020
-
-Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2: Проклятие масок (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии от Domini Games. В канун Хеллоуина дядюшка Освальд пригласил вас в свой магазинчик «Истинный ужас». Разумеется, вы и подумать не могли, что ужасы там окажутся вполне реальными! Одна из трёх новых масок, приобретённых дядей, превратила вашего отца в страшное существо... Сможете ли вы остановить монстров до того, как они вернут своего (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD4F96BA1DBF8510922D01168E8074249B4B2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356878   (976559) от 01.02.2020
-
-Magic Gate. Faces of Darkness / Волшебные врата. Лики тьмы (2015) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой игры вместе со своей невестой поселяется в своем новом доме. При распаковке вещей его невеста натыкается на волшебное зеркало, которое переносит ее в другой мир. Без колебания герой отправляется за ней и попадает в волшебный мир Элириум, где он видит, что его невесту похитили темные призрачные духи. Отправляйтесь в волшебный мир, найдите новых друзей (   Читать дальше...   )Тип издания: UnofficialРазработчик: Pivot GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CD4256727F2311CF071DEFE262D0422D3651DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975012   (974265) от 13.01.2016
-
-Labyrinths of the World 2: Forbidden Muse / Лабиринты Мира 2: Запретная Муза (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974265.jpg" />
-</div>
-
-
-###  Подробнее
-
-С тех пор как пропала Каллиопа - покровительница города талантливых людей, - его жители лишились своих способностей: художники разучились рисовать, циркачи жонглировать, а скульпторы забыли, как из бесформенной массы создавать прекрасные образы. Детективное агентство решило поручить вам расследование этого дела и поиски ответов на многочисленные вопросы.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159B9DDF6750D394796BBF1E20E75ABC86F25F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357385   (974221) от 03.02.2020
-
-The Unseen Fears 5: Ominous Talent / Невидимые страхи 5: Зловещий талант (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической игры The Unseen Fears. Ваш друг Карлос, искусствовед, попросил вас посетить Италию, чтобы помочь расследовать исчезновение коллеги. Все подсказки ведут в местную галерею, где вы быстро обнаруживаете, что это не первое исчезновение. И когда все встанет на свои места, вы обнаружите сверхъестественную паутину лжи, ревности и предательства. Вам (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3611B69C2E4EC025BB558EB2B2095037C62CAC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

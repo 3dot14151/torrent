@@ -1,3 +1,438 @@
+###  Публикация: 1523729   (748479) от 13.01.2022
+
+Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 2 (2018) [AAC|~323 Kbps] <Jazz-Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Bradlee's Postmodern Jukebox, Wayne Brady - Thriller (3:56)
+02. Scott Bradlee's Postmodern Jukebox, Amber Eyes - Bad At Love (4:43)
+03. Scott Bradlee's Postmodern Jukebox, Annie Bosko - Complicated (4:10)
+04. Scott Bradlee's Postmodern Jukebox, Jennie Lena - Crazy Train (4:51)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DBBFE47CFC39EB8C66F25199621D8284FEA93D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523761   (748478) от 13.01.2022
+
+VA - Sunset Emotions 3 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Be Mine (Original Mix) (5:04)
+02. Michael e - Balearic Soul (Original Mix) (6:01)
+03. DMTunes - White January (Original Mix) (6:10)
+04. Nicholas Gunn - Bridal Falls (Original Mix) (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C7499597A0F3B531DB00CECE2467B7582178AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523759   (748477) от 13.01.2022
+
+VA - Sunset Emotions 2 (2020) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Estación Del Mar - The Comeback (3:14)
+02. Jens Buchert - Cocoon (4:33)
+03. Gushi & Raffunk - Eia Mariposa (4:30)
+04. Clelia Felix - Under the Moonlight (4:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BEDA0875E0B98C9D70B6FB1ACA6EE837B6EC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523775   (748476) от 13.01.2022
+
+VA - Sun Travellers, Vol. 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FIN Project - At a Distance (6:12)
+02. G.Pantelidis - East to West (4:33)
+03. Magmatunes - Right There (4:43)
+04. Tony Garviz - Passionate Kiss (Original Mix) (4:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5B396F40FDD0792E032B15B9716D2CC9513B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523764   (748475) от 13.01.2022
+
+VA - Sunset Emotions 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finland & Aaskoven - Beauty and the Abyss (5:40)
+02. Mirage Of Deep - Shabanna (5:46)
+03. Marga Sol - Calma (5:28)
+04. Der Waldläufer - Sensimea (Original Mix) (4:27)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF10BBA0EDB3C783E8C9755018F4B0075D778B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523777   (748473) от 13.01.2022
+
+VA - DNBB Recap 2021 (2021) [AAC|~319 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystific - Saturn Dust (4:03)
+02. Ben Vibrant, Joe Deep - New Day (4:08)
+03. Thristy Monks - Morning Lights (5:14)
+04. Heft - Did You Know That (4:47)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAEB764332FAC53F385039188B70FD16E734B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523779   (748370) от 13.01.2022
+
+VA - Liquid Flow Recap 2021 (2021) [AAC|~315 Kbps] <Drum & Bass>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Marnel - Floating in Space (4:45)
+02. Heft - Perfomance (4:47)
+03. Paul Format - Feelings (3:41)
+04. Fernando Ferreira - Backwoods Worker (5:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54376D2F199BF25C682FAA1D8D615173CEAFAB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523769   (748368) от 13.01.2022
+
+VA - Sun Travellers, Vol. 1 (2019) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.Poliugaev - Time Out (Original Mix) (6:16)
+02. Chris le Blanc, Miss Luna, Susanna Rosza - Essaouira to Ibiza (Original Mix) (5:16)
+03. Stefano DG - I Am Gonna Break (Original Mix) (6:05)
+04. Alex & Chris, Fernando Opera - Space (Original Mix) (8:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE8BECAB16324CCA74418AE2DE89FF2681D70A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523773   (748367) от 13.01.2022
+
+VA - Sun Travellers, Vol. 3 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Continuum - Xpress (Ilias Katelanos Remix) (6:31)
+02. Marga Sol - Voyager (Original Mix) (5:44)
+03. Kanedo, Smitty - Mirandas (Original Mix) (6:13)
+04. Marga Sol, Darles Flow - Silent Day (6:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C30A75AF220854AD10B78414BCB06C16E1783A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523841   (748366) от 13.01.2022
+
+VA - The Essential Downtempo, Vol. 2: Chillout Your Mind (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour - Calm Before the Storm (4:52)
+02. Der Waldläufer - Blossom Sun (Original Mix) (5:28)
+03. Michael e - Theme from a Pleasant Interlude (Original Mix) (6:16)
+04. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A0738089E78F1E0CF12471D2A3059C5805B691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523730   (748365) от 13.01.2022
+
+VA - Bar Lounge Costes, Vol. 1 (2019) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Groove Ensemble - Jazz Dreams (Original Mix) (3:00)
+02. The Soul Crusaders, Marc Hartman - Stargazer (Original Mix) (4:56)
+03. Marga Sol - Palm Tree Chill (Original Mix) (5:23)
+04. Mission Brown, Arnob - Rosetta's Smile (Original Mix) (5:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AFB1A7F977733F238AF4A41662E337744B42A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523835   (748364) от 13.01.2022
+
+VA - Jazzy Weekend, Vol. 2 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Jazzy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - A Wonderful Day (Sophisticated Jazz Version) (3:01)
+02. Mission Brown, Arnob - Rosetta's Smile (Original Mix) (5:01)
+03. Steven Solveig - Smoking Jazz (Original Mix) (2:29)
+04. Music Of The Earth - Mellow Jazz (Original Mix) (3:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, JazzyПродолжительность: 02:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4A2C77B65DA1550E3C3D85AF1023ED9175DDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523767   (748362) от 13.01.2022
+
+VA - Sunset Emotions 5 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Mac, Simply Chill - Hope (Original Mix) (4:32)
+02. Chris le Blanc, Nightzone - Left Without a Kiss (5:27)
+03. Lemongrass - Sur La Mer (4:31)
+04. Skyeez - Home (Original Mix) (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED42E49914A2B93785F126EF895E2552308A52DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523771   (748358) от 13.01.2022
+
+VA - Sun Travellers, Vol. 2 (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DMTunes - Ser Mio (Original MIx) (4:42)
+02. Martin Liege - Balearic Jazz (Original Mix) (3:43)
+03. Sami Sivananda - Samadhi Vibes (Original Mix) (3:16)
+04. Michael e - Amanda (Original Mix) (5:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C811D3D52A8ABB6CC1739DEE6D4BA8CF55540C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523728   (748354) от 13.01.2022
+
+Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 1 (2018) [AAC|~327 Kbps] <Jazz-Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Bradlee's Postmodern Jukebox, Mario Jose, India Carney, Dave Koz - Perfect Duet (4:38)
+02. Scott Bradlee's Postmodern Jukebox, Sara Niemietz - Who Can It Be Now? (3:22)
+03. Scott Bradlee's Postmodern Jukebox, Hannah Gill, Casey Abrams - Crazy (4:29)
+04. Scott Bradlee's Postmodern Jukebox, LaVance Colley, Lee Howard - That's What I Like (3:44)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191E0B58D81176C1C36B651409577F434C6A8A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523758   (748352) от 13.01.2022
 
 VA - Sunset Emotions 1 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
@@ -6,7 +441,7 @@ VA - Sunset Emotions 1 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748352.jpg" />
 </div>
 
 
@@ -35,7 +470,7 @@ VA - Modern Urban Jazz 2 (2022) [AAC|~313 Kbps] <Jazz, Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748348.jpg" />
 </div>
 
 
@@ -64,7 +499,7 @@ VA - Modern Urban Jazz (2020) [AAC|~314 Kbps] <Jazz, Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748341.jpg" />
 </div>
 
 
@@ -93,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748337.jpg" />
 </div>
 
 
@@ -119,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748220.jpg" />
 </div>
 
 
@@ -148,7 +583,7 @@ VA - 50 любовных баллад шансона (Избранная люб�
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748208.jpg" />
 </div>
 
 
@@ -177,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748136.jpg" />
 </div>
 
 
@@ -203,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748059.jpg" />
 </div>
 
 
@@ -229,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748049.jpg" />
 </div>
 
 
@@ -256,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747867.jpg" />
 </div>
 
 
@@ -282,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747585.jpg" />
 </div>
 
 
@@ -293,424 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:522F99EF085F18CEB7BC65DAEEDCEC25D3C18180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216843   (747564) от 01.04.2018
-
-Все деньги мира / All the Money in the World (2017) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всем мире не было человека богаче, чем Пол Гетти. Принадлежать к его роду — все равно что быть богом. Однако, когда в Риме неизвестные похищают его внука, нефтяной магнат, ко всеобщему шоку, наотрез отказывается платить выкуп. И тогда единственной надеждой для матери мальчика становится таинственный сотрудник службы безопасности самого Гетти…Производство: СШАЖанр: Триллер, драма, криминал, детектив, биографияРежиссер: Ридли СкоттАктеры: Мишель Уильямс, Кристофер Пламмер, Марк Уолберг, Ромен Дюрис, Тимоти Хаттон, Чарли Пламмер, Чарли Шотуэлл, Эндрю Бакан, Марко Леонарди, Джузеппе БонифатиПеревод: Дублированный (iTunes)Субтитры: Русские,  АнглийскиеПродолжительность: 02:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576E9BB22DFE7A3BEB61BC114DECF1A2774EE2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889546   (747430) от 18.04.2015
-
-Мордекай / Mortdecai (2015) WEB-DLRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747430.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — история Чарльза Мордекая, обходительного арт-дельца и жулика по совместительству, который путешествует по всему миру и с помощью своего неотразимого обаяния пытается раздобыть украденную картину. По слухам, в этом произведении искусства содержится код доступа к банковской ячейке, наполненной нацистским золотом. По ходу Мордекаю приходится улаживать дела с недобрыми русскими, британской разведкой Mi5, международным террористом и со своей умопомрачительно длинноногой женой.Производство: СШАЖанр: Боевик, комедияРежиссер: Дэвид КеппАктеры: Джонни Депп, Гвинет Пэлтроу, Пол Беттани, Юэн МакГрегор, Оливия Манн, Джонатон Пасвольски, Майкл Калкин, Ульрих Томсен, Алек Утгофф, Роб де ГроотПеревод: Любительский (одноголосый)Продолжительность: 01:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2393333B50FA8F021B1515064E0877B8DD93E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783170   (747041) от 03.05.2014
-
-Помпеи / Pompeii (2014) BDRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747041.jpg" />
-</div>
-
-
-###  Подробнее
-
-История любви раба Майло и благородной Кассии, обрученной с римским сенатором, на фоне извержения Везувия, которое навсегда стерло с лица земли древнеримский город Помпеи…Жанр: Боевик, драма, мелодрама, приключенияПродюсер: Пол У. С. Андерсон, Джереми Болт, Дон КармодиВ ролях: Кит Харингтон, Эмили Браунинг, Кифер Сазерленд, Адевале Акинойе-Агбаже, Джаред Харрис, Кэрри-Энн Мосс, Джессика Лукас, Саша Ройз, Джо Пинг, Карри ГрэмПеревод: Дублированный (Line)Язык субтитров: АнглийскийПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E387D744BDD6BC70232D1D41210E8CB35CE233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524014   (746745) от 14.01.2022
-
-VA - A Winter Sampler 2 (2020) [AAC|~330 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dee Montero, Newman (I Love) - Shadows (7:31)
-02. Zone+ - The Muse (8:25)
-03. Davi - Stargazer (6:31)
-04. Makebo, Amonita - Symphonic Fantasy (8:17)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C68734A1F4B7B96E83C752BCBB01627CFD7C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524017   (746744) от 14.01.2022
-
-VA - A Winter Sampler 3 (2021) [AAC|~336 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somelee - Sansara (6:51)
-02. DIM KELLY - Voile De Chine (6:49)
-03. Mono Electric Orchestra - Antarctica (9:39)
-04. Qess - Sarraqa (7:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5923AD771FF44635B7C3BADD04DD8BE598F030B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524013   (746743) от 14.01.2022
-
-VA - A Winter Sampler 1 (2019) [AAC|~331 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuichiro Kotani, Hiroyuki Kajino - Playground #1 (6:58)
-02. Makebo - Sunland (8:35)
-03. Amonita - Magic Journey (8:37)
-04. Facundo Mohrr - After You (9:54)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79774D4CCCF7895E13133CB3345C9BA96836F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524020   (746742) от 14.01.2022
-
-VA - A Winter Sampler 4 (2022) [AAC|~338 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sébastien Léger, Tim Green - Iso (9:15)
-02. Legato - If I've Got You (8:26)
-03. Traumhouse - A Hopeful Place (6:54)
-04. Zone+ - Leviathan (7:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7242DD55D91A9A4E09B85B0507931C7286729BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524027   (746741) от 14.01.2022
-
-VA - Parquet Recordings - Retrospective 2021 (2021) [AAC|~324 Kbps] <Progressive House, Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee - Luft (9:19)
-02. Marc DePulse, Rafael Cerato - Capulet (7:29)
-03. D-Nox, Gai Barone - Painkiller (8:50)
-04. Jové - Obscure Unknown (7:18)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 02:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EF003A0B07942198FA80CB9F500216297EA4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523985   (746740) от 14.01.2022
-
-VA - Ishtar II (2022) [AAC|~313 Kbps] <Organic House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aural Mandragora - Sito (7:26)
-02. Ali Termos - Moonchild (5:58)
-03. Erhan Yılmaz - Zor Çamaşır (6:48)
-04. Biralo - Truth Serum (8:00)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB1D1902085534AD4EEE08EC711E631EDDAF97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523984   (746739) от 14.01.2022
-
-VA - Ishtar (2021) [AAC|~317 Kbps] <Organic House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slowlane - Borders (5:16)
-02. Goro (SY) - Sabadallh (6:26)
-03. Andara - Kabak Kemane (5:58)
-04. SEVN (CA) - El Niño (7:14)(   Читать дальше...   )Жанр: Organic House, Deep HouseПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2ABADC644E4C0ABEDE72D41955AAB32BFA5AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524030   (746737) от 14.01.2022
-
-VA - Totally Mobilee - Greatest Hits 2021 (2022) [AAC|~343 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rodriguez Jr. - Kilian (7:00)
-02. Nolan, Luke Brancaccio - See The Stars (Come Closer Remix) (6:02)
-03. Martin HERRS - Humalogy (5:52)
-04. Affkt - Jandía (5:19)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA816002747E9652EE9FE099644CD0D19B06CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396456   (746654) от 15.07.2020
-
-Алан Дин Фостер | Чужой. Официальная новеллизация (2018-2019) [M4B|AAC]
-
->>Аудио и Видео
->>Аудиокниги (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экипаж космического буксира «Ностромо», следующего в Солнечную систему, внезапно разбужен от криогенного сна. Причина – таинственные сигналы, поступающие с неисследованной планеты и воспринятые корабельным компьютером как призыв о помощи. Отправившись на поиски источника сигналов, исследовательская группа землян обнаруживает остатки гигантского звездолета, принадлежащего (   Читать дальше...   )Жанр: ФантастикаФормат: M4BПродолжительность: 31:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210B258A8BBE7BDC02B73EC2252BC649A96018D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282284   (746545) от 11.02.2019
-
-Западня / Коттедж / The Cottage (2008) WEB-DL [720p] ATV (AVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два незадачливых брата похитили дочь известного мафиози. В ожидании выкупа они привезли её в старый коттедж, расположенный в глухом районе Англии. Все бы хорошо, но мафия пронюхала, где их искать, заложница оказалось не подарок, а местный фермер оказался не вполне нормальным.Производство: Великобритания / Isle of Man Film, UK Film Council, Screen YorkshireЖанр: Ужасы, Триллер, Комедия, КриминалРежиссер: Пол Эндрю УильямсАктеры: Энди Серкис, Рис Шерсмит, Дженнифер Эллисон, Стив О’Доннелл, Джеймс Биерман, Кэт Мичер, Дэнни Нуссбаум, Логан Вонг, Джонатан Чан-Пинсли, Саймон ШацбергерПеревод: Авторский одноголосыйСубтитры: АнглийскиеПродолжительность: 01:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A1740EB5D19EFA18CF34F65441A565BAF6447F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524127   (746515) от 14.01.2022
-
-Смешарики - СмешКаверФест (2021) [AAC|~323 Kbps] <Pop, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смешарики открывают СмешКаверФест и представляют Мумий Тролль (0:50)
-02. Мумий Тролль - От винта! (2:54)
-03. Смешарики представляют группу Фрукты (0:24)
-04. Фрукты - Вести-бу-би-лю-би-бу (2:59)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F297FDA43A87D784C2EE569B2A83844886B2D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672143   (746468) от 03.05.2014
-
-Свидетель на свадьбе / The Best Man (2005) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олли - писатель-неудачник, имеющий самую посредственную работу для человека своего круга. Казалось бы, его жизнь уже лишена всякого смысла... Но однажды случай меняет все... Раздается неожиданный звонок от друга по колледжу Джеймса с просьбой стать свидетелем на его свадьбе.
-И, конечно же, Олли влюбляется с первого взгляда в красавицу-невесту, в будущую жену своего лучшего друга. Всячески пытаясь сдержать свои чувства к Саре, главный герой постепенно понимает, что его лучший друг - вовсе не тот мужчина, который заслуживает любви такой прекрасной девушки. А что, если жених и свидетель поменяются местами?...Жанр: мелодрама, комедияВ ролях: Стюарт Таунсенд, Эми Смарт, Сет Грин, Стив Джон Шеперд, Анна Чэнселлор, Саймон Кэллоу, Каллум Уильямс, Джоди Мэй, Мат Хауманн, Джейкоб МориартиПеревод: Русский дублированный (R5)Продолжительность: 01:35:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

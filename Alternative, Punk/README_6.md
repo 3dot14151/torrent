@@ -1,3 +1,32 @@
+###  Публикация: 1003486   (843203) от 03.04.2016
+
+The Cat Empire - Rising With The Sun (2016) [MP3|320 кб/с] <Ska, Funk, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves (03:24)
+02. Bulls (03:27)
+03. Midnight (04:23)
+04. Blasting Away (03:50)(   Читать дальше...   )Жанр: Ska, Funk, IndieПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D35E3C8584C4216A7B08459707B2812DBB2E01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379824   (837691) от 30.04.2020
 
 VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
@@ -6,7 +35,7 @@ VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837691.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Filter - Crazy Eyes (2016) [MP3|320 кб/с] <Alternative Rock, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836768.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Malrun - Pandemonium (2021) [MP3|320 Kbps] <Modern Metal, Melodic Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836570.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Car Seat Headrest - Making a Door Less Open (2020) [MP3|320 Kbps] <Indie Rock, A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836374.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Deftones - Gore (2016) [MP3|320 кб/с] <Alternative Metal, Post-Metal, Experim
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836165.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Green Day - 25 Albums (1989-2014) [MP3|320 кб/с]<Punk Rock, Altenative Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834710.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834371.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Placebo - Meds: B-Sides (2016) [MP3|320 кб/с] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830534.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Lovedrug - Turning Into Something You Were Never Meant To Be (2020) [MP3|320 Kbp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829847.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ The Fratellis - Half Drunk Under a Full Moon (2020) [MP3|320 Kbps] <Indie Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829839.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Coldplay - Music of the Spheres (2021) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828037.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [MP3|320 Kbps
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826502.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Our Last Night - Let Light Overcome The Darkness (2020) [MP3|320 Kbps] <Post-Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826243.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ PJ Harvey - The Hope Six Demolition Project (2016) [MP3|320 кб/с] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821494.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820527.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Larkin Poe - Reskinned (2016) [MP3|320 кб/с] <Indie Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819561.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Larkin Poe - Kin (2014) [MP3|320 кб/с] <Indie Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817844.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ The Pretty Reckless - Just Tonight (2010) Single [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817583.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ The Pretty Reckless - Going To Hell (2014) Victor, VICP 65213, Japan [MP3|320 Kb
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817576.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815420.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ The Pretty Reckless - Light Me Up (2011) Japanese Edition [MP3|320 Kbps] <Altern
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813786.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ The Pretty Reckless - Going To Hell (2014) Limited Edition, Vinyl LP [MP3|320 Kb
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813774.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Asking Alexandria - Like a House On Fire (2020) [MP3|320 Kbps] <Metalcore, Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813608.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Dead Sara - Ain't It Tragic (2021) [MP3|320 Kbps] <Alternative Rock, Modern Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812219.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ MorozMatik - On the way to the Bucketland (2013) [MP3|320 кб/с]<Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812159.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ MorozMatik - On the way to the Bucketland (2013) [MP3|320 кб/с]<Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0F13E607358486E7CA1C87DE43A7162FDF4B6DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883702   (810860) от 01.04.2015
-
-Hollywood Undead - Day Of The Dead (2015) Best Buy Edition [MP3|320 кб/с]<Alternative Rock, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Usual Suspects
-02. How We Roll
-03. Day Of The Dead
-04. War Child(   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3363D11C6ECB75D57C35DBC70B09F19A08F8F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963117.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Windows PowerShell 5.1 [Ru]
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961716.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1165] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897107.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1237] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862974.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Microsoft Windows 11 Insider Preview, Version 21H2 [10.0.22000.194] - Ориги
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862747.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1237] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862745.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Windows Server vNext LTSC Preview - Build 22463.1000 - Оригинальные 
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862742.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1288] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815742.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Microsoft Windows 11 Insider Preview [10.0.22483.1000], Version Dev - Ориги
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815708.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Windows Server 2022 LTSC [10.0.22483.1000], Version Dev - Оригинальны
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815405.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Microsoft Windows 11 Insider Preview [10.0.22483.1000], Version Dev - Ориги
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815384.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1288] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813536.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755561.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676140.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586598.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_386642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386642.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357407.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269315.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Microsoft Windows 11 Insider Preview, Version 23H2 [10.0.22631.2361] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184282.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Windows Server 2025 Beta builds 23H2 26010.1000 [EN] (Updated January 2024) 23H2
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119061.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Windows Server 2025 LTSC [10.0.26100.1], Version 24H2 Preview - Оригинал
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55786.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Microsoft Windows 11 [10.0.26100.560], Version 24H2 Preview - Оригиналь
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55779.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Microsoft Windows 11 [10.0.26100.560], Version 24H2 Preview - Оригиналь
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55766.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Microsoft Windows 11 [10.0.26100.863], Version 24H2 Preview - Оригиналь
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52855.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Microsoft Windows 11 [10.0.26100.863], Version 24H2 Preview - Оригиналь
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52841.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ AAF Family DCH Audio Realtek 10.11.9823.1 Mod by AlanFinotty [En]
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20010.jpg" />
 </div>
 
 

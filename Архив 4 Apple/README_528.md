@@ -1,3 +1,56 @@
+###  Публикация: 1511508   (236015) от 21.11.2021
+
+Exposure Software Snap Art 4 v4.1.3.386 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snap Art 4 - этот плагин предназначен для превращения фотографий в картины и рисунки, нарисованные от руки различными стилями. Содержит большую библиотеку предварительных заготовок, которые дают возможность одним щелчком мыши создавать картины, написанные или нарисованные маслом, углем, акварелью, цветными карандашами, ручкой и чернилами, пастельными мелками, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2021Разработчик: © 2021 Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F389D4139819F07D47D5E343E7C5DC0E5508A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640872   (236008) от 19.06.2023
+
+Cisdem PDF Converter OCR 8.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem PDF Converter OCR- быстро и аккуратно конвертирует как нативные, так и отсканированные PDF файлы в редактируемые документы.
+Скажите Стоп перепечатыванию PDF документов со сложными макетами и графикой. Используйте Cisdem PDF Converter OCR для конвертирования PDF файлов в Microsoft Word (.docx), PowerPoint (PPTX);, EPUB, RTFD, TEXT, HTML, Keynote, Pages, изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.06.2023Разработчик: © 2023 Cisdem Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8DD638450FF17418C7A4226618E09E1395789E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511556   (235996) от 21.11.2021
 
 AnyGo 5.2.5 [En]
@@ -6,7 +59,7 @@ AnyGo 5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235996.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235989.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Wondershare Recoverit for Mac 12.0.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235978.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ DEVONthink Pro 3 Office/Server 3.9.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235918.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ The Unarchiver - Unzip RAR ZIP 3.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235898.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Author 6.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235841.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ MarsEdit 4 v4.4.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235834.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Downcast 2.9.63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235825.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ Filmage Screen-Screen Recorder 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235823.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ WonderPen 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235809.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235801.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Bartender 4 v4.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235795.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Cookie 6.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235783.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ LilyView 1.5 [Rus/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235776.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ One Switch 1.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235775.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Project Office X Pro 1.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235749.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Lungo 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235698.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Affinity Publisher 2 v.2.1.1  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235686.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ BeanCounter Pro 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235674.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ Downie 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235667.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ Smultron 12.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235657.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ Exhibeo 2 v2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235648.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ Affinity Publisher 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235640.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ Permute 3 v3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235625.jpg" />
 </div>
 
 
@@ -627,59 +680,6 @@ Permute - очень простой видео конвертер с миним�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80F3A856207BD020D8B9E3042E2CB01E4F2A498F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458846   (235614) от 30.03.2021
-
-Posterino 3 v3.10.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
-Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2021Разработчик: Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD98D6F463009AF5E41DBD367830EEE79D1C4C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512509   (235611) от 25.11.2021
-
-Data Guardian 7 v7.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: © 2021 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71163FA32E97EF89CC7251EB7D62C7A1677205B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

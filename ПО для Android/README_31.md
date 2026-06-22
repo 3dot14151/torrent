@@ -1,3 +1,29 @@
+###  Публикация: 1482874   (1007255) от 10.07.2021
+
+WeNote - Заметки, задачи, напоминания и календарь 3.59 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007255.jpg" />
+</div>
+
+
+###  Подробнее
+
+WeNote - Заметки, задачи, напоминания и календарь - это многофункциональное и крайне удобное приложение, что предлагает пользователям возможность составлением задач и заметок в одной оболочке. С простым и наглядным интерфейсом, оперативным вводом данных, созданием элементов и всего прочего, а так же напоминаний, интерактивных списков и многое другого. Так же можно (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.06.2021Разработчик: Yocto EnterpriseПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4A7E7DFB33FCE432447941C82DAC18821F4273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475177   (1007248) от 10.07.2021
 
 Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляемая)
@@ -6,7 +32,7 @@ Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляем
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007248.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007138.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Eon Music Player Pro 5.5.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007125.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007078.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Correct spelling v11.0 [En] - English learning app
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006475.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Measure Map v1.2.23 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006229.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Blokada - AD Blocker for Android v5.14.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006208.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006184.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Picture Fish - Fish Identifier v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005439.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ File Converter v12.1.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005432.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Photo Translator v8.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005415.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005064.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004968.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Rotation - Orientation Manager v22.2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004465.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изобра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003098.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Money Pro v2.0.13  [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001881.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001813.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Fake GPS Location v3.5 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001541.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Seven – 7 минутные тренировки. Упражнения для �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001495.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Audio MP3 Cutter Mix Converter v1.90 Pro [Ru/Multi] - обрезка и конв
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001331.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ VK Coffee v8.00 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000973.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Private Browser - Fast VPN Incognito Browser 3.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000797.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ GFX Tool for PUBG 8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000767.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ WorkAudioBook v4.4.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000761.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997079.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353236   (992619) от 17.01.2020
-
-MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте лучшие музыкальные биты с барабанными колодками и сэмплами в месте с MPC MACHINE - Sampling Drum Machine Beat Maker. Профессиональный пробоотборник и ударные инструменты сделают ваш битбокс уникальным.Тип издания: Premium (Лицензия из Google Play)Релиз состоялся: 27.03.2019Разработчик: Incredible Software UKПоддерживаемая ОС: Android 1.5+Жанр: Мультимедиа, Music MakersЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D260E000F0614384F41173B6D5CBC327E8BD92B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

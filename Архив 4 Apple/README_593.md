@@ -1,3 +1,59 @@
+###  Публикация: 1430664   (173904) от 10.12.2020
+
+Omni Recover 2.9.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
+
+Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083FADFF4DAB26645F0F1E173ED96FE6D355A9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430449   (173902) от 10.12.2020
+
+Audio Playr 2.3  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Playr (был Little Audio) представляет собой удобный инструмент для воспроизведения и экспорта практически любого файла, который содержит аудио.
+
+Audio Playr App может обрабатывать почти все, если файл содержит аудио в той или иной форме. Все, начиная от аудио форматов для контейнеров файлов фильмов, вы можете экспортировать в AAC или Apple Lossless. Вот Некоторые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD873EEFBAD02C2A4E50C8847B4F7CA7D4EBF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430544   (173884) от 10.12.2020
 
 NAMO 1.0.1 [En]
@@ -6,7 +62,7 @@ NAMO 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173884.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Luminar Neo 1.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173860.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ Ableton Live Suite 11 v.11.3.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173833.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ Pixelmator Pro 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173698.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ djay Pro AI 3.0.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173668.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ Artlantis 2021 v9.5.2.24851 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173662.jpg" />
 </div>
 
 
@@ -163,7 +219,7 @@ Audio Hijack 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173647.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ EtreCheck Pro 6.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173506.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ Marked 2 - Markdown Preview 2.6.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173504.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ Dropzone 4 Pro 4.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173503.jpg" />
 </div>
 
 
@@ -271,7 +327,7 @@ Permute 3 v.3.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173502.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ DirEqual 5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173498.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ Dropshare 5 v.5.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173496.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ A Better Finder Rename 12.01 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173494.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ Native SQLite Manager 1.26.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173493.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ DockView 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173486.jpg" />
 </div>
 
 
@@ -430,7 +486,7 @@ Dash 7.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173482.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ Downie 4 v.4.6.31 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173470.jpg" />
 </div>
 
 
@@ -484,7 +540,7 @@ SwitchResX 4.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173388.jpg" />
 </div>
 
 
@@ -513,7 +569,7 @@ XMind Pro 2023 23.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173360.jpg" />
 </div>
 
 
@@ -539,7 +595,7 @@ Storyist 4 v.4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173262.jpg" />
 </div>
 
 
@@ -565,7 +621,7 @@ Notebooks – Write and Organize 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173259.jpg" />
 </div>
 
 
@@ -591,7 +647,7 @@ YT Saver Video Downloader & Converter for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173245.jpg" />
 </div>
 
 
@@ -617,7 +673,7 @@ TechSmith Camtasia 2022 Studio 2022.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173244.jpg" />
 </div>
 
 
@@ -628,58 +684,6 @@ Camtasia for Mac — эффективное приложение для созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896CE7546490D2978DBF569E4DF6DCD047F6800C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668911   (173238) от 14.10.2023
-
-Proxyman for Mac 4.12.0 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proxyman — это современное и интуитивно понятное приложение HTTP Debugging Proxy. Не позволяйте громоздким инструментам веб-отладки сдерживать вас. С родным приложением Proxyman для macOS вы можете с легкостью захватывать, проверять и манипулировать трафиком HTTP(s).Тип издания: macOS SoftwareРелиз состоялся: 30.09.2023Разработчик: © 2023 Proxyman LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7899102324B249FDAB645F3D5B8C55F222368C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668914   (173214) от 14.10.2023
-
-USBclean 3.7.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая мощная утилита для очистки USB, когда-либо сделанная. Быстро и легко удалять надоедливые файлы мусора и призраков с внешних USB-накопителей. .DS_Store, Thumbs.db, .Spotlight и файлы trashes занимают драгоценное пространство и могут вызывать проблемы на некоторых устройствах. Удалите любое количество предварительно настроенных типов файлов или добавьте собственные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9933AEF102DEF7926C616B3FF29136377BA4A1FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

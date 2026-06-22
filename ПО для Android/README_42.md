@@ -1,3 +1,29 @@
+###  Публикация: 1117491   (792345) от 31.05.2020
+
+Рисование для малышей! v3.0.1.1 Full [Ru/En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792345.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Рисование для малышей!» – это великолепная возможность пробудить в ребёнке интерес к творчеству. В весёлой игровой форме поможет вашему малышу легко научиться рисовать множество простых и симпатичных персонажей. Необычное сочетание рисования и анимации делает это приложение действительно уникальным! В этой игре-рисование для детей можно шаг за шагом нарисовать очаровательного (   Читать дальше...   )Тип издания: Пиратка (Full с Маркета)Релиз состоялся: 29.05.2020Разработчик: Bini BambiniПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901E9EF96DF9356601DF3809C54F97B262534F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387317   (791757) от 01.06.2020
 
 UFO VPN 2.3.10 [En]
@@ -6,7 +32,7 @@ UFO VPN 2.3.10 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791757.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Personal Vault PRO 3.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791258.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Bliss - Icon Pack 1.3.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791248.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Frequency generator / Генератор частоты 4.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791211.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ AndFTP Pro 4.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790662.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790629.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ MyTreeNotes - Записная книжка v6.6 [Ru/Multi] - функциона
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790229.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Mazetools Soniface 2.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790078.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ LOL!TV v3.0.1 [Ru] - Торрент ТВ для Android, ваше онлайн �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789682.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789562.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789403.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789272.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789262.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787806.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Shadowsocks 5.2.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787793.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Bitdefender Antivirus Premium 3.2.89.131 [Ru] - Антивирус
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786240.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Home Design 3D v4.0.8 Pro [Ru/Multi] - Создание и персонализ�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785857.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784296.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ App Backup & Share Pro 10.3.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784196.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Volume Slider Like Android P Volume Control 3.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783886.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ ReadEra  v20.05.22+1210 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783266.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783156.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781832.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781637.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780476.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A6D85CE4F934CFE23357F6DEDFF1E5698AAF2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207842   (780354) от 19.02.2018
-
-Wake me up! Умный Будильник v5.0.5 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wake me up! - это постоянно улучшаемый умный будильник с расширенными функциями в стиле Material Design. Он полностью совместим с Android 6 Marshmallow, Android 7 Nougat, Doze и DirectBoot. Даже в режиме Doze будильники срабатывают правильно и вовремя.Тип издания: Пиратка (разблокирована)Релиз состоялся: 01.11.2017Разработчик: FiveZПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DCBB1DBFCB0AC53E6F602DDD743D43E562C6B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

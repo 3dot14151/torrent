@@ -1,3 +1,107 @@
+###  Публикация: 1782467   (26213) от 28.02.2025
+
+Трансформеры / Transformers (2007-2024) BDRip [H.265/1080p] [10-bit] [Антология]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трансформеры — история, повествующая о войне между инопланетными разумными машинами, которые могут трансформироваться в автомобили, грузовики, самолёты, технику, людей и животных.Производство: США, Иордания, Великобритания, Китай, Гонконг, Канада, Новая Зеландия / Di Bonaventura Pictures, DreamWorks SKG, Hasbro Inc., Paramount Pictures, SprocketHeads, ThinkFilm Inc., Ian Bryce Productions, Tom DeSanto/Don Murphy Production, Huahua Film & Media Culture, Allspark Pictures, Bay Films, Tencent Pictures, Aurum Producciones S.A., New Republic Pictures, Skydance (   Читать дальше...   )Жанр: фантастика, боевик, приключенияРежиссер: Майкл Бэй, Трэвис Найт, Стивен Кейпл мл., Джош КулиАктеры: Шайа ЛаБаф, Меган Фокс, Тайриз Гибсон, Джон Войт, Роузи Хантингтон-Уайтли, Алан Тьюдик, Джон Малкович, Никола Пельтц Бекхэм, Марк Уолберг, Энтони Хопкинс, Дилан О’Брайен, Хейли Стайнфелд, Джон Сина, Доминик Фишбэк, Энтони Рамос, Крис Хемсворт, Брайан Тайри Генри, Скарлетт Йоханссон, Стив Бушеми, Лоренс ФишбёрнПеревод: дублированный, профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый), любительский (одноголосый, закадровый)Язык озвучки: русский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 02:23:27 / 02:30:24 / 02:34:23 / 02:45:07 / 02:34:38 / 01:53:53 / 02:07:31 / 01:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7071571054C23924EA123A64CEBE592D65016050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661812   (24481) от 16.03.2025
+
+Двойная рокировка / Mou gaan dou / Infernal Affairs (2002, 2003) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24481.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух людей, ежесекундно рискующих жизнью. Один из них — агент мафии в полиции, другой — полицейский, внедренный в мафию. Каждый стремится к одному: разоблачить врага...Производство: Гонконг, Китай, Сингапур / Media Asia Films, Basic Pictures, Eastern Dragon Film Co. Ltd., Mediacorp Raintree PicturesЖанр: боевик, триллер, драма, криминалРежиссер: Эндрю Лау, Алан МакАктеры: Энди Лау, Тони Леунг, Энтони Вонг, Чау Санг, Эрик Цанг, Келли Чен, Самми Ченг, Эдисон Чен, Шоун ЮПеревод: Многоголосый профессиональный, АвторскийЯзык озвучки: русский, китайскийСубтитры: русские, английские, китайскиеПродолжительность: 01:40:58 | 01:59:38 | 01:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF96420FB5E065ACF6F3D57E6100210B26400A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460212   (23713) от 24.03.2025
+
+Час пик / Rush Hour (1998-2007) BDRip [H.265/1080p] [10-bit] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23713.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Час Пик" -это серия фильмов о боевых искусствах/боевиках с участием Джеки Чана и Криса Такера, снятых режиссером Бреттом Ратнером и распространяемых компанией New Line Cinema. Главный сюжет сосредоточен вокруг пары полицейских детективов: китайского полицейского инспектора и американского детектива полиции Лос-Анджелеса, которые совершают серию злоключений, (   Читать дальше...   )Производство: США, Гонконг, Германия / New Line Cinema, Roger Birnbaum Productions, Hiett Designs of Las Vegas, Arthur Sarkissian Productions, Unlike Film ProductionsЖанр: боевик, комедия, триллер, криминалРежиссер: Бретт РэтнерАктеры: Крис Такер, Джеки Чан, Макс фон Сюдов, Хироюки Санада, Иван Атталь, Юки Кудо, Ноэми Ленуар, Чжан Цзинчу, Ма Ци, Дэна АйвиПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:37:51 / 01:30:08 / 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE6C00D2EC14D8B3489504280E99F255F45A2CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226834   (23488) от 26.03.2025
+
+Сумерки / Twilight (2008/2009/2010/2011/2012) BDRip [H.264/1080p-LQ] [Пенталогия]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатилетняя девушка Бэлла переезжает к отцу в небольшой городок Форкс. Она влюбляется в загадочного одноклассника, который, как оказалось, происходит из семьи вампиров. Это романтично, это прекрасно и мучительно, но это не может кончиться добром, особенно в вечном противостоянии вампирских кланов, где малейшее отличие от окружающих уже превращает вас в врага...Производство: США / Summit Entertainment, Temple Hill Entertainment, Maverick Films, Imprint Entertainment, TSBD Canada Productions, Sunswept EntertainmentЖанр: Фэнтези, Драма, Мелодрама, Триллер, ПриключенияРежиссер: Кэтрин Хардвик, Крис Вайц, Дэвид Слэйд, Билл КондонАктеры: Кристен Стюарт, Роберт Паттинсон, Билли Бёрк, Эшли Грин, Анна Кендрик, Тэйлор Лотнер, Джексон Рэтбоун, Питер Фачинелли, Рашель Лефевр, Кэм Жиганде, Кристина Ястржембска, Майкл Уэлш, Джастин Чон, Кристиан Серратос, Брайс Даллас Ховард, Сара Кларк, Дакота Фаннинг, Никки Рид, Элизабет Ризер, Келлан Латс, Джексон Рэтбоун, Келлан ЛатсПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:01:50 / 02:10:38 / 02:03:57 / 01:57:08 / 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4FA79EFC970E50C931A82C66C41D35065DD862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487334   (23071) от 30.03.2025
 
 Крик / Scream (1996-2023) BDRip [H.265/1080p] [10-bit] [Коллекция]
@@ -6,7 +110,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23071.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20873.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20766.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20557.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20447.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20225.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20137.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20035.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20015.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20008.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18381.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17644.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15920.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15794.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15322.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14806.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14546.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13341.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12399.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12100.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11463.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11422.jpg" />
 </div>
 
 
@@ -568,114 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29323C119638EB738234150D37539E0D09AB6F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601989   (11235) от 17.07.2025
-
-Козырные тузы / Smokin' Aces (2007 / 2009) BDRip [H.265/1080p] [10-bit] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11235.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Козырные тузы» — кинофильм 2006 года, криминальный боевик-триллер с элементами драмы, Фильм повествует о борьбе ФБР с американской мафией.
-В начале 2010 года, без выхода в широкий прокат, был выпущен фильм «Козырные тузы 2: Бал смерти», являющийся приквелом. Из киллеров первого фильма в нём появились Лазло Сут и один из братьев Треморов — Лестер. В фильме также (   Читать дальше...   )Производство: Великобритания, Франция, США, Канада / Relativity Media, Scion Films Limited, Studio Canal, Universal Pictures, Working Title Films, Always Split Aces Productions, Capital Arts Entertainment, Universal Studios Home EntertainmentЖанр: боевик, триллер, драма, комедия, криминалРежиссер: Джо Карнахан, П.Дж. ПешеАктеры: Райан Рейнольдс, Энди Гарсиа, Джереми Пивен, Рэй Лиотта, Том Беренджер, Клейн Кроуфорд, Томми Флэнаган, Мори СтерлингПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: русский, английский, французскийСубтитры: русские (Forced, Full, Commentary), английские (SDH, Commentary), французские (Forced)Продолжительность: 01:48:49 | 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A382477D45DB5DEDC5D969F545F5E3AAA547A461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649455   (10949) от 20.07.2025
-
-Кинематографическая вселенная Marvel: Пятая фаза / Marvel Cinematic Universe: Phase Five (2023 - 2025) BDRip [H.264/1080p] [Коллекция]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятая фаза кинематографической вселенной Marvel (КВМ) — серия американских супергеройских фильмов и телесериалов, созданных Marvel Studios и основанных на персонажах Marvel Comics.
-
-В фазу войдут фильмы: «Человек-муравей и Оса: Квантомания» (февраль 2023 года) с Полом Раддом и Эванджелин Лилли, командный фильм «Стражи Галактики. Часть 3» (май 2023 года), «Капитан (   Читать дальше...   )Производство: США / Marvel Studios, Truenorth Productions, Walt Disney Pictures, Fox Studios AustraliaЖанр: фантастика, боевик, приключенияРежиссер: Пейтон Рид, Джеймс ГаннАктеры: Пол Радд, Эванджелин Лилли, Майкл Дуглас, Мишель Пфайффер, Джонатан Мэйджерс, Кэтрин Ньютон, Билл Мюррей, Кэти О’Брайн, Уильям Джексон Харпер, Джэми Эндрю Катлер, Крис Пратт, Карен Гиллан, Пом Клементьефф, Дэйв Батиста, Зои Салдана, Чукуди Ивуджи, Брэдли Купер, Уилл Поултер, Вин Дизель, Шон Ганн, Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Энтони (   Читать дальше...   )Перевод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:29 / 02:30:02 / 01:44:44 / 01:58:32 / 02:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB51BE99526F8852CDFB98B0CB8184BBBACA426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420414   (9708) от 01.08.2025
-
-Голый пистолет / The Naked Gun (1982,1988,1991,1994) BDRip [H.265/1080p] [10-bit] [Антология]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мини-сериал и три полнометражных фильма о работе полицейского из «летучего отряда полиции» — пародия на сериалы и фильмы «про полицейских».Производство: США / Paramount PicturesЖанр: комедия, криминалРежиссер: Джо Данте, Джим Абрахамс, Реза Бадии, Дэвид Цукер, Питер СигалАктеры: Лесли Нильсен, Алан Норт, Рекс Хэмилтон, Эд Уильямс, Уильям Дюэл, Питер Люпус, Тесса Ричард, Георг Стэнфорд Браун, Уильям Конрад, Робер Гуле, Присцилла Пресли, Рикардо Монтальбан, Джордж Кеннеди, О. Дж. Симпсон, Сьюзэн Бьюбиан, Нэнси Марчанд, Рэй Бирк, Жанетт Чарльз, Эд Уильямс, Ричард Гриффитс, Жаклин Брукс, Энтони Джеймс, Ллойд Бокнер, Тим О’Коннор, Фред Уорд, (   Читать дальше...   )Перевод: профессиональный многоголосый, профессиональный двухголосый, авторский одноголосый, любительский одноголосыйСубтитры: Русские полные (SRT), English full (SRT)Продолжительность: 02:30:49 / 01:24:59 / 01:25:06 / 01:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F16BF804F68DF38F8D2B6AF347115369A38325C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810379   (9352) от 04.08.2025
-
-Миллениум Стига Ларссона / The Stieg Larsson's Millennium (2009) BDRip [AV1/1080p] [10-bit] [трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9352.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Миллениум» — детективная трилогия, написанная шведским писателем Стигом Ларссоном, главными героями которой являются Микаэль Блумквист, детектив-журналист, и девушка-хакер Лисбет Саландер.
-Трилогия включает в себя: «Девушку с татуировкой дракона», «Девушку, которая играла с огнем» и «Девушку, которая взрывала воздушные замки». Все книги стали бестселлерами с общим (   Читать дальше...   )Производство: Швеция, Дания, Германия, Норвегия / Film i Väst, Filmpool Stockholm Mälardalen, Yellow Bird Films AB, ZDF Enterprises, Nordisk Film A/SЖанр: триллер, драма, криминал, детективРежиссер: Нильс Арден Оплев, Дэниэл АльфредсонАктеры: Микаэл Нюквист, Нуми Рапас, Петер Андерссон, Анника Халлин, Лена Эндре, София Ледарп, Михалис КуцогианнакисПеревод: Дублированный, Многоголосый, Двуголосый, АвторскийЯзык озвучки: русский, шведскийСубтитры: русскиеПродолжительность: 02:32:52 | 02:09:38 | 02:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D372BDED25722F39BB28E4A3F79A0CBE693B5FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

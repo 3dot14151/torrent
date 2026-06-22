@@ -1,3 +1,58 @@
+###  Публикация: 1407679   (461868) от 09.09.2020
+
+3D модели - Daz 3D - Scar 8 Pro Bundle - 70885 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Scar 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4FE610B32DAEEB3B7129D95D95AE3D7D771A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548880   (461650) от 20.09.2012
+
+3D сцены - Evermotion - Archinteriors Vol. 027 [V-Ray|*.max]
+
+>>След.
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник сцен интерьеров от компании Evermotion!
+
+Данный сборник содержит 10 сцен: полностью затекстуренных и готовых к рендерингу. В каждой сцене имеется наличие как минимум 3-х камер. А так же файлы .psd с примерами пост-обработки сцен!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19E12C794FCA07C2D773B125190725750ED2904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246512   (461171) от 11.09.2018
 
 3D модели - Hum3D - Ford F-250 Super Duty Super Cab XLT 2015 [V-Ray|*.max, OBJ]
@@ -6,7 +61,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461171.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458564.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456537.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452832.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450970.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449975.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445319.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445312.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442972.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437353.jpg" />
 </div>
 
 
@@ -279,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437176.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ Hum3D - Fiat Ducato Panel Van L2H2 with HQ interior 2014 [Scanline|Mental Ray|V-
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435283.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429469.jpg" />
 </div>
 
 
@@ -358,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429397.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427988.jpg" />
 </div>
 
 
@@ -413,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422131.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419863.jpg" />
 </div>
 
 
@@ -465,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419700.jpg" />
 </div>
 
 
@@ -491,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419506.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ Hum3D - Volkswagen Crafter Panel Van L1H2 2017 [Scanline|Mental Ray|V-Ray|*.max,
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418298.jpg" />
 </div>
 
 
@@ -543,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417611.jpg" />
 </div>
 
 
@@ -569,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417597.jpg" />
 </div>
 
 
@@ -595,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416068.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415170.jpg" />
 </div>
 
 
@@ -634,62 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2DA050D9C1271512592EC229503FCA088771DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325940   (408408) от 17.09.2019
-
-3D сцены - Blender Cloud - Art Gallery - Gleb Alexandrov [BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408408.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D сцены Глеба Александрова с сайта Blender Cloud:
-- Locomotives
-- Light Trails
-- Attic(   Читать дальше...   )Формат: BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9822C7F63864F6EC477B13D0A41A63865E5AA023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574049   (407221) от 03.09.2022
-
-3D модели - 3DSky PRO models - 2022 #2 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 455 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309C833EE8D1CA067AB0DF506FE01E18333E2CF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

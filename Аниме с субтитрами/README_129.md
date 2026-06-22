@@ -1,3 +1,29 @@
+###  Публикация: 1772438   (23051) от 30.03.2025
+
+Nihon e Youkoso Elf-san. / Welcome to Japan, Ms. Elf! / Добро пожаловать в Японию, госпожа эльф! [2025, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадзухиро Китасэ — большой любитель поспать. Во сне он попадал в чудесный мир снов и отправлялся в захватывающие приключения. Однажды Кадзухиро начинает путешествовать с эльфийкой, которую встретил в мире своих грёз, но всё резко прекращается, когда они попадают под огненное дыхание дракона. Проснувшись, он обнаруживает свою знакомую, спящую рядом с ним! Так начинаются (   Читать дальше...   )Жанр: комедия, повседневность, фэнтези.Режиссер: Китахата ТоруЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24291CC222D8047DBFDD13642F83BD32CCAC3103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772530   (23047) от 30.03.2025
 
 Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Перерождение мужчины средних лет в дочь дворянина [2025, TV, 12 эп.] WebRip 720p raw
@@ -6,7 +32,7 @@ Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Перерожд�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23047.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23032.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Thunderbolt Fantasy: Seishi Ikken | Thunderbolt Fantasy: The Sword of Life and D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22794.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Hana wa Saku, Shura no Gotoku / Flower and Asura / Цветок, распуск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22751.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Ameku Takao no Suiri Karte / Ameku Takao's Detective Karte / Детективн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22743.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] WEBRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22739.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Juusenki L-Gaim I: Pentagona Window + Lady Gavlet | Heavy Metal L-Gaim I: Pentag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22475.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22462.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22431.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 3 | Thunderbolt Fantasy: Sword Seekers 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22047.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Momentary Lily | Мгновение Лили [2025, TV, 13 эп. + SP] WebRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21699.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Bloody Escape: Jigoku no Tousou Geki | Bloody Escape: Bats out of Hell | Кро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20788.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20425.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Touhai: Ura Rate Mahjong Touhai Roku | Ледяные кости [2024, TV, 25 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20126.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20111.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Lycoris Recoil: Friends Are Thieves of Time. / Ликорис Рикойл: Др
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17574.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Guilty Gear Strive: Dual Rulers | Guilty Gear Strive: Двойные прави�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17188.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16319.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16318.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Garo: Honoo no Kokuin / Garo the Animation / Гаро: Печать пламен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16284.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Watashi no Shiawase na Kekkon | My Happy Marriage | Мой счастливый 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16248.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Загадочные 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16204.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16111.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Hamefura. Movie | Bakarina. Movie | Gekijouban Otome Game no Hametsu Flag shika 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16106.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Gekijouban Overlord: Sei Oukoku Hen | Overlord: The Sacred Kingdom | Повел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15774.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Gekijouban Overlord: Sei Oukoku Hen | Overlord: The Sacred Kingdom | Повел�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:399E719892E8F98B784AA22412493E1E01D5976C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800523   (15760) от 03.06.2025
-
-Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to World's Strongest Season 3 | Арифурэта [ТВ-3] [2024, TV, 16 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаджимэ Нагумо семнадцать лет, и он мало чем может похвастать: по ночам играет, а в школе только и делает, что спит. Всё изменилось в одночасье, когда его вместе со всем классом призвали в другой мир. Правда, Хадзимэ не отличился и здесь: пока одноклассники один за другим открывали невероятные, по меркам нового мира, способности, он обзавёлся лишь бесполезным ремесленным (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Иванага АкираПеревод: CrunchyRoll; YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 16 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D64A5AAFC51345757D07050A0BB8AFBFE6243A
 ```
 
 https://mybot314.ru/tekegram_catalog/

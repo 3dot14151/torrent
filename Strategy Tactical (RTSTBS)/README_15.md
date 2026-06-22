@@ -1,3 +1,29 @@
+###  Публикация: 1084573   (149064) от 25.12.2016
+
+Worms Revolution (2012) [Ru/En] (1.0.140/dlc) Repack Mizantrop1337 [Gold Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Worms Revolution – это самая последняя игра в серии классических пошаговых стратегий, выходящая на просторы системы ПК, с множеством захватывающих новых опций и великолепной трехмерной графикой, сохранившей классические черты двухмерного геймплея, столь обожаемого поклонниками. Играйте во всестороннем режиме одиночной игры, включающем как кампании, так и миссии головоломки, (   Читать дальше...   )Тип издания: RepackРазработчик: Team 17Жанр: StrategyЯзык озвучки: МногоязычныйЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E3750F373465ED6461DC35B41CBFD94AB56A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088058   (141977) от 29.12.2016
 
 Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9.3/dlc) License GOG [Collection]
@@ -6,7 +32,7 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141977.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139752.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] ( 2.2.10.f) License PROPH
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138374.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.10.f) Repack R.G. Ca
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138328.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Helldorado (2009) [Multi] (2.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137521.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133999.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128063.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125558.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122690.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121972.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Cliff Empire (2019) [Ru/Multi] (1.34) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121644.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118200.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.36.2/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117731.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117321.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116959.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116934.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Decepti
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116636.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Solium Infernum (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115935.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115909.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115771.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115249.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115105.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Classified: France '44 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114281.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101378.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88288.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C035919888B51CB986E38FDFE17A025B9B99DEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481925   (88112) от 12.04.2012
-
-Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизаций [Ru]  (P) 2006
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это компьютерная игра в жанре RTS, разработанная чикагской студией Midway Games. Игра повествует о войнах, происходящих в древности между Грецией, Египтом, Персией и Римом. В игре присутствует небольшое отличие от других стратегий, это так называемая изюминка - главным героем можно управлять от 3-его лица, и в это время он становится невероятно силён, что даёт вам возможность месить противников в капусту. Плюс герой с каждым уровнем становится намного сильнее.Тип издания: ПираткаЖанр: Стратегия в реальном времениЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9558B2F457F680233A835D683E75CD66C9EEC73
 ```
 
 https://mybot314.ru/tekegram_catalog/

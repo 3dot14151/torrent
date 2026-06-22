@@ -1,3 +1,29 @@
+###  Публикация: 970038   (142326) от 29.12.2015
+
+(Linux) Serious Sam 3: BFE (2012) [Ru/Multi] (3.0.3.0.233089/dlc) SteamRip
+
+>>*Nix Игры
+>>Native *Nix Games
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serious Sam 3: BFE - это великолепное возвращение в золотой век шутеров с видом от первого лица, когда мужчины были мужчинами, укрытия были для трусов, а нажатие на курок сопровождалось огромными взрывами. В качестве приквела оригинальной инди-сенсации Serious Sam: The First Encounter, события в Serious Sam 3 происходят во время последней битвы за Землю против легионов (   Читать дальше...   )Тип издания: SteamRipРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B32F7A6398FD748612AD912F79B6077C6951CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195490   (141788) от 29.12.2017
 
 (Linux) RaceTime: Undercover (2017) [Ru/En] (1.0.1) License
@@ -6,7 +32,7 @@
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141788.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Linux GamePack 12.04 (L) [Русский] (2012)
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90373.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90371.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_90335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90335.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83989.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83607.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39220.jpg" />
 </div>
 
 

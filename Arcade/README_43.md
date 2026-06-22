@@ -1,3 +1,55 @@
+###  Публикация: 1750860   (104138) от 22.09.2024
+
+30XX (2023) [Ru/Multi] (1.3.0/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104138.jpg" />
+</div>
+
+
+###  Подробнее
+
+30XX сочетает в себе четкое управление и плавное движение, которые полюбились в экшн-прыгалках, таких как Mega Man X, мультиплеер современных "рогаликов" (Binding of Isaac, Enter the Gungeon, Dead Cells и т. д.) и совместная игра в одном великолепном пакете. Пробудившись через тысячу лет, ты обнаружишь, что мир, который в тебе нуждался, исчез, навсегда (   Читать дальше...   )Тип издания: RepackРазработчик: Batterystaple GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BC863288DD5F7F08181008909E4D143B031447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756128   (103559) от 19.10.2024
+
+Ember Knights (2023) [Ru/Multi] (2.0.0.b4510/dlc) Repack Pioneer
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103559.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом стремительном роуглайте вы станете Ember Knights, последней искрой надежды для погрузившейся в хаос вселенной. Безумный чародей Праксис похитил жизненные силы Горящего древа и бежал через четыре Начальных Мира, попутно заразив их своей скверной. В одиночку или в совместном режиме до 4 игроков используйте мощное оружие и навыки, чтобы прорубиться через орды (   Читать дальше...   )Тип издания: RepackРазработчик: Doom TurtleЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DFA29EA8B7A0B087E23C3B54173B33F484C575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490242   (102336) от 30.04.2012
 
 Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
@@ -6,7 +58,7 @@ Insanely Twisted Shadow Planet (RePack) [Ru/En] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_102336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102336.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_102075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102075.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_101961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101961.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Fireburst (Lossless RePack) {1.0} [Multi5/-] 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101663.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Ravenswatch (2023) [Ru/Multi] (1.3/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94595.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Shortline [En] (RePack) 1992 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91075.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89084.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86650.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Clones / Клоны (2010) [Ru/Multi] (1.32) RePack Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86621.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Warp [Ru] (RePack) 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86605.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Rabbids Go Home / Бешеные Кролики [Ru] (RePack) 2010 l UltraISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86042.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84596.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83807.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ Mortal Kombat Ultimate HD M.U.G.E.N (P) [En] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83801.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ Dustforce [En] (RePack) 2012 | Anonymous
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83364.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ Blade Kitten (Р) [Ru] 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81918.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ Captain Claw / Капитан Клык [Ru] (RePack) 1997 | WinterKiss
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80890.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ Panic In The Woods (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70303.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68036.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9.1/dlc) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66147.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65642.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ Crimzon Clover: World Ignition (2014) [Multi] (1.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63519.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ Hex Gambit: Respawned (2024) [Ru/Multi] (1.0.34+9115b5b) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62040.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ The Knight Witch (2022) [Ru/Multi] (59.40571) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61887.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ The Knight Witch скрещивает метроидванию с экшеном
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7A7F7BA6981212B71B6DB2742FC382894B38803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710089   (61738) от 26.03.2024
-
-Tchia (2024) [Ru/Multi] (1.0/dlc) Repack dixen18
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tchia сама по себе воспринимается как легкая прогулка. Здесь, пользователи оказываются на тропическом архипелаге, где им предстоит перейти в образ маленькой девочки. Она ничем не отличается от других местных жителей, но в действительности у неё есть одна уникальная способность. Навык заключается в том, чтобы перенестись внутрь любого животного или неодушевленного (   Читать дальше...   )Тип издания: RepackРазработчик: AwacebЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC56CA515BE5AAC4F54C92C161F88E917500BA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710700   (61649) от 27.03.2024
-
-South Park: Snow Day! (2024) [Multi] (13796757/dlc) Scene Fairlight
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61649.jpg" />
-</div>
-
-
-###  Подробнее
-
-South Park: Snow Day! перенесет вас в хаотичный, заснеженный мир Южного парка в роли Нового ребенка. Это снежный день, самый волшебный день для любого ребенка, но снежная буря стала причиной не только закрытия школы. Объединитесь со знакомыми лицами Картмана, Стэна, Кайла и Кенни в совершенно новом, полностью 3D-приключении.Тип издания: SceneРазработчик: QuestionЖанр: Экшены, ПриключенияЯзык озвучки: Английский, Французский, Немецкий, ПортугальскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E92F78032E77306AC5BB8ECFB39985822C3571
 ```
 
 https://mybot314.ru/tekegram_catalog/

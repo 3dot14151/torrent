@@ -1,3 +1,81 @@
+###  Публикация: 1411714   (424626) от 26.09.2020
+
+Danshi Koukousei no Nichijou | Daily Lives of High School Boys | Повседневная жизнь старшеклассников [2012, TV, 12 эп. + 6 SP] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед нами зарисовки из жизни обычных японских старшеклассников, учащихся школы для мальчиков. Наших героев зовут Тадакуни, Хидэнори, Ёситакэ. В своей нелёгкой жизни они не решают проблемы вселенского масштаба, разве что эта вселенная зовётся их обычной жизнью. Что надо для счастья старшеклассникам? Конечно, где-нибудь поболтаться после школы, повалять от скуки дурака (   Читать дальше...   )Производство: Sunrise, ЯпонияЖанр: Повседневность, комедияРежиссер: Синдзи ТакамацуОзвучка: Двухголосая, трёхголосая, многоголосая закадроваяЯзык озвучки: Японский и русскийСубтитры: Полные (Продолжительность: 12 Эпизодов по 24 минуты; 6 Эпизодов по 3 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B827D9336E4DFF2EB25819F15820A6C1956A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394809   (424625) от 26.09.2020
+
+Lapis Re:Lights [TV-1] [2020, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в городе Мармкестл, в котором в качестве энергии используется сверкающая пыль. Девушки, умеющие творить магию с помощью заклинаний и мелодий, зовутся здесь ведьмами. Жители обожают их за песни и за то, что они борются с монстрами. Главная героиня Тиара, мечтающая стать лучшей ведьмой на свете, отправляется поступать в школу ведьм Флора. «Я (   Читать дальше...   )Производство: Япония, студия Yokohama Animation LabЖанр: повседневность, музыкальныйРежиссер: Хата ХироюкиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи, РусскийПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58ED661BB2990AE5EA6A0966407E7803B117BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401335   (424624) от 26.09.2020
+
+Kanojo, Okarishimasu / Rent-A-Girlfriend / Девушка на час [2020, TV, 12 ep] WEB-DL 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадзуя Киносита — двадцатилетний студент-неудачник. Ему всего раз довелось поцеловать свою девушку, и спустя буквально один месяц общения она его бросила. «Новые отношения? Никогда!» — подумал он про себя. В отчаянии юноша обратился к иному способу найти женскую компанию. И вот, в назначенный час его окликнули: «Ты Кадзуя, верно?». На него, улыбаясь, смотрела обворожительная (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Кога КадзуомиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A9BE71B26415D22C955AECE48E452FA9278EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374753   (424622) от 26.09.2020
 
 Дневник волнорезного клуба | Рыбалка для школьниц после занятий | Houkago Teibou Nisshi [2020, TV, 12 из 12] WEB-DL 1080p rus
@@ -6,7 +84,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424622.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Nobunaga the Fool / Чудак Нобунага [2014, TV, 24 ep] WEBRip 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423311.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Kurenai no Buta / Porco Rosso / The Scarlet Pig / Crimson Pig / Порко Ро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423033.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420005.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The God of High School / Бог старшей школы [2020, TV, 13 ep] WEB-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417637.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Choujikuu Kidan Southern Cross | Super Dimensional Cavalry Southern Cross | Ги
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413136.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dakaretai Otoko 1-i ni Odosarete Imasu | Dakaichi: I'm Being Harassed by the Sex
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413135.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Boku no Hero Academia the Movie 2: Heroes Rising | My Hero Academia the Movie 2:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411011.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Overlord III / Повелитель [ТВ-3] [2018, TV, 13 ep] WEB-DL 720p Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410577.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Keppeki Danshi! Aoyama-kun / Cleanliness Boy! Aoyama-kun / Чистюля Аоя
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410128.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Re:Creators / Воссоздающие [2017, TV, 22 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409966.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Koi to Uso / Love and Lies / Любовь и ложь [2017, TV, 12] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409824.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Isekai Shokudou / Restaurant to Another World / Ресторанчик из ин
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409822.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Towa no Quon / Вечность вечного [2011, MV, 6 из 6] BDrip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409701.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Kujibiki Unbalance / Неравный жребий (2006, TV, 12) DVDRip Raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_409024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_409024.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Violence Jack: Jigoku Gai / Violence Jack: Evil Town / Жестокий Джек
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408930.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Violence Jack: Hell's Wind Hen / Violence Jack: Hell's Wind Chapter / Жесто
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408929.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Violence Jack: Harem Bomber Hen / Violence Jack: Slum King / Жестокий Д
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408927.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406601.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406253.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405344.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405125.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Saiyuuki Reload Blast / Saiyuki Reload Blast / Путь на запад: Взр�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402972.jpg" />
 </div>
 
 
@@ -598,85 +676,6 @@ Saiyuuki Reload Blast / Saiyuki Reload Blast / Путь на запад: Взр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0448F5BD15CAC0D839C1FFA6628A9E9F81F128D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148777   (402221) от 28.09.2017
-
-Dive!! / Дайв!! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето в самом разгаре, а значит пора остудить жару освежающим аниме! История повествует нам о клубе "Мизуки”, в котором обучаются прыжкам в воду. Дела у этого клуба идут не особо радужно, провалы преследуют спортсменов раз за разом. Спонсорами было принято решение прекратить финансирование клуба, но после продолжительных просьб они предложили воистину издевательское (   Читать дальше...   )Жанр: комедия, спортРежиссер: Судзуки КаоруЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2DB83732F4E257DADB09E2C64F9438B9F21B94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147877   (401059) от 29.09.2017
-
-Knight's & Magic / Рыцари и Магия [2017, TV, 13 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в наше время и повествует нам о главном герое, 28 летнем отаку по имени Курата, который увлекается мехой и работает в издательстве . Однажды после окончания работы в офисе, по пути домой его сбивает машина и он перевоплощается в другом мире под именем Эрнести Эшевалье, также известного как Эру. В этом мире существует огромное человекоподобное (   Читать дальше...   )Жанр: приключения, фантастика, меха, школаРежиссер: Ямамото ЮсукэЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31817B6496743E78EFD18624EEB945F42F8C420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565007   (400642) от 25.10.2012
-
-Pokemon: Master Quest (5 season) / Покемон: Путь Мастера (5 сезон) [2003, TV, 1-65 из 65] DVDRip 480p Eng+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключение Эша и его друзей в Джото подходит понемногу к своему финалу!
-С новыми покемонами и старыми противниками, Эш, Мисти и Брок почти достигли своей цели - Чемпионат Лиги Джото... Сможет ли Эш пройти путь мастера? Никто этого незнает, смотрим продолжение...Жанр: кодомо, комедия, фэнтезиРежиссер: Юяма КунихикоЯзык субтитров: РусскийПродолжительность: 21 мин
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

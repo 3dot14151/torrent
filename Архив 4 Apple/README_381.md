@@ -1,3 +1,31 @@
+###  Публикация: 1249044   (438044) от 22.09.2018
+
+SpamSieve 2.9.33 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для Mac OS X. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнено вам поможет.
+
+Хотя SpamSieve иимеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS X 10.7+Язык интерфейса: Русский, Английский, Французский, Итальянский, Финский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707E09165904D58BDAD1F979CDA48EE8539CB60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249020   (438042) от 22.09.2018
 
 SQLPro Studio 1.0.300 [En]
@@ -6,7 +34,7 @@ SQLPro Studio 1.0.300 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438042.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ GraphicConverter 10 v10.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438040.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Wondershare UniConverter 14.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438036.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ TaskPaper 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438026.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ iMazing 1.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437900.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ AnyTrans for iOS 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437863.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ Weather Guru 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437847.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ goPanel 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437838.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ KCNcrew Pack 10-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437830.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ CleanMyMac X 4.6.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437737.jpg" />
 </div>
 
 
@@ -282,7 +310,7 @@ Waltr 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437711.jpg" />
 </div>
 
 
@@ -309,7 +337,7 @@ Chrono Plus - Time Tracker 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437673.jpg" />
 </div>
 
 
@@ -335,7 +363,7 @@ Adobe Acrobat Pro DC 2022.002.20191 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437481.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ Money Pro 1.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437473.jpg" />
 </div>
 
 
@@ -390,7 +418,7 @@ Time Sink 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437472.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ Moom 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437464.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ iMazing 2.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437276.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ Things 3.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437245.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437241.jpg" />
 </div>
 
 
@@ -526,7 +554,7 @@ Magnet Pro 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437150.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ iMazing 2.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437149.jpg" />
 </div>
 
 
@@ -579,7 +607,7 @@ Ummy Video Downloader 1.68 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436989.jpg" />
 </div>
 
 
@@ -605,7 +633,7 @@ Tap Forms Organizer 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436843.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ Tinderbox 7.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436841.jpg" />
 </div>
 
 
@@ -661,7 +689,7 @@ GraphicConverter 7.01 (76) [ENG] (UB)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_436498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_436498.jpg" />
 </div>
 
 
@@ -673,32 +701,6 @@ GraphicConverter — полнофункциональный графически
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571207   (436194) от 20.08.2022
-
-Brightly Pro 2.1.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Brightly Pro разработано для macOS Monterey с интуитивно понятным интерфейсом, в котором есть все функции редактирования фотографий, какие вы ожидаете, чтобы показать ваши фотографии и видео в лучшем свете, и изначально работает на компьютерах Mac с процессором Apple M1. Поднимите редактирование на новый уровень с помощью обязательных профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.08.2022Разработчик: © 2022 Code Organa LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5378E5B7A292FDE304C8B69239893CCC63EF7D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

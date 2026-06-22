@@ -1,3 +1,109 @@
+###  Публикация: 1660454   (189428) от 13.09.2023
+
+Cookie 7.0.5 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.09.2023Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E42F797078FE7D3EE06E209B5FFD1C4018B22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660671   (189420) от 13.09.2023
+
+Bookshelf - Library 6.3.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189420.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Shelf Pro — это инструмент управления файловым индексом, который может помочь вам лучше управлять своими файлами.Тип издания: macOS SoftwareРелиз состоялся: 12.09.2023Разработчик: © 2024 qing qing yuПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA771DD01770220CADB793EC8C23643E921D72F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660678   (189359) от 13.09.2023
+
+AirMail Pro 5 v.5.6.9 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2023Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E725C5D4E5D3A49D205637C57777D9B1035F0869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660674   (189269) от 13.09.2023
+
+Native Instruments Kontakt 7 v.7.6.0 [Multi]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.09.2023Разработчик: © 2022 Native Instruments GmbHПоддерживаемая ОС: macOS 10.14.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE7724E7EA4EEE389331EE593E42A0047162160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660664   (189173) от 13.09.2023
 
 1Password 7 v.7.9.4 [Multi/Ru]
@@ -6,7 +112,7 @@
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189173.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Microsoft Office 2021 for Mac LTSC v.16.77 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189063.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Adobe Premiere Pro 2023 v.23.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189059.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Squeezer 2.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188983.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ Epiphany WorkFlow II 8.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188981.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ eMail Address Extractor 4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188976.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ SpeakMe 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188972.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ Focus Matrix Pro – Task Manager 1.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188926.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ Wipr – Ad and Tracker Blocker 1.46 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188912.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ Teorex Inpaint 9.2.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188906.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ GitKraken Client Enterprise for Mac 9.8.1 Intel/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188803.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ PCalc 4.10.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188591.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ File Cabinet Pro 8.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188583.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ MacX MediaTrans 7.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188574.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Cisdem PDF Converter OCR 8.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188514.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ Maxon Cinema 4D Studio 2024.0.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188331.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ Launchpad Manager Pro 1.0.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188294.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ Speech 1.11.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188265.jpg" />
 </div>
 
 
@@ -485,7 +591,7 @@ PDF Merge & PDF Splitter + 6.3.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188263.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ Web Dumper for Mac 3.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188253.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ Cool Menu 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188243.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ DiskWarrior 5.3.1 (Standalone) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188207.jpg" />
 </div>
 
 
@@ -575,113 +681,6 @@ DiskWarrior (утилита)  - инструмент, который (   Чит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6E190B6F31D560E33A5E861C3422544A21D676D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661822   (188127) от 16.09.2023
-
-GRAPHISOFT ArchiCAD 26.0 ARM/Intel [Rus]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188127.jpg" />
-</div>
-
-
-###  Подробнее
-
-ARCHICAD  это следующий шаг в развитии одного из лучших решений для архитектурного проектирования. Улучшения, реализованные в ARCHICAD , позволяют повысить производительность с лучшей в своем классе системой проектирования и разработки документации по технологии BIM. Новая версия дает пользователям ряд бесспорных преимуществ. Среди них: новый принцип командной работы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2023Разработчик: © 2023 Graphisoft.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862DADACA4EEBD3A1AAE3DB95E456D1B46F39BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662284   (187962) от 17.09.2023
-
-Native Instruments Guitar Rig 7 Pro for Mac 7.0.1 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187962.jpg" />
-</div>
-
-
-###  Подробнее
-
-GUITAR RIG 7 PRO отлично подходит для опробования новых гитарных и басовых тонов и техник с серьезным реализмом, но дальнейшее развитие — вот где начинается настоящее веселье. Включайте несколько усилителей параллельно, подключайте эффекты где угодно и переключайте кабинеты. Или откажитесь от гитары и пропустите через нее синтезаторы для мощной обработки. Пересэмплируйте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.09.2023Разработчик: © 2023 Native Instruments GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C2FC03CB98A0F8225F22E9525CEBDC55C405F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590856   (187736) от 16.11.2022
-
-IINA 1.3.1 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC.
-Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Collider LI.Поддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203F47AEAF0CAF8ED9F8FA53B8612536C1E8E737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590854   (187620) от 16.11.2022
-
-Microsoft Office 2021 for Mac LTSC 16.66 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
-Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Microsoft CorporationПоддерживаемая ОС: macOS 10.15  и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FD0D77BB253A6EABAA472177AF8754E9BC424E
 ```
 
 https://mybot314.ru/tekegram_catalog/

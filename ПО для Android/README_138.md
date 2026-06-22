@@ -1,244 +1,3 @@
-###  Публикация: 1731770   (33410) от 22.12.2024
-
-Скользящий график смен v3.5.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобный инструмент для расчёта и учёта смен при работе по скользящему графику. Несколько графиков. Темы оформления. Будильник. Напоминания.  Нет необходимости долго разбираться в многочисленных настройках, просто выберите готовый график из списка, или составьте свой график смен, и нажмите на нужную дату, с которой начать расчёт графика работы. В приложении (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.12.2024Разработчик: 4th floor appsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83F5168EA4DA4EAD9F81A583589F2C5831B4E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767449   (33405) от 22.12.2024
-
-Онлайн-рация Про v906.8 Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение с высококачественной передачей голоса и видео действует как настоящая рация! В приложении есть общедоступные каналы, и пользователи, настроенные на тот же канал, могут разговаривать, удерживая кнопку PTT. Например, вы можете попросить своих друзей установить для своего приложения канал 3, и тогда вы сможете общаться друг с другом, как по настоящей (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.12.2024Разработчик: NAVA AppsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523B7AEE3F9342AC62CA4D0D668A692E15E0B4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767515   (32941) от 26.12.2024
-
-X Downloader & Video Player v2.1.25 Premium Mod by PlatinumMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32941.jpg" />
-</div>
-
-
-###  Подробнее
-
-🌟 Быстрое приложение для загрузки видео. Легко сохраняйте все видео и фотографии из Интернета.
-XDownloader — это мощный инструмент, который позволяет вам загружать видео с любого веб-сайта или приложения социальных сетей, включая TikTok (без водяного знака), Facebook, Instagram и другие. С помощью встроенного браузера XDownloader вы можете легко просматривать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.12.2024Разработчик: DC Mobile StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769000   (32925) от 26.12.2024
-
-Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автоматическое размытие фона - это быстрое и простое в использовании приложение для создания потрясающих изображений с эффектом размытия фона.Тип издания: AdfreeРелиз состоялся: 24.12.2024Разработчик: Judi StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739514   (32910) от 27.12.2024
-
-Радио онлайн - PCRadio v2.7.5.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный клиент для прослушивания интернет-радио. Присутствует возможность смены качества аудиопотока. Поддерживается вывод 32 битного звука. В наличии обширный каталог с категориями и возможностью поиска.
-Радио онлайн - PCRADIO Более 8 лет является лидером в области интернет вещания, благодаря технологии экономии трафика и сохранения отличного качества звука радиостанций. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.12.2024Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F782ACDF9D2C249251A1D0E0707684ED9AEA8404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769255   (32808) от 27.12.2024
-
-Электробезопасность. Тесты v3.1 Mod by 0x7d [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:
-- II группа по электробезопасности до и выше 1000 В
-- III группа по электробезопасности до и выше 1000 В
-- IV группа по электробезопасности до и выше 1000 В(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 26.12.2024Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC4CDDDD6C51C6C0CEF19E2A55903551A02E4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769588   (32615) от 29.12.2024
-
-TikTok Private Plus (PayBack Edition) v37.9.16 Mod by TikTok Updates + Plugin Update [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32615.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом Моде можно выкладывать видео для РФ.
-TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 28.12.2024Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4987C79B1B6622C24FD3F41678275E6B68C6EFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769608   (32597) от 29.12.2024
-
-Рунические формулы v6.3.1 Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древние знаки, которые подарили скандинавские Боги, способны не только предсказывать будущее или заглядывать в прошлое, но также, исцелять, помогать и разрушать. Для каждого из действий существует своя формулировка, отчасти уникальная. В этом приложении вы найдете наиболее известные и не только рунические формулы, которые помогут вам исполнить задуманное.
-Используйте (   Читать дальше...   )Тип издания: FullРелиз состоялся: 28.12.2024Разработчик: EvansirПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F1B62DFDA9F643F1D4F49A69B922A58EDC8D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753976   (32543) от 30.12.2024
-
-Промбезопасность. Тесты v3.5.2 Mod by 0x7d [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Назначение приложения - подготовка работников к сдаче экзамена по промышленной безопасности. Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:Тип издания: AdFreeРелиз состоялся: 30.12.2024Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB8CFE2C4A4D0D035B527894DC4A83A294ADA5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770032   (32503) от 30.12.2024
 
 ASR Voice Recorder v539 Pro Mod by Balatan [Ru/Multi]
@@ -247,7 +6,7 @@ ASR Voice Recorder v539 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32503.jpg" />
 </div>
 
 
@@ -273,7 +32,7 @@ Panels - панель быстрого доступа v1.476 Mod by KirIif' [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32413.jpg" />
 </div>
 
 
@@ -299,7 +58,7 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32236.jpg" />
 </div>
 
 
@@ -326,7 +85,7 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32233.jpg" />
 </div>
 
 
@@ -352,7 +111,7 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32189.jpg" />
 </div>
 
 
@@ -379,7 +138,7 @@ PicsMaster AI Photo Editor Pro v2.0.4 Mod by TRUMods [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32112.jpg" />
 </div>
 
 
@@ -405,7 +164,7 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32074.jpg" />
 </div>
 
 
@@ -431,7 +190,7 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32047.jpg" />
 </div>
 
 
@@ -457,7 +216,7 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32044.jpg" />
 </div>
 
 
@@ -483,7 +242,7 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32033.jpg" />
 </div>
 
 
@@ -509,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32006.jpg" />
 </div>
 
 
@@ -536,7 +295,7 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32000.jpg" />
 </div>
 
 
@@ -562,7 +321,7 @@ Graph Messenger (Telegraph) vT11.5.3 - P11.16.2 Mod by NNN x RBMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31948.jpg" />
 </div>
 
 
@@ -590,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31911.jpg" />
 </div>
 
 
@@ -616,7 +375,7 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31824.jpg" />
 </div>
 
 
@@ -645,7 +404,7 @@ Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31799.jpg" />
 </div>
 
 
@@ -673,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31727.jpg" />
 </div>
 
 
@@ -684,6 +443,243 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D1678405FDA01E6D646EA1BC8261145E5714E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715330   (31663) от 08.01.2025
+
+Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 07.01.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771849   (31641) от 08.01.2025
+
+Filmora - Редактор видео с AI v14.4.01 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmora - программа для редактирования видеозаписей теперь доступна в вашем мобильном телефоне. Совершенно бесплатная, без водяных знаков и ограничений по времени. С Filmora видеозаписи создаются очень быстро и легко. Мощный инструмент содержит все функции редактирования, которыми оснащены профессиональные студии. С помощью Filmora можно создавать забавные видеоролики (   Читать дальше...   )Тип издания: Pro / ExtraModРелиз состоялся: 07.01.2025Разработчик: FilmoraGo StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811A9BEA3019CDDC44278B66EE84FF31FB84BA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772522   (31279) от 11.01.2025
+
+Просто Радио онлайн v13.5 Mod by 0x7d [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31279.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении Вы найдете более 1500 радиостанций всех жанров: Наша музыка, Поп, Рок, Ретро, Диско, Танцевальная музыка, Шансон, Реп, R&B, Хип-хоп, Джаз, Электронная, Deep, House, Этническая, Фолк, Релакс, Классическая музыка, Разговорное радио. Просто радио онлайн. Вы можете слушать любимые радиостанции онлайн. Для прослушивания воспользуйтесь соединением wifi (   Читать дальше...   )Тип издания: FullРелиз состоялся: 10.01.2025Разработчик: a-labПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCE043D61405A12433C14221DCDBF7D778F8719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772519   (31267) от 11.01.2025
+
+SnapEdit - AI photo editor v7.2.8 Mod by Maximoff⁠ [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31267.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 10.01.2025Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772526   (31254) от 11.01.2025
+
+Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Водный баланс - Напоминание пить воду и трекер воды – это оптимальное приложение для отслеживания нормы воды в день, которое поможет вам соблюдать питьевой режим и правильное питание. Приложение расскажет, как ускорить метаболизм и похудеть с помощью воды. Защитит вас от обезвоживания, сообщит о том, сколько нужно пить воды и спасёт вас от жажды. Вода – это натуральное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.01.2025Разработчик: Better Life - Health AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1087E2D754C4C7C6986DD5F986B4AE10933FCDAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772516   (31252) от 11.01.2025
+
+Background Video Recorder Pro v11.3.59 Mod by srajawwal09 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Background Video Recorder Pro — это приложение, которое помогает записывать видео также в фоновом режиме. он имеет много полезных функций, например: обнаружение движения, наблюдение за ребенком, запись по расписанию и захват изображения. вы даже можете использовать кнопки громкости или множество вспомогательных виджетов для управления камерой.Тип издания: ProРелиз состоялся: 10.01.2025Разработчик: Arbel SolutionsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C46D35D3EB3081FDF7327E9C662287E0752B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772914   (31193) от 12.01.2025
+
+Транспортные карты Москвы v4.3.3 Mod by vl80k747 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное приложение предназначено для отображения информации о билетах общественного транспорта на транспортных картах г.Москвы и Московской области:
+- тип билета;
+- срок действия;
+- остаток поездок;(   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 12.01.2025Разработчик: DEdBПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD181AC82CBD1FA4535EB52C040082EEEC1FF416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773278   (30979) от 14.01.2025
+
+FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свой творческий потенциал с помощью FotoTweak — генератора изображений на основе ИИ! Легко преобразуйте слова и изображения в захватывающие произведения искусства, созданные с помощью ИИ. Просто введите запрос, выберите стиль искусства и позвольте FotoTweak AI Picture Generator воплотить ваше видение в жизнь за считанные секунды. FotoTweak — генератор искусств (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 13.01.2025Разработчик: AppVerge Technologies, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D29082D5C9BB5796B6694282FAA61E1AC2C7C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705591   (30976) от 14.01.2025
+
+Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощное и удобное приложение для людей, страдающих диабетом, и их близких. Поддерживает учет показаний и ведение журналов. Способно работать в связке с умным браслетом. В наличии тёмная тема. «Diabets:M» может анализировать данные импортированные из различных глюкометров и инсулиновых помп.Тип издания: PremiumРелиз состоялся: 13.01.2025Разработчик: Sirma Medical SystemsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B5F83985B3200E4BDED085ECB86018F7F20DFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

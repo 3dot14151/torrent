@@ -1,3 +1,228 @@
+###  Публикация: 492186   (247953) от 05.05.2012
+
+[Wallpapers] Hi-Tech Wallpapers (04.05.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A29761D3E0DC3BEEF06C0E916AA36A911298E5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491626   (246339) от 03.05.2012
+
+[Wallpapers] Fantasy Wallpapers Pack 3
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246339.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Fantasy Wallpapers Pack 3
+Название: Fantasy Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A382570561C42DE3BEFE0D1C3DEC84775C18A8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491653   (246332) от 03.05.2012
+
+[Wallpapers] Computer Desktop Wallpapers Pack 13
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246332.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Computer Desktop Wallpapers Pack 13
+Название: Computer Desktop Wallpapers Pack 13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9873B3DDFE4A2171837C34AA5B4036620DE67C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491627   (246303) от 03.05.2012
+
+[Wallpapers] Magnificent Architecture HQ Wallpapers Pack 1
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246303.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Magnificent Architecture HQ Wallpapers Pack 1
+Название: Magnificent Architecture HQ Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5B130841D4A1AB838BF241217CB09F3C4C3940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543605   (242389) от 11.04.2022
+
+Фотография - ArtStation - Grafit Studio - 180+ Light and Color Male Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242389.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом наборе представлено более 180 фото-референсов мужских поз в высоком разрешением с различными настройками освещения. Это будет потрясающий инструмент для изучения анатомии, изучения цвета, иллюстрации и концепт-арта. Наряду с фотографиями в полный рост мы также включили несколько портретных снимков крупным планом.Формат: JPGРазрешение файлов: 2136x3648 - 5472x3648
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4096937E4D6413E174FF97AC45004E6B6D5DBD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572403   (239059) от 26.08.2022
+
+Фотография - ArtStation - Jesper Bylov - FAROE ISLANDS - Eysturoy / Photo Reference / 432 images [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Остров Эйстурой отделен узким проливом от главного острова Стреймой. Эйстурой чрезвычайно труднопроходим, с примерно 66 отдельными горными вершинами, включая Слеттаратиндур, самую высокую вершину архипелага высотой 880 метров (2890 футов). Два самых длинных фьорда страны, Скалафьордур на юге и Вороннингсфьордур на севере, почти разделяют остров на две половины. Перешеек (   Читать дальше...   )Формат: JPGРазрешение файлов: 3999x6000 - 6000x4498
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669A046F17B0F6201CD28D52EE35BB220D35F6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572380   (239051) от 26.08.2022
+
+Фотография - ArtStation - Lia Koltyrina - 200+ Male faces. Casual and brutal facial expressions [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет всем, этот пакет включает в себя 233 фото-референса в высоком разрешением с мужскими портретами.
+Съемка выполнена в сдержанной тональности на темном фоне, контурный свет подчеркивает объем лица и придает портрету драматическое настроение.
+В наборе есть фото со спокойными эмоциями в разных ракурсах и более агрессивные и брутальные. Есть также фотография с боевой (   Читать дальше...   )Формат: JPGРазрешение файлов: 2908x2908 - 5992x3371
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F278ECBF4798873E635EA5FBB1C59188A78DCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572379   (239020) от 26.08.2022
+
+Фотография - ArtStation - Lia Koltyrina - 700+ Emotional cyberman. Male portraits with different facial expressions [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет всем, этот пакет фото-референсов включает в себя 746 мужских портретов в высоком разрешением.
+Это фотосессия человека с нейроинтерфейсом, изображение в стиле киберпанка, научной фантастики и футуризма.
+
+Световые схемы, которые были использованы:(   Читать дальше...   )Формат: JPGРазрешение файлов: 3888x3888 - 5832x3888
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC1FF04B65CA8D66AAE56806774F8A115E3A777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572517   (238915) от 27.08.2022
 
 Фотография - ArtStation - Satine Zillah - Amphibians & Reptiles -Photo Reference Pack For Artists 197 JPEGs [JPG]
@@ -6,7 +231,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238915.jpg" />
 </div>
 
 
@@ -33,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238827.jpg" />
 </div>
 
 
@@ -60,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238583.jpg" />
 </div>
 
 
@@ -87,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238066.jpg" />
 </div>
 
 
@@ -113,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236120.jpg" />
 </div>
 
 
@@ -139,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234014.jpg" />
 </div>
 
 
@@ -165,7 +390,7 @@ Wallpapers - Чудо в перьях или 500 великолепных обо
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233716.jpg" />
 </div>
 
 
@@ -194,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233693.jpg" />
 </div>
 
 
@@ -220,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233656.jpg" />
 </div>
 
 
@@ -248,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233606.jpg" />
 </div>
 
 
@@ -275,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233436.jpg" />
 </div>
 
 
@@ -302,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231927.jpg" />
 </div>
 
 
@@ -330,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_231889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231889.jpg" />
 </div>
 
 
@@ -358,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230288.jpg" />
 </div>
 
 
@@ -384,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230279.jpg" />
 </div>
 
 
@@ -411,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230256.jpg" />
 </div>
 
 
@@ -437,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230070.jpg" />
 </div>
 
 
@@ -463,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229798.jpg" />
 </div>
 
 
@@ -474,214 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:684F4493F1A1FAAA98F574B08029D2630398FD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586292   (228972) от 08.12.2012
-
-Иконки - UFO Png by KSV
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228972.jpg" />
-</div>
-
-
-###  Подробнее
-
-UFO Png by KSVРазрешение файлов: ~ 256х256
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CAC15EE62F4FBDB3182006B7ABDFE4958A4F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586299   (228682) от 08.12.2012
-
-Иллюстрации - Иллюстратор Бедарев Глеб Георгиевич
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрации - Иллюстратор Бедарев Глеб Георгиевич
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7458AEE88484D7622F9D9D56DB939202376895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965126   (228337) от 13.12.2015
-
-Обои - Picturesque scenery 156 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему природыФормат: JPGРазрешение файлов: 1600x1200 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB98723E5E6DA2C8751608E46B480735C0323A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965127   (228127) от 13.12.2015
-
-Обои - Водные (Big Pack 4) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему водыФормат: JPGРазрешение файлов: 1280x1024 - 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4461189B36A483B8A7AC750120D09FC24AB89861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268278   (227959) от 10.12.2018
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (198) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFE4B6A5D5206FB68333A4143AF59F44F6E8542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268279   (227811) от 10.12.2018
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (199) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B6ADCBD53F809CCFA50198C53FF66A92969084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965128   (227807) от 13.12.2015
-
-Обои - Зима (Big Pack 1) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему зимыФормат: JPGРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08AE554A4D59AA8C6C985E27CDF2F80DA14E0F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268280   (227746) от 10.12.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 358 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227746.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPG, PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365E77BB3C8A3DFD04D24CCF79A628CC01B166E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

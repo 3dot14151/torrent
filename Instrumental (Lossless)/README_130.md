@@ -6,7 +6,7 @@ Bluesblocket - Potatismos & Skandinavisk Blues (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101140.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brad Gillies - Juxtapose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101139.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dave Williams - Disciple (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101138.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Blues For Comfort - Good Blues Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101137.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Blurred Edge - Volume: 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101136.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John G Willis - Misfortune Cookie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101135.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John McDonald & Mark Maxwell - Feeling Blues (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101134.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101133.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sean Taylor - The End Of The Rainbow (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101132.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Shayne J Davis - Wardrop Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101130.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Flickering Alley - Lanterns in the Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101129.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Hornets - Giorgio's Crawdaddy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100694.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mick Clarke - Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100693.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Scraptones - Truth and Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100692.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Mike Gannon - Every day I have the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100690.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Creaking Floorboards - Treading Lightly (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100689.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Southernman Robbie - Back to the Roots (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100687.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Time Fjord - And My Hand Holds The Jug (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100683.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Washing Machine Cie - Ladies and Gentlemen (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100682.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Veravey - Blooming Inspiration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100680.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Mudhounds - The Dirt I’m Used To (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100678.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Wind Blowers - Blues for Rainy Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100675.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Maria Muldaur - Steady Love (2011) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_99801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99801.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Arnett Cobb With The Red Garland Trio - Blue And Sentimental (1960) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98648.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Carolyn Wonderland - Peace Meal (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98460.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98447.jpg" />
 </div>
 
 

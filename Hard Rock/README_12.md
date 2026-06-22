@@ -6,7 +6,7 @@ House Of Lords - Indestructible (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651608.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651595.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Michael Cosyn Group (Feat. Paul Shortino) - Burn The Earth (2015) [MP3|320 кб/
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651594.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Beauvoir - Free - American Trash (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651550.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Shawn James & The Shapeshifters - The Gospel According To Shawn James And The Sh
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651343.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Loaded Gun - Loaded Gun (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649592.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sintonia Distorta - Frammenti D'incanto (2015) [MP3|320 кб/с]<Progressive  / 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647828.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Crimson Stone - Crimson Stone (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647827.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Screaming Eagles - Stand Up And Be Counted (2015) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647758.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Icon - Right Between The Eyes (1989) [MP3|320 Kbps] <Hard 'n' Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646711.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Amorettes - White Hot Heat (2016) [MP3|320 Kbps] <Hard Rock, Female Vocal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646052.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Tomas Bergsten’s Fantasy - Nightwalker (2015) [MP3|320 кб/с]<Melodic Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643701.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Bulletboys - Elefante (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643696.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Band Of Brothers - Band Of Brothers (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643581.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Night Flight Orchestra - Skyline Whispers (2015) [MP3|320 кб/с]<Classic /
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643575.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Who - The Who Hits 50! (2014) 2CD Deluxe Edition [MP3|320 кб/с]<Classic R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643424.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Handful Of Rain - Three Days To Come Back (2016) [MP3|320 Kbps] <Melodic Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642007.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Kissin Dynamite - Generation Goodbye (2016) [MP3|320 Kbps] <Hard Rock, Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641910.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Great White - Full Circle (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640897.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Styx - The Mission (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640786.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Acid - Tales Of Contempt (2015) [MP3|320 кб/с]<Hard / Classic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639920.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Dizzel - Dizzel (2019) [MP3|320 kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639068.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Schramm - Nuklear Fetisch (2018) [MP3|320 Kbps] <Hard rock, Metal, Industrial>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639060.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Ralf Gyllenhammar - Bed On Fire (2013) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638235.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Mark Slaughter - Reflections in a Rear View Mirror (2015) [MP3|320 кб/с]<Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638082.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ King Mountain - 4 Albums (2020-2022) [MP3|320 Kbps] <Heavy Blues Rock, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636871.jpg" />
 </div>
 
 

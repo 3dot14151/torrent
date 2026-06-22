@@ -1,3 +1,57 @@
+###  Публикация: 1625099   (241408) от 09.04.2023
+
+Code Composer Studio 12.2.0.00009 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среда разработки для Texas Instruments.
+Одно из известных устройств Launchpad - отладочная плата для семейства микроконтроллеров MSP430 от 8 до 16-битных. Плюс этой отладочной платы в её низкой цене и бесплатной доставки службой FedEx, лёгкий старт, работать с ней даже проще, чем с известным Arduino. В комплекте сразу получаете 2 МК, с тестовой программой. Программировние (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D27C9E2455EBFEF0AD92CE392FB9B4737F9A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634155   (233584) от 19.05.2023
+
+Resource Tuner Business 2.23.0.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resource Tuner - это программа для просмотра, редактирования, замены и извлечения ресурсов исполняемых файлов, т.е. всех тех элементов, которые образуют визуальный графический интерфейс приложений, работающих под Windows: иконки, строчки, изображения, звуки, диалоги, меню и многое другое.
+Программа позволяет вносить изменения во внешний вид приложений, не вмешиваясь (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5615C6425433DBD3B2694E6E762C9A958045A636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965732   (223031) от 15.12.2015
 
 IBM Rational Software Architect 9.0 [En]
@@ -6,7 +60,7 @@ IBM Rational Software Architect 9.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223031.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Developer Express VCL for Delphi 14.2.2 Full Sources для IDE Delphi 7 - XE7 [
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221595.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Intel Parallel Studio XE 2017 Update 1 Cluster Edition [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215369.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ JetBrains Rider 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213478.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ WYSIWYG Web Builder 17.3.1 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213146.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212527.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ JetBrains GoLand 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212521.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ JetBrains PhpStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212514.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ JetBrains PyCharm Professional 2025.2.4 (x64-arm64) Repack by IFE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212505.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ JetBrains RubyMine 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212499.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Jetbrains WebStorm 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212489.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ JetBrains DataSpell 2025.2.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212487.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ JetBrains CLion 2025.2.4 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212483.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ JetBrains RustRover 2025.2.4 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212481.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.19 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212129.jpg" />
 </div>
 
 
@@ -394,32 +448,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566165   (211806) от 27.07.2022
-
-JetBrains DataSpell 2022.1.4 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211806.jpg" />
-</div>
-
-
-###  Подробнее
-
-DataSpell — IDE для Data Science. DataSpell создан специально для тех, кто занимается разведочным анализом данных, и прототипированием моделей машинного обучения. Это эргономичная среда разработки, объединяющая в себе интерактивные возможности Jupyter-ноутбуков и умный редактор PyCharm для работы с Python и R.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6E1601DDCB597800EE2759AEEBEEB6D6DA5C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646067   (209180) от 12.07.2023
 
 PSPad 5.0.7 Build 775 + Portable [Multi/Ru]
@@ -428,7 +456,7 @@ PSPad 5.0.7 Build 775 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209180.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ SynWrite 6.41.2780 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209104.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ NeoAxis Engine 2023.1.2 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209059.jpg" />
 </div>
 
 
@@ -503,33 +531,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647574   (208518) от 19.07.2023
-
-Java SE Development Kit 20.0.2 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB26A217977B9B49D7ABD286C2F8E9D3F6EB67EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582880   (206045) от 12.10.2022
 
 Trados Studio 2022 Professional 17.0.3.11695 [Multi/Ru]
@@ -538,7 +539,7 @@ Trados Studio 2022 Professional 17.0.3.11695 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206045.jpg" />
 </div>
 
 
@@ -564,7 +565,7 @@ Embarcadero RAD Studio 11.3 Alexandria 28.0.47991.2819 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201624.jpg" />
 </div>
 
 
@@ -591,7 +592,7 @@ SAP Adaptive Server Enterprise 16.0 SP02 (Developer Edition) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200626.jpg" />
 </div>
 
 
@@ -617,7 +618,7 @@ JetBrains RubyMine 2023.1
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200117.jpg" />
 </div>
 
 
@@ -644,7 +645,7 @@ JetBrains CLion 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200071.jpg" />
 </div>
 
 
@@ -670,7 +671,7 @@ JetBrains DataGrip 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200064.jpg" />
 </div>
 
 

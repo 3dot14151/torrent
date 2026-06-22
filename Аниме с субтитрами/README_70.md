@@ -1,3 +1,29 @@
+###  Публикация: 1123999   (491813) от 24.07.2022
+
+Warau Salesman New / The Laughing Salesman New / Весёлый коммивояжёр по-новому [2017, TV, 12 из 12] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его зовут Фукудзо Могуро . Он - Весёлый коммивояжёр. Нет, он не обычный продавец. Его основной товар - души… Души людей. Все люди на земле одиноки: старики, молодёжь, мужчины и женщины. Весёлый коммивояжёр заполняет эту пустоту. И нет, он не берёт ни копейки. Ему достаточно видеть своих клиентов удовлетворёнными. Но его клиенты редко (никогда) могут воспользоваться (   Читать дальше...   )Производство: Япония / Shin-Ei Animation, TMS EntertainmentЖанр: Комедия, сейнэнРежиссер: Огура ХирофумиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ, 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7EDD124DF6C5F5D5FF18AF37E42C23E75CCB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 886849   (491342) от 13.09.2015
 
 Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] BDRip 1080p raw
@@ -6,7 +32,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491342.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kuruneko | Кошачьи истории [ТВ] [2009, TV, 100 эп.] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490012.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Hitsugi no Chaika: Avenging Battle Chaika: The Coffin Princess - Avenging Battle
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489730.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Wake Up, Girls! / Подъем, девчата! [2014, TV, 12] BDrip 1080p Hi10p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489398.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Dantalian no Shoka / The Mystic Archives of Dantalian / Таинственная
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488827.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487176.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Nihon Animator Mihonichi | Japan Animator Expo | Японская выставк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487120.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Lucky ☆ Star / Счастливая звезда [2007, 24 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486738.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Wakaba Girl | Модница Вакаба [2015, TV, 13 + 1] BDrip 1080p Hi10p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485995.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Ozmafia!! / Академия Оз [2016, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485667.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | Отвер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483245.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Yami Shibai / Театр тьмы [ТВ-6] [2018, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482825.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Go-Toubun no Hanayome | The Quintessential Quintuplets | Пять невест [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482584.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482568.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Chihayafuru 2 | Игра Тихайи 2 | Яркая Тихайя [ТВ-2] [2013
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481365.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Shakunetsu no Takkyuu Musume | Scorching Ping Pong Girls | Знойный пин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481207.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / У этого кружка рисован�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481102.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Yami Shibai / Театр тьмы [ТВ-5] [2017, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481069.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Go-Toubun no Hanayome | The Quintessential Quintuplets | Пять невест [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481052.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Servamp | Сервамп [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480969.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480772.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Sengoku Kidan Youtouden Gekijouban / Wrath of the Ninja / Гнев ниндзя 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480321.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Penguin Highway | Тайная жизнь пингвинов [2018, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479222.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479010.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Shokugeki no Souma: Ni no Sara / Shokugeki no Soma: The Second Plate / Кули�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478611.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Shokugeki no Souma: Ni no Sara / Shokugeki no Soma: The Second Plate / Кули�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CEECA38048FAA79C53BA9D06BD4AAFDFBD90B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566791   (478487) от 31.07.2022
-
-Meitantei Conan: Zero no Tea Time | Detective Conan: Zero's Tea Time | Детектив Конан: Чаепитие Зеро [2022, TV, 6 из 6] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент бюро общественной безопасности, частный детектив, член Чёрной Организации... Амуро Тору - человек, который ведёт тройную жизнь и каждый день балансирует между светом и тьмой ради единой цели - торжества правосудия и справедливости.Производство: TMS EntertainmentЖанр: детектив, повседневностьРежиссер: Косака ТомотиПеревод: официальный (Netflix)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 6 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F6F398D3ECE763BE75171B0F17D609F8937F12
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 948033   (415612) от 18.10.2015
+
+Discovery: Разрушители легенд. Взрыв на воде / MythBusters. Blow It Out Of The Water (2015) SATRip  (Сезон 15, эпизод 07) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415612.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3ABAFDFCC45515A0556327BA8334C640B648B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948034   (415491) от 18.10.2015
+
+Discovery: Разрушители легенд. Полёт фантазии / MythBusters. Flights of Fantasy (2015) SATRip  (Сезон 15, эпизод 08) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415491.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F65E45B3D2758AE14F5AA5F7E89489AC09E304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167854   (412294) от 22.09.2017
+
+Discovery: Загадки планеты Земля / What on Earth? (2015-2017) HDTVRip (сезон 1-3, серии 1-30 из 30)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем больше спутников запускают в космос, тем меньше на Земле остается слепых пятен. Теперь, когда снимки из космоса стали частью общедоступных программ, таких как «Google Earth», на суше и на море вдруг стали обнаруживаться различные аномалии. Увлекательная программа «Загадки планеты Земля» возвращается с новым сезоном, где мы продолжим исследовать тайны и загадки (   Читать дальше...   )Производство: США / Discovery Communications, LLCЖанр: Документальный, научно-познавательныйРежиссер: Дэниэл Эдвардс ...Перевод: Одноголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998B366B15CBFAA4BB2BF6C4AC519D5121EE8AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066512   (411919) от 26.10.2016
 
 Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
@@ -6,7 +84,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411919.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Discovery. Взрывное шоу / The Explosion Show (2020) WEB-DL [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411319.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Discovery: Охотники за реликвиями / Auction Hunters (2015) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410816.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) HDTV 1080i
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408033.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Discovery: Смертельный улов / Deadliest Catch (2018) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407801.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Discovery: Мистический мир: Необъяснимое.Неведо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406543.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2017) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398273.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396649.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Discovery: Демонтаж (сезон 1-2, серии 1-26 из 26  ) / Decons
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394853.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2014-20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391030.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2016) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390170.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388837.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387863.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Discovery. Торговцы космосом (космические дилер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386793.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382631.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Discovery. Дороги России: Трасса А-161: Саянский пе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382340.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Discovery: Я - это зло (сезон 1, 12 серий из 12) / Discovery.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378101.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Discovery: В поисках сокровищ: змеиный остров / Tre
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376706.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Discovery. Загадки планеты Земля / What on Earth? HDTVRip (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375366.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Discovery: Звездное выживание с Беаром Гриллсом 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374726.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374609.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374601.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Discovery: Разрушители легенд. Скрытая угроза / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372212.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Discovery: Разрушители легенд. Скрытая угроза / My
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E91B77D4CD0AA616EBA59382EF3AF5F2E6FF2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171760   (367069) от 23.10.2017
-
-Discovery: Хакер в дикой природе / Hacking the Wild (2017) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энди Квитмейер пытается выжить в дикой природе, используя повседневные технологии которые должны ему в этом помочь.Производство: CША, AMPLE for Science ChannelЖанр: Документальный, экстримРежиссер: Кэролайн ПересПеревод: Одноголосый закадровый, профессиональный (Кириллица)Субтитры: отсутствуютПродолжительность: серии x ~00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:913FF22E83C8947FA4775D93338B7E4AB0477250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070799   (363793) от 08.11.2016
-
-Discovery. Как работают машины / Machines: How They Work (2016) HDTVRip (1-10 серий из 10)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание сериала, собственно, заложено в его названии. Многие видели подобные программы - "Как это устроено?", "Как это работает?", из этой передачи вы узнаете о работе самых разных по устройству и назначению машин.Телекомпания: Канада, Discovery ChannelЖанр: документальный, техникаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEECFA1DFB9E398B0DAC67E3F9AEE728BD942610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577243   (359245) от 17.09.2022
-
-Discovery. Жизнь и смерть на Эвересте / To Live or Die on Everest (2020) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год при покорении Эвереста, самой высокой вершины мира, погибает от пяти до десяти спортсменов. В весенний сезон в 2019 году с вершины не вернулись живыми уже одиннадцать человек. Вместе с опытными альпинистами разбираемся, можно ли предотвратить такие трагедии в будущем.Производство: США, MAK Pictures, Discovery ChannelЖанр: документальный, путешествия, альпинизмРежиссер: Марк КадинПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A467C59B12A07859FCB9FDC7D244EF5BD7239D93
 ```
 
 https://mybot314.ru/tekegram_catalog/

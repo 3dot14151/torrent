@@ -1,3 +1,55 @@
+###  Публикация: 1438409   (1041023) от 08.01.2021
+
+Три желания (2018) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Катя - трудоголик без личной жизни, строгая начальница и самый принципиальный нотариус в городе. Но новый год, как известно, - время чудес. Простая шутка недовольной подчиненной оборачивается для Кати невероятным предновогодним приключением.Производство: Россия / ООО «Атлантик Продакшн», Кинокомпания «Дерево»Жанр: МелодрамаРежиссер: Алексей ПраздниковАктеры: Дмитрий Паламарчук, Анастасия Микульчина, Илья Носков, Анастасия Рысева, Максим Студеновский, Наталья Щербакова, Алёна Савастова, Анна Бутова, Денис Шленков, Елена ТепляшинаСубтитры: ОтсутствуютПродолжительность: 01:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12125C22A2112AC6D45AF6D3131E791BA89D7F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438259   (1041006) от 08.01.2021
+
+Утомленные солнцем / Soleil trompeur / Burnt by the Sun (1994) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1936 года. Легендарный комдив Котов, знаменитый военачальник и любимец лично товарища Сталина, отдыхает с семьей на загородной даче. Идиллию дома с мезонином нарушает внезапный приезд Мити, бывшего воспитанника отца Маруси, жены Котова. Когда-то Митя с Марусей были вместе, строили планы на будущее… Сегодня Митя, сотрудничающий с НКВД, приехал взять реванш… Ретро-драма (   Читать дальше...   )Производство: Россия, Франция / студия "ТриТэ", компания Camera OneЖанр: Драма, военный, историяРежиссер: Никита МихалковАктеры: Олег Меньшиков, Никита Михалков, Ингеборга Дапкунайте, Надежда Михалкова, Андре Умански, Вячеслав Тихонов, Светлана Крючкова, Владимир Ильин, Алла Казанская, Нина АрхиповаЯзык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 2:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6092A4C315DF68687A3B713D02B49143AF9895C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438416   (1040985) от 08.01.2021
 
 Вратарь Галактики (2020) BDRip [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040985.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040958.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040766.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040742.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040702.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040237.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040210.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040098.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039489.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039471.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038910.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038790.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038786.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038701.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038622.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038616.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038309.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038145.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038138.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038135.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037969.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037936.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037715.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037619.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90094F0CF46C270349EFA6A851789CBC8E23775D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615553   (1037569) от 26.02.2023
-
-Капитан Голливуд (2020) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 99-го в одном из городов на юге России произошел террористический акт — взрыв жилого дома. Трагедия унесла жизни множества людей, дело стало резонансным для всей страны. Расследование возглавил оперативный сотрудник ФСБ — капитан Андрей Верещагин по прозвищу Капитан Голливуд. За работой Верещагина пристально следили начальство и СМИ, любой прокол мог ему дорого (   Читать дальше...   )Производство: Россия | «Кинопрограмма ХХI век»Жанр: детектив, драмаРежиссер: Евгений ТатаровАктеры: Евгений Шириков, Антонина Дивина, Алексей Нестеренко, Владимир Роганов, Артём Мельничук, Анастасия Ярёменко, Алёна Козырева, Евгений Чернорай, Юрий Пимкин, Владимир МалининСубтитры: ОтсутствуютПродолжительность: 01:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B1BA0030EC335A46560CB307F4C5A56F8D2A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441617   (1037377) от 22.01.2021
-
-Ржев (2019) BDRemux [H.264/1080p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1942 год. Ржевская битва. После боёв под селом Овсянниково от роты советских солдат осталась только треть. Бойцы пытаются продержаться до прихода подкрепления. Но из штаба поступает приказ удержать деревню любой ценой. Значит, отступать нельзя… Каждый из героев понимает, что выбраться живыми из этого переплёта почти невозможно. В этот момент в Овсянниково, едва не (   Читать дальше...   )Производство: Россия / 3xMedia, KinoallianceЖанр: Военный, Драма, ИсторияРежиссер: Игорь КопыловАктеры: Сергей Жарков, Иван Батарев, Олег Гаянов, Арсений Семёнов, Александр Горбатов, Александр БухаровПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF86A7214D095C53E8B4874D0A582209240AFD93
 ```
 
 https://mybot314.ru/tekegram_catalog/

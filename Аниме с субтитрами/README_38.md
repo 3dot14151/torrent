@@ -1,3 +1,29 @@
+###  Публикация: 1092754   (800151) от 02.04.2017
+
+ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Департамент инспекции 13 районов [2017, TV, 12 из 12] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800151.jpg" />
+</div>
+
+
+###  Подробнее
+
+События происходят в королевстве Дова, монарх которого недавно отпраздновал своё 99-летие. Мы оказываемся в мире, разделённом на 13 регионов. АККА – это крупная и могущественная организация, контролирующая все основные государственные структуры, включая такие как полиция, пожарная служба и медицинские учреждения. АККА отслеживает правильность работы всех структур (   Читать дальше...   )Производство: Япония / Madhouse Studios / マッドハウスЖанр: приключения, повседневность, сэйнэнРежиссер: Нацумэ Синго / Natsume Shingo / 夏目真悟Язык субтитров: Русский (отключаемый)Продолжительность: ТВ, 12 серий, по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016147B0BCD324793B08D0A45D6A17C4F21F4867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385236   (800130) от 23.05.2020
 
 Fragtime | Осколки времени [2019, Movie] BDRip 720p raw
@@ -6,7 +32,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800130.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Akiba's Trip The Animation / Виды Акибы [2017, TV, 13] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800088.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Деп�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800087.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kuzu no Honkai / Scum's Wish / Тайные желания отвергнуты�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800083.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ The Gakuen Choujotai | Школа супер девушек [1991, OVA, 1 из 1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799769.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Osake wa Fuufu ni Natte kara | Супружеская пара и алкогол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799714.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Nyanko Days / Кошачьи дни [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799569.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Shouwa Genroku Rakugo Shinjuu: Sukeroku Futatabi Hen / Сквозь эпохи: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799555.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Oira Sukeban / Delinquent in Drag / Задира Банджи [1992, OAV] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799053.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Onihei / Онихей: Криминальные истории периода Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799014.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Kiitarou Shounen no Youkai Enikki | Kiitaro's Yokai Picture Diary | Дневни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798809.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Ulysses: Jeanne d'Arc to Renkin no Kishi / Ulysses: Jeanne d'Arc and the Alchemi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798614.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Aishiteruze Baby | Моя малышка [2004, TV, 26 эп.] DVDRip 720p 10bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797802.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Soukyuu no Fafner: Dead Aggressor - Right of Left | Небесный Фафни�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797789.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797752.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Mujaki no Rakuen / Paradise of Innocence / Невинный Рай [2014-2016, O
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797183.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Bosco Daibouken | Bosco Adventure | Приключения Боско [1986, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797150.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Harmony | Гармония [2015, MV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795893.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Eromanga Sensei | Эроманга-сэнсэй [2017, TV, 12 эп.] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795531.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Tsugumomo | Цугумомо [ТВ-1] [2017, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795465.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Owarimonogatari (2017) | Owarimonogatari Second Season | Финальные ис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795414.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Made in Abyss | Созданный в Бездне [2017, TV, 13 эп.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795330.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794776.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Kobayashi-san Chi no Maid Dragon / Miss Kobayashi's Dragon Maid / Служанк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794173.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Emiya-san Chi no Kyou no Gohan | Today's Menu For Emiya Family | Сегодня�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793868.jpg" />
 </div>
 
 
@@ -647,34 +673,6 @@ Emiya-san Chi no Kyou no Gohan | Today's Menu For Emiya Family | Сегодня�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E963BC4964018010692CBD183E809155EAC7656A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200723   (793806) от 23.01.2018
-
-Granblue Fantasy The Animation | Голубая мечта Грана [2017, TV, 13 эп.] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о мире, в котором высоко в небесах парят острова всех возможных форм и размеров. Это мир, который был брошен богами.
-Давным давно, существа, которых прозвали Астралами попытались захватить власть над миром своей невероятной силой. Но небожители дали им отпор и победили. Настал мир.
-А наша история начнется с того, как Гран, простой деревенский мальчишка (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: приключения, фэнтезиРежиссер: Ито ЮкиПеревод: AniPlay (01-13)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DD9FEDDAD4036C24C9537DEDFF162B808E0C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

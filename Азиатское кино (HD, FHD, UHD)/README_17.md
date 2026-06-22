@@ -1,3 +1,159 @@
+###  Публикация: 1100037   (901190) от 03.02.2017
+
+Отец Камикадзе / A kessen kokutai (1974) WEB-DL [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вице-адмирал Ониши, блестящий стратег, один из не многих, кто смотрит в будущее. Он знает, что Япония не может выиграть Тихоокеанскую войну. Поскольку военная обстановка становится критической, он предлагает отчаянный план, чтобы вынудить врага договориться о мире и избежать позора сдачи - самоубийственные атаки камикадзе. Это истинная история человека, который организовал (   Читать дальше...   )Производство: Япония / Toei Co. Ltd.Жанр: ВоенныйРежиссер: Косаку ЯмаситаАктеры: Кодзи Цурута, Нобору Андо, Тацуо Эндо, Кэнсаку Хара, Кийото Харада, Рёдзи Хаяма, Сётаро Хаяси, Горо Ибуки, Рё Икэбэ, Масатака ИваоПеревод: Авторский одноголосый закадровыйПродолжительность: 03:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B538813E5EB47488243BBDD3F6517C81500F544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094586   (901168) от 24.03.2020
+
+Семь самураев / Shichinin no samurai / Seven Samurai (1954) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония. 16 век. В стране полыхает гражданская война, повсюду орудуют банды разбойников и мародеров. Бедные крестьяне нанимают для своей защиты семерых самураев, которые немного сплачивают раздробленных и малодушных жителей деревни в этой борьбе…Производство: Япония, Toho CompanyЖанр: Драма, ПриключенияРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Такаси Симура, Кэйко Цусима, Юкико Шимазаки, Каматари Фудзивара, Дайскэ Като, Исао Кимура, Минору Чиаки, Сэйдзи Миягути, Ёсио КосугиПеревод: Двуголосый закадровый; авторский одноголосый закадровый; многоголосый закадровыйЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 03:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FA4B5D7E6E6EA40BE1753ECC6A24A147735853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490312   (900298) от 31.08.2021
+
+Вызов ограничен (Черный звонок) / Balsinjehan (Hard Hit, Black Call, Restricted Call, Punishment) (2021) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним обычным утром обычный менеджер отделения банка Сон-гю садится в машину, чтобы отвезти детей в школу, а затем отправиться на работу. Внезапно ему звонит неизвестный и заявляет, что машина заминирована — как только Сон-гю встанет с сидения, произойдёт взрыв. Съемки проходили с 6 февраля по 4 мая 2020 года.Производство: Южная Корея, CJ EntertainmentЖанр: ТриллерРежиссер: Ким Чхан-джуАктеры: Чо У Джин, Ли Чжэ Ин, Чжин Гён, Чжи Чан Ук, Ким Джи ХоПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, индонезийскиеПродолжительность: 01:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605899710E8A7D2B16CDB80F4797D054DED1E192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992383   (900261) от 02.03.2016
+
+Крадущийся тигр, затаившийся дракон: Меч судьбы / Crouching Tiger, Hidden Dragon: Sword of Destiny (2016) WEBRip [H.264/720p-LQ]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900261.jpg" />
+</div>
+
+
+###  Подробнее
+
+История потерянной любви, легендарного меча и последнего шанса на искупление.Производство: США | China Film Group, Netflix, Pegasus Taihe EntertainmentЖанр: Фэнтези, Боевик, Драма, ПриключенияРежиссер: Юэнь Воо-пинАктеры: Донни Ен, Мишель Йео, Гарри Шам мл., Джейсон Скотт Ли, Евгения Йуан, Жужу Чан, Крис Пэнг, Дэррил Квон, Роджер Йуан...Перевод: Любительский многоголосый (Parovoz Production)Язык субтитров: АнглийскийПродолжительность: 01:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60DF016ACE47D06827D7E8B2472C5782339A4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098542   (899234) от 04.02.2017
+
+Самый длинный день Японии / Nihon no ichiban nagai hi (1967) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899234.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 августа 1945 года, японский народ столкнулся с полным поражением. Миллионы солдат и гражданских лиц погибли, остальные страдали от голода, их города были превращены в груды обломков, два из них испарились под взрывами атомных бомб. Правительство зашло в тупик, некоторые министры призывали к капитуляции, другие же утверждали, что честь требует принять последний (   Читать дальше...   )Производство: Япония / Toho CompanyЖанр: Военный, ДрамаРежиссер: Кихати ОкамотоАктеры: Сэйдзи Миягути, Рокко Тоура, Тисю Рю, Со Ямамура, Тосиро Мифунэ, Ёсио Косуги, Такаси Симура, Эцуши Такахаси, Такао Иноэ, Тадао НакамаруПеревод: Авторский одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 02:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B35058627A2E8A303DFD69255D22565A36137F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492345   (898764) от 01.09.2021
+
+Дальнобойщики: никому меня не остановить / Torakku yaro: Goiken muyo / Truck Rascals / Truck Rascals: No One Can Stop Me (1975) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый из 10 фильмов, рассказывающих о беззаботных приключениях двух водителей грузовиков. Момодзиро и его лучший друг Кинзо отправляются в путь на своих грузовых автомобилях, впечатляя друг друга своими навыками быстрой езды и уклонения от полиции при перевозке товаров по всей стране. Случайные встречи с людьми на этом пути помогают им смириться с событиями, омрачающими (   Читать дальше...   )Производство: Япония, Toei TokyoЖанр: Боевик, мелодрама, комедияРежиссер: Норифуми СудзукиАктеры: Бунта Сугавара, Дзюнко Нацу, Ютака Накадзима, Масаюки Юхара, Сёдзи Исибаси, Сэйтаро Курода, Масуми Харукава, Юсукэ Нацу, Тору Юри, Хосэй КомацуПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E162226A96385C0E15C4508C34E08F1BDA53652D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493464   (895414) от 03.09.2021
 
 Больше чем семья / Aebigyuhwan / More Than Family (2020) WEB-DL [H.264/1080p-LQ] [DVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895414.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895323.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895155.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894953.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893861.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891804.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891584.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889924.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889741.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889277.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889176.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888734.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887137.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886840.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886806.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886593.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886503.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886422.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885809.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885669.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C28707139A2590484C30E22D98A9FDA40549B5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372496   (885403) от 03.04.2020
-
-Баллада об агенте по борьбе с наркотиками / Mayaku baishun G-Men / A Narcotics Agent's Ballad (1972) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наркоторговцы убивают агента под прикрытием Окамото. Полицейский внедрился в банду, но преступники его раскрыли. Агент по борьбе с наркотиками Кикути (Сонни Тиба) получает приказ продолжить дело Окамото и решает пойти другим путем. Кикути прикидывается продажным полицейским и предлагает свои услуги бандитам, надеясь в конечном итоге выйти на босса наркосиндиката.Производство: Япония / Toei CompanyЖанр: КриминалРежиссер: Син ТакакуваАктеры: Сонни Тиба, Хироси Мияути, Асао Сано, Фумио Ватанабэ, Яёи ВатанабэПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98688248AAACC6B0C30B612394D9FE336ED4E748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372491   (884690) от 03.04.2020
-
-Зверь / Biseuteu / The Beast (2019) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидеры двух конкурирующих опергрупп убойного отдела, детективы Чон Хан-су и Хан Мин-тхэ, изо всех сил пытаются найти убийцу недавно пропавшей школьницы, чьи останки были найдены за городом. Детектив Чон ловит священника, который последним видел девушку живой, и тот под давлением даёт признательные показания, но детектив Хан доказывает, что этот подозреваемый не мог (   Читать дальше...   )Производство: Корея Южная / Next Entertainment World, Studio & NewЖанр: Детектив, Триллер, Криминал, БоевикРежиссер: Ли Джон-хоАктеры: Ли Сон-мин, Ю Джэ-мён, Чон Хе-джин, Чхве Даниель, Ким Хо-джон, Ким Бён-чхун, Ли Сан-хи, Ким Хон-пха, Ким Дэ-гон, Ок Ча-ёнПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B80FF22A2214DABBC153EDDD2720B6FDECD87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372522   (884675) от 03.04.2020
-
-Китайский лётчик / Zhong guo ji zhang / The Captain (2019) BDRemux  [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884675.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 мая 2018 года на внутреннем рейсе компании «Сычуаньские авиалинии» на высоте чуть меньше 10 километров пассажирский самолёт теряет одно из ветровых стёкол. Происходит разгерметизация кабины, одного из пилотов чуть не утягивает наружу, сквозняк и шум стоят такие, что пилоты не слышат по радио голоса диспетчеров. И вдобавок из-за сильных вибраций самолёта показания (   Читать дальше...   )Производство: Китай / Bona Film Group, Alibaba Pictures, Huaxia Film DistributionЖанр: Биография, Боевик, ТриллерРежиссер: Эндрю ЛауАктеры: Чжан Ханьюй, Охо Оу, Ду Цзян, Юань Цуань, Чжан Тяньай, Ли Цинь, Чжан ЯмэйПеревод: Многоголосый любительскийСубтитры: АнглийскиеПродолжительность: 01:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CCD0505287241AE56B217540D47107C2D27A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372359   (884584) от 03.04.2020
-
-Пещера / The Cave (2019) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанный на реальных событиях фильм расскажет о масштабной операции по спасению детской футбольной команды, застрявшей в пещере в Таиланде.Производство: Таиланд, Ирландия / De Warrenne PicturesЖанр: Триллер драмаРежиссер: Том УоллерАктеры: Рон Смуренбург, Мэйтави Уайсс, Лоуренс де Стефано, Келли Б. Джонс, Оуэн О’Брайен, Ting Sue, Нирут Сиричанья, Росс В. Кларксон, Валери Бентсон, Гиги ВелиситатПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: Английские (Forced)Продолжительность: 01:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E772C28679C5803D6A68DE5F451A09E5456D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495083   (884379) от 10.09.2021
-
-Любовь как букет цветов / Hanataba mitaina koi o shita / I Fell in Love Like a Flower Bouquet / We Made a Beautiful Bouquet (2021) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884379.jpg" />
-</div>
-
-
-###  Подробнее
-
-22-летние студенты Муги Яманэ (Суда Масаки) и Хатия Кину (Аримура Касуми) встретились случайно, когда опоздали на последний поезд на одной из станций. Они влюбились друг в друга с первого взгляда, окончили колледж и начали жить вместе, работая по совместительству. Однако, когда Муги устроился на работу, и ритм жизни изменился, их чувства подверглись испытаниям.Производство: Япония, Tokyo Theatres, Little MoreЖанр: МелодрамаРежиссер: Нобухиро ДоиАктеры: Кэйко Тода, Каору Кобаяси, Каната Хосода, Джо Одагири, Рё Ивамацу, Кая Киёхара, Мамору ОсииПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайскиеПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61A0F7027E7A61DFC7109C6B8B35546AD6EF5D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494882   (883784) от 10.09.2021
-
-Ассасин: Битва миров / A Writer's Odyssey: Assassin in red / Ci sha xiao shuo jia (2021) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883784.jpg" />
-</div>
-
-
-###  Подробнее
-
-В неком фэнтезийном мире правит жестокий Бог, которому нужны лишь смерть и разрушения. Потеряв сестру, но обретя волшебный доспех, молодой воин Кунвэнь отправляется в путешествие, чтобы разыскать и убить Бога. В это время в нашем мире мужчина Гуань Нин уже шесть лет находится на грани отчаяния, разыскивая пропавшую дочку. Он выходит на торговцев детьми, но полиция (   Читать дальше...   )Производство: Китай | Free Whale Pictures, Huace PicturesЖанр: Фэнтези, боевикРежиссер: Лу ЯнАктеры: Лэй Цзяинь, Ян Ми, Дун Цзыцзянь, Юй Хэвэй, Го Цзинфэй, Ван Шэнди, Тун Лия, Дун Цзэ, Ян И, Лю ТяньцзоПеревод: Дублированный (iTunes)Субтитры: Русские (Forced), украинские (Forced), английскиеПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B5DB806A37BAE48C967BEAEF19E61E4AAEB018
 ```
 
 https://mybot314.ru/tekegram_catalog/

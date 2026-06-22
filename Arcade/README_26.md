@@ -1,3 +1,55 @@
+###  Публикация: 1199730   (494307) от 06.08.2019
+
+Street Fighter V (2016) [Ru/Multi] (4.070/dlc) License CODEX [Arcade Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная бойцовская серия возвращается! Встречайте игру STREET FIGHTER® V! Благодаря потрясающей графике, новое поколение Мировых Бойцов выглядит красиво, как никогда, а увлекательная и понятная боевая механика позволит и опытным, и начинающим игрокам подолгу наслаждаться динамичными битвами. Сыграйте с друзьями по сети, или сразитесь за честь и славу на турнире (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action, Arcade, Fighting, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A5EFD20BBD7D0760488EC3E0E9BF83A5B8DF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404167   (494280) от 23.07.2022
+
+Spiritfarer (2020) [Ru/Multi] (35357) License GOG [Farewell Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spiritfarer - это уютная игра о смерти. Вам предстоит играть за Стеллу - перевозчика душ умерших. Постройте лодку для исследования мира, подружитесь с душами и позаботьтесь о них, пока они не обретут покой в жизни после смерти. Занимайтесь земледелием, добывайте руду, рыбачьте, собирайте урожай, готовьте и мастерите предметы, чтобы переправиться через таинственные (   Читать дальше...   )Тип издания: LicenseРазработчик: Thunder Lotus GamesЖанр: Симулятор, Приключение, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202AD73E1D738C7972A979AAC04A19C6E86485DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318866   (490374) от 08.08.2019
 
 Street Fighter V (2019) [Ru/Multi] (4.070/dlc) Repack xatab [Arcade Edition]
@@ -6,7 +58,7 @@ Street Fighter V (2019) [Ru/Multi] (4.070/dlc) Repack xatab [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490374.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Pankapu (2016) [Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487481.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Toy Odyssey: The Lost and Found (2016) [En/Ch] (20160920) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487467.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Absolute Drift (2015) [En] (1.0 upd2) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485304.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sundered (2017) [Ru/Multi] (1.0.20170817) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483725.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Sundered (2017) [Ru/Multi] (1.0.20170817) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483646.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Hero of the Kingdom III (2018) [Ru/Multi] (1.00) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483573.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Hatred (2015) [Ru/Multi] (1.6) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483180.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Monster Boy and the Cursed Kingdom (2019) [Ru/Multi] (1.0_rc4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478723.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.14) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478720.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Galactic Junkers (2022) [Multi] (1.0.1.0) License FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478323.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Super ComboMan (2017) [Ru/Multi] (1.04) License PLAZA [Smash Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477846.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Escapists 2 (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477686.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Distrust (2017) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477583.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Distrust (2017) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477574.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Office Freakout (2016) [En] (0.9.0 Release) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476650.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Goo Saga - HD Edition (2016) [Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476645.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ The Masterplan (2015) [En/De] (1.1.1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474917.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Insanely Twisted Shadow Planet (2012) [Ru/En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474915.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ LASTFIGHT (2016) [Ru/Multi] (1.02) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474493.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Zombotron (2019) [Ru/En] (1.2.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472861.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Cannon Brawl (2014) [En] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470532.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Assault Android Cactus (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463791.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Unravel Two (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458821.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Unravel Two продолжает тему оригинальной игры, н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24649FEC1D51B9BF189BDC49298968C15D0C5D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246741   (458698) от 12.09.2018
-
-Unravel Two (2018) [En] (1.0) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда рвешь связи с прошлым, всегда появляются новые. В Unravel Two вам предстоит создать собственного Ярни. А затем встретить других Ярни в совместной локальной или одиночной игре, подружиться и помогать друг другу.Тип издания: LicenseРазработчик: Coldwood InteractiveЖанр: Adventure (Platformer), Puzzle, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D388A125324DB350BB45AD5C997465B1C103D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162453   (458609) от 01.09.2017
-
-NARUTO Ultimate Ninja STORM Dilogy (2017) [En] (1.0/1.0) Repack xatab
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458609.jpg" />
-</div>
-
-
-###  Подробнее
-
-NARUTO SHIPPUDEN: Ultimate Ninja STORM 2 - это все самое яркое, что есть в мире Наруто! Игра остается верной духу сериала и погружает игрока в сюжет Ураганных хроник, на этот раз дополненный новой боевой системой.Тип издания: RepackРазработчик: CyberConnect2Жанр: Arcade (Fighting), ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DEF85610C55A23AB4C2AF8F7D11AD040210442
 ```
 
 https://mybot314.ru/tekegram_catalog/

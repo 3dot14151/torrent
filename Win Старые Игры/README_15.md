@@ -1,3 +1,268 @@
+###  Публикация: 1039695   (594106) от 02.08.2016
+
+Parkan: Iron Strategy / Parkan: Железная стратегия (2001) [Ru/En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в фантастический мир Лабиринта - системы порталов, связывающих планеты неизвестной звездной системы. Сражайтесь с механическими войсками повстанцев и недружелюбной инопланетной фауной. Управляйте отрядом боевых роботов, отдавая приказы из защищенного бункера. Создавайте тысячи боевых машин и управляйте ими дистанционно или лично, играя с видом от (   Читать дальше...   )Тип издания: LicenseРазработчик: NikitaЖанр: Action, Strategy (Real-time), Simulator (Futuristic, Robot), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1500BD0000F0D72B76FCDF4FFDD6F71C73B18D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300451   (593054) от 06.05.2019
+
+Empire Earth 3 (2007) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте могущественное государство в протяженной кампании, охватывающей всю Землю. Постройте свою империю, выбрав одну из трех фракций или придумав собственную. Сделайте из зарождающейся державы доминирующую силу, чтобы вступить в схватку за планету. Мировое господство совсем близко. Впервые в серии Empire Earth именно вы вершите историю. Земля поделена на несколько (   Читать дальше...   )Тип издания: LicenseРазработчик: Mad Doc SoftwareЖанр: Стратегия, В реальном времени, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56436AB164FE7B580B20384653E625A59A95E629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300704   (592683) от 07.05.2019
+
+Command & Conquer 3: Kane’s Wrath / Ярость Кейна (2008) [Ru] (1.02) Repack xatab
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борьба между Братством NOD и силами GDI продолжается! Непримиримая война за тиберий вспыхнула с новой силой, а в центре событий оказался сам Кейн — харизматичный лидер бунтарей. Command & Conquer 3 Ярость Кейна раскрывает историю самого главного преступника планеты.Тип издания: RepackРазработчик: BreakAway Limited, EA Los AngelesЖанр: 3D, StrategyЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7A4B3B2703062FAD4A7D80DE5F80AA8F7C741A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300894   (587821) от 08.05.2019
+
+Command & Conquer 3: Tiberium Wars (2007) [Ru] (1.09) Repack xatab
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Command & Conquer 3: Tiberium Wars — компьютерная игра в жанре «стратегия в реальном времени», разработанная компанией Electronic Arts Los Angeles для ОС Windows и игровой приставки Xbox 360, долгожданное пополнение в линейке игр серии Command & Conquer.Тип издания: RepackРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF80539C8DBC771EE87408333734A7736E916691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356861   (587744) от 30.06.2011
+
+Spider-Man: Friend or Foe [Ru] (P) 2007
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильные союзники. Вы можете выбрать напарника из длинного списка выдающихся героев, а затем свободно переключаться между ним и Паркером. Каждый помощник, будь то супергерой или суперзлодей, вносит неповторимый вклад в общее дело. Лишь совместив умения персонажей, вы доберетесь до победного финала.
+Враги на стороне добра. После того, как Человек-паук одолеет давних противников –Доктора Октопуса, Зеленого Гоблина и Песчаного человека, они присоединятся к нему.
+Совместные подвиги. В любой момент к вам может присоединиться друг и взять контроль над союзником Человека-паука. Плечо живого товарища надежнее виртуального помощника, и лишь пара игроков способна раскрыть глубокий тактический потенциал проекта.
+Сражайтесь на разных аренах! Одолевая соперников одного за другим, вы открываете новые площадки для подвигов.
+Есть повод вернуться! Повторите понравившиеся уровни в совместной игре, сразитесь друг против друга, пройдите кампанию с новыми союзниками или в обличье Человека-паука в черном костюме. Мрачная экипировка (   Читать дальше...   )Тип издания: ПираткаЖанр: ActionЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB54E1ADDE7094010FEF616BD1538B6F281EC9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301121   (586902) от 09.05.2019
+
+Command & Conquer: Red Alert 3 (2008) [Ru/Multi] (1.12) License PROPHET
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Alert 3 - Uprising представляет собой глобальное дополнение оригинальной игры, состоящее из нескольких кампаний для индивидуального прохождения. Сюжет Command & Conquer Red Alert 3: Uprising повествует о событиях, случившихся после окончания мировой войны.Тип издания: LicenseРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F22865475845F2ED46B2F040B88AF99305DAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357869   (585706) от 02.07.2011
+
+Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585706.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Капитализм 2" предоставляет вам возможность создать в виртуальной реальности собственную экономическую империю. Игра охватывает практически все аспекты бизнеса, с которыми можно столкнуться в реальном мире.
+ Окунитесь в мир большого бизнеса, конкурентной борьбы и форс-мажорных ситуаций. Вам придется управлять денежными потоками и контролировать товарооборот, нанимать и обучать персонал, строить новые магазины, заниматься рекламой...Тип издания: ПираткаЖанр: Strategy (Manage / Busin. / Real-time) / IsometricЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A1E33F8D74CAA1C2037D20AE8AD29EFED8EFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040669   (585064) от 06.08.2016
+
+Disney Сollection: Aladdin, The Lion King, The Jungle Book (1993-1994) [En] (1.0/1.0/1.0) License GOG
+
+>>Win Старые Игры
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585064.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Lion King, красочный платформер, посвященный приключениям львенка Симбы. Будем честны: у каждого из нас остался Шрам на душе, когда мы впервые увидели сцену с паническим бегством антилоп из мультфильма «Король Лев». Все мы хотели танцевать вместе с Тимоном и Пумбой и подпевать их радостной песенке, благодаря которой вопль «акуна матата» стал девизом нашего детства. (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Arcade (Action, Platformer)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1FD9851F7225AE1C0A98DD8E4128A09F52C84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132199   (584913) от 11.05.2019
+
+Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Империя протянула свои зловещие щупальца через всю галактику и пожирает планеты одну за другой. После тяжелых боев Альянс повстанцев узнал о новом имперском оружии – Звезде Смерти, которая способна уничтожить целую планету. Империя зла тайно собирает огромную армию, надеясь сделать свое продвижение к мировому господству неудержимым. Кайл Катарн, имперский штурмовик, (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasArts EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D74114EDB585C4A074EAE80C994DF301FEB7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301560   (584893) от 11.05.2019
+
+Command & Conquer: Red Alert 3 — Uprising (2009) [Ru] (1.12) Repack xatab
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Alert 3 - Uprising представляет собой глобальное дополнение оригинальной игры, состоящее из нескольких кампаний для индивидуального прохождения. Сюжет Command & Conquer Red Alert 3: Uprising повествует о событиях, случившихся после окончания мировой войны.Тип издания: RepackРазработчик: Electronic ArtsЖанр: Add-on (Standalone), Strategy (Real-time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE822F68AD7D5326D229DEA9CDDDABB6D0FFB669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041067   (584148) от 07.08.2016
 
 Serious Sam: The First Encounter / Крутой Сэм: Первая кровь (2001) [Ru/En] (1.0/1.05/dlc) Repack/Mod Alex [Community Edition]
@@ -6,7 +271,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584148.jpg" />
 </div>
 
 
@@ -32,7 +297,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582714.jpg" />
 </div>
 
 
@@ -60,7 +325,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/En] (1.0.0.1upd1/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581716.jpg" />
 </div>
 
 
@@ -86,7 +351,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580485.jpg" />
 </div>
 
 
@@ -112,7 +377,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579697.jpg" />
 </div>
 
 
@@ -138,7 +403,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576633.jpg" />
 </div>
 
 
@@ -166,7 +431,7 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573983.jpg" />
 </div>
 
 
@@ -192,7 +457,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573876.jpg" />
 </div>
 
 
@@ -218,7 +483,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568337.jpg" />
 </div>
 
 
@@ -244,7 +509,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566810.jpg" />
 </div>
 
 
@@ -270,7 +535,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564879.jpg" />
 </div>
 
 
@@ -296,7 +561,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_564565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_564565.jpg" />
 </div>
 
 
@@ -322,7 +587,7 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559094.jpg" />
 </div>
 
 
@@ -348,7 +613,7 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_558330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_558330.jpg" />
 </div>
 
 
@@ -380,7 +645,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558051.jpg" />
 </div>
 
 
@@ -406,7 +671,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557956.jpg" />
 </div>
 
 
@@ -417,267 +682,6 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:946DBFE5961F41CFDF0B9C81EA703FC2EFD40968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556623   (557878) от 10.06.2022
-
-Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack Decepticon
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это нечто большее, чем просто Червяки, которых мы итак любим и обожаем. Теперь в игре еще больше оружия, еще больше интересных нововведений, касающихся как однопользовательского, так и многопользовательского игрового процесса. Вот что говорит о Червяках: Армагеддон Мартин Браун (Martyn Brown) - директор по разработке Team17 informs: "Червяки - это по-настоящему (   Читать дальше...   )Тип издания: RepackРазработчик: Team17 Digital LTD.Жанр: Стратегия, Пошаговая, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143D158352DBE33AD592AD589F9C5B40051DC3CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924690   (557269) от 04.08.2015
-
-Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно известно: только настоящие мужчины могут быстро расправиться с врагом, уничтожить секретное оружие, спасти множество невинных душ и, конечно, выиграть войну! И вот настоящие мужчины, такие как, боец Степан и его друг товарищ Пушкин, капитан танковой бригады, вступают в схватку с фашистами! Бескомпромиссная борьба со злом в лице генерала фон Шпрота просто не (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Mirage SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский , АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2960F2019029BF03ECE8A2163913332EF110C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233780   (557172) от 13.07.2018
-
-Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрытая ложь. Зловещая правда. Соберите воедино осколки прошлого. В игре Myst IV: Revelation, следующей главе величайшей приключенческой саги всех времен, вам предстоит отправиться в удивительные волшебные миры и раскрыть коварные интриги, которые плетут два самых зловещих злодея вселенной Myst. У каждой семьи есть тайны, которые рано или поздно выйдут наружу.Тип издания: LicenseРазработчик: Ubisoft MontrealЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F588D27DADC0C3B078DA0A8C0112140E8A53487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812762   (556313) от 31.05.2019
-
-True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то в мире есть сказочная страна — родина неимоверно крутых парней, дорогих иномарок, злобных гангстеров и бесконечных патронов. Там нет ничего проще, чем сбить самолет из пистолета, в одиночку истребить мафиозный клан, очаровать длинноногую фотомодель и раскрыть мировой заговор.
-Все преступники этой страны делятся с публикой своими планами охотнее, чем кандидаты (   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Английский, РусскийСубтитры: Английский, РусскийЯзык субтитров: Английский, РусскийЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B673E4A6904B37F16AAF9AEC335AF913DE7831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309101   (552682) от 17.06.2019
-
-S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Multi] (1.5.10) Steam-Rip ORiGiNS
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет «S.T.A.L.K.E.R.: Чистое Небо» переносит игроков за год до событий оригинальной игры S.T.A.L.K.E.R. в 2011 год. Группа сталкеров впервые подобралась к самому сердцу Зоны - Чернобыльской АЭС, спровоцировав катаклизм, который едва не привел к катастрофе. Грандиозный Выброс аномальной энергии изменяет Зону. Проверенных и относительно безопасных дорог больше нет. (   Читать дальше...   )Тип издания: Steam-RipРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Украинский, Английский, Немецкий и другиеЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD23EA2A0EAE59F2582646FDCA2E91A44FDB3E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309261   (551827) от 18.06.2019
-
-Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551827.jpg" />
-</div>
-
-
-###  Подробнее
-
-У него зеленая кожа в красную крапинку, присоски вместо ладоней и неправильный прикус. Зовут его Космо, он – юный инопланетянин, которого родители везут в известный на всю галактику парк аттракционов. Все идет хорошо, покуда в космический корабль семьи Космо не попадает шальная комета. Приходится совершить аварийную посадку на неизученной планете.Тип издания: LicenseРазработчик: Apogee Software, Ltd.Жанр: Экшн, Аркада, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C151339DAECF402A200B8C8CB61AA625C93A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046283   (551628) от 27.08.2016
-
-Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) [Mod] Unofficial
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами продолжение великолепного экшена из серии "Star Wars Jedi Knight: Jedi Academy", в котором вам предлагается пройти 13 новых уровней, сразиться с новыми противниками и выполнить еще более увлекательную и интригующую миссию. Escape Yavin IV - одно из самых глобальных дополнении к популярной "Star Wars: Jedi Academy".Тип издания: UnofficialРазработчик: Raven SoftwareЖанр: Action, 3D, 3rd Person, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01054CC65C2A4F989FA180912D8D17D8F1E75451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309440   (550862) от 19.06.2019
-
-Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта планета слишком тесна для вас троих. Несмотря на то, что война превратила Землю в пустыню, три группировки – «Выжившие», «Мутанты» и роботы Серии 9 – по-прежнему яростно дерутся за территорию и готовы повторить ядерный армагеддон, чтобы выиграть войну. Вы тоже не прочь урвать себе кусочек планеты, для чего вооружились танками и собрали армию наемников. Сражайтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Beam SoftwareЖанр: Стратегия, В реальном времени, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD22352DA57A34EF223E855A625591397B3600F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046932   (550730) от 28.08.2016
-
-Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зловещие призраки, воющие привидения и хитрые гремлины полностью в вашем распоряжении, дайте волю этим жутким созданиям, натравите их на городок Грейвенвилль и напугайте его жителей до полусмерти! Главную роль в мире игры Ghost Master играют потусторонние силы, с помощью них вы решаете головоломки и открываете все новые и новые тайны, проходя испытания, сочетающие (   Читать дальше...   )Тип издания: LicenseРазработчик: Sick PuppiesЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D0E0BCDC95E3A4F49A668CCC5444C6A004E62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047020   (550723) от 28.08.2016
-
-MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный симулятор гонок на спортивных мотоциклах. Мотоциклетный спорт еще не знал такого бешеного ритма, ураганной скорости, ловкости и мастерства, какие демонстрируют ведущие гонщики МТХ Mototrax. Стать лучшим среди них - ваша главная задача. Нелинейный режим карьеры проведет вас по долгому пути от "желторотого" новичка до профессионала экстра-класса.Тип издания: RipРазработчик: Beenox Studios, Aspyr MediaЖанр: Racing (Motorcycles), Simulator, Sport, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489052EE7FB27435E727E5C2992AAAFEBA60F8B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

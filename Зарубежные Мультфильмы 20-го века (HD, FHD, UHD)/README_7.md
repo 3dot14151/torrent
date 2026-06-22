@@ -1,3 +1,29 @@
+###  Публикация: 1053909   (495659) от 18.09.2016
+
+Стальной гигант / The Iron Giant (1999) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_495659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители тихой американской провинции становятся свидетелями ослепительной вспышки и падения огромного летающего объекта. Спустя несколько дней мальчуган по имени Хогарт Хьюз находит в окрестностях гигантского робота, прилетевшего на Землю из далекой космической галактики. Несмотря на свой грозный вид, инопланетный гость оказывается добрейшим созданием. Между ним и (   Читать дальше...   )Производство: США, Warner Bros. Animation, Warner Bros. Feature Animation, Warner Bros. PicturesЖанр: Рисованная анимация, ПриключенияРежиссер: Брэд БёрдПеревод: ДублированныйСубтитры: Русские, Английские (Вшитые отключаемые)Продолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4612934C91B682F8F8AFDDC55B901F629BC954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404241   (494937) от 24.08.2020
 
 Пиноккио / Pinocchio (1940) BDRip [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494937.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494800.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494721.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494304.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493497.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487025.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482325.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478278.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478063.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474625.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464495.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461765.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459516.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454336.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450258.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448303.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441209.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439883.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435959.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435667.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430840.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428701.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_425873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_425873.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416597.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416076.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4124B1646BBC8B3AAE6480E269F1091EF80F4183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066632   (411665) от 26.10.2016
-
-Снеговик / The Snowman (1982) BDRemux [H.264/1080i]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм рассказывает о маленьком мальчике и волшебном снеговике, которого он сделал накануне Рождества, и об их чудесных приключениях в Рождественскую Ночь.Производство: ВеликобританияЖанр: Рисованная анимацияРежиссер: Дайян Джексон, Джимми Т. МуракамиПеревод: не требуетсяПродолжительность: 00:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D027542E11686040176DC63619389D02F3A3781
 ```
 
 https://mybot314.ru/tekegram_catalog/

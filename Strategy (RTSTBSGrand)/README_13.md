@@ -1,55 +1,3 @@
-###  Публикация: 1340067   (264155) от 22.11.2019
-
-Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.0.341/dlc) Repack R.G. Механики [Deluxe Edition]
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Civilization VI предлагает множество новых способов взаимодействия с игровым миром: теперь города растут, занимая все больше и больше места на карте, ваши действия влияют на ход научных исследований и культурной жизни цивилизацииТип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF19A95B3C04F7094382DA91E02743BF12DB168F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191703   (264046) от 14.12.2017
-
-Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264046.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем, опираясь на различные идеи и ресурсы, обрели силу фракции, независимые от правительств. Частные корпорации и религиозные движения развязали войны, движимые жадностью, идеологией и жаждой власти. Множество людей погибло и многие земли обратились в руины. Ресурсы Земли истощились, а все попытки межпланетной колонизации потерпели крах. Наконец, спустя десятки (   Читать дальше...   )Тип издания: LicenseРазработчик: Proxy StudiosЖанр: Стратегия, Симулятор, ФантастикаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5850BA495EDA2B8C1ED3762F8DF1AD4D0FDF7314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191979   (263642) от 15.12.2017
 
 Age of Empires II: HD Edition (2013) [Ru/En] (5.6/dlc) Repack R.G. Механики
@@ -58,7 +6,7 @@ Age of Empires II: HD Edition (2013) [Ru/En] (5.6/dlc) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263642.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack xa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263320.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Earth 2150: Lost Souls / Земля 2150: Воды Стикса (2002) [Ru/Multi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262681.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262674.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Earth 2150: Moon Project / Земля 2150: Дети Селены (2000) [Ru/Mul
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262666.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262161.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Defenders of Ardania [Ru] (RePack/1.2) 2012 l Naitro
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260352.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260051.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260038.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259251.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257614.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ ZEPHON (2024) [Ru/Multi] (1.2.11/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256719.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256612.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.330/dlc) Repack Necros [De
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256389.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ Prime World: Defenders (2013) [Ru/Multi] (1.3.3041.0/dlc) Repack R.G. Механ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254698.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.4.0.4c/dlc) License GOG [Premium
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254557.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252567.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249057.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ Rival Realms (P) [Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248904.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248616.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [Ru/Multi] (4.52.36
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247544.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ A Total War Saga: Thrones of Britannia (2018) [Ru/En] (1.2.3/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247092.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246169.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237632.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78152529C43D3A3F2F9BCED16C391330A318034F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577670   (234043) от 20.09.2022
+
+Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkest Hour - самостоятельное дополнение для игры Hearts of Iron, созданное самыми опытными и преданными фанатами этой игры. Darkest Hour дает хорошую возможность не только оказаться в центре важнейших событий, но и изменить ход истории: действие дополнения охватывает период с июня 1914г., с самого начала Первой мировой, и до 1964 года, когда мир погрузился в пучины (   Читать дальше...   )Тип издания: LicenseРазработчик: Martin IvanovЖанр: Стратeгия, В реальном времени, ИсторическаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4003095AC7369DCD82A6BFAAF68BECCF6D11B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555126   (231452) от 03.06.2022
+
+Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (2003) [Ru/En] (1.1) Unofficial
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Patrician III - это экономическая стратегия. Вы - обыкновенный житель средневекового городка, но вам хочется большего. Неплохо было бы превратиться из простого, незначительного торговца в патриции или, что еще лучше, стать главой Ганзейского союза. Для этого можно стать дипломатом и заняться обустройством города. А можно пойти по кривой дорожке пиратства и набить (   Читать дальше...   )Тип издания: UnofficialРазработчик: Ascaron EntertainmentЖанр: Стратегия (экономическая)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56159AFD8ACB47563776A69F8B2360110AA0A222
 ```
 
 https://mybot314.ru/tekegram_catalog/

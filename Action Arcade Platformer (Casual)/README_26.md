@@ -1,3 +1,55 @@
+###  Публикация: 1770231   (32412) от 31.12.2024
+
+Anima Flux (2018) [Ru/Multi] (1.0.11) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anima Flux - это кооперативная метроидвания про двух генетически модифицированных солдат, спецагентов теократического диктаторского режима. Пробейтесь сквозь толпы мутантов по опустевшему мрачному космическому городу и спасите последний оплот человечества, если, конечно, хоть кто-то остался жив... Единственный город людей, расположенный на космическом ковчеге, подвергся (   Читать дальше...   )Тип издания: LicenseРазработчик: Anima FluxЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483C6E0AAC5DB653D3EDEF99FC6DA2FE3D9AAB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761358   (32329) от 01.01.2025
+
+BioGun (2024) [Ru/Multi] (1.600) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к Беку в его путешествии, чтобы спасти весь род собак от вымирания, вызванного зловещим вирусом. Окунитесь в безумный нарисованный от руки мир микробов, клеток и извилистых коридоров, полный ярких персонажей и свирепых боссов внутри наших любимых питомцев. Дайте вашей собаке шанс на борьбу, помогая ее иммунной системе бороться со смертельным вирусом.Тип издания: RepackРазработчик: Dapper Dog DigitalЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9956A4721E1FDB6859780E42F27CEDF4CE248509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770679   (32214) от 02.01.2025
 
 Penny’s Big Breakaway (2024) [Ru/Multi] (1.2.20240313) Repack Let'sРlay
@@ -6,7 +58,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.2.20240313) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32214.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.018) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32155.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Slave Zero X (2024) [Ru/Multi] (1.06/dlc) Repack Let'sРlay [Digital Deluxe Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32143.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ SUPER BOMBERMAN R2 (2023) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32103.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Spectacular Sparky (2021) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32079.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Pizza Tower (2023) [Ru/Multi] (1.1.271) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32023.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Doomsday Hunters (2023) [Ru/En] (1.1.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32015.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Guardians of the Sanctree (2024) [Ru/Multi] (1.1.2f6/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32012.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Janosik (2020) [Ru/Multi] (1.8.06a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31793.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Supraland (2019) [Ru/Multi] (1.23.7/dlc) Repack Let'sРlay [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31670.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Rusted Moss (2023) [Ru/Multi] (1.76) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31616.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Supraland Six Inches Under (2022) [Ru/Multi] (1.2.3349) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31614.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ ZERO Sievert (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31528.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Gestalt: Steam & Cinder (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31394.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.5.55.748x) Repack Let'
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31281.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Marko: Beyond Brave (2024) [Ru/Multi] (1.09) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31198.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Raccoon Roller (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31145.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Momodora Moonlit Farewell (2024) [Ru/Multi] (1.1f32) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31059.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Future Fragments (2024) [En] (1.0.4) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31004.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Wonder Boy: Asha in Monster World (2021) [Ru/Multi] (Build 8291740) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30965.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Running With Rifles (2015) [Ru/Multi] (1.98.1/dlc) Repack Pioneer
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30875.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0.43.1/dlc) Repack Other s [Complete Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30700.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Montezuma's Revenge - The 40th Anniversary Edition (2025) [Multi] (1.0.0.1.229) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30661.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Montezuma's Revenge: 40th Anniversary (2025) [Multi] (1.0/dlc) Repack FitGirl [D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30556.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Montezuma's Revenge: 40th Anniversary (2025) [Multi] (1.0/dlc) Repack FitGirl [D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75BD34719E5215255D12D3CC405E9FE58DD007A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701042   (30506) от 19.01.2025
-
-Airhead (2024) [Ru/Multi] (0.569) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airhead отличается от прочих метроидваний тем, что тут надо играть сразу двумя существами. Сюжет подается с помощью немых катсцен. Тело падает в пропасть и оказывается в пещерах. Загадочный гуманоид при исследовании подземелья внезапно находит умирающую после нападения машины голову. И не простую, а воздушную и живущую отдельно. Он объединяется с ней и становится (   Читать дальше...   )Тип издания: LicenseРазработчик: Octato, Massive MiniteamЖанр: Приключение, Головоломка, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Датский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Датский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937AB1F4D69E539798654FA8CDBAF39E404563DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730053   (30473) от 19.01.2025
-
-Beat Hazard 2 (2019) [Ru/Multi] (1.317) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beat Hazard 2 – продолжение яркого представителя жанра Shoot 'em up. Вам предстоит окунуться в головокружительные перестрелки на летающих кораблях, и уничтожить орды недругов под драйвовую музыку. Последняя занимает большую часть в видеоигре, и помощью неё в каждой битве можно находить свой тон и ритм, от которых может зависеть даже исход сражения. Либо подключите (   Читать дальше...   )Тип издания: LicenseРазработчик: Cold Beam GamesЖанр: Экшн, Аркада, Shoot 'em UpЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: РРусский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85D327929C7BC70FAD33D248880CC1EB09155FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1288786   (693414) от 12.03.2019
+
+Tavern Tycoon - Dragon's Hangover (2019) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tavern Tycoon – это отличный симулятор создания собственной таверны. Причем таверну вы сможете создать высшего класса, где любой путник не только сможет выпить лучшей настойки, но также вкусно поесть, переночевать и получить другие услуги.Тип издания: LicenseРазработчик: TerapolyЖанр: Indie, StrategyЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957CF8D192583A447725587DC1D2F6898BC44367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403584   (690320) от 20.08.2020
+
+Frostpunk (2018) [Ru/Multi] (1.6/dlc) License HOODLUM
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frostpunk – игра от создателей This War of Mine. Это игра на выживание общества, где без тепла нет жизни, а каждое решение имеет свою цену. В полностью вымерзшем мире люди разрабатывают паровые машины, чтобы противостоять невыносимому холоду. Вам предстоит построить последний город на земле и обеспечить своему народу средства выживания. Часто на одной чаше весов (   Читать дальше...   )Тип издания: LicenseРазработчик: 11 bit studiosЖанр: Strategy, Simulation, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2722CAB6C90F48ADF96A92914F6E1ED3882CCDE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507762   (680457) от 09.06.2012
 
 Woodcutter Simulator 2012 (L) [Multi3/-] 2012 | PROPHET
@@ -6,7 +58,7 @@ Woodcutter Simulator 2012 (L) [Multi3/-] 2012 | PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_680457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680457.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Objects in Space (2019) [En] (1.0.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679829.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677797.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Stardew Valley (2016) [Ru/Multi] (1.2.30) SteamRip R.G. Origins
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676474.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Legacy (2025) [Ru/Multi] (0.5206) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675928.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675748.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Malzbie's Pinball Collection (2017) [Multi] (1.0/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671313.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ ICED (2017) [Ru/Multi] (23.05.2017) Repack VseTop
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668826.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Cold Waters (2017) [En] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656577.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Fernbus Simulator (2016) [Ru/En] (1.14.12800/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656446.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ ABZU (2016) [Ru/Multi] (1.1) License STEAMPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644261.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ ABZU (2016) [Ru/Multi] (1.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644189.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Windstorm / Ostwind - Ari's Arrival (2019) [Multi] (1.1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640640.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.2.0/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635264.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Soviet Monsters: Ekranoplans (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631909.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.5.20/dlc) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627662.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Flower (2019) [Ru/Multi] (1.44) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623593.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ ABZU / ABZÛ (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622418.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.5/dlc) Repack Other s [Gold
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622153.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Train Sim World: CSX Heavy Haul (2017) [Ru/Multi] (1.4) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619298.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Farm Expert 2016 (2015) [En] (2.18) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619185.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Car Detailing Simulator (2022) [Ru/Multi] (1.000.27/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617773.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Construction Machines Simulator 2016 (2015) [Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617342.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Holy Potatoes! A Spy Story?! (2018) [Ru/En] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614722.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Holy Potatoes! A Spy Story?! — это оригинальный симулят�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E4CCBD67041176D37E2339A4046E4C61044FBB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283048   (614715) от 15.04.2019
-
-Victory At Sea Pacific (2018) [Ru/Multi] (1.4.0) License PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Victory at Sea Pacific - игра про морские сражения в сеттинге Второй мировой войны, где игрок может управлять как всем Тихоокеанским театром, так и отдельными кораблями и самолётами. Топите вражеские корабли торпедами своей “волчьей стаи” подлодок или встаньте во главе капитанского мостика, чтобы отдавать приказы своим флотам и изменить ход войны.Тип издания: LicenseРазработчик: Evil Twin ArtworksЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3598FF6327BFDF2103B8F6140D347F6E21867A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522021   (614470) от 17.07.2012
-
-Armageddon Riders (RePack) [Ru] 2009 | R.G. Games Warrior
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты за рулем машины смерти. Твои враги – зомби. Их очень много в этом мёртвом городе, ставшим опасным после загадочной катастрофы на Большом Адронном Коллайдере. Кстати, он расположен совсем недалеко от города; ты можешь запросто погонять внутри БАКа как по обычным гоночным трассам. Но твоя главная задача – стереть с лица земли этих проклятых зомби и докопаться до первопричины катастрофы…  Armageddon Riders – кровавый автомобильный экшен для любителей быстрой безнравственной езды без правил и без тормозов!Тип издания: RePackЖанр: Vehicular / Action / RacingЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4381C49E500427D80E4E9F0B6707BF666A2B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

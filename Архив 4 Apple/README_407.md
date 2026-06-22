@@ -1,3 +1,57 @@
+###  Публикация: 1326596   (383099) от 21.09.2019
+
+Postbox 7 v7.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, можно непосредственно в программе, а потом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2019Разработчик: Postbox, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEEC7378616970B50F7DBE36CD7E7CDEDCA7B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174869   (382845) от 16.10.2017
+
+Luminar 1.2.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 сентября 2017Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2525719A809E0D7362C1595891A7ABC5CED71C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174621   (382832) от 16.10.2017
 
 Alien Skin Exposure X3 Bundle 3.0.3.44 [En]
@@ -6,7 +60,7 @@ Alien Skin Exposure X3 Bundle 3.0.3.44 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382832.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ GraphicConverter 10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382823.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ iThoughtsX 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382816.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Aurora HDR 2018 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382690.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ VMware Fusion Pro 11 v11.5.0 (14634996) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382498.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ DaisyDisk 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382217.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ MarsEdit 4 v4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381872.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ WonderPen 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381871.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ Librarian Pro 4 v4.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381869.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ Amadeus Pro 2.5.0 (2047) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381777.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ SuperDuper! 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381774.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ iShowU Instant 1.2.9 (Advanced) 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381773.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ SILKYPIX Developer Studio Pro 9E 9.0.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381771.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ Wondershare Filmora 8.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381701.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ CADintosh X 8.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381694.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ Find Any File (FAF) 2.1.2b4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381602.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ Lattice 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381597.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ Downie 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381595.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ File Juicer 4.88 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381592.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381443.jpg" />
 </div>
 
 
@@ -547,7 +601,7 @@ MediaInfo 20.09 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381289.jpg" />
 </div>
 
 
@@ -573,7 +627,7 @@ CrossOver 20.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381026.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ ScreenFlow 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380952.jpg" />
 </div>
 
 
@@ -630,7 +684,7 @@ TotalFinder 1.10.3 (pre-releases) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380950.jpg" />
 </div>
 
 
@@ -643,64 +697,6 @@ otalFinder – это набор полезных утилит, расширяю
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:917814849AAC5CEACCAAABAC3183613A55DA92AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415099   (380886) от 10.10.2020
-
-Commander One PRO Pack 2 v2.5.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
-
-Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE14CFF30F7EC32376D5EC14FC0FD7DEFC9AF958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068758   (380740) от 01.11.2016
-
-Shredo 1.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shredo - красивая и функциональная утилита удаления файлов.
-Уничтожение данных — последовательность операций, предназначенных для осуществления программными или аппаратными средствами необратимого удаления данных, в том числе остаточной информации.
-Shredo поддерживает внешние диски и флэш-накопители.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 сентября 2016Разработчик: mymixapps.comПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0700EB316A473B2F046184408011F0386E6669EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

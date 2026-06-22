@@ -1,3 +1,29 @@
+###  Публикация: 1739262   (48712) от 27.07.2024
+
+Borderlands 3 (2019) [Ru/Multi] (11919094/dlc) Repack dixen18
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Borderlands 3, всеми любимый «шутер с базиллионами лута», возвращается, чтобы порадовать вас несметным множеством убойных стволов и новым крышесносным приключением! Вам предстоит покорить доселе не виданные миры, играя за одного из четырех новых искателей Хранилища – нереально крутых перцев, у каждого из которых уникальные навыки, способности и модификации. Действуя (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox SoftwareЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8064491B3433333CCB78FEA7FF79F1703193C6F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739502   (48608) от 28.07.2024
 
 7 Days to Die (2013) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +32,7 @@
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48608.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ No Man's Sky (2016) [Ru/Multi] (5.00.1/dlc) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48606.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48599.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Trepang2 (2023) [Ru/Multi] (77.00/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48447.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48242.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47826.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47808.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Deadlink (2022) [Ru/Multi] (1.2.27806) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47757.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47701.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47620.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.0.0.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47591.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47311.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ STAR WARS: Battlefront (2015) [Ru/Multi] (1.0.7.64833) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47305.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47273.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47094.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47077.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46758.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46580.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46562.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Decepticon [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46240.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45626.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45525.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45325.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44977.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44893.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53D5FE7778E2CF2C8B83EB8C018328B2A2AE27A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731180   (44382) от 07.09.2024
-
-Chornobyl Liquidators (2024) [Ru/Multi] (1.02.18/dlc) Repack Decepticon
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chornobyl Liquidators - симулятор ликвидатора Чернобыльской катастрофы. Окажитесь в списке тех, кто оказался максимально близок в последствиям катастрофы. События игры развиваются в первые минуты после аварии. Здесь нет монстров и мутантов, никто не борется со всемирным злом. Игра опирается на историческую достоверность и реализм.Тип издания: RepackРазработчик: Live Motion GamesЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD8B7849C7BE87674191D5F01E3338C50E4542F
 ```
 
 https://mybot314.ru/tekegram_catalog/

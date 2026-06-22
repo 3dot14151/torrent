@@ -1,3 +1,133 @@
+###  Публикация: 1247318   (450320) от 16.09.2018
+
+Блич / Bleach (2018) WEBRip [H.264/1080p-LQ] [JAP / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Итиго Куросаки с детства был способен видеть призраков. Однажды, встряв в схватку со странным призрачным монстром, Итиго погибает, но оказывается возвращен к жизни ангелом смерти по имени Рукия. Из-за нелепой случайности Рукия лишается всех своих сил, которые попадают к Итиго. Отныне Итиго — новый синигами и борец со злыми духами, а Рукия — простая (   Читать дальше...   )Производство: Япония, Cine BazarЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Синсуке СатоАктеры: Сота Фукуси, Хана Сугисаки, Мияви, Эрина Мано, Масами Нагасава, Сэйити Танабэ, Ёсукэ Эгути, Рё Ёсидзава, Ю Коянаги, Таити СаотомэПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские, английские, арабские, датские, немецкие, греческие, испанские, финские, французские, иврит, индонезийские, итальянские, японские, корейские, норвежские, голландские, польские, португальские, румынские, шведские, тайские, турецкие, китайскиеПродолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE72E261377EB3BF1DED28809EE5078916FA19C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059361   (450240) от 09.10.2016
+
+Она / Elle (2016) HDRip [H.264 / 720p-LQ] [FR / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мишель, состоятельная парижанка, владелица крупной компании по разработке видеоигр, с мужем в разводе, у сына своя, взрослая, жизнь. А у Мишель необременительный роман с мужем подруги. Однажды в ее дом врывается мужчина в черном, жестоко избивает ее и насилует. Когда он исчезает, Мишель не заявляет в полицию. Страшная история пробуждает в ней детские психологические (   Читать дальше...   )Производство: Франция, Германия, Бельгия, SBS Productions, Twenty Twenty Vision Filmproduktion GmbH, France 2 CinémaЖанр: Триллер, ДрамаРежиссер: Пол ВерховенАктеры: Изабель Юппер, Лоран Лафитт, Анн Косиньи, Шарль Берлинг, Виржини Эфира, Жюдит Магр, Кристиан Беркель, Йонас Блоке, Алис Исааз, Вимала ПонсПеревод: ОтсутствуетЯзык озвучки: ФранцузскийЯзык субтитров: АнглийскийПродолжительность: 02:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F971D8DDC0BFCA869675B5D94557729D520FF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163430   (449913) от 05.09.2017
+
+Любовь – болезнь / The Big Sick (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449913.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мере развития отношений влюбленной паре приходится столкнуться со своими культурными различиями.Производство: США, Apatow Productions, FilmNation Entertainment, Story InkЖанр: Комедия, МелодрамаРежиссер: Майкл ШоуолтерАктеры: Холли Хантер, Зои Казан, Кумэйл Нанджиани, Мэттью Кардаропле, Велла Ловелл, Рэй Романо, Адиль Ахтар, Бо Бёрнэм, Дэвид Алан Грир, Анупам Кхер ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Forced, Full)Продолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC55D7FAFAF39DD49517B002C37C9B61A7A1FA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247888   (448056) от 17.09.2018
+
+Мег: Монстр глубины / The Meg (2018) WEBRip [H.264/1080p-LQ] [EN / KOR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоководный батискаф, осуществляющий наблюдение в рамках международной программы по изучению подводной жизни, был атакован огромным существом, которое все считали давно вымершим. Неисправный аппарат теперь лежит на дне глубочайшей впадины Тихого океана… с оказавшимся в ловушке экипажем. Их время на исходе. Китайский океанограф-новатор, несмотря на протесты его (   Читать дальше...   )Производство: США, Китай / Apelles Entertainment,Di Bonaventura Pictures,Flagship Entertainment GroupЖанр: Боевик, Ужасы, Фантастика, ТриллерРежиссер: Джон ТёртлтаубАктеры: Джейсон Стэйтем, Ли Бинбин, Рэйн Уилсон, Клифф Кёртис, Уинстон Чао, Шуя Софиа Цай, Руби Роуз, Пейдж Кеннеди, Роберт Тейлор, Оулавюр Дарри ОулафссонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейские (вшитые, не отключаемые)Продолжительность: 01:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E741072145055989012F3C0A1CC5174DD6B7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943478   (447012) от 04.10.2015
+
+Шальное ранение / Blunt Force Trauma  (2015) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447012.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подвалах и сараях Южной Америки проводятся поединки стрелков. Молодой «дуэлянт» Джон мечтает о встрече с недостижимым чемпионом, в то время как его возлюбленная берет оружие, чтобы отомстить за убитого брата.Производство: Колумбия, ETA filmsЖанр: боевикРежиссер: Кен СэнзелАктеры: Райан Квантен, Фрида Пинто, Микки Рурк, Джон Мак, Джейсон Гибсон, Каролина Гомес, Рубен Самора, Стивен ГаларсеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3825C502B5723E3035E564361EB510DD797D397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322510   (446042) от 30.08.2019
 
 Боль и слава / Dolor y gloria (2019) BDRip [H.264/1080p] [SPA / RU, EN, SPA Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446042.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445821.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444647.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443918.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443916.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443708.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443490.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441936.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441121.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440318.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439341.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439242.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438842.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436603.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436405.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434782.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434319.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434227.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434027.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEBRip [H.264/1080p-LQ] [EN / 
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432830.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432154.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7937738E7CEBB454D784E3EAD0C12E3077E29E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165472   (432120) от 13.09.2017
-
-Пираты Карибского моря: Мертвецы не рассказывают сказки / Pirates of the Caribbean: Dead Men Tell No Tales  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исчерпавший свою удачу капитан Джек Воробей обнаруживает, что за ним охотится его старый неприятель, ужасный капитан Салазар и его призрачные пираты. Они только что сбежали из Дьявольского треугольника и намерены уничтожить всех пиратов, включая Джека. Поможет спастись лишь могущественный артефакт — трезубец Посейдона, который дарует своему обладателю полный контроль (   Читать дальше...   )Производство: США / Walt Disney Pictures, Jerry Bruckheimer Films, Infinitum NihilЖанр: фэнтези, боевик, комедия, приключенияРежиссер: Хоаким Роннинг, Эспен СандбергАктеры: Джонни Депп, Пол МакКартни, Орландо Блум, Кира Найтли, Хавьер Бардем, Джеффри Раш, Кевин МакНэлли, Дэвид Уэнэм, Мартин Клеббэ, Хуан Карлос Веллидо, Брентон Туэйтес, Стивен Грэм, Энгус Барнетт, Адам Браун, Родни Афиф, Кая Скоделарио, Джиллз Нью, Голшифте Фарахани, Делрой Эткинсон, Дэнни КиррейнПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1253AB042D8D44FB9C3D4645276CD9A7D87EC6A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249684   (430742) от 25.09.2018
-
-Истощение / Attrition (2018) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о бойце, который вынужден вернуть старую команду, чтобы спасти пропавшую тайскую девушку...Производство: Таиланд, Гонконг, Великобритания, США / Sivko Partners,Steamroller ProductionsЖанр: БоевикРежиссер: Матье ВешлерАктеры: Стивен Сигал, Руди Янгблад, Витхая Пансрингарм, Луис Фань, Джеймс П. Беннетт, Чарли Юн, Танапол Чуксрида, Юй Кан ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2186C98B093027007ADB50BBD090A3F70FA44DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249695   (430392) от 25.09.2018
-
-Бои без правил / A Prayer Before Dawn  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой британец Билли Мур попадает в самую страшную тюрьму Таиланда, где проводятся смертельные бои без правил между самыми жестокими преступниками. Чтобы выжить, Билли должен принять в них участие и выиграть.Производство: Великобритания, Франция, Китай, Камбоджа, США / Senorita Films, Indochina Productions, HanWay Films, Canal+, Ciné+, Meridian Entertainment, Symbolic Exchange, Hurricane FilmsЖанр: боевик, драма, криминал, биография, спортРежиссер: Жан-Стефан СоверАктеры: Джо Коул, Порнчанок Мабкланг, Паня Йиммумрхай, Витхая Пансрингарм, Билли Мур, Николас Шейк, Сура Сирмалай, Сомлок Камсинг, Сакда Ниамхом, Комсан Полсан, Чалоемпорн СаватсукПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBBFA518109C280C31F96978CCD8DFBB3297219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249875   (430384) от 25.09.2018
-
-Дядя Дрю / Uncle Drew  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрю собирает баскетбольную команду, чтобы принять участие в местных соревнованиях.Производство: США / Creators League Studio, Pepsi Productions, Temple Hill EntertainmentЖанр: комедия, спортРежиссер: Чарльз Стоун IIIАктеры: Ник Кролл, Шакил О’Нил, Терренс Розмор, Эрика Эш, Уильям Уолкер, Кэрри Л. Уолронд, Лил Релл, Крис Веббер, Кристал Ли Браун, Джош Генри, Лиза Лесли, Бенжамин Уивер, Регги Миллер, Майя Бойд, Элайджа Эверетт, Кайри Ирвинг, Жамель ЧэмберсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F107362C7C7E50C1BC2F982DF7BB77817819E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063982   (429879) от 18.10.2016
-
-Очень плохие мамочки / Bad Moms  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальная мать, прекрасная жена, хорошая домохозяйка с успешной карьерой... Но стоит немного расслабиться, как тебе сразу напоминают о твоих обязанностях. Почему только мужчины имеют право развлекаться? Сколько же можно это терпеть?! Пора команде отчаянных мамочек пуститься во все тяжкие.Производство: СШАЖанр: комедияРежиссер: Джон Лукас , Скотт МурАктеры: Мила Кунис, Кэтрин Хан, Кристен Белл, Кристина Эпплгейт, Джада Пинкетт Смит, Энни Мумоло, Уна Лоуренс, Эмджей Энтони, Дэвид Уолтон, Кларк Дьюк, Джей Эрнандес, Уенделл ПирсПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32BA44FEB2A4A4FB2B3A620E04F74C2CADFD538
 ```
 
 https://mybot314.ru/tekegram_catalog/

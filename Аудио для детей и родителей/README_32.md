@@ -1,3 +1,58 @@
+###  Публикация: 1399094   (734381) от 29.07.2020
+
+Хью Лофтинг | Цирк доктора Дулиттла (2008) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение историй про доктора Дулитлла
+
+Герои сказочных произведений Хью Лофтинга хорошо знакомы детям по книгам Корнея Чуковского, пересказавшего некоторые из них. Только вот имена у персонажей другие, и интересных приключений с ними произошло намного больше. Обо всех приключениях можно узнать из этой книги.
+(   Читать дальше...   )Жанр: Детская литература/Приключения/СказкаПродолжительность: 08:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8638E8DFAE3E367B3AD3D841E5F634F8720716A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399098   (734350) от 29.07.2020
+
+Андрей Кутерницкий | Тайна Розы Рассвета (2008) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для детей и взрослых. Андрей Кутерницкий пишет удивительные детские сказки, поэтому был удостоен премии им. С.Я. Маршака. Герои его сказок похожи на наших детей, похожи на нас с вами, а их приключения и их истории напоминают нам о вещах простых и важных: о любви и доброте, о счастье и печали, о дружбе и взаимопомощи.Жанр: Сказка для детей и взрослых. РадиопостановкаПродолжительность: 01:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514415926CA61143D521B38274093AB4CD0A07EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399089   (734349) от 29.07.2020
 
 Хью Лофтинг | История доктора Дулиттла (2008) [MP3]
@@ -6,7 +61,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734349.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734345.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734344.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734341.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734338.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734261.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734150.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733888.jpg" />
 </div>
 
 
@@ -225,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733887.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733882.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733468.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733467.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733462.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733454.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733167.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732966.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732957.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732951.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732833.jpg" />
 </div>
 
 
@@ -512,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732818.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732736.jpg" />
 </div>
 
 
@@ -564,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732732.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732729.jpg" />
 </div>
 
 
@@ -616,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732726.jpg" />
 </div>
 
 
@@ -627,61 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A21984475164035E8A1AE48EF9F0B99141722376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529468   (732722) от 06.02.2022
-
-Джастин Маркс | Книга джунглей. История Маугли (2021) [MP3, Александр Шаронов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы историю Маугли, мальчика, которого воспитали волки и пантера Багира?
-Добро пожаловать в самое сердце диких джунглей, ярких, зеленых и неподвластных человеку! Настоящей семьей Маугли стали звери, а домом – лес. И хотя временами мальчику казалось, будто его место не здесь, он и представить себе не мог, что однажды покинет джунгли. Но все изменилось, когда (   Читать дальше...   )Жанр: Сказка, Зарубежное фэнтези, Зарубежные детские книгиПродолжительность: 06:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED09508B5869DEC532AE212B26FDD8160FBEEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529712   (732561) от 07.02.2022
-
-Франц Кайнер, Аннетте Нольден | Беременность день за днём. Книга-консультант от зачатия до родов (2021) [MP3, Татьяна Николашина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта энциклопедия уже давно стала главной книгой всех мам Германии. Выносить и родить здорового малыша она поможет и вам, ведь информация в ней тщательно выверена и адаптирована под российского потребителя.
-
-У каждой беременной женщины процесс вынашивания ребёнка протекает индивидуально. Но для всех без исключения будущих мам это самый важный период в жизни. На протяжении (   Читать дальше...   )Жанр: Акушерство и гинекология, Зарубежная прикладная литература, Зарубежная справочная литература, Здоровье, Педиатрия и неонатология, Популярно о медицине, ЭнциклопедииПеревод: Мария ВиноградоваПродолжительность: 20:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A84B5BC9EFD41CC2527E97F9CE4EBC46B5F2575
 ```
 
 https://mybot314.ru/tekegram_catalog/

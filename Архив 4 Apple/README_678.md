@@ -1,3 +1,57 @@
+###  Публикация: 1705382   (113850) от 08.03.2024
+
+Downie 4 v.4.7.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.14.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4033B01BC239D33056AADE7E3185F2CD5D6115D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705480   (113842) от 08.03.2024
+
+Live Wallpaper & Themes 4K Pro for Mac 19.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Wallpaper & Themes 4K позволяют использовать живые обои на рабочем столе/экранной заставке. Приложение предоставляет тысячи живых обоев в мастерской, потребляя при этом как можно меньше системных ресурсов.Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2024 WHBALZAC IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8425EB7D76BA6A125BBA1666F9156708826F885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705381   (113839) от 08.03.2024
 
 Permute 3 v.3.11.7 [Multi/Ru]
@@ -6,7 +60,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113839.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113838.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Screen Wonders 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113836.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ iNet Network Scanner 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113792.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ Wondershare PDFelement Pro OCR 10.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113726.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ TG Pro (Temperature Gauge Pro) 2.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113718.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ DaisyDisk 4.26.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113704.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ Cookie 7.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113703.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ Cardhop 2.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113702.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113701.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ WiFiSpoof 3.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113699.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113698.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ Desktop Stickers 2.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113697.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113696.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ GarageSale 9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113695.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ Mp3tag 1.8.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113692.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ Wondershare UniConverter for Mac 15.5.2 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113673.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Downie 4 v.4.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113643.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ Keep It 2.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113630.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ Piezo 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113628.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ EazyDraw 11.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113627.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ Notebooks – Write and Organize 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113626.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113625.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ TechSmith Camtasia 2023 Studio 2023.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113618.jpg" />
 </div>
 
 
@@ -630,59 +684,6 @@ Camtasia for Mac — эффективное приложение для созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5CF9F80062A9C190CF43748BDBA3C6AC67DE5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706397   (113614) от 12.03.2024
-
-TechSmith Snagit 2024.2.1 for Mac [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113614.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2023Разработчик: © 1995 - 2021, TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F7E69371F3ED0E6AF2CEADEF32D3F5CA7AE3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706452   (113585) от 13.03.2024
-
-Things 3 v.3.20.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2007-2024 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2215419376C26D70958394403C31577CF0EAE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

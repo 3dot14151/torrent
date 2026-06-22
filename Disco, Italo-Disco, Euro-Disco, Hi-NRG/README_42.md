@@ -6,7 +6,7 @@ C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187813.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187811.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187798.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ C.C. Catch - Diamonds - Her Greatest Hits (1988) [OGG Vorbis|480 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185875.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ C.C. Catch - Star Collection - Back Seat Of Your Cadillac (1991) [OGG Vorbis|480
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185423.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tala A.M. - Arabica (1978) Reissue LP, African Roadtrip, 2015 [MP3|320 Kbps] <Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184462.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Leslie O'Hara - Gipsy Boy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184424.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184307.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Love Prophecy - Belle & The Beast (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183331.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Limelight - Love Me Forever (2020) [MP3|320 Kbps] <Electronic, Italo-Disco, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_183318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183318.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ C.C. Catch - Super Disco Hits (1994) [OGG Vorbis|480 Kbps] <Electronic, Disco, S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183091.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Fancy - Get Your Kicks (1985) [OGG Vorbis|950 Kbps] <Electronic, Disco, Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182491.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Bad Boys Blue - Heart Beat (1986) Reissue, 2015, Мирумир [OGG Vorbis|600 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182465.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Boogie People - Boogie People (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182407.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Pussycats - Leather And Romance (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182301.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Bad Boys Blue - Love Is No Crime (1987) Reissue, 2015, Мирумир [OGG Vorbi
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181001.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Blue System - Magic Symphonies - The Very Best Of Blue System (1987-1997) 3 CD R
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180963.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Tamara - Magic Dancer (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180824.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Momo Yang - Salsa Jeans (1977) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180431.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Patti Brooks - Party Girl (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180025.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Bad Boys Blue - Game Of Love (1990) [OGG Vorbis|650 Kbps] <Electronic, Pop, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178076.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Funny Twins - You And Me (1987) [OGG Vorbis|700 Kbps] <Electronic, Disco, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178016.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Fancy - Contact (1986) [OGG Vorbis|550 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177965.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Fancy - Flames Of Love (1988) [OGG Vorbis|600 Kbps] <Electronic, Disco, Synth-po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177955.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Bad Boys Blue - The Fifth (1989) [OGG Vorbis|700 Kbps] <Electronic, Disco, Synth
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177943.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176696.jpg" />
 </div>
 
 

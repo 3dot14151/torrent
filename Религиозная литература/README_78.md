@@ -1,3 +1,107 @@
+###  Публикация: 1326237   (387439) от 19.09.2019
+
+Н.Ю. Плотникова | Русское партесное многоголосие конца XVII - первой половины XVIII века. Службы Божии Василия Титова: Исследование и публикация (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование и публикация посвящены крупным литургическим циклам В. Титова, выдающегося мастера партесного стиля конца XVII — начала XVIII века. Первое полное издание шести Служб Божиих на 3, 4 и 8 голосов демонстрирует богатство творческих замыслов композитора, своеобразие его композиционных идей, гармонического и полифонического мышления. Публикация осуществлена (   Читать дальше...   )Жанр: Православие. Научное изданиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C231CC1524AE370936D2A4B7883FE32B5F6876A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326248   (387316) от 19.09.2019
+
+Протоиерей Фёдор Бородин | Сотвори любовь. Как вырастить счастливого ребёнка (2018) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного московского священника протоиерея Фёдора Бородина, настоятеля Космодамиановского храма на Маросейке и отца восьмерых детей, пропитана атмосферой любви – не абстрактной, а действенной, и дарит нам живой опыт пастыря и состоявшегося многодетного родителя-педагога. Вы найдёте здесь ответы на многие сложные вопросы о семейной жизни и воспитании детей. (   Читать дальше...   )Жанр: Православие. ПедагогикаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE19D15FD63347B69856DF699C7D2944A6746317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326424   (385198) от 20.09.2019
+
+Протоиерей Фёдор Бородин | Возрастай с Евангелием. Как воспитать ребёнка в евангельском духе. Притчи Христовы (2019) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга священника Фёдора Бородина, отца восьмерых детей и талантливого пастыря, родилась из приходских бесед с подростками, из его увлекательных искренних рассказов, в которых евангельские притчи соединяются с историями из жизни, а современные сюжеты — с евангельскими. Именно так лучше всего усваивается важное и глубокое: яркие поучительные примеры трогают сердце (   Читать дальше...   )Жанр: Православие. ПедагогикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8A4E2BBFCBEA2BDAEF4FE81E6D7BAC3B300CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574706   (383764) от 06.09.2022
+
+Владимир Семенко | Как разрушают Церковь (2013) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383764.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге известного православного ученого и писателя В.П. Семенко, подводящей своего рода итог его изысканиям последних лет, исследуется феномен либеральных и модернистских течений в современной Православной Церкви, главным образом на примере РПЦ, показывается их родственность аналогичным явлениям в других христианских конфессиях, анализируются ложные реформистские (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A6DDA4F96DB0032A234B814ADE43DEE44CE085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574704   (383753) от 06.09.2022
 
 Владимир Семенко | Осень Патриарха. От Православия — к экуменизму? (2017) [PDF]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383753.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383197.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383005.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382924.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382606.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381870.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381776.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381768.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381620.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381458.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381320.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381070.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381068.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379616.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379512.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379180.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379078.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379070.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378659.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377697.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377521.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377516.jpg" />
 </div>
 
 
@@ -572,111 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C01684636999873EA59E0175F82BCBA4DCDA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243300   (377380) от 12.10.2018
-
-Трифонов Печенгский монастырь (изд.) | Беседы великих русских старцев. О Православной вере, спасении души и различных вопросах духовной жизни. (2003) [DJVU, PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПравославиеФормат: DJVU, PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61857580EBC02D65AB26586411E13211D2A2E334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414584   (376978) от 12.10.2020
-
-О. Рожнёва (сост.) | Святой апостол Иоанн Богослов и архимандрит Иоанн (Крестьянкин). Твой святой покровитель (2019) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376978.jpg" />
-</div>
-
-
-###  Подробнее
-
-При крещении мы получаем имя святого. Эта книга, входящая в серию "Именинник", станет прекрасным подарком тем, кто носит имя Иван (Иоанн) и для кого святой Иоанн Богослов является небесным покровителем. Она включает литературно обработанное житие святого апостола Иоанна Богослова и рассказывает о жизненном подвиге Иоанна (Крестьянкина), великого старца (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DD2857155463F41B11C13FB272C058AD2DCCF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175737   (376776) от 19.10.2017
-
-Джованни Гуайта | Жизнь человека. Встреча неба и земли. Беседы с Католикосом Всех Армян Гарегином I (1999) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском языке читатель может познакомиться с историей, учением и духовным опытом Армянской Апостольской Церкви, одной из самых древних Церквей мира, а также прикоснуться к истории армянского народа, который, несмотря на свою многострадальную судьбу, войны, геноцид, рассеяние, в течение многих веков сохранял свою верность Христу.
-В беседах с Католикосом (   Читать дальше...   )Жанр: ИнтервьюФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266D4C8DF6AA44430B673F3F230DBF03BC1EB7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327228   (376716) от 24.09.2019
-
-В. Зоберн | Новые чудеса любимых святых (2019) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами свидетельства о чудесах, которые произошли в наши дни, здесь и сейчас. Это поразительное собрание фактов чудесных происшествий: истории спасения, исцеления и вразумления по молитвам блаженных Матроны Московской и Ксении Петербургской, святого праведного Иоанна Кронштадтского, преподобных Серафима Саровского и Сергия Радонежского, святителя Николая Чудотворца (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D8B4A167609190DEA3C88C0E4C9C95C16EC908
 ```
 
 https://mybot314.ru/tekegram_catalog/

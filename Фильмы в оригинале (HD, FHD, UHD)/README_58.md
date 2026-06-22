@@ -1,3 +1,133 @@
+###  Публикация: 1675821   (159470) от 10.11.2023
+
+Убийца / The Killer (2023) WEB-DL [H.264/1080p] [EN / RU, EN, UKR and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококлассный наемный убийца, склонный к мизантропическому философствованию, поджидает жертву в Париже. Когда всё идёт не по плану, он сам рискует превратиться в мишень и отправляется разбираться с собственными заказчиками.Производство: США / Archaia Entertainment, Boom! Studios, Panic Pictures (II)Жанр: боевик, триллер, криминалРежиссер: Дэвид ФинчерАктеры: Майкл Фассбендер, Тильда Суинтон, Чарльз Парнелл, Арлисс Ховард, Керри О’Мэлли, Софи Шарлотт, Emiliano Pernía, Gabriel Polanco, Сала Бэйкер, Эндре ХулсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, украинские и др. (см. MI)Продолжительность: 01:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D4B798F786EDF8D8526465765623156675F770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440997   (158795) от 26.12.2022
+
+Битва на рельсах / Bataille du rail (1946) BDRip [H.264/720p] [FR / RU sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина о трудной и рискованной борьбе французских железнодорожников и маки с потерявшей человеческий облик немецкой ордой. Все начиналось с идеала добродетели патриота — саботажа. Поезда шли вместо «райха» в другие департаменты Франции, уничтожались локомотивы и фрицы, сливалось топливо. А продолжилось крупномасштабной операцией по задержанию и уничтожению конвоя (   Читать дальше...   )Производство: Франция / Coopérative Générale du Cinéma FrançaisЖанр: Военный, драма, историяРежиссер: Рене КлеманАктеры: Марсель Барно, Жан Кларье, Жан Доран, Жак Дезаньо, Франсуа Жу, Пьер Лятур, Тони Лорен, Роберт Ле Рай, Пьер Лозак, Пьер МадэсПеревод: отсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские (оригинальные, по своему переводу — Веселый Гном)Продолжительность: 01:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793FC6062FB0607D1C5529081381DC0E5C9B1317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193899   (158139) от 23.12.2017
+
+Сильнее / Stronger  (2017) BDRip [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158139.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Джеффа Баумана, одного из участников трагических событий на Бостонском марафоне в 2013 году, лишившийся в результате взрывов обеих ног.Производство: США / Bold Films, Lionsgate, Mandeville Films, Nine Stories ProductionsЖанр: драма, биографияРежиссер: Дэвид Гордон ГринАктеры: Джейк Джилленхол, Татьяна Маслани, Клэнси Браун, Миранда Ричардсон, Фрэнки Шоу, Мишель Романо, Карлос Санс, Оуэн Бурк, Джон Поллоно, Дж.П. ВалентиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69560968355FF79F85D998E43E7DA6782762E292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193856   (158131) от 23.12.2017
+
+Тайна 7 сестер / Seven Sisters / What Happened to Monday  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158131.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где семейным парам разрешено иметь только одного ребенка, рождается семь сестер-близняшек. Родители решают сохранить всех и дают малышкам имена в честь дней недели. Так девочки и появляются на людях - каждая в свой день. Но однажды Понедельник пропадает...Производство: Великобритания, Франция, Бельгия / Nexus Factory, Raffaella Productions, SND, Title Media, uMedia Family, VendГґme PicturesЖанр: фантастика, боевик, триллерРежиссер: Томми ВирколаАктеры: Нуми Рапас, Гленн Клоуз, Уиллем Дефо, Марван Кензари, Кристиан Рубек, Пол Сверре Валхейм Хаген, Адетомива Едун, Кэсси Клер, Камерон Джек, Клара Рид, Кирсти ЭвертонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E133BDE4D8DA862DB692824B6812BF35FC1FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193978   (158118) от 23.12.2017
+
+Убить Гюнтера / Killing Gunther  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158118.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире профессиональных убийц существует свой рейтинг, и на его вершине находится некто Гюнтер. Никто не знает, как он выглядит, и где его найти, но совершенно точно известно, что с ним лучше не связываться. Киллер Блейк решает поправить иерархию и любой ценой уничтожить легендарного Гюнтера, для чего собирает команду наёмников со всего света - хакера, взрывника, (   Читать дальше...   )Производство: США / Folktale Productions, Ingenious Media, Miscellaneous Entertainment,  Rookfield Productions, Rowdy Row Productions, RuYi Media, StarStream Media, WWKG ProductionsЖанр: боевик, комедияРежиссер: Таран КиллэмАктеры: Таран Киллэм, Ханна Саймон, Бобби Мойнахан, Пол Бриттейн, Арнольд Шварценеггер, Питер Келамис, Аарон Ю, Коби Смолдерс, Эллисон Толман, Стив Бачич, Скотт МакНил, Амир ТалайПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554EB29D486013A27E0BB92A230CAFEBB3C10FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193738   (158022) от 23.12.2017
 
 Лига справедливости / Justice League (2017) WEBRip [H.264/1080p-LQ] [EN / KOR Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158022.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156745.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156379.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156359.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156325.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156108.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155124.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155090.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154924.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154907.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153939.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153166.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153149.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152873.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152669.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152020.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151194.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151105.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150815.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150798.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150142.jpg" />
 </div>
 
 
@@ -539,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4EE08E65B91A24FF5D3996863E699FAFCD96A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086653   (149821) от 25.12.2016
-
-Рождение нации / The Birth of a Nation  (2016) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историко-драматический байопик о чернокожем рабе-мятежнике Нэте Тёрнере. Веря в свою богоизбранность, Тёрнер воспринимает затмение как знак свыше: черная ладонь накрывает солнце. Под его предводительством вспыхивает восстание, потрясшее рабовладельческую Америку.Производство: СШАЖанр: драма, биография, историяРежиссер: Нэйт ПаркерАктеры: Нэйт Паркер, Арми Хаммер, Пенелопа Энн Миллер, Джеки Эрл Хейли, Марк Бун Джуниор, Колман Доминго, Онжаню Эллис, Дуайт Генри, Эйджа Наоми Кинг, Эстер Скотт, Роджер Гуэнвёр Смит, Гэбриэл ЮнионПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF42A7954911AD9A608C34F697C783A01FB8EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519085   (148932) от 23.12.2021
-
-Матрица: Воскрешение / The Matrix Resurrections (2021) WEBRip [H.265/2160p] [4K, HDR, 10-bit] [EN / RU, EN Sub]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148932.jpg" />
-</div>
-
-
-###  Подробнее
-
-В двух реальностях Нео снова придется выбирать, следовать ли за белым кроликом. Выбор, пусть и иллюзорный, все еще остается единственным путем в Матрицу или из нее, что более опасно, чем когда-либо.Производство: США / Village Roadshow Pictures, NPV Entertainment, Silver PicturesЖанр: фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис, Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 02:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81E80A9F21293A88B0C45B03B726095CF4D2CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434837   (147126) от 26.12.2020
-
-Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DLRip [H.264/1080p-LQ] [EN / En, Ru Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DCЖанр: фэнтези, боевик, приключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль и другиеПеревод: ОтсутствуетСубтитры: английские (full), русские (full)Продолжительность: 02:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC6221FE741339B925C4BE2A038160655AA8D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969472   (146546) от 27.12.2015
-
-Тупик / Standoff (2016) WEB-DL [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеран войны Картер с дробовиком наперевес вынужден защищать двенадцатилетнюю девочку, ставшую свидетелем убийства.Производство: Goldrush Entertainment, First Point Entertainment, Maple Leaf FilmsЖанр: ТриллерРежиссер: Адам АллекаАктеры: Томас Джейн, Лоренс Фишбёрн, Элла Бэллентайн, Джим Уотсон,
-Джон Тенч, Лаура ДеКартере, Тед Атертон, Джоанна ДугласПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E7268B9143CDFC59F330B8084E114EC9137116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087375   (146390) от 27.12.2016
-
-Повесть о любви и тьме / A Tale of Love and Darkness (2015) WEB-DL [H.264/1080p-LQ] [HEB / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнометражный дебют Натали Портман в качестве режиссёра. Фильм основан на одноимённом автобиографическом романе израильского писателя и журналиста Амоса Оза (род. 1939), опубликованном в 2002 году. Его воспоминания о детстве, прошедшем в Иерусалиме 1940-х годов в период становления Израильского государства.Производство: Израиль, США / Avi Chai fund, Gesher Fund, Handsomecharlie Films, Israel Film Council, Israel Fund for Film Production, Jerusalem Film and Television FundЖанр: Драма, БиографияРежиссер: Натали ПортманАктеры: Натали Портман, Шира Хаас, Томер Капон, Амир Тесслер, Макрам Хури, Охад Кноллер, Джилад Кахана, Мони Мошонов, Ротем Кейнан, Нета Рискин ...Перевод: ОтсутствуетЯзык озвучки: ИвритЯзык субтитров: АнглийскийПродолжительность: 01:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB18FF1A9313EA113FF90ED67F110CF5450A2C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

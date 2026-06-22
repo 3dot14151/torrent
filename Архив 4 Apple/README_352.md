@@ -1,3 +1,29 @@
+###  Публикация: 1563887   (502600) от 16.07.2022
+
+ON1 Effects 2022.5 v16.5.1.12526 U2B [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163890749B43F960F3E9B2C5BDC2FC1BDBC749EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563892   (502496) от 16.07.2022
 
 ON1 HDR 2022.5 v16.5.1.12526 U2B [Multi/Ru]
@@ -6,7 +32,7 @@ ON1 HDR 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502496.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ SwitchResX 4.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502493.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ ON1 Resize AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502487.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ PictureCode Photo Ninja 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502144.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501736.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ xSearch for Safari 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501734.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Music Tag Editor Pro 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501733.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Boxy SVG 3  v3.86.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501728.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Aiseesoft Mac Screen Recorder 2.1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501678.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Vinegar 2.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501669.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ YT Saver Video Downloader & Converter 5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501583.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Photomatix Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501072.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ MetaImage  2.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500677.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Stats 2.7.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500675.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ future.dj pro - mix everything 1.11.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500668.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ VideoDuke 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500666.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ djay - DJ App & AI Mixer 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500661.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Teorex Inpaint 9.2.1 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500595.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ RAR Extractor Max-Unzip Winrar 9.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500591.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500490.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500359.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500356.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499754.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ Dropzone 4 Pro v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499753.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ OmniPlayer Pro - Media Player 2.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499749.jpg" />
 </div>
 
 
@@ -662,34 +688,6 @@ OmniPlayer Pro для Mac - это универсальный медиаплее
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84073DA319050E354EBCBADA9610C9E37077B666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564534   (499747) от 19.07.2022
-
-Music Tag Editor Pro 7.0.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
-Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
-Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2013-2021 yumysoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5385BDDFD533CAB433FE95E1995DD2436C02CCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Should have held your hand (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032143.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Alone Again - Heartbreak Songs (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032111.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - NOW That's What I Call Music! 113 (2022) 2 CD [OGG Vorbis|480 Kbps] <Pop, R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032110.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Women's Day 2021 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032096.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sia - Music (Songs From And Inspired By The Motion Picture) (2021) [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032047.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Hits All Over - 99 Classics (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031874.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Stroer - Stroer (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Jazz, Rock, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031691.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Italo Dance Classics Volume 2 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031635.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Italo Dance Classics Volume 3 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031633.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - The Best Love Songs Album In the World...Ever! (2021) [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031624.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Mystera 2000 (1999) [OGG Vorbis|480 Kbps] <Pop, Folk, World, & Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030997.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030763.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Luis Miguel - Romances (1997) [OGG Vorbis|480 Kbps] <Latin, Pop, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030045.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Mystera VIII (2002) [OGG Vorbis|480 Kbps] <Pop, Downtempo, Ambient>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030043.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Mystera VII (2001) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Classical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030039.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Party Mix (2023) [MP3|320 Kbps] <Electropop, Dance, Future House, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029799.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Pop Classics (2023) [MP3|320 Kbps] <Disco, Funk, R&B, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029794.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bee Gees - Living Eyes (1981) Reissue, 1993, Polydor [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029615.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ E.G. Daily - Wild Child (серия "Другие восьмидесятые") (
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029509.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Celine Dion - 27 Albums, 19 Compilations, 8 Live, 53 Singles & EPs (1981-2019) [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029500.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Q - Q (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029381.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bonnie Tyler - The Best Is yet to Come (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029334.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lara Fabian - 19 Albums, 6 Compilations, 4 Live, 27 Singles (1991-2020) [MP3|320
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028326.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Greetings from Sanremo Festival Best Songs (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027952.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Disco Loveland Orchestra - Koto Around The World. ABBA Investigation (1979) LP [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027388.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027186.jpg" />
 </div>
 
 

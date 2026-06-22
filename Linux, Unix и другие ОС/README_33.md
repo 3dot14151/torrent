@@ -1,3 +1,59 @@
+###  Публикация: 1793536   (20311) от 25.04.2025
+
+Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инновационная операционная система класса Linux, обеспечивающая защиту информации, содержащей сведения, составляющие государственную тайну с грифом не выше «совершенно секретно». Разработаны и включены в состав операционной системы программные компоненты, расширяющие ее функциональность и повышающие уровень защищенности и удобства ее использования.
+
+Разработаный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA72E2FA7C0360786850F270C4EA5F8C2E52557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797181   (18248) от 15.05.2025
+
+Astra Linux Special Edition 1.7.7 UU2 [amd64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инновационная операционная система класса Linux, обеспечивающая защиту информации, содержащей сведения, составляющие государственную тайну с грифом не выше «совершенно секретно». Разработаны и включены в состав операционной системы программные компоненты, расширяющие ее функциональность и повышающие уровень защищенности и удобства ее использования.
+
+Разработаный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A3206423433CF8D2507F008A9B897EF9E006CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798111   (17722) от 20.05.2025
 
 Red Hat Enterprise Linux 10.0 [x86_64, aarch64] 4xDVD 1xZIP
@@ -6,7 +62,7 @@ Red Hat Enterprise Linux 10.0 [x86_64, aarch64] 4xDVD 1xZIP
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17722.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16901.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ Kerio Control v9.4.5 Patch 2 Build 8629 [x64] (iso, img) [Multi/Ru]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15788.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15527.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ MeeGo OS 1.2 cedartrail  [i386] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12569.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ MeeGo OS 1.2 [i386] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12284.jpg" />
 </div>
 
 
@@ -168,7 +224,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9820.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9803.jpg" />
 </div>
 
 
@@ -222,7 +278,7 @@ Ubuntu ServerPack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9800.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9798.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9797.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ Ubuntu*Pack 22.04 Cinnamon (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9796.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9793.jpg" />
 </div>
 
 
@@ -357,7 +413,7 @@ Ubuntu*Pack 22.04 LikeWin (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9791.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9787.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ Ubuntu*Pack 22.04 DDE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8733.jpg" />
 </div>
 
 
@@ -438,7 +494,7 @@ VMware Workstation 17 Pro 17.6.4-24832109 [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8541.jpg" />
 </div>
 
 
@@ -465,7 +521,7 @@ RAR for Linux 7.12 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8103.jpg" />
 </div>
 
 
@@ -483,60 +539,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739422   (7568) от 16.08.2025
-
-Ubuntu*Pack 24.04 LikeWin (июль 2025) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2B225DD1EDCF1902554431FB60FFF64B25C205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739473   (7560) от 16.08.2025
-
-Ubuntu*Pack 24.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AA0670CDCB1A53543C1455332D8C104793A720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739388   (7549) от 16.08.2025
 
 Ubuntu*Pack 24.04 (июль 2025) [amd64] 1xDVD
@@ -545,7 +547,7 @@ Ubuntu*Pack 24.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7549.jpg" />
 </div>
 
 
@@ -564,26 +566,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739414   (7546) от 16.08.2025
+###  Публикация: 1813811   (6674) от 21.08.2025
 
-Ubuntu*Pack 24.04 GNOME (июль 2025) [amd64] 1xDVD
+DeaDBeeF for Linux 1.10.0 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 
 >>Linux, Unix и другие ОС
->>Сборки ОС Linux
+>>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+DeaDBeeF (как в 0xDEADBEEF)-это модульный кроссплатформенный аудиоплеер, работающий на дистрибутивах GNU/Linux, MacOS, Windows, *BSD, OpenSolaris и других Unix-подобных системах.
+
+DeaDBeeF проигрывает множество аудио форматов, конвертирует между ними, позволяет настроить графический интерфейс по вашему желанию, и использовать множество дополнительных плагинов, которые (   Читать дальше...   )Язык интерфейса: Белорусский, Бенгальский, Болгарский, Каталонский, Чешский, Китайский, Датский, Немецкий, Греческий, Венгерский, Английский, Эсперанто, Испанский, Эстонский, Персидский, Финский, Французский, Галисийский, Иврит, Хорватский, Индонезийский, Итальянский, Японский, Казахский, Корейский, Кхмерский, Нигерийский, Литовский, Голландский, Польский, Португальский, Бразильский, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BC7D236B2694423574BE505D7926472B0D995FF
+magnet:?xt=urn:btih:9BD422FE57604042F9D6ACE129E6E259D526E337
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,26 +594,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739460   (7544) от 16.08.2025
+###  Публикация: 1813862   (6532) от 22.08.2025
 
-Ubuntu*Pack 24.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
+Astra Linux Special Edition 1.8.3 [amd64] 3xDVD
 
 >>Linux, Unix и другие ОС
->>Сборки ОС Linux
+>>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+Инновационная операционная система класса Linux, обеспечивающая защиту информации, содержащей сведения, составляющие государственную тайну с грифом не выше «совершенно секретно». Разработаны и включены в состав операционной системы программные компоненты, расширяющие ее функциональность и повышающие уровень защищенности и удобства ее использования.
+
+Разработаный (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:903A62F0DD801D3C37D529C696F16E62BC7B1618
+magnet:?xt=urn:btih:E32F4A3E5307EC4979E24326C534E55782E5B45B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -618,26 +622,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739417   (7539) от 16.08.2025
+###  Публикация: 1815306   (5404) от 29.08.2025
 
-Ubuntu*Pack 24.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
+LinuxPHB 12.25.0002 (Debian 12 Bookworm) [x86, amd64] 2xDVD
 
 >>Linux, Unix и другие ОС
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+Компактный портативный Linux дистрибутив на базе Debian 12 Bookworm предназначенный для тестирования, обслуживания ПК, ноутбуков.
+Позволяет проверить/продемонстрировать работоспособность оборудования, нагрузить процессор и видеокарту, мониторить температуру, проверить SMART HDD и NVMe SSD.
+
+В состав входят такие приложения, как CPU-X, GSmartControl, GParted, Partimage, (   Читать дальше...   )Разработчик: gumanzoyЯзык интерфейса: Английский + Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EFD7053309C91656E3A417B71760B4EDEBC7F36
+magnet:?xt=urn:btih:69C0B8174D486ACB500BD6D48CED8DFE022FFDBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,26 +651,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739467   (7537) от 16.08.2025
+###  Публикация: 1817542   (3381) от 11.09.2025
 
-Ubuntu*Pack 24.04 MATE (июль 2025) [amd64] 1xDVD
+Ubuntu Game*Pack 24.04 (сентябрь 2025) [amd64] DVD
 
 >>Linux, Unix и другие ОС
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+Это операционная система, которая включает в себя инструменты и средства для гарантированного запуска более чем 100 тысяч игр, как специально разработанных для Linux, так и разработанных для Windows, DOS, различных игровых приставок Sega, Nintendo, PSP, Sony PlayStation, ZX Spectrum и много других.
+Дистрибутив основан на операционной системе Ubuntu*Pack 24.04 (LikeWin), (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:828DDF9ADCE79FF16CEC5C1966604ABA79D77A4A
+magnet:?xt=urn:btih:FB3E518132E636B798C4AE4B346B60578665E09E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,26 +678,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739400   (7535) от 16.08.2025
+###  Публикация: 1818548   (2390) от 17.09.2025
 
-Ubuntu*Pack 24.04 Cinnamon (июль 2025) [amd64] 1xDVD
+Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD
 
 >>Linux, Unix и другие ОС
->>Сборки ОС Linux
+>>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+Инновационная операционная система класса Linux, обеспечивающая защиту информации, содержащей сведения, составляющие государственную тайну с грифом не выше «совершенно секретно». Разработаны и включены в состав операционной системы программные компоненты, расширяющие ее функциональность и повышающие уровень защищенности и удобства ее использования.
+
+Разработаный (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABE179A565284101FE285A8B576861E3C4ADCB9C
+magnet:?xt=urn:btih:10D4A2A2C36E0F04BF1FC0EE6FFB20F2D41B8CFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

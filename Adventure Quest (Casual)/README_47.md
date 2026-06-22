@@ -1,3 +1,159 @@
+###  Публикация: 1331829   (320648) от 17.10.2019
+
+Mystery Tales 12: Art and Souls (2019) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистическое продолжение увлекательной серии игр Mystery Tales. Старая подруга и ее муж открыли художественную галерею! Ее муж утверждал, что успех их открытия выставки был результатом волшебной кисти. Но то, что сначала кажется преувеличением, быстро принимает зловещий оборот, когда он пропадает без вести! Вы бросаетесь к ней на помощь! Старый художник еще не закончил (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8827AC683CE77DE12080725C0EA7A4BBD013D6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259360   (320631) от 03.11.2018
+
+True Fear: Forsaken Souls Part 2 / Реальный ужас: Души проклятых Часть 2 (2018) [Ru/En] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение жуткого психологического триллера True Fear: Forsaken Souls. Холли Стоунхаус шла по следу из хлебных крошек. Наконец, она прибывает в лечебницу Дарк Фоллс и узнаёт, что кто-то уже был здесь до неё, кто-то ждал её. Но теперь Холли - не просто зритель, а то, что следует за ней - не просто тень. Теперь это настоящая угроза, ведь лечебница оживает ночью. (   Читать дальше...   )Тип издания: UnofficialРазработчик: GoblinzЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, английскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE2EEE94B4B6E904AF4F2D6EA7D10388A236435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959110   (319131) от 23.11.2015
+
+Surface 8: Return to Another World (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разговор с мамой внезапно оборвался, но Джилл успела услышать: "город в опасности". Девушка срочно выезжает в родной городок. Улицы города выглядят пустынными, а когда девушка направилась к дому родителей, земля внезапно задрожала и из нее вырвался водяной столб...Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D115443706F193AAFE2CD8E2691104D37B5432C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959153   (319126) от 23.11.2015
+
+Eventide: Slavic Fable (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный отель находится в парке наследия, где обитают славянские мифические существа. Известный ботаник получает тревожное сообщение от своей бабушки, которая является смотрителем таинственной болотистой местности. Здесь действуют законы магии и обитают существа из фольклора. Нужно сохранить исчезающие виды растений - но это самая малая из проблем, которую нужно (   Читать дальше...   )Тип издания: UnofficialРазработчик: House of Fables и Artifex MundiЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB109F3039667452B2FBE56FBE23D3E54486546C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959164   (319119) от 23.11.2015
+
+Dark Parables 10: Goldilocks and the Fallen Star (2015) [En] Unofficial [Collector’s Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на великолепные берега озера Symhir, место потрясающей красоты и постоянного раздора между двумя королевствами: Barsia и Olesia. Barsia захвачена механическими зверями. Когда на граждан нападают сказочные звери, а у вас на руках оказывается древний артефакт, очень быстро убеждаешься, что не все легенды - сказка! Вам, как детективу предстоит отделить (   Читать дальше...   )Тип издания: UnofficialРазработчик: Blue Tea Games, Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FB51DD3D8464C82E916F20163E2B69B78F66D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959087   (318700) от 23.11.2015
+
+Dark Parables 9: Queen of Sands / Темные притчи 9: Королева песков (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барон де Монтафлер, основатель городка Монтафлер, организовал процветающее парфюмерное производство во Франции. Но, влекомый жадностью, он заключил могущественную Королеву Песков в ловушке кошмаров! Теперь, после многих десятилетий она свободна и жаждет мести! Барон умер, но жив его наследник - Эрик де Монтафлер.Тип издания: UnofficialРазработчик: Blue Tea Games & Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1A4E2B8EF4925DDA67744384454265C99E9A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921888   (318540) от 23.11.2015
 
 Five Nights at Freddy's 4 (2015) [En] (1.1) Unofficial
@@ -6,7 +162,7 @@ Five Nights at Freddy's 4 (2015) [En] (1.1) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318540.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Whispered Secrets: Morbid Obsession / Нашептанные секреты 11: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317402.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Escape The Museum / Побег из Музея (2008) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317383.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Dark Asylum: Mystery Adventure (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317204.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Forgotten Places: Regained Castle / Покинутые места: Обрете�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316790.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Mystery Case Files 19: Moths to a Flame / За семью печатями 19: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316032.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Myths of the World: Born of Clay and Fire / Мифы народов мира. Р
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315560.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ PuppetShow 10: Bloody Rosie / Шоу марионеток 10. Кровавая �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315555.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Adam Wolfe - Flames of Time / Адам Вулф: Пламя времен (2016) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315463.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ World Keepers: Last Resort / Хранители Мира: Последняя Н�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314629.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Fear For Sale 12: Tiny Terrors / Страх на продажу: Кукольн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313969.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.0) License H
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313316.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Mystery Case Files 13: Ravenhearst Unlocked (2015) [En] Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312410.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Dark Tales 8: Edgar Allen Poe's The Tell-tale Heart (2015) [En] Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312260.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Ashley Clark 2: The Secrets of the Ancient Temple / Эшли Кларк. Сек�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311918.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Dark Asylum: Mystery Adventure / Загадки разума. Грани доз�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311757.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Haunted Hotel 15: The Evil Inside / Проклятый отель 15: Зло в�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311699.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ The Andersen Accounts 3: A Voice of Reason / Досье Андерсена 3: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311455.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Paranormal Files 4: Hook Man's Legend / Паранормальные явлен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311312.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Enchanted Kingdom 8: Master of Riddles (2020) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310611.jpg" />
 </div>
 
 
@@ -511,163 +667,6 @@ Enchanted Kingdom 8: Master of Riddles (2020) [En] (1.0) Unofficial [Collector's
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27A8F0FE0406F5356CBDE9CA6938D626C02BDD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260614   (309697) от 08.11.2018
-
-Mystery Tales 10: The Reel Horror / Загадочные истории 10: Ужас из кинопленки (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему старому другу, офицеру Джефферсону, нужна ваша помощь. Его маленькая дочь со своими друзьями стали жертвами во время охоты на призраков в заброшенном кинотеатре ужасов. Используйте свои паранормальные возможности, чтобы найти их прежде, чем призрачный Режиссер сделает их актерами своего последнего фильма.Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF35B7D7A953575EDEFE58BFC329BD706FF96327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960442   (307719) от 28.11.2015
-
-The Curio Society. Eclipse Over Mesina (2015) [En] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы будете играть за настоящего смельчака, который не единожды спасал чужие жизни и приходил на выручку нуждающимся. Успехи и подвиги героя не остались незамеченными, и он был приглашен в секретное общество, которое вступило в сражение с могущественным существом долгое время находившемся в заточении и случайно оказавшемся на свободе.Тип издания: UnofficialРазработчик: Domini Games и Big Fish GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45BE03007E53DAE1EE4929132C7CDB2D57C6279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333034   (307323) от 23.10.2019
-
-Dreadful Tales 2: The Fire Within (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической игры Dreadful Tales. Джилл и Джош Уивер вместе с дочерью отправились в поход, чтобы отдохнуть на природе и сделать фотографии всего интересного, что попадется на пути. Случилось так, что Джилл осталась в одиночестве... правда, ненадолго. Ужасный человек с огнеметом начал на нее охоту. Когда туман опустился на землю, Джилл поняла, что кошмар (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA17DBF5B5B2FFDF456ADE436DEED42F19B473E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077383   (306421) от 28.11.2016
-
-Mystery Case Files 14: Broken Hour Collector's Edition (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посетите пансионат Хаксли, дом с загадочной башней с часами! Мы являемся эксклюзивным местом для людей, которые хотят уйти от проблем и узнать как жилось в Викторианскую эпоху - никаких телефонов, никакой техники! Вы получите интересный опыт, соблюдая ежедневно наш строгий график. Свободных мест мало, так что поспешите! Примечание от администрации: отчеты о трагическом (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF671AE4E8877156BF44685DE367EA2D0560A750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183940   (305150) от 15.11.2017
-
-Invasion: Lost in Time / Вторжение: Затерянные во времени (2015) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш друг Майк просит срочно приехать к нему в Египет. Дело в том, что недавно на одной из угольных шахт Колумбии был обнаружен саркофаг, которому, как определили эксперты, не меньше 10 000 лет. При этом вот что по-настоящему изумило Майка: мумия в саркофаге как две капли воды похожа на него самого!
-И это уже не первая история в вашей жизни, которая наводит на мысли (   Читать дальше...   )Тип издания: UnofficialРазработчик: Litera LaboratoriesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C62C1E4114506AF045DC0E542FF0E433210C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077564   (304307) от 29.11.2016
-
-Chimeras 4 Mortal Medicine / Химеры 4. Смертельная медицина (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chimeras 4: Mortal Medicine - четвертая часть мистической серии студии Elephant Games, в которой главный герой должен расследовать внезапное заболевание детей по всему городу. Дети в Ронасе заболели неизвестной болезнью. Их состояние все ухудшается, и вас призвали на помощь. Обычное расследование становится опасным, когда вы понимаете, что вам противостоит существо, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351339DD5BE1C1A32E133F343EA3F04895FD397B
 ```
 
 https://mybot314.ru/tekegram_catalog/

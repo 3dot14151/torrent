@@ -1,3 +1,29 @@
+###  Публикация: 195914   (487736) от 29.08.2018
+
+BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007) 2xBlu-Ray [H.264/1080p] (сезон 1, серии 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами невероятная история планеты Земля - единственной живой планеты во вселенной. Как же устроена наша планета? Как она работает, и что делает ее такой особенной? Исследуя великие силы, которые формируют Землю - вулканы, океан, атмосферу и лед - мы сможем узнать об их роли в истории нашей планеты. Как эти силы влияют на облик Земли, ее климат, и ее историю? (   Читать дальше...   )Производство: Великобритания /  British Broadcasting Corporation (BBC), National Geographic Channel, Zweites Deutsches Fernsehen (ZDF)Режиссер: Анабель Гиллингс , Мэтью Гевис, Софи Харрис , Бэн Лаври, Паул ОлдингАктеры: Йен Стюарт, Виктор Бэйкер, Мириам ДжексонПеревод: Профессиональный (одноголосый)Субтитры: РусскиеПродолжительность: 5 x ~ 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D7647305520B305A8AF6490B6946348CC05FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 305166   (487455) от 15.09.2015
 
 BBC. Лицо человека (4-х серийный) / The Human Face (2001) DVDRip
@@ -6,7 +32,7 @@ BBC. Лицо человека (4-х серийный) / The Human Face (2001) D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487455.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487449.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Нюрнбергский процесс. Нацистские престу�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483770.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC. Секс по интернету. Безопасно? / Websex: What's the 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481276.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480771.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480392.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478586.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ BBC: Бахус. Античный бог экстаза / Bacchus Uncovered: Anc
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477007.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476815.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ BBC: Сказочный замок короля Людвига II / The Fairytal
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476803.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ BBC: Мир природы. В мире жуков / Natural World. Beetlemania 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474967.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473514.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ BBC. В краю муссонов: Экстравагантные изгои / W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470979.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468757.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466068.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466067.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ BBC. Мрачное обаяние Адольфа Гитлера / The Dark Char
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464268.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464037.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ BBC: Человек на Марсе. Экспедиция на красную п
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461633.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461547.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457017.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ BBC: Выдающиеся женщины ХХ столетия. Амелия Э�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455393.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ BBC: Нацизм: Предостережение истории (1999) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454979.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ BBC. Загадки квантовой физики / The Secrets of Quantum Phy
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454311.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ BBC: Атлантида была здесь / Atlantis: the Evidence (2010) IPTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453244.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ BBC: Атлантида была здесь / Atlantis: the Evidence (2010) IPTV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E29C700BA635C91D4432A3AF0CAA5322C2D064F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942648   (453102) от 01.10.2015
-
-BBC Horizon: В какой Вселенной мы находимся? / Which Universe are We in? (2015) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе мир, где динозавры до сих пор ходят по Земле. Мир, в котором немцы выиграли Вторую мировую войну, и вы президент Соединенных Штатов. Представьте себе мир, где больше неприменимы законы физики и где бесконечные копии вас играют каждую возможную сюжетную линию вашей жизни. Это звучит, как сценарий голливудского фильма, но это далеко не так. Это мультивселенная. (   Читать дальше...   )Телекомпания: BBC Science Production LondonЖанр: Документальный,  научно-познавательныйРежиссер: Naomi AustinПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5417BF223C2B1FE0576B99E422BA26455DD8CDCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

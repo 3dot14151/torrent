@@ -1,3 +1,107 @@
+###  Публикация: 1201173   (793492) от 23.01.2018
+
+Vesta (2018) [En/Es] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веста - сообразительная 6-летняя девочка, живущая в заброшенном подземном лабиринте, руинах некогда кипящего жизнью города, который населяли люди и идеальные машины. К счастью, она не совсем одна - у нее есть друг по имени БОТ. Он помогает Весте советом и вдохновляет на выполнение порученных заданий - при этом сам БОТ знает гораздо больше, чем говорит. Чтобы Веста (   Читать дальше...   )Тип издания: LicenseРазработчик: FinalBoss GamesЖанр: AdventureЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D6B9529793B45329B58AAD574C88FC7F3FF2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122992   (793026) от 06.04.2017
+
+Paradigm / Парадигма (2017) [En] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paradigm - это сюрреалистический квест, действие которого разворачивается в постапокалиптическом мире под названием Крусз, созданного на основе модели Западной Европы 70-х годов 20 века. Невеселая жизнь Парадигмы началась в генетической лаборатории DUPA, компании, которая занимается торговлей искусственно выведенными детьми для богатых и власть имущих, тех, кто не (   Читать дальше...   )Тип издания: LicenseРазработчик: Jacob JanerkaЖанр: Приключение, Головоломка, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8F6AA4F43B031870C52A0A1960DF9FF7AFC035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201393   (792594) от 24.01.2018
+
+Subnautica (2018) [Ru/Multi] (59783) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subnautica - это ролевая игра от создателей Natural Selection 2, в которой авторы пообещали соместить кинематографичность, открытый мир и проработку "больших" RPG. Subnautica – игра-песочница с открытым миром, созданная компанией Unknown Worlds Entertainment. Главная особенность игры – всё действие происходит в инопланетном океанеТип издания: LicenseРазработчик: Unknown Worlds EntertainmentЖанр: Adventure (Survival), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E303964226E706E857F8B5FDDF347F0D32AC614D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509798   (792560) от 14.11.2021
+
+The Quiet Apocalypse (2021) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792560.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Quiet Apocalypse - сюжетное приключение, действие которого происходит в прекрасном открытом мире. В опасном приключении, спасая жизнь особенного ребенка, путешествуйте по холмам и вересковым пустошам, густым лесам с умеренным климатом, возвышающимся каньонам, засушливым пустыням и давно спящим вулканическим горам, которые прекрасно освещены динамичным циклом (   Читать дальше...   )Тип издания: LicenseРазработчик: Little Denis GamesЖанр: Приключения, Квест, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54954FFEAA4B1A49FC3D134604E85066FF98E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386989   (792298) от 31.05.2020
 
 Shantae and the Seven Sirens (2020) [Ru/Multi] (701355) License GOG (обновляемая)
@@ -6,7 +110,7 @@ Shantae and the Seven Sirens (2020) [Ru/Multi] (701355) License GOG (обнов�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792298.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_792289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792289.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sparklite (2019) [Multi] (1.6.8) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791867.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Nerved (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791745.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ When They Arrived (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790871.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Decay: The Mare (2015) [Ru/Multi] (1.1.1) Repack Other s [Chapter 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790310.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ American Hero (2021) [En] (0.0.30) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789146.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Catherine Classic (2019) [Multi] (1.0.1151) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788852.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Grow: Song of the Evertree (2021) [Ru/Multi] (1.0.0) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788749.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Cloudpunk (2020) [Ru/Multi] (6861751/dlc) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788743.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788526.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Catherine Classic (2019) [Ru/Multi] (1.0.1151) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788393.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Starship Titanic (1998) [Multi] (1.0.0.42c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788287.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788278.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Gray Dawn (2018) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787947.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Sally Face (2016) [Ru/Multi] (1.2.18) Repack Z0l0t0y [Episode 1&2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787554.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Awesome Adventures of Captain Spirit / Life Is Strange 2 (2018) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787451.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Henry's Day PLAZA (2021) [En] (7617791) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787319.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Kholat (2015) [Ru/Multi] (1.03) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786776.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ KHOLAT (2015) [Ru/Multi] (1.03/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786495.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.1.0) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786247.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Lion's Song (2016) [Ru/Multi] (1.0) License TiNYiSO [Episode 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785874.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Lion’s Song — эпизодическая игра, чье действи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0335009A83CB8F236AD4E8E2E43F91C9454C6D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204781   (784265) от 07.02.2018
-
-Silent Descent (2018) [En] (1.03) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Silent Decent — очень захватывающая игра ужасов от первого лица с богатой и привлекательной атмосферой. Вы играете за попавшего в ловушку дьявола Сэмюэля Харриса (Samuel Harris), который бродит в бесконечной временной петле, состоящей из тоски, боли и страданий. Сможете ли вы найти способ спасти измученную душу человека?Тип издания: LicenseРазработчик: Deceptive Games Ltd.Жанр: Adventure, (Horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C860DF5A9F7AEC059F69B1F96FF3D37DAA0E1E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389833   (783843) от 12.06.2020
-
-The Light Remake (2020) [Ru/En] (1.01) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть только вы, заброшенные останки былой жизни и расцветающая природа, отлично чувствующая себя в отсутствие человека. Этот мир одновременно мрачен и пуст, но так невероятно красив. Свет - это ремейк оригинальной игры 2012 года, атмосферное авторское высказывание о нашем месте в этом мире, жизни и смерти. Исследуйте загадочную территорию, наполненную разнообразными (   Читать дальше...   )Тип издания: LicenseРазработчик: Носков СергейЖанр: Adventure, Simulator, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23D2722ADACA2FEA2AB586950F277CE3F0FCF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389731   (783826) от 12.06.2020
-
-Deck of Ashes (2020) [Ru/Multi] (1.4.55057) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deck of Ashes — это приключенческая игра с тактическими карточными боями. Одного за другим, ведите банду антигероев по пути искупления. Исследуйте мрачный фантастический мир и собирайте карты в уникальную боевую колоду. Проверьте свое умение выживать и управлять ресурсами, улучшая лагерь союзников. От любого выбора — куда идти, какие ресурсы собирать, на какой риск (   Читать дальше...   )Тип издания: LicenseРазработчик: AYGamesЖанр: Adventure, StrategyЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92112CC64DE469A7EB091E307015AE94B2986F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389724   (783822) от 12.06.2020
-
-Beyond Blue (2020) [Ru/Multi] (1.3.15659) License HOODLUM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однопользовательская игра в стиле приключенческого повествования, в которой мы оказываемся в пульсирующем голубом сердце нашей планеты. Игрок переносится в ближайшее будущее и познаёт тайны океана, обозревая подводный мир глазами Мирай — ученой и исследовательницы океанических глубин. Ваша недавно сформированная исследовательская группа, вооруженная инновационными (   Читать дальше...   )Тип издания: LicenseРазработчик: E-Line MediaЖанр: 3rd Person, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A16BB7A519C9581CAF06031E9783CE0B8A30AC98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Nova Scotia - Before I Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111171.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nova Scotia - Think About The Angels (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111126.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nova Scotia - Everytime We Touch (2023) [FLAC|Lossless|WEB-DL|tracks] <Club-Danc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_111125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111125.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (Olly James remix
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110429.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (2023) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_110328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110328.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [FLAC|Lossless|tracks] <Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109790.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - Epifania Part I-II (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109466.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - Best Of Zara Taylor (2024) [FLAC|Lossless|tracks] <Trance, Vocal Trance, El
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108880.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Bidoben - Cobalt Blue Rust (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_108200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108200.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ D.I.P Project & Черное И Белое - Раз И Навсегда (2008) [
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106939.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ DJ Pulse Feat. Donna Marie - Wherever You Go (2019 remixes) (2019) [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106775.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ DJ Nelly - Lose Control (2022) [FLAC|Lossless|tracks] <Pop Trance, Scouse House>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103544.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ John Askew - A Room Full of Pros & Cons (2024) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_103309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103309.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Armin van Buuren - 8 альбомов, 28 компиляций (1999-2012) [FLAC
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87697.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Paul Oakenfold - Never Mind The Bollocks (2011) [FLAC|Lossless]<Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80998.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Alter Ego Records - Best Of 2024 Compilation Album (2024) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70270.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Paul van Dyk - This World Is Ours (2025) [FLAC|Lossless|WEB-DL|tracks] <Tranceco
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67857.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Interplay 2024 (Selected By Alexander Popov) (2024) [FLAC|Lossless|WEB-DL|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67203.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Roman Messer - Serendipity (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66558.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Estiva - Embrace (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66534.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Sean Tyas - Lift (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66113.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Duran & Aytek - In Sight E.P. (2005) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66081.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66030.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Sander van Doorn - Punk'd (2004) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65926.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ DJ Tomcraft - Silence (2000) [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65828.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Above & Beyond - Bigger Than All Of Us (2025) [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65226.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 57527   (9818) от 31.07.2025
+
+Redneck Kentucky and the Next Generation Chickens / Куриное побоище (2007) [Ru] (1.0) License
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9818.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Redneck Kentucky And The Next Generation Chickens" - идейный продолжатель жутко популярного в свое время виртуального тира "Moorhuhn". Те, кто убивал рабочие часы за массовым отстрелом куриц, непременно поспешат участвовать в новом антикурином походе. Игра унаследовала простой и увлекательный игровой процесс, всепроникающий юмор и кучи летающих (   Читать дальше...   )Тип издания: ЛицензияРазработчик: City Interactive S.A.Жанр: ЭкшеныЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED388EF06AD9CD06C84DEFED9DEEEDB2C814CDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809593   (9794) от 31.07.2025
+
+Mortal Kombat 4 (1997) [En] (2.1) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи лет назад Шиннок восстал против остальных Старших Богов, дабы получить непревзойденную власть, он решил захватить молодое Земное Царство. С помощью мистических свойств амулета ему удалось проникнуть в Земное Царство, незамеченным Старшими Богами. И тогда молодой Бог Грома и защитник Земли Рейден повёл войну против Шиннока. Во время этой войны была уничтожена (   Читать дальше...   )Тип издания: LicenseРазработчик: Midway GamesЖанр: Аркады, ФайтингиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BD85849D2F197C5BC67D5C28F5E003DF107155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809746   (9676) от 01.08.2025
 
 Unravel Two (2018) [En] (1.0.0.47008) Repack Pioneer
@@ -6,7 +58,7 @@ Unravel Two (2018) [En] (1.0.0.47008) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9676.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9463.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9378.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9354.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9347.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9270.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Too Many Clothes Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9269.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Castle Crashers (2012) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Complete Bundle]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8993.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (build 19526651) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8846.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Yomi 2 (2023) [Ru/Multi] (2841/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8835.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8734.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8151.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Boti: Byteland Overclocked (2023) [Ru/Multi] (1.15/dlc) Repack Let'sРlay [Delux
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8134.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Kao the Kangaroo (2022) [Ru/Multi] (Build 11272397/dlc) Repack Let'sРlay [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7912.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Pinball Spire (2024) [Ru/Multi] (1.02.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7770.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Figment 2: Creed Valley (2023) [Ru/Multi] (1.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7607.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Streets of Rogue (2019) [Ru/Multi] (99i2/dlc) License GOG (обновляема�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6873.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6700.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6570.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (build 19708406) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6213.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.10.1/dlc) Scene Tenoke [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6188.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Lost Twins II (2) (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6183.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.7) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6170.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5740.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:178A61B20F9FA02D9CD4C5A6E7F0B970780A66F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814935   (5697) от 27.08.2025
-
-Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собирайте стадо и отправляйтесь в Goat Simulator 3 - новую, реалистичную «песочницу» на ферме. Присоединитесь к Пилгор на острове Сан-Ангора и приготовьтесь к головокружительным приключениям. Облизывайте, бодайте и ломайте всё, что захочется в огромном новом мире. Убивайте время самым бесцельным способом со времён оригинальной Goat Simulator! Мы не будем объяснять (   Читать дальше...   )Тип издания: RepackРазработчик: Coffee Stain North ABЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6C6A8AF390A8900E051524C6BA4989A9874E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815100   (5601) от 28.08.2025
-
-Альтушка для скуфа (2024) [Ru/En] (20250730) Repack seleZen
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5601.jpg" />
-</div>
-
-
-###  Подробнее
-
-У тебя нет жены, тебе хорошо за сорок, а твоё мировоззрение крепко сформировано, но счастья в жизни всё ещё нет? Не грусти, тебе просто нужно вспомнить пароль от своего аккаунта на Скуфуслугах и буквально через пару кликов ты сможешь получить от государства свою законную альтушку! Иммерсивный симулятор скуфа от первого лица в формате визуальной новеллы, собранный (   Читать дальше...   )Тип издания: RepackРазработчик: Terletski Games, RIKANIMATIONЖанр: Казуальные игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2D06A762C4ED556D3C333A87BEB9E4A53DAF74
 ```
 
 https://mybot314.ru/tekegram_catalog/

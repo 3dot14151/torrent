@@ -1,3 +1,29 @@
+###  Публикация: 563431   (404766) от 21.10.2012
+
+[Рисованая графика] Artworks by Carol Cavalaris
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Carol Cavalaris.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0556E9ACB94977425538B34F981004574666460D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562775   (404753) от 21.10.2012
 
 Herika Noronha [Графика]
@@ -6,7 +32,7 @@ Herika Noronha [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404753.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402857.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401007.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395939.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395910.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395894.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395855.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Artworks by Carmen Ziervogel [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387749.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377796.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365770.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365574.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363412.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Jujika - американская художница-иллюстратор [Г�
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355383.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350357.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350254.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Fashion Illustrator Arturo Elena [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350220.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350045.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333579.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322132.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311471.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309150.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_307744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307744.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_305483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305483.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305478.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305476.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5159B846262152DFD92E2E88CB9C7BA9DA16A2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585347   (304532) от 05.12.2012
-
-Рисованая графика - Игра престолов - Песнь льда и пламени - A Song of Ice and Fire
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра престолов - Песнь льда и пламени - A Song of Ice and Fire
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA6608B4915504EE00AF96EC0D95285873DCAF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

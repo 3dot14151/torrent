@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120318.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120286.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120171.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119846.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация безр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119239.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119131.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118991.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta | Моя 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118804.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118785.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Buta no Liver wa Kanetsu Shiro | Свинину надо было жарить |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118717.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118353.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Go-Toubun no Hanayome~ | The Quintessential Quintuplets | Пять невест:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117824.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Shuumatsu no Walkure II | Shuumatsu no Walkure II | Повесть о конце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117726.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Idol Densetsu Eriko | Легендарный айдол Эрико [1989-1990, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117222.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Hyoujin: Blades of the Guardians | Biao Ren: Blades of the Guardians | Клин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116057.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116040.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Street Fighter II: The Animated Movie | Уличный боец II [1994, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115564.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115547.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115208.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115090.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114866.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114853.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Akiba Meido Sensou | Akiba Maid War | Война горничных Акибы [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114714.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114688.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114374.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Takt Op. Destiny | Такт. Опус Дестини | Такт. Опус Суд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114246.jpg" />
 </div>
 
 

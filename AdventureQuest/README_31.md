@@ -1,3 +1,107 @@
+###  Публикация: 1031093   (669882) от 02.07.2016
+
+Awakened (2016) [En/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш персонаж – женщина, которую удерживают в приюте для душевнобольных преступников. Некоторые уровни Вы будете проходить в ее воображении, некоторые нет. По мере развития сюжета Вы узнаете, что случилось с главной героиней, и как она оказалась в психиатрической больнице.Тип издания: RepackРазработчик: Jesper Michael PetersenЖанр: Adventure (Horror), 3D, 1st Person, 3rd Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, ИспанскийЯзык интерфейса: Английский, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD61927484C8655C431882A7E76E7463B0964AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031142   (668424) от 03.07.2016
+
+Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дезире – это поэтичный черно-белый классический квест. Когда учительница спрашивает Дезире, почему он не нарисовал солнце, как все другие ученики, мальчик непринужденно отвечает: «В моей голове всегда ночь.»Тип издания: LicenseРазработчик: Sylvain SecciaЖанр: AdventureЯзык озвучки: ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C9411B387788429657B04E5E0AC953AF83FFDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224108   (667952) от 08.05.2018
+
+.T.E.S.T: Expected Behaviour — Sci-Fi 3D Puzzle Quest (2018) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667952.jpg" />
+</div>
+
+
+###  Подробнее
+
+.T.E.S.T: Expected Behaviour — трёхмерная головоломка от первого лица на научно-фантастическую тему. Решая загадки игры, вы сможете продемонстрировать логику, нестандартное мышление, быстроту действий и умение разбираться в незнакомой ситуации. В .T.E.S.T вы найдёте как новые, так и классические механики. Но все из них так глубоки, что до сих пор не раскрыты до конца. (   Читать дальше...   )Тип издания: RepackРазработчик: Veslo GamesЖанр: Action, Puzzle, Logic, 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9890D0F4ABF4BEAF96B5D42C4A492A03BE7F8B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129622   (667379) от 26.05.2017
+
+Full Throttle Remastered (2017) [Ru/En] (1.1.879806) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Full Throttle - это классическое приключение от легенды игровой индустрии - Тима Шефера, выпущенное компанией LucasArts в 1995 году. В игре рассказана история лидера банды байкеров "Хорьки" - Бена Фроттела (Ben Throttle). Он оказывается втянутым в разборки, убийства и интриги. Спустя 20 лет, Full Throttle переиздан обновленным: тщательно прорисованы 3D-изображения, (   Читать дальше...   )Тип издания: RepackРазработчик: Double Fine ProductionsЖанр: Приключение, Квест, ДетективЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0F1A746CD9BEC19B2AA3381A954C276E083DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224087   (666937) от 09.05.2018
 
 Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
@@ -6,7 +110,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666937.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666317.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Subaeria (2018) [Multi] (2.0.46r) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665889.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Contrast (2013) [Ru/En] (11736) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665829.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Subaeria (2018) [Multi] (2.0.46r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665771.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Lake Ridden (2018) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664670.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_664441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664441.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Black Dahlia (1998) [En] (1.10) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664230.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Epis
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663565.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dreamfall Chapters (2014-2016) [Ru/Multi] (5.4.1.1) License GOG [Special Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661840.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661714.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660917.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660609.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659812.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658556.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658551.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Asemblance: Oversight (2018) [En] (1.01) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658473.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657429.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656467.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656466.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656441.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ The Room Two (2016) [Ru/Multi] (1.0.4) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654492.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ The Room Two - продолжение замечательной игры The Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A11BC4DD1554B4BCCBAC8E596977FE1A3EE316E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226699   (653490) от 22.05.2018
-
-FAR - Lone Sails (2018) [Ru/Multi] (1.02) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653490.jpg" />
-</div>
-
-
-###  Подробнее
-
-FAR: Lone Sails – это приключенческая игра про путешествие на корабле. Ваш корабль уникален тем, что движется по высушенному морскому дну по следам некогда процветающей цивилизации. Вам нужно продолжать движение, даже несмотря на ряд препятствий на вашем пути и трудные погодные условия. Куда заведет вас ваше приключение? Неужели вы – единственный выживший?Тип издания: RepackРазработчик: OkomotiveЖанр: Adventure, ArcadeЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1B959B5FBF7CAD04B1E9ABC2B2974BA2B1B01D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031270   (653151) от 03.07.2016
-
-Desire (2016) [Ru/Multi] (1.0.3) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дезире – это поэтичный черно-белый классический квест. Когда учительница спрашивает Дезире, почему он не нарисовал солнце, как все другие ученики, мальчик непринужденно отвечает: «В моей голове всегда ночь.» Дезире от рождения не различает цвета, так что он станет вашим гидом в мир черного и белого. И заранее простите его за нерешительность, жизнь редко была с ним (   Читать дальше...   )Тип издания: RepackРазработчик: Sylvain SecciaЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5421DD62FFDBC548E6C11924EAD735F1916246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242059   (651888) от 26.03.2019
-
-The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Episode 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами заключительная глава истории Клементины, ставшей закаленным бойцом. Кошмары живого и мертвого мира долгие годы терзали девочку, и теперь затерянная в глуши школа может стать для нее желанным домом. Но ей придется многим пожертвовать, чтобы защитить его.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFCE356066A6BEDE19CC0C8CB2B513DE3657CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240921   (651878) от 26.03.2019
-
-The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1/upd1) License CODEX [Episode 1-4]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами заключительная глава истории Клементины, ставшей закаленным бойцом. Кошмары живого и мертвого мира долгие годы терзали девочку, и теперь затерянная в глуши школа может стать для нее желанным домом. Но ей придется многим пожертвовать, чтобы защитить его. Клем должна построить самостоятельную жизнь и взять на себя ответственность за Эй-Джея — осиротевшего (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADEAC57F778DDBD09BD293372873FA1B1698F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

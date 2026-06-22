@@ -1,3 +1,57 @@
+###  Публикация: 1419720   (337914) от 29.10.2020
+
+File List Export 2.4.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337914.jpg" />
+</div>
+
+
+###  Подробнее
+
+File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл!
+
+Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17572D659F3274A36753A9DC97108A6F3FD3F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419717   (337913) от 29.10.2020
+
+Export for iTunes 2.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Export for iTunes -  экспортируйте свои плейлисты и альбомы из iTunes (или из нового музыкального приложения на MacOS Catalina) в любую локальную папку, внешнее хранилище, SD-карту или USB-накопитель.Вы можете легко перенести свои плейлисты на автомобильную стереосистему или любой другой медиаплеер. Конвертируйте файлы aac / m4a в mp3 для лучшей совместимости с большинством (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56397FB8C612579911FD786E8F963222D61D6A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419780   (337911) от 29.10.2020
 
 Grid 1.1 [En]
@@ -6,7 +60,7 @@ Grid 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337911.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ MacBreakZ 5 v5.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337910.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Omni Recover 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337909.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Find Any File 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337892.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Downie 4 v4.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337815.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ PopClip 2020.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337811.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ Allegorithmic Substance Alchemist 2020.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337810.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Artlantis 2020.2 v9.0.2.23232 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337809.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ ExpanDrive 7 v7.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337806.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ JPEG SILKYPIX Photography 10 v10.2.8.1
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337804.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Permute 3 v3.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337799.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ Be Focused Pro - Focus Timer 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337697.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Sketch 69.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337686.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ Geekbench 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337643.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ Capture One 21 Pro Beta 2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337546.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ TinkerTool System 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337346.jpg" />
 </div>
 
 
@@ -441,7 +495,7 @@ Readiris Corporate 17.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337249.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ ScreenFlow 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337022.jpg" />
 </div>
 
 
@@ -497,7 +551,7 @@ Script Debugger 7 v7.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336855.jpg" />
 </div>
 
 
@@ -525,7 +579,7 @@ Fenetre 0.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336854.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ DropDMG 3.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336852.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ Studies 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336851.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ Tri-BACKUP Pro 9 v9.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336850.jpg" />
 </div>
 
 
@@ -635,7 +689,7 @@ iRingg 1.0.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336848.jpg" />
 </div>
 
 
@@ -646,61 +700,6 @@ iRingg позволит вам создавать персонализирова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EC5C8CD3F7DC4F267031232E47C49E4C2C9DC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330647   (336847) от 12.10.2019
-
-OmniGraffle Pro 7 v7.11.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336847.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Omni GroupПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C71C1BB3C50CD5DDCC66C6BC353C7CF4B045326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330449   (336846) от 12.10.2019
-
-iClip - Clipboard Recorder & ClipArt Manager 5.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336846.jpg" />
-</div>
-
-
-###  Подробнее
-
-iClip - управляйте данными в буфере обмена.
-С iClip, вы быстро сохраните, организуете доступ к битам информации, которые просто не практично сохранять как целые документы. Утилита имеет удобный пользовательский интерфейс и приятную графику.
-
-iClip позволяет быстро заносить и хранить небольшие фрагменты текста и изображений, интернет адреса и другую информацию. Данные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2019Разработчик: Irradiated Software, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACBC2852187B60255335DECFBFED156A12567374
 ```
 
 https://mybot314.ru/tekegram_catalog/

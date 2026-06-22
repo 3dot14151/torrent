@@ -1,3 +1,120 @@
+###  Публикация: 1096551   (919397) от 24.01.2017
+
+Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dangerous Love
+2. Since You've Been Gone
+3. Never Come Back
+4. Please, Call Me(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B18375F67EAC85843411F6741CFEE5C0726623A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988776   (919240) от 21.02.2016
+
+Walpurgis - Queen Of Saba (1972) [MP3|320 кб/с] <Krautrock, Psych-Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disappointment
+02. Queen Of Saba
+03. Daily
+04. Hey You, Over There(   Читать дальше...   )Жанр: Krautrock, Psych-Prog RockПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116508E4ECC2CE5AB5DDADCD1941CF81CC27A04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988867   (919195) от 21.02.2016
+
+Dark Circus - Lipstick Party Killer (2016) [MP3|320 кб/с] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirty Seconds (04:07)
+02. How Long (03:23)
+03. The Hunter (03:55)
+04. Time (04:37)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D117E5D6495FF2194CAEA1037597DFA32BF6EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096753   (919145) от 24.01.2017
+
+Christoffer Franzen [of Lights & Motion] - 9 Albums - 1 Single (2013-2017) [MP3|320 кб/с]<Instrumental, Post-Rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lights & Motion - проект музыканта-мультиинструменталиста, автора композиций и продюсера Кристофера Франзена (Christoffer Franzen) из Гётеборга (Швеция).
+Вся музыка написана, сыграна и смиксована одним человеком. Так что Кристофер — «человек-оркестр»! В его работах услышите кинематографическое звучание высшего качества, много эмбиента, гитарных переборов и фортепиано. (   Читать дальше...   )2013 - Reanimation
+2013 - More Film / TV Music
+2013 - Save Your Heart
+2014 - Holiday Visions(   Читать дальше...   )Жанр: Instrumental, Post-Rock, Ambient, Cinematic •Продолжительность: 07:20:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0ED5ED5628B2173F0031FA006980D00C877596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289319   (918622) от 31.01.2011
 
 Elvis Presley - 24 Karat Hits! (2010) [MP3|256 kbps]<Rock and Roll>
@@ -6,7 +123,7 @@ Elvis Presley - 24 Karat Hits! (2010) [MP3|256 kbps]<Rock and Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918622.jpg" />
 </div>
 
 
@@ -41,7 +158,7 @@ Crow - Crow By Crow (1970) Reissue, 2011,  Austria Record Finder [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917726.jpg" />
 </div>
 
 
@@ -70,7 +187,7 @@ Seventh Crystal - Delirium (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917570.jpg" />
 </div>
 
 
@@ -99,7 +216,7 @@ Dangerous Curves - Summertime Highs (2021) [MP3|320 Kbps] <Hard-Rock, Glam-Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917523.jpg" />
 </div>
 
 
@@ -128,7 +245,7 @@ Saga - 6 Albums (1978-1985) Remastered 2021, earMUSIC [MP3|320 Kbps] <Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917518.jpg" />
 </div>
 
 
@@ -157,7 +274,7 @@ Conqueror - Madame Zelle (2010) [MP3|320 кб/с] <Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917371.jpg" />
 </div>
 
 
@@ -186,7 +303,7 @@ Sweet Crisis - Tricks On My Mind (2021) [MP3|320 Kbps] <Hard Rock, Blues Rock, C
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916981.jpg" />
 </div>
 
 
@@ -215,7 +332,7 @@ VA - The Many Faces Of David Bowie (2016) 3CD [MP3|320 кб/с] <Art Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916910.jpg" />
 </div>
 
 
@@ -244,7 +361,7 @@ Pride of Lions - Fearless (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915848.jpg" />
 </div>
 
 
@@ -273,7 +390,7 @@ ME - Another Story High (2012) [MP3|320 кб/с] <Alternative, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915781.jpg" />
 </div>
 
 
@@ -302,7 +419,7 @@ VA - I Love Rock Ballads (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915637.jpg" />
 </div>
 
 
@@ -331,7 +448,7 @@ Eric Clapton - Eric Clapton (2021) Anniversary Deluxe Edition [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915405.jpg" />
 </div>
 
 
@@ -360,7 +477,7 @@ Crosby, Stills, Nash & Young - So Far (1974) [MP3|320 Kbps] <Classic Rock, Soft 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914290.jpg" />
 </div>
 
 
@@ -389,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912191.jpg" />
 </div>
 
 
@@ -418,7 +535,7 @@ Dr. Friday - Cruisin` (2017) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910894.jpg" />
 </div>
 
 
@@ -447,7 +564,7 @@ The Beatles - Коллекция концертных записей (1962-1994)
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910293.jpg" />
 </div>
 
 
@@ -473,7 +590,7 @@ Bad Company - The Original Bad Company Anthology (1999) 2CD, Compilation [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909721.jpg" />
 </div>
 
 
@@ -502,7 +619,7 @@ The Apple Pie Motherhood Band - The Apple Pie Motherhood Band (1968) Remastered,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908968.jpg" />
 </div>
 
 
@@ -531,7 +648,7 @@ Apple Pie Motherhood Band - Apple Pie (1969) Remastered, 2004, Estrella Rockera 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908934.jpg" />
 </div>
 
 
@@ -560,7 +677,7 @@ Banchee - Banchee / Thinkin' (1969/1971) Remastered, 2001, Lizard Records [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908924.jpg" />
 </div>
 
 
@@ -589,7 +706,7 @@ Brenda Lee - Queen Of Rock'n'Roll (2009) [MP3|320 кб/с] <Rock 'n' Roll, Count
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907914.jpg" />
 </div>
 
 
@@ -618,7 +735,7 @@ Royal Republic - Weekend Man (2016) [MP3|320 кб/с] <Alternative Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907815.jpg" />
 </div>
 
 
@@ -632,119 +749,6 @@ Royal Republic - Weekend Man (2016) [MP3|320 кб/с] <Alternative Rock, Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC624456F59438A1A7109AFE4653E033C434086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492020   (907297) от 27.08.2021
-
-The Neal Morse Band - Innocence & Danger (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do It All Again (08:53)
- 02 - Bird on a Wire (07:23)
- 03 - Your Place in the Sun (04:12)
- 04 - Another Story to Tell (04:50)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C889EA44288CB72EB6B9401C97D1CAB4CCDD479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181729   (906690) от 09.03.2010
-
-VA -  Gothic Rock (Cleopatra Rec) (2001) [MP3|320 kb/s]<Gothic Rock / Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Gothic Rock / Post PunkПродолжительность: 06:31:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369023   (905545) от 22.03.2020
-
-VA - Live Sounds Of Rock (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss - Black Diamond (Live)
-02. Aerosmith - Livin' On The Edge (Live)
-03. Blue Oyster Cult - Hot Rails To Hell (Live)
-04. Girlschool - Play Dirty (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E6F3DEEA71FB91FB78D130964B7E5800C035B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369026   (905370) от 22.03.2020
-
-VA - Glam Party Supermix the Glam Rock Allstars (2014) [MP3|320 Kbps] <Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Glitter - Hello Hello, I'm Back Again? / I'm the Leader of the Gang / Glisten Yeah / Rock and Roll / I Didn't Know I Loved You / Do You Wann (Medley)
-02. Sweet - Blockbuster! / Teenage Rampage / Wig-Wam Bam / The Ballroom Blitz / Hell Raiser / Fox on the Run (Medley)
-03. Suzi Quatro - Daytona Demon / Can the Can / Devil Gate Drive / 48 Crash (Medley)
-04. (   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB3860D40BF3927B3901C408A23542F27467578
 ```
 
 https://mybot314.ru/tekegram_catalog/

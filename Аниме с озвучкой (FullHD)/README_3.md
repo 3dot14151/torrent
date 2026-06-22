@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029561.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029555.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028754.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Death Note | Тетрадь Смерти [2006, TV, 37 из 37] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026274.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025514.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Higurashi no Naku Koro ni: Gou / Higurashi: When They Cry - Gou / Когда п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025507.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024970.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024652.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Dr. Stone: Stone Wars / Доктор Стоун [ТВ-2] [2021, TV, 11 ep] WEB-D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024279.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024098.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Go-Toubun no Hanayome 2 / The Quintessential Quintuplets 2 / Пять невес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022962.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022851.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022850.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021529.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021191.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021171.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриот Мориарти [ч
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021057.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Domestic na Kanojo | Домашняя девушка [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020758.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Sankarea | Санка Рэа [2012, TV, 12 эп. + 1 SP +2 OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020591.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Btooom! | Взрыв! [2012, TV 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020434.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Rosario to Vampire | Розарио + Вампир [TV1 + TV2] [2008, TV, 26 э�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020399.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020252.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019932.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019443.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019440.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Ishuzoku Reviewers | Interspecies Reviewers | Межвидовые реценз�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019209.jpg" />
 </div>
 
 

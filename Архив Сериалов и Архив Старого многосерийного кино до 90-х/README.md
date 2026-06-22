@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066551.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066549.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066546.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066545.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066544.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066543.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066541.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066540.jpg" />
 </div>
 
 
@@ -220,13 +220,39 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066539.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Американский комедийный сериал, посвящённый работе и жизни молодых врачей. Обсмеяться))) Сериал посвящен жизни и карьере молодых врачей Джона Дориана и его друга Кристофера Тёрка, которые в начале сериала только что закончили учёбу и пришли на работу в клинику «Sacred Heart» (русск. Святое Сердце) в качестве интернов. В больнице они находят новых друзей и новые трудности (   Читать дальше...   )Жанр: Комедия, Драма, КороткометражныйРежиссер: Билл ЛоуренсАктеры: Zach Braff, Sarah Chalke, Donald Faison, John C. McGinley, Neil FlynnПеревод: ОригинальныйЯзык субтитров: нетЯзык: Русский и английскийПродолжительность: 138 серий по 25 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 160198   (1064506) от 01.04.2026
+
+Спартак: Кровь и песок / Spartacus: Blood and Sand (сезон 1 серия 1)(2010) SATRip
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1064506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда о фракийском воине Спартаке, попавшем в рабство к римлянам, ставшим гладиатором и возглавившим одно из самых массовых восстаний рабов в Древнем Риме - известна всем ещё со школьной скамьи. Создатели сериала дают нам возможность вновь окунуться в атмосферу античности и помогают древней легенде буквально заиграть новыми красками, с применением новейших технологий кинематографии.Жанр: Приключения, Драма, БоевикРежиссер: Майкл ХерстАктеры: Энди Уитфилд, Ману Беннетт, Питер Менса, Ник Тарабэй, Вива Скубижевски, Джей Кортни, Лесли-Энн Брандт, Эрин Каммингс, Джон Ханна, Крэйг ПаркерПеревод: Многоголосый закадровый
 
 ## Скачать торент
 ```bash
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045347.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039701.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039670.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035594.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034713.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033595.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032818.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030771.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030636.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030114.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029169.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028403.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028284.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027619.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026648.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026634.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B774304B2405169F6363D0DC27B7896257862A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458711   (1023657) от 30.03.2021
-
-Парижская полиция 1900 / Paris Police 1900 (2021) WEB-DL [H.264/720p] (сезон 1, серии 1-3 из 8) TVShows (обновляемая)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023657.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Сене найден труп неизвестной женщины. За расследование дела берется молодой амбициозный инспектор и неожиданно приходит к раскрытию государственный тайны.Производство: Франция / Tetra Media FictionЖанр: Драма, криминал, детектив, историяРежиссер: Жюльен Деспо, Фредерик Балекджян, Фабьен НуриАктеры: Жереми Лаэрт, Эвелин Брошу, Тибо Эврар, Марк Барбе, Южени Деруан, Патрик д’Асумсао, Александр Троки, Юбер Делаттре, Валери Дэшвуд, Симон БеллуарПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), французские (SDH)Продолжительность: ~00:57:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2F155F9C312DE200C5DA202A61EF040A518FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

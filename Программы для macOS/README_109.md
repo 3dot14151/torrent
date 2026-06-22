@@ -1,3 +1,112 @@
+###  Публикация: 1181162   (335465) от 06.11.2017
+
+Block Advertising on Internet 1.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин для Safari. Нет больше рекламы при навигации!  С помощью этого приложения вас больше не будут раздражать баннеры или всплывающие окна.  Вся реклама будет заблокирована, позволяя сэкономить время, трафик данных и деньги!  Просмотр будет подвижнее и быстрее. 
+
+Защитите вашу конфиденциальность без малейших усилий.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2017Разработчик: Giacomo GuglielmiПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F58A168C65746249ABD4E5C2AAFDB87B3315DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181171   (335055) от 06.11.2017
+
+H265 Converter Pro 3.3.1 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень простой (одноконный), высокопроизводительный конвертор, с помощью которого Вы можете преобразовать любое видео в формат MOV, MP4 или MKV, с применением видео кодека H.265 и сохраняя при этом очень высокое качество.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2017Разработчик: Jose Antonio Jimenez CamposПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E90552B608C820226877E49CFF4A1D12AEBC408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955258   (335023) от 10.11.2015
+
+Cyberduck 4.7.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberduck — удобное приложение для "заливки" и скачивания файлов с FTP. Будучи простым и удобным в использовании, клиент легко настраивается под нужды пользователя. Одна из самых удобных фич — это поддержка всеми полюбившегося QuickLook иподдержкой самых распространенных протоколов: FTP, SFTP, WebDAV, Cloud, Google Docs и Amazon S3.
+
+Отличается простым (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2015Разработчик: David KocherПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427C856383D0BB110B859FBDFA26A3642DA00399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330981   (335002) от 13.10.2019
+
+Hobo 1.5.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hobo - инструмент для управления Vagrant и Vagrantfile на вашем Mac
+Hobo это самый лучший и самый простой способ контролировать свои Vagrant boxes и редактировать Vagrantfiles на вашем Mac. Вы можете быстро запускать, останавливать и перезагружать свои Vagrant машины. И вы можете легко создать новый Vagrantfile с нуля.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Click On TylerПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E50DB756B93E87AD066F87B4D49A6E50F4B86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331102   (334860) от 13.10.2019
 
 Vanilla Pro 1.2.2 [En]
@@ -6,7 +115,7 @@ Vanilla Pro 1.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334860.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ MacPaw Hider 2 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334680.jpg" />
 </div>
 
 
@@ -63,7 +172,7 @@ MacProxy 3 v3.0.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334587.jpg" />
 </div>
 
 
@@ -89,7 +198,7 @@ Mathworks Matlab 2014b (8.4.0.150421) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334496.jpg" />
 </div>
 
 
@@ -117,7 +226,7 @@ ControllerMate 4 v4.11.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334242.jpg" />
 </div>
 
 
@@ -143,7 +252,7 @@ iBoostUp Premium 6.4.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333153.jpg" />
 </div>
 
 
@@ -171,7 +280,7 @@ Focus 1.8.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333031.jpg" />
 </div>
 
 
@@ -199,7 +308,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332984.jpg" />
 </div>
 
 
@@ -226,7 +335,7 @@ Flux 7 v7.1.11 [RU/En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332928.jpg" />
 </div>
 
 
@@ -252,7 +361,7 @@ iSkysoft PDF Editor 6 Pro - Edit & OCR 6.7.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332856.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ KeeWeb 1.11.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332345.jpg" />
 </div>
 
 
@@ -304,7 +413,7 @@ MPV 0.12.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332328.jpg" />
 </div>
 
 
@@ -330,7 +439,7 @@ PhpStorm 10.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331942.jpg" />
 </div>
 
 
@@ -356,7 +465,7 @@ MarsEdit 4 v4.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331415.jpg" />
 </div>
 
 
@@ -382,7 +491,7 @@ iTunes 10.1.0.54 [x86 64] (dmg)
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_330540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330540.jpg" />
 </div>
 
 
@@ -412,7 +521,7 @@ FileMaker Pro Advanced 14.0.4.406 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330101.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ ABBYY Lingvo Dictionary для Mac 1.9.6 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329043.jpg" />
 </div>
 
 
@@ -470,7 +579,7 @@ PhotoDesk for Instagram 3.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326599.jpg" />
 </div>
 
 
@@ -499,7 +608,7 @@ DxO Optics Pro Elite 10.5.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326473.jpg" />
 </div>
 
 
@@ -525,7 +634,7 @@ BiglyBT 1.2.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323633.jpg" />
 </div>
 
 
@@ -552,7 +661,7 @@ App Uninstaller 4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323619.jpg" />
 </div>
 
 
@@ -580,7 +689,7 @@ Newsletters Templates for Pages 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323583.jpg" />
 </div>
 
 
@@ -594,116 +703,6 @@ Newsletters Templates for Pages содержит более 90 больших ш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:874D9617A401DDFE689E53E97A55F19647F3525B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075174   (323570) от 21.11.2016
-
-Graphics 2.4.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graphics  - набор иллюстраций, подходящих для любого iWork документа, который требует цвет, текстуру и пр. Вы обязательно найдете подходящую иллюстрацию среди 2000 изображений высокого качества.
-
-Категория Клипарт представляет собой набор из 100 красивых, детальных изображений в двух различных разрешениях. Их содержание колеблется от автомобилей и автобусов для бассейнов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF995088977823CD621FBCB56781C96885AAC76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259142   (323535) от 02.11.2018
-
-TextLab 1.4.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323535.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextLab - текстовый инструмент преобразования, который позволяет Вам быстро управлять и экспортировать свой текст и данные в удобочитаемый и понятный формат. Например, если Вы копируете и вставляете JSON в примере, он предлагает утвердить и отформатировать это JSON. TextLab мудр, так как он предлагает, какие операции могли быть выполнены основанные на Вашем вводе. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: Ondrej KvasnovskyПоддерживаемая ОС: macOS 10.7.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E96AB2A7124B4EA60549D85F0530FE369D16B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075167   (323432) от 21.11.2016
-
-Resume Templates 1.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resume Templates представляет собой коллекцию высокого качества из 104 оригинальных шаблонов Pages, предназначенных, чтобы дать перспективе карьерного роста мощный импульс. Представьте свои образовательные предпосылки, опыт и навыки, которые будет привлекать внимание любого менеджера по подбору персонала.
-
-Каждый объект в шаблоне резюме может быть легко перекрашен, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 сентября 2016Разработчик: Graphic NodeПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0EDC83D2D1ABFB97C1459504AE1A46EBFFAD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075168   (323313) от 21.11.2016
-
-Brochures Templates for Pages 2.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brochures Templates - представляет собой коллекцию высшего качества из 250 оригинальных шаблонов для приложения Pages Apple. Если вы начинаете новый бизнес, организацию мероприятия, или пытается дать вашим продажи толчок, Brochures Templates вам в этом помогут.
-
-Каждый объект может быть легко перекрашен, видоизменен, перемещен или удален. Введите или вставьте свой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64911704BCE86B366317B83F58DCB78652161DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

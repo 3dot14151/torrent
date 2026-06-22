@@ -1,3 +1,107 @@
+###  Публикация: 1011305   (796605) от 27.04.2016
+
+Hyperdevotion Noire: Goddess Black Heart (2016) [En/Jp] (1.0/dlc) License HI2U
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hyperdevotion Noire: Goddess Black Heart – первая игра в серии Hyperdimension Neptunia, действие которой разворачивается не в Gamindustri, а в отдаленном мире Gamarket. Четыре CPU, представляющие одну из четырех стран (Neptune из Planeptune, Blanc из Lowee, Vert из Leanbox и Noire из Lastation), сражаются друг с другой за господство над миром. Внезапно неизвестная (   Читать дальше...   )Тип издания: LicenseРазработчик: Idea Factory , Compile Heart , StingЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1D58A6CB119F18E96E0EC3AFE5B2AD7DD9C56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385779   (796491) от 26.05.2020
+
+Celestian Tales: Realms Beyond (2020) [En] (1.0.14) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень красивая РПГ с потрясающей прорисовкой, действие которой происходит в мире с непростыми моральными законами. Отправьтесь в приключение вместе с шестью рыцарями, поклявшимися защищать наследника из благородного дома. Выживайте в сложном мире, где события зачастую принимают неожиданные повороты.Тип издания: LicenseРазработчик: Ekuator GamesЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751214E8F91FBE1D59C9E3C8F9DCE43AF32C7410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011611   (795820) от 28.04.2016
+
+Аллоды 2: Повелитель душ / Rage of Mages 2: Necromancer (1999) [Ru/En] (1.07) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Повелителя происходит в мире, уже известном по игре «Аллоды: Печать тайны». Во второй части игроку представится редкая возможность посетить лесное поселение друидов и город рыцарей, выполненный в традициях восточной архитектуры. Союзниками отныне могут быть не только люди, но и монстры. Прохождение игры перестало быть строго последовательным, и играющий (   Читать дальше...   )Тип издания: LicenseРазработчик: Nival InteractiveЖанр: Strategy (Real-time), RPG, Top-downЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D5E1B5398AF951BFCAA95AE6417116320F9A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011792   (795815) от 28.04.2016
+
+Tale of Wuxia (2016) [En/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tale of Wuxia - это переделанная Legends of the Wulin. Это классическая ролевая игра в китайской стилистике, с огромным количеством квестов, персонажей и множеством разнообразных концовок.Тип издания: LicenseРазработчик: Heluo StudioЖанр: RPG, 3DЯзык озвучки: Китайский (упр.), Китайский (трад.)Язык субтитров: Китайский (упр.), Китайский (трад.), АнглийскийЯзык интерфейса: Китайский (упр.), Китайский (трад.), Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FAA92295854BFBD80A2213458A8B3CEFF6F2484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508992   (795294) от 11.11.2021
 
 King's Bounty: Armored Princess / King's Bounty: Принцесса в доспехах (2009) [Ru] (1.2) License
@@ -6,7 +110,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795294.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794695.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Yaga (2021) [Ru/Multi] (1.3.23/dlc) License GOG [Armful Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794525.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Krai Mira: Extended Cut (2017) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794138.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793654.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (28.05.2020/dlc) Repack xatab [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792281.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (1.0/upd3/dlc) Repack Other s [Dig
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791995.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Zwei: The Arges Adventure (2018) [En/Jp] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791940.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791936.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (23636) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791935.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dragon's Dogma: Dark Arisen (2016) [En] (1.0.0.18) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791471.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Divinity: Original Sin (2014) [Ru/En] (2.0.119.430/dlc) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790786.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ STAR OCEAN - THE LAST HOPE - 4K & Full HD Remaster (2017) [Multi] (1.0) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790238.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Anachronox (2001) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789627.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Tales of Vesperia (2019) [Ru/Multi] (1.0/dlc) License CODEX [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789614.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Titan Quest (2006) [Ru] (1.20) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789145.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Guild of Dungeoneering (2015) [Multi] (1.0UE/dlc) License PLAZA [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788768.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Ruined King: A League of Legends Story (2021) [Ru/Multi] (57824) License FAIRLIG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788730.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Dungeon No Dungeon (2021) [Multi] (2.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788723.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788388.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Solasta: Crown of the Magister (2021) [Ru/Multi] (1.2.9/dlc) License CODEX [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788282.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787931.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2051FFC854F65EFBE11C588C9180FF450F3EE98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511820   (787790) от 23.11.2021
-
-King of Seas (2021) [Ru/Multi] (7677098) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пушечные выстрелы эхом отражаются в семи морях, когда на горизонте восходит солнце нового рассвета пиратов. Оставьте свои причалы, разверните паруса и погрузитесь в сердце шторма, формирующего вашу империю. Убийство вашего отца не будет забыто! King of Seas — ролевая игра в жанре боевик, действие которой происходит в смертельно опасном процедурно сгенерированном (   Читать дальше...   )Тип издания: LicenseРазработчик: 3DCloudsЖанр: Ролевый боевик (Пираты), RPGЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3110438A9C6EF6BE6EB74C87AA2FF5DB7F679479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512083   (787766) от 23.11.2021
-
-Empire of Sin (2020) [Ru/Multi] (1.06.0.51066/dlc) License CODEX [Premium Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Empire of Sin перенесет вас в сердце преступного мира Чикаго 1920-х годов, когда там царил сухой закон. Станьте одним из четырнадцати криминальных боссов, реальных или созданных на основе реального образа: например, Аль Капоне, Стефани Сент-Клер или Голди Гарно. Соберите разношерстную банду, постройте преступную империю и защитите ее от соперников. Запугивайте или (   Читать дальше...   )Тип издания: LicenseРазработчик: Romero GamesЖанр: Ролевая (Партийная), Стратегия (Тактика, Менеджмент)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B611C494F837C4BA665F6D65E9513C5993EBD7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511857   (787756) от 23.11.2021
-
-Winter Warfare: Survival (2021) [En] (1.0b7604797) License DARKSiDERS
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разведгруппа, закинутая в тыл врага, раскрыта и уничтожена. Вы - единственный из отряда, кто сумел выжить при атаке, однако, трудности только начались. Суровая зима, в окружение противника: патрули и базы - все это Вам нужно преодолеть и найти способ связаться с Вашими и запросить эвакуацию...Тип издания: LicenseРазработчик: Orbis StudioЖанр: Песочница (Выживание), Экшн (От первого лица), РолеваяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297F30D0810279286D757490C7BDB861E0FC803D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203034   (787431) от 03.02.2018
-
-LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.1.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследие Легранда - Сказ об Избранных - это признание в любви нашему излюбленному жанру японской ролевой игры (JRPG) со свежим взглядом на тактику пошагового боя и движения. Добро пожаловать в Легранд, прекрасный нарисованный вручную мир, полный любопытных существ, разрушительных войн и интригующих историй о мести и искуплении.Тип издания: LicenseРазработчик: SEMISOFTЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B4DE07159C87FA677750CAE6DB09CEC17095AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

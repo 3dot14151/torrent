@@ -6,7 +6,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16033.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ginga Tetsudou no Yoru | Night on the Galactic Railroad | Ночь на Гала
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15045.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Beyblade Burst QuadStrike | Бейблэйд Взрыв — Квадроудар
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14499.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14357.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14162.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14058.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13881.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13846.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Isshun de Chiryou Shiteita no ni Yakutatazu to Tsuihou Sareta Tensai Chiyushi, Y
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13836.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13817.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Ore wa Seikan Kokka no Akutoku Ryoushu! | Я злoй лoрд мeжгaлaктич
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13658.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Katainaka no Ossan, Kensei ni Naru | From Old Country Bumpkin to Master Swordsma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13653.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13622.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13545.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13544.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Chotto dake Ai ga Omoi Dark Elf ga Isekai kara Oikakete Kita | Yandere Dark Elf 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13541.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13469.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13431.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13419.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13287.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13196.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13121.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13091.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12814.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12757.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12578.jpg" />
 </div>
 
 

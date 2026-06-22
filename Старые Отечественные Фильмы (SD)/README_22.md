@@ -1,3 +1,56 @@
+###  Публикация: 1115842   (824459) от 19.03.2017
+
+Каждый день жизни (1973) DVBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шахтерский городок Донецк со специфически сложными горно-геологическими условиями. Новому главному инженеру Марату Жукову дирекция шахты ставит задачу закрыть опасную лаву, где работает бригада Доценко, — одна из лучших шахт перестала выполнять план. Сделав расчеты, Марат обнаружил возможность выхода на нормальный пласт и смог убедить начальство, что не стоит расформировывать (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: ДрамаРежиссер: Тимур ЗолоевАктеры: Николай Мерзликин, Виктор Измайлов, Владимир Кашпур, Юрий Кузьменков, Всеволод Гаврилов, Неонила Гнеповская, Зинаида Дехтярева, Вячеслав Жариков, Борис Иванов, Сергей ЛяхницкийПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6216697172452E545667091034431D87721CA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115811   (824370) от 19.03.2017
+
+Люди, как реки... (1968) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телефильм по рассказу Ирины Велембовской "В трудную минуту".
+В центре сюжета — жизнь послевоенного маленького городка. Героиня фильма — немолодая одинокая женщина Прасковья Ивановна — работает почтальоном, помогает каждому, кто в ней нуждается. Паша, оказавшись в больнице, случайно знакомится с Григорием. Скоро ее выписывают, но она, симпатизируя ему, продолжает (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Дамир Вятич-Бережных, Игорь БитюковАктеры: Нина Ургант, Николай Рыбников, Надежда Федосова, Любовь Калюжная, Изольда Извицкая, Алла Мещерякова, Майя БулгаковаПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181C18444DF74EA86E0DF0A6F306D7B9FD364BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 97967   (823960) от 19.03.2017
 
 Слушать в отсеках (1985) DVDRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_823960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823960.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822178.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820616.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820614.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820600.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818557.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817573.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817448.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817439.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817436.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816764.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815729.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815701.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815062.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814914.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813025.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812891.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810747.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809990.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808933.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808023.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807996.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_806796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806796.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805455.jpg" />
 </div>
 
 
@@ -624,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:865E34CC212B70EC676853109ABA50E8255E2B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885004   (804960) от 04.04.2015
-
-Змеелов (1985) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804960.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Лазаря Карелина. Бывший директор крупного столичного гастронома Павел Шорохов после отбытия срока в колонии строгого режима год половил змей в Средней Азии, а потом только вернулся домой. Не получив ожидаемого приема у жены, которая за это время вышла замуж за другого, а теперь еще и запретила Павлу свидания с сыном, временно поселяется у бывшего сослуживца (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДетективРежиссер: Вадим ДербеневАктеры: Александр Михайлов, Донатас Банионис, Любовь Полищук, Леонид Куравлёв, Светлана Крючкова, Галина Польских, Леонид Марков, Наталья Белохвостикова, Виктор Лазарев, Анатолий Веденкин, Александр Пятков, Валентина Титова, Мария Барабанова, Виктор Шульгин, Алексей КузнецовПродолжительность: 01:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A11F60B017235B8CF04A943966BF6BF0B47E16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199694   (804825) от 09.05.2010
-
-Шут (1988) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользуясь интеллектуальным превосходством, подросток Валя Успенский утонченно и безжалостно мстит окружающим за малые и большие обиды. В поле его интересов попадает и молодой учитель математики Игорь Александрович, ум и тактичность которого должным образом повлияют на парня.
-Но юный интеллектуал потерпит сокрушительное поражение в самой, казалось бы, обычной житейской (   Читать дальше...   )Жанр: ДрамаРежиссер: Андрей ЭшпайАктеры: Наталья Казначеева, Игорь Костолевский, Вячеслав Баранов, Дмитрий Весенский, Марина Маевская, Генриетта Егорова, Елена Евсеенко, Анатолий Грачев, Ольга Жукова...Продолжительность: 01:33:30
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

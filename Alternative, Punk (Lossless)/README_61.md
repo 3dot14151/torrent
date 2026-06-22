@@ -1,3 +1,32 @@
+###  Публикация: 1594475   (178218) от 01.12.2022
+
+Brojob - A Very Deathcore Christmas With Brojob (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Want for Christmas is You [00:03:08]
+02. Last Christmas [00:03:10]
+03. Feliz Navidad [00:02:49]
+04. The Santa's Back in Town [00:04:10](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2F0349063D749F68781A770D74B3A5EEE714AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071251   (177894) от 06.10.2023
 
 The Heavy - 7 альбомов (2007 - 2023) [FLAC|Lossless|tracks + .cue] <Alternative, Indie>
@@ -6,7 +35,7 @@ The Heavy - 7 альбомов (2007 - 2023) [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177894.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Texas - Ricks Road (1993) Vertigo 518 252-2 [FLAC|Lossless|image + .cue]< Adult 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177658.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Luca Brasi - The World Don’t Owe You Anything (2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177643.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Wage War - The Stripped Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176849.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lunatic Soul - Through Shaded Woods (2020) [FLAC|Lossless|image + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176706.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Cure - Faith (1981) Fiction 827 667-2 [FLAC|Lossless|image + .cue]<Goth Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176694.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ In Search of Solace - The Endless Ache (2022) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176325.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176283.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176092.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Paul Bartolome - Reflections (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175701.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Temple Agents - Next Step (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175697.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ NOFX - Double Album (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175631.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Cyan Kicks - Someone Like You (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175107.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ XTC - The Big Express (1984) Remaster, 2001, Virgin Records [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174740.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174589.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Puscifer - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Industrial, Exper
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174549.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173975.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173466.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Florence + The Machine - Under Heaven Over Hell (2023) Compilation [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171221.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Black Heaven - History (2009) 2CD [FLAC|Lossless|image + .cue] <Darkwave, Gothic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171061.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Cold War Kids - New Age Norms 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170839.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Action/Adventure - Imposter Syndrome (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop-P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170598.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Stay Design - Moirai (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170577.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Funke and The Two Tone Baby - Reacclimate (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170429.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Brothers Till We Die - Reincarnation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169986.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Brothers Till We Die - Reincarnation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8EA282122BDDC4616A84E2CE6A5F5697A0E62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596485   (169958) от 10.12.2022
-
-Lionheart - Welcome to the West Coast III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. THE TRILOGY INTRO [00:01:27]
-02. DEATH COMES IN 3'S (feat. Jamey Jasta) [00:03:13]
-03. HELL ON EARTH [00:03:00]
-04. LIVE BY THE GUN (feat. Ice-T) [00:03:33](   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CF73D6D54261B939B20E2285B31226362FADB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

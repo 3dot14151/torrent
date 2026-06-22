@@ -1,3 +1,84 @@
+###  Публикация: 1152456   (566693) от 22.07.2017
+
+Роберт Хайнлайн | Звездный десант [сборник] (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566693.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данный том вошли лучшие романы Грандмастера НФ Роберта Хайнлайна 50-х годов XX века.
+«Звездный десант» – роман, принесший писателю высшую фантастическую награду «Хьюго», – рассматривает проблему становления человека в тяжелых условиях войны, когда боль и смерть становятся платой за право решать за других. Романы «Гражданин Галактики» и «Дверь в лето» продолжают (   Читать дальше...   )Жанр: Зарубежная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165F4A65D28CCB492B45FCF94F3C8EC0D0313BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923082   (566361) от 30.07.2015
+
+Джейми Макгвайр | Аполлония (2015) [FB2, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рори Риордан чудом выжила в тот день, когда вся ее семья погибла от рук убийц. И даже три года спустя она никому не доверяет: ни своему профессору, который опекает ее после смерти родителей, ни красавцу-однокурснику Бенджи, который просто не дает ей проходу со своими ухаживаниями. Рори твердо намерена держаться подальше от Бенджи, тем более что в группе появился (   Читать дальше...   )Жанр: Остросюжетные любовные романы, Любовно-фантастические романыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401547E9B4856C24838BB0D758B0B1773BC8BD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923076   (566308) от 30.07.2015
+
+Джек Макдевит | Жар-птица (2015) [FB2, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестой роман из цикла об Алексе Бенедикте.
+
+Прошло полвека, как бесследно исчез Кристофер Робин, физик с мировым именем, знаменитый своей теорией альтернативных вселенных. И когда после смерти вдовы ученого устраивается аукцион по распродаже его вещей, Алексу Бенедикту, торговцу космическим антиквариатом, выпадает шанс приоткрыть завесу тайны, окружавшей исчезновение (   Читать дальше...   )Жанр: Космическая фантастика, Зарубежная фантастикаПеревод: Кирилл ПлешковФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322D2ED565596B735B4AACAA1F11DC37FCCE569A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923075   (566127) от 30.07.2015
 
 Аластер Рейнольдс | Дождь Забвения (2015) [FB2, EPUB]
@@ -6,7 +87,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566127.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566075.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566009.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565540.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565186.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565144.jpg" />
 </div>
 
 
@@ -170,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564996.jpg" />
 </div>
 
 
@@ -199,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564991.jpg" />
 </div>
 
 
@@ -226,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564904.jpg" />
 </div>
 
 
@@ -254,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564892.jpg" />
 </div>
 
 
@@ -280,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564817.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564575.jpg" />
 </div>
 
 
@@ -336,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564496.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564437.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564429.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564335.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564330.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563971.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563939.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563737.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563490.jpg" />
 </div>
 
 
@@ -581,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563424.jpg" />
 </div>
 
 
@@ -609,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563253.jpg" />
 </div>
 
 
@@ -622,90 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B9CEBCDE9DF4CFBB895945425A0395A43D7B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152739   (563155) от 24.07.2017
-
-Джеймс Лусено | Таркин (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из межавторского цикла «Звёздные войны».
-
-Отгремели жестокие Войны клонов, Дарт Сидиус провозгласил себя Императором Галактики, а его ученик, темный повелитель Дарт Вейдер, выследил и уничтожил практически всех джедаев, переживших страшный Приказ 66. Сенат на Корусанте подобострастно аплодирует каждому слову Императора, а население планет Ядра наслаждается (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7F2F12180A5E1E474D59D62EBB01F82E92F700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152830   (563003) от 24.07.2017
-
-Андрей Нечаев | Первый Игрок (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «AlterGame».
-
-В опасных Пустошах бродяга Джек находит брошенный грузовик, где спрятана древняя игровая консоль. С этого момента и начинается путь Джека к затерянному континенту, скрытому в виртуальных глубинах великой Альтеры. Он еще не знает, какие враги встанут на этом пути. Ему противостоит не только клан Могильщиков и зловещий некромант из (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBB9F1B1F5C51125FC0339106DE479076CC809B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923807   (562624) от 01.08.2015
-
-Нора Робертс | Орудие ведьмы – любовь (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Кузины О'Двайр».
-
-У потомственной ведьмы Брэнны О’Двайер есть все: любящие брат и сестра, собственный магазин, верные друзья. Но есть одно недостающее звено в ее жизненной цепи: любовь… Короткая интрижка с Фином, потомком их злейшего врага, обернулась мучительной болью и разбитым сердцем. Чтобы заполнить пропасть, оставленную после расставания, (   Читать дальше...   )Жанр: Любовно-фантастические романы, Магия и колдовство, МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71042C9A61C584C55287457B84DB6BC695BC09C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

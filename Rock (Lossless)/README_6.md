@@ -1,3 +1,119 @@
+###  Публикация: 1612070   (1040631) от 14.02.2023
+
+Final Benson - Final Benson (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lot’s of Rock’n’roll (Only Cure for My Soul) (2:18)
+02. You (2:22)
+03. Picked Up (1:52)
+04. Happy (2:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF8740E27718788F6AA918933EB9D472CCEC2BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439008   (1040623) от 10.01.2021
+
+Dennis DeYoung - 26 East: vol.1 (2020) [FLAC|Lossless|image + .cue] <Rock, Melodic Hard Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East Of Midnight
+02. With All Due Respect
+03. A Kingdom Ablaze
+04. You My Love(   Читать дальше...   )Жанр: Rock, Melodic Hard Rock, Soft RockПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222F873FEA0180EA7B79412FC91FA2BA3E96C264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612079   (1040608) от 14.02.2023
+
+The Poor - High Price Deed (2023) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Payback's A Bitch (4:09)
+02. Lover (4:10)
+03. Hurricane (2:59)
+04. This Is The Story (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6ABC38FE6E92F7B4BC66C098FCCAC6B7C2045C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438915   (1040583) от 10.01.2021
+
+VA - Millennium Hits, 1970 -1979, Rock (1999) The Unique Collection [FLAC|Lossless|tracks + .cue] <Rock, Dance>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нидерландский лейбл Disky выпустил в конце девяностых целую серию боксетов на тему Millennium Hits. В данном случае представляем вашему вниманию один CD из четырех-сидишного бокса "De Unieke Collectie" Millennium Hits 1970-1979 "De Top 10 Hits". Кроме этого диска в боксе ещё Pop, Love и Eigen Bodem диски (их нет у меня). Первые пяток треков наверняка (   Читать дальше...   )01. Deep Purple - Child In Time  (10:16)
+02. The Hollies - The Day That Curly Billy Shot Crazy Sam McGee  (3:44)
+03. Ike & Tina Turner - Proud Mary  (4:52)
+04. The Guess Who - American Woman  (5:02)(   Читать дальше...   )Жанр: Rock, DanceПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF14BD71646FE253689019A242852271C255660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612205   (1040399) от 15.02.2023
 
 Cryptic Witch - Summoning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom>
@@ -6,7 +122,7 @@ Cryptic Witch - Summoning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040399.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Crippled Black Phoenix - Ellenaest (2020) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040381.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Champlin, Williams, Friestedt - CWF 2 (2020) Jараnеsе Еditiоn [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040378.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Cats In Space - Аtlаntis (2020) [FLAC|Lossless|image + .cue] <Rock, Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040376.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Billboard Top Hits 1990-1994 (2000) Rhino Records, 5CD [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040273.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Magnesis - La Bete du Gevaudan (2020) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040148.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Three Dog Night - Harmony (1971) Reissue, 1988, MCA Records [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040138.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Fren - Where Do You Want Ghosts to Reside (2020) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040122.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Osiris - Take a Closer Look (2020) [FLAC|Lossless|tracks + .cue] <Prog Rock, Sym
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040120.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Arabs In Aspic - Маdnеss аnd Маgiс (2020) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040118.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Logos - Sadako E Le Mille Gru Di Carta (2020) [FLAC|Lossless|tracks + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040108.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Fatal Fusion - Dissоnаnt Мinds (2020) [FLAC|Lossless|tracks + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039928.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Kaipa - Urskog (2022) [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039888.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Issa - Lights Of Japan (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039622.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Chris Rosander - The Monster Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039390.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Violet - Illusions (2022) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039389.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Eye - Anthology (2023) 3xCD, Compilation, Limited Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039387.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Whale Fall - It Will Become Itself (2020) [FLAC|Lossless|Web-DL|tracks] <Post Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039159.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The London Symphony Orchestra - Symphonic Rock - American Classics (1997) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039142.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Westenra - First Light (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038876.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ XTC - English Settlement (1982) Reissue, 1988, Geffen [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038838.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Classic Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038558.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Classic Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3B7A88325964D3DC2399AB664B2B018E3684C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614335   (1038545) от 22.02.2023
-
-VA - Classic Rock Classic Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Whole Lotta Love (2012 Remaster)
-02. Fleetwood Mac - Go Your Own Way (2018 Remaster)
-03. Dire Straits - Sultans of Swing
-04. Jefferson Starship - Jane(   Читать дальше...   )Жанр: RockПродолжительность: 05:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C43A9D550329FA65C90473D636EF35413D8CC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440693   (1038519) от 18.01.2021
-
-Adult Cinema - Hot and Cold (2020) [FLAC|Lossless|image + .cue] <Classic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot and Cold
-02. Black God
-03. Have You Ever Flown Across The Sky
-04. She Won't Ever Let You Down(   Читать дальше...   )Жанр: Classic Rock, Progressive RockПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCF3D51A071B66B145CBFC7651E6B65F6AFA42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440629   (1038506) от 18.01.2021
-
-The London Philharmonic Orchestra - Symphonic Music Of Yes (1993) [FLAC|Lossless|image + .cue] <Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roundabout (6:10)
-02. Close to the Edge (7:40)
-03. Wonderous Stories (3:53)
-04. I've Seen All Good People (3:51)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C42C59C9425BE6A18DD3920115E80E8D1A3DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614812   (1038381) от 23.02.2023
-
-Rick Miller - Altered States (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038381.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Altered States (10:00)
-2. New Moon Prelude (2:45)
-3. Wolf Moon (9:42)
-4. Borrowed Time (8:51)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F4EA7D1A9963E1686121AC406E24F7429C568F
 ```
 
 https://mybot314.ru/tekegram_catalog/

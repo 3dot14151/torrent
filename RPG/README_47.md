@@ -1,3 +1,107 @@
+###  Публикация: 1692555   (122411) от 17.01.2024
+
+Path of the Midnight Sun (2023) [Multi] (2.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path of the Midnight Sun смешивает японскую ролевую игру с визуальной новеллой. Здесь также есть элементы выживания и квеста. 2D-графика в данном проекте вдохновлена аниме. В ней есть анимация благодаря технологии Live2D. Перед началом прохождения можно выбрать один из трех типов сложности. Игровой процесс здесь довольно разнообразный.Тип издания: SceneРазработчик: Studio DaimonЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Итальянский, ЯпонскийЯзык интерфейса: Английский, Итальянский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD219E6E8E857246CB74E0076939E9DC0BF7512C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665605   (122261) от 18.01.2024
+
+Affogato (2023) [Multi] (1.0.19) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affogato - это ролевая игра с уникальной механикой «обратной защиты башни». Играйте за волшебницу, управляющую кафе в Ароруа. Встречайте клиентов из всех слоев общества, слушайте их истории и путешествуйте в их разум, чтобы помочь им победить своих внутренних демонов. Испытайте городскую жизнь, которая источает волшебство и волнение.Тип издания: SceneРазработчик: Befun StudioЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: Японский, Китайский (упрощенный)Язык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0AE6ED59E43E7B0ABA9A6BB43C981225D5A5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693269   (121957) от 20.01.2024
+
+Kingsvein (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingsvein - это тактическая RPG в духе олдскульных представителей жанра с аутентичной пиксельной стилистикой и музыкальным сопровождением. Город-замок Кингсвейн оказался заражен неизвестным вирусом из-за чего все жители стали обращаться в ужасных монстров. Главный герой верхом на виверне вместе со своими подручными рыцарями отправляется в самую глубь крепости, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: Rad CodexЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045E2F4CCED061B62BFB4C2BFCE940A84526B5B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678492   (121812) от 21.01.2024
+
+Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сеттинг в Above Snakes показывает альтернативную вселенную Дикого Запада, где в 1883 году начинается восстание нежити. В одну из темных ночей, недалеко от Трупного ручья, происходит огненный дождь и падение ярко-зеленого метеорита. Из-за удара массивного космического объекта об поверхность земли, происходит загадочная метаморфоза с мертвецами и они начинают оживать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Square Glade GamesЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AEB697031CDA379444A6F086474A837B71F99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673937   (121806) от 21.01.2024
 
 Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
@@ -6,7 +110,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121806.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121783.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sovereign Syndicate (2024) [En] (1.0.25) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121628.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.0501) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121626.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Eternights (2023) [Multi] (20230920) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121377.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ GRAVEN (2021) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121224.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (16.0.2.0/dlc) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121219.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120896.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Gloomhaven (2021) [Multi] (1.1.8307.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120582.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Boyfriend Dungeon (2021) [Ru/Multi] (1.3.7294S/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120375.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Star Explorers (2018) [En] (5.4.4a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120347.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Cris Tales (2021) [Ru/Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120022.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Lunacid (2023) [En] (1.2.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119709.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Elder Scrolls V: Skyrim (2021) [Ru/En] (1.6.1170.0.8/dlc) Repack Other s [An
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119584.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Floating Life 2 (2023) [Multi] (1.0.2.58) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119572.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Long Gone Days (2023) [Ru/Multi] (20240130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119562.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119382.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.04.59290/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119240.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0.16a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118673.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118667.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118483.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118383.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF9A54BD1A091E586B226BC0DD27F1C58BC9FE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548385   (118381) от 10.02.2024
-
-Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте мрачную фантазийную интерпретацию Дикого Запада, в которой шерифы и ганфайтеры живут бок о бок с фантастическими существами. Узнавайте истории необычных персонажей и превращайте их в легенды, принимая непростые решения. А разве могут существовать простые в этих беспощадных землях? Каждое путешествие уникально и создается вами собственноручно — в этих историях (   Читать дальше...   )Тип издания: RepackРазработчик: WolfEye StudiosЖанр: Action (Isometric), Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698655   (118377) от 10.02.2024
-
-The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack DjDI [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118377.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Inquisitor - это сюжетная приключенческая игра жанра «тёмное фэнтези» с элементами экшена, в которой вы столкнетесь со сложными моральными дилеммами. Действие разворачивается в альтернативной (религиозной) вселенной. Источником вдохновения послужили бестселлеры из серии «Инквизитор» Яцека Пекары. Распятый Иисус подошел к порогу смерти, но его поглотил гнев. Он (   Читать дальше...   )Тип издания: RepackРазработчик: The Dust S.A.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, ПольскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6823D379EC4FA3371EFFE781E39D253EBFCE1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698827   (118335) от 10.02.2024
-
-Ocean's Heart (2021) [Ru/Multi] (1.0.3(5)) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocean's Heart - ролевая игра, выполненная в духе классических JRPG. Отправляйтесь исследовать таинственный архипелаг, путешествуя вместе с героиней Тилией. Вам предстоит сразиться с ордой монстров, зачистить десятки подземелий и разгадать загадку острова под названием Сердце океана. Визуальный стиль выполнен в духе олдскульных частей Final Fantasy и Dragon Quest.Тип издания: LicenseРазработчик: Max MrazЖанр: Ролевая игра, Экшны, ПриключениеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97DDC8DECE372E8419FE1849EFCF7DC2285FDA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698674   (118334) от 10.02.2024
-
-Pixel Noir (2024) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте захватывающий заговор в этой загадочной игре в стиле нуар, пропитанной элементами классической ролевой игры. Путешествуйте по захудалым улицам в поисках улик, улучшайте навыки и настраивайте оружие. Сражайтесь в пошаговых боях с рассчитанными на время ударами и комбо, чтобы раскрыть темную правду, которая отравляет сердце города и ваше здравомыслие.Тип издания: SceneРазработчик: SWDTech GamesЖанр: Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B387A4817E90F5DA52D68AF5333953A1AE281AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

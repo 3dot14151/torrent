@@ -1,3 +1,32 @@
+###  Публикация: 1224499   (666071) от 10.05.2018
+
+Хоккей. Чемпионат мира 2018. Группа B. Германия — Южная Корея (09.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666071.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 мая 2018 года, среда. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Группа B. 4-й Тур
+Германия — Южная Корея(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65965CF4FE0CAD2BDE7D97B074585E5783629199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224289   (666070) от 10.05.2018
 
 Хоккей. Чемпионат мира 2018. Группа A. Австрия — Словакия (08.05.2018) HDTVRip [H.264/1080i-LQ]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666070.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666065.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ History Channel: Невероятные проекты древнего мира
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665940.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665793.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665792.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665740.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665726.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665725.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665720.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665719.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665648.jpg" />
 </div>
 
 
@@ -316,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_665161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_665161.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664963.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_664928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_664928.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664909.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664898.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664896.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664895.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664692.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664567.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_664539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_664539.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664490.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664487.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ History Channel: Поворот-наворот / Counting Cars (2014) HDTVRip [H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664130.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664010.jpg" />
 </div>
 
 
@@ -687,32 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B3F7F9BC51F62B11AEAE73B6429AE359F81A995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512960   (663748) от 19.06.2012
-
-Жадность. Солнечный удар (2012.06.19) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663748.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЖАДНОСТЬ — производная страха. Помните — скупой платит дважды. «Жадность» — потребительское расследование. Каждый выпуск посвящен группе товаров и услуг, максимально востребованных покупателем. От сосисок до ОСАГО, от перемороженных продуктов до вредного воздействия бытовой химии... «Жадность» рассказывает о том, как не стать жертвой мошенников. Программа «Жадность» не пугает — она помогает быть бдительным! Как выбирать еду, напитки, обувь, одежду, лекарства? Зачем продавцам салатов нужна туалетная бумага, а продавцам мяса — марганцовка? Даже в самых проверенных магазинах можно найти нарушения прав потребителей. «И основа всего этого — жадность, — уверен директор дирекции документально-публицистических программ Михаил ТУКМАЧЕВ. — С одной стороны — это жадность продавца, который стремится из самой гнилой картошки выбить свой рубль прибыли, а с другой стороны — это жадность покупателя, который стремится купить дорогостоящий товар за минимальные деньги. И наша программа каждую неделю будет наглядно показывать и доказывать, (   Читать дальше...   )В выпуске: Сколько стоит летний отдых? Где дешевле провести две недели - в России или за границей? Как отдохнуть, не лишившись здоровья и не потратив лишнего?Жанр: ТелепередачаПродолжительность: ~ 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931C33BB4A6CF30FD7F476FB7925CAB8725C16F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

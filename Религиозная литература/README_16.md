@@ -1,3 +1,55 @@
+###  Публикация: 1092443   (938870) от 12.01.2017
+
+Даниловский Благовестник (изд.) | О страхе. Страх истинный и ложный (2007) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь современного человека полна страхов, буквально пронизана ими. Человек боится болезней, боится испытаний, боится за детей и близких, боится настоящего и боится будущего, боится смерти и боится жизни. «Чего только не страшатся люди в мире! Отошедшие от своего доверия к Творцу, они строят свою земную жизнь, окруженные тревогами, опасениями, страхом и ужасом», (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4806C2D9A88F4405B95C815C0F308348284F6883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092723   (938861) от 12.01.2017
+
+Ханс Урс фон Бальтазар | Теологика. Истина мира [Том I] (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей книга выдающегося швейцарского богослова Ганса Урса фон Бальтазара - часть монументальной трилогии, посвященной исследованию истины как одной из трех трансценденталий Бога (двум другим - благу и красоте - Бальтазар посвятил 5 томов Теодрамы и 7 томов Богословской эстетики). В центре Теологики - фундаментальная проблема отношения между (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED104B24543060F3FBBAA5769E915E3C6C6F4821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092431   (938766) от 12.01.2017
 
 Спасо-Преображенский Мгарский монастырь (изд.) | Начинающему христианину (2006) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938766.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933848.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933808.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933597.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933280.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932429.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932247.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931047.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931039.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931009.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931008.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931005.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930989.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930941.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930936.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930921.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930863.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930860.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930800.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930584.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930549.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929893.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929182.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928772.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A152D9353C406E10303CBBF23C0DFD4F2B3DE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095050   (927777) от 19.01.2017
-
-А. Б. Дмитриева (ред.) | Молитвослов «Помощник в воспитании» (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник «Помощник в воспитании» включает в себя все основные молитвы, связанные с рождением, воспитанием, духовным и телесным возрастанием детей, а поучения святых отцов и подвижников благочестия, помещённые в конце каждого раздела молитвослова, призваны помочь родителям в благом деле воспитания своих чад в духе православной традиции: в любви к Богу и ближнему.Жанр: МолитвенникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8BD126789E637882FAF1F89B5B9160A3F400E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987241   (927644) от 16.02.2016
-
-Епископ Митрофан (Баданин) | Правда о русском мате (2015) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование епископа Митрофана (Баданина), правящего архиерея Североморской епархии, образованной на берегах Кольского полуострова, посвящено серьезной проблеме в современном духовном состоянии нашего народа и его вооруженных сил. Речь идет о ненормативной лексике, нецензурной брани. Это явление, к сожалению, становится обыденным фоном нашей жизни и беспрепятственно (   Читать дальше...   )Жанр: Просветительное изданиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8FA0A38D198A54174EBCB5FCE35F720DE27B0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

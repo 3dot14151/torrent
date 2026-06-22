@@ -6,7 +6,7 @@ VA - Download Festival 2012 (Part1) (2012) HDTVRip [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148165.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147359.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147202.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146933.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146767.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146589.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Metallica - 40th Anniversary Shows (2021) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146406.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146338.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Metallica - Live at Maida Vale Studio (Nov.17 2016) WEB-DL [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146232.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145704.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145464.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ AC/DC - Live At Donington (1992) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145106.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143266.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142275.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141214.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_139182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139182.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mark Knopfler: Концерт в Берлине 2007 / Live In Berlin 2007 (2014
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138164.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138122.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137864.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137820.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137771.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ AC/DC - Live At River Plate (2011) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137324.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136149.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_136078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136078.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Meat Loaf: Guilty Pleasure Tour (2012) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135185.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134887.jpg" />
 </div>
 
 

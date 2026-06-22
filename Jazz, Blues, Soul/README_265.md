@@ -1,67 +1,3 @@
-###  Публикация: 83053   (537413) от 05.09.2014
-
-Ralph Towner - ANA (1997) [MP3|320kBit/s]<Guitar-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Reluctant Bride
-02 Tale of Saverio
-03 Joyful Departure
-04 Green And Golden
-05 I Knew It Was You
-06 Les Douzilles
-07 Veldt
-Seven Pieces for Twelve Strings
-08 Between The Clouds
-09 Child On The Porch(   Читать дальше...   )Жанр: Guitar-JazzПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78EF935DB41B97128615BDC51F6DDA4B2A1DA261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557731   (537385) от 17.06.2022
-
-Black Banjo - The Beauty And The Burst (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ophelia (4:15)
-02. Full Moon Rising (4:18)
-03. When Will I Be Free (4:13)
-04. When The Smoke Clears (4:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B40A6C8E2CC890E7DE5D7A682C14077E4D75A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925949   (537281) от 08.08.2015
 
 Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
@@ -70,7 +6,7 @@ Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537281.jpg" />
 </div>
 
 
@@ -99,7 +35,7 @@ The Pentones - Don't Leave Nothin' Behind (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537276.jpg" />
 </div>
 
 
@@ -128,7 +64,7 @@ Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537275.jpg" />
 </div>
 
 
@@ -157,7 +93,7 @@ Wendy Rich - Driver (2015) [MP3|320 кб/с]<Country, Blues Soul, Americana>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537272.jpg" />
 </div>
 
 
@@ -186,7 +122,7 @@ Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537270.jpg" />
 </div>
 
 
@@ -215,7 +151,7 @@ Scott Bradlee’s Postmodern Jukebox - Swipe Right For Vintage (2015) [MP3|320 �
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537104.jpg" />
 </div>
 
 
@@ -236,6 +172,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366242   (537094) от 23.07.2011
+
+Shakatak - The Ultimate Collection (2008) [FLAC|Lossless]<Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_537094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Start Over Again (3:43)
+02. Sunshine (3:52)
+03. Catwalk (4:24)
+04. All Because Of You (4:18)
+05. Without You (4:28)
+06. Night Moves (4:38)
+07. Day By Day (3:44)
+08. Summer Of Love (4:31)
+09. Jazz Creepin' (3:36)
+10. Steveland (4:12)(   Читать дальше...)Жанр: Jazz, Smooth JazzПродолжительность: 02:30:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239582   (536858) от 06.08.2018
 
 Lori Williams - Out of the Box (2018) [MP3|320 Kbps] <Jazz, Soul>
@@ -244,7 +215,7 @@ Lori Williams - Out of the Box (2018) [MP3|320 Kbps] <Jazz, Soul>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536858.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ Revolution Void - Increase the Dosage (2005) [MP3|192 кб/с]<Breakbeat,Acid Ja
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536837.jpg" />
 </div>
 
 
@@ -308,7 +279,7 @@ VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536748.jpg" />
 </div>
 
 
@@ -337,7 +308,7 @@ Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fres
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536746.jpg" />
 </div>
 
 
@@ -366,7 +337,7 @@ Ella Fitzgerald - Sings Cole Porter & Rodgers and Hart Songbooks (1956) 3CD, 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536738.jpg" />
 </div>
 
 
@@ -395,7 +366,7 @@ Bill Evans - Momentum, Vol. 2 (1972) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536735.jpg" />
 </div>
 
 
@@ -424,7 +395,7 @@ Cannonball Adderley - Jazz Profile (1960 - 1966) 1997, Blue Note [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536598.jpg" />
 </div>
 
 
@@ -453,7 +424,7 @@ Stan Kenton - Jazz Profile (1945 - 1967) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536597.jpg" />
 </div>
 
 
@@ -482,7 +453,7 @@ McCoy Tyner - Jazz Profile (1967 - 1989) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536596.jpg" />
 </div>
 
 
@@ -511,7 +482,7 @@ Horace Silver - Jazz Profile (1952 - 1976) 1997, Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536594.jpg" />
 </div>
 
 
@@ -540,7 +511,7 @@ Tasha Taylor - Honey For The Biscuit (2016) [FLAC|Lossless|tracks + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536589.jpg" />
 </div>
 
 
@@ -569,7 +540,7 @@ Dj Toner - Grandmaster Jazz Vol 1 (2016) [MP3|320 Kbps] <Jazz, Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536585.jpg" />
 </div>
 
 
@@ -598,7 +569,7 @@ Seasick Steve - Sonic Soul Surfer (2015) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536580.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536542.jpg" />
 </div>
 
 
@@ -662,7 +633,7 @@ Donald Byrd - Electric Byrd (1970) /2015, Universal/ [FLAC|tracks+.cue]<Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535648.jpg" />
 </div>
 
 
@@ -691,7 +662,7 @@ Bobby Caldwell - August Moon (1983) /Sin-Drome Records/ [FLAC|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535594.jpg" />
 </div>
 
 
@@ -720,7 +691,7 @@ Ambient Jazz Ensemble - Suite Shop (2014) [FLAC|tracks|WEB-DL]<Jazz, Nu Jazz, Br
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535590.jpg" />
 </div>
 
 
@@ -749,7 +720,7 @@ The Braxton Brothers - Steppin' Out (1998) [FLAC|image+.cue]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535588.jpg" />
 </div>
 
 
@@ -763,6 +734,35 @@ The Braxton Brothers - Steppin' Out (1998) [FLAC|image+.cue]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61398219E3E943085F2EAF58478763A029FCA2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926398   (535586) от 09.08.2015
+
+Rebecca Kilgore and Nicki Parrott - Two Songbirds Of A Feather (2015) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Songbirds Of A Feather (03:48)
+02. A Woman's Perogitive (03:56)
+03. BlueMoon MoonGlow (04:15)
+04. El Cajon (03:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA863BCFA651C056B139F28CF0E0E8ADAC929E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 870148   (875574) от 24.02.2015
+
+Дикая банда / The Wild Bunch (1969) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 1913-й. Мир на грани Первой мировой, и давно состарившийся Дикий Запад ощущает себя уходящей натурой. Вместе с ним на покой собралась шайка грабителей, «дикая банда», шестеро ловцов удачи, слишком старых для дерзких налетов. Но они готовы еще тряхнуть стариной, и на излете легендарной карьеры порох в пороховницах этих бандолерос обернется последней кровавой бойней…Производство: США / Warner Brothers/Seven ArtsЖанр: Боевик, Вестерн, ПриключенияРежиссер: Сэм ПекинпаАктеры: Уильям Холден, Эрнест Боргнайн, Роберт Райан, Эдмонд О’Брайен, Уоррен Оутс, Хайме Санчес, Бен Джонсон, Эмилио Фернандес, Стразер Мартин, Л. К. ДжонсПеревод: Многоголосый, двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 02:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5D4E598D06CF028B57CA69C0FDE23C762F24A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871750   (875554) от 24.02.2015
+
+Сука-любовь / Amores perros (2000) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мехико-Сити, фатальная авария. Сталкиваются три жизни, раскрывая предательскую сторону человеческой природы. Будоражащая и волнующая история об искуплении и об уязвимости и сложности человеческой жизни.Производство: Мексика / Altavista Films, Zeta FilmЖанр: Триллер, Драма, КриминалРежиссер: Алехандро Гонсалес ИньярритуАктеры: Эмилио Эчеваррия, Гаэль Гарсия Берналь, Гойя Толедо, Альваро Герреро, Ванесса Бауче, Хорхе Салинас, Марко Перес, Родриго Мюррэй, Умберто БустоПеревод: Многоголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C90F2B674D35632AF1A65346E632CC4EE2309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995882   (875329) от 16.03.2016
 
 Парижские тайны / Les mysteres de Paris (1962) BDRip [H.264/720p]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875329.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875228.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874606.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874487.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873220.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873153.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871618.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871473.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871382.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871377.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871217.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871159.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870863.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870438.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869393.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869272.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869210.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869040.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869008.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868886.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868395.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868313.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867450.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866209.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D357BBD4054B0E116F97AC36A4814BAB3BF6B0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872544   (866143) от 01.03.2015
-
-Лавка ужасов / Маленький магазинчик ужасов / Little Shop of Horrors (1986) BDRip [Театральная версия / Theatrical cut] [720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866143.jpg" />
-</div>
-
-
-###  Подробнее
-
-В цветочном магазине выставили странное растение — зловещий цветок, с появлением которого и началась эта история. Цветок не нуждался в обычном уходе, в поливке, в солнечном свете, потому что, по природе своей, он… людоед. И каждый вечер он ждёт новую жертву к себе на ужин. Эта знаменитая, прогремевшая на всю Америку, картина — великолепный мюзикл, забавный и страшный (   Читать дальше...   )Производство: США, The Geffen CompanyЖанр: чёрная комедия, музыкальныйРежиссер: Фрэнк ОзАктеры: Рик Моранис, Эллен Грин, Винсент Гардения, Стив Мартин, Тичина Арнольд, Мишель Викс, Тиша Кэмпбелл, Леви Стаббс, Джеймс Белуши, Джон Кэнди, Кристофер Гест, Билл Мюррэй и др.Перевод: Многоголосый закадровый, Авторский одноголосый (Александр Новиков), Авторский одноголосый (Антон Алексеев), Авторский одноголосый (Алексей Михалёв)Язык субтитров: английскиеПродолжительность: 01:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DD98BE76A142F2569232BAEABE2AF8697E4A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496053   (865939) от 21.09.2021
-
-Звёздные войны: Эпизод 3 - Месть Ситхов / Star Wars: Episode III - Revenge of the Sith (2005) BDRip [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идёт третий год Войн клонов. Галактическая Республика, некогда бывшая спокойным и гармоничным государством, превратилась в поле битвы между армиями клонов, возглавляемых канцлером Палпатином, и армадами дроидов, которых ведёт граф Дуку, тёмный лорд ситхов. Республика медленно погружается во тьму. Лишь рыцари-джедаи, защитники мира и справедливости, могут противостоять (   Читать дальше...   )Производство: США / Lucasfilm, Mestiere Cinema, Pandora FilmsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джордж ЛукасАктеры: Юэн Макгрегор, Натали Портман, Хейден Кристенсен, Иен Макдермид, Сэмюэл Л. Джексон, Джимми Смитс, Фрэнк Оз, Энтони Дэниелс, Кристофер Ли, Киша Касл-ХьюзПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A76EA6F5DA439DFDCA22415DB150627C7D3DCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

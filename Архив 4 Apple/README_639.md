@@ -1,3 +1,58 @@
+###  Публикация: 1086086   (154877) от 23.12.2016
+
+Orion Markup - image notes and annotations 3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет открыть изображение (в том числе  скриншоты), и добавить все виды аннотаций в виде текста, графических элементов, подчеркиваний, выносок, и многое другое.
+
+- Добавлять заметки и в файлы изображений и PDF-документов
+- Увеличение: создает увеличенные версии выбранных областей изображения(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 декабря 2016Разработчик: Aidaluu Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E119880AAFB292A7D666E1C5EEE07E7B968BE508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346973   (154849) от 21.12.2019
+
+Photo Mechanic 6 v6.0 build 4155 (e068498) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Mechanic — фотобраузер и фоторедактор оперативно обрабатывающий тысячи снимков в одиночном и пакетном режимах, отбирает из них самые удачные, обрезает, добавляет информацию к фото, рейтинг, корреспондируется с цифровыми камерами, интегрируется со многими редакторами в т.ч. Adobe Photoshop, позволяет легко экспортировать данные. Программа предназначена для профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Camera Bits, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E95E006F20D7710C6883714B72BE495800391F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194652   (154842) от 25.12.2017
 
 Sweet Home 3D 5.6.1 [Multi/Ru]
@@ -6,7 +61,7 @@ Sweet Home 3D 5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154842.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Lyn 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154806.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ VideoSolo Screen Recorder For Mac 2.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154732.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ NCH VideoPad Pro 9.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154713.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ LaunchBar 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154699.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ Capture One 20 Pro 13.0.1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154697.jpg" />
 </div>
 
 
@@ -172,7 +227,7 @@ iThoughtsX 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154689.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ SpamSieve 2.9.35 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154530.jpg" />
 </div>
 
 
@@ -226,7 +281,7 @@ Pixelmator Pro 2.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154429.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ GroupsPro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154422.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ UctoX 2 v2.8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154410.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ Type Fu 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154409.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ Stats 2.6.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154403.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154402.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ McAfee Endpoint Security for Mac 10.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154396.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154394.jpg" />
 </div>
 
 
@@ -438,7 +493,7 @@ Mitti 1.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154388.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154378.jpg" />
 </div>
 
 
@@ -492,7 +547,7 @@ PowerPhotos 2.1.3b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154370.jpg" />
 </div>
 
 
@@ -518,7 +573,7 @@ iCash 7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154356.jpg" />
 </div>
 
 
@@ -544,7 +599,7 @@ A Better Finder Rename 11 v.11.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154354.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154352.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ Movavi Screen Recorder 10.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154326.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ Records 1.6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154320.jpg" />
 </div>
 
 
@@ -635,60 +690,6 @@ Records восхитительный и простой в использован
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37CD0CEF4E9C0A796DBE815108B3898AF429A132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347335   (154308) от 22.12.2019
-
-Downie 4 v4.0 (beta) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014CF2C0E4F5A315782A67B72A05DEB6AA4DEB4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518707   (154301) от 20.12.2021
-
-4K YouTube to MP3 4.4.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154301.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F31142064932E33397FAD32FAFEDBDD8E56B0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

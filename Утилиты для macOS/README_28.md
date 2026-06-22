@@ -6,7 +6,7 @@ TotalSpaces 2 2.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455043.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FreeMemory Pro 1.7 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_452439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_452439.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fenêtre 0.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451380.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Deep Freeze 6.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450364.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Forecast Bar 2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449154.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ BitMedic® Pro Antivirus 2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444672.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Command-Tab Plus 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444278.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ TouchCopy 16.40 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443275.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ HardwareGrowler 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443272.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ CrossOver 15.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441405.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Deliveries 3.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_440959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440959.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Micromat ATOMIC 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439801.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Data Rescue Pro 4.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438786.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ MaCleaner X 14.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438502.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ DMG Master 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438375.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Paragon NTFS 12.2.313 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437542.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436181.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Orbis (Formerly MenuWeather) 5.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435981.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Dropzone 3 v3.6.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435879.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Turbo Boost Switcher Pro 2.9.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435658.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ iSkysoft iTransfer 4.5.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435548.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Startupizer 2.3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435233.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Statsey - app usage statistics in your menu bar 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435231.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Monit 2.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433956.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Pacifist 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433834.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ SMARTReporter 3.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433288.jpg" />
 </div>
 
 

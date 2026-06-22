@@ -1,3 +1,82 @@
+###  Публикация: 1751247   (42551) от 24.09.2024
+
+Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие аниме разворачивается в фантастическом мире, похожем на компьютерную игру, где живут различные монстры. Местные жители, пытаясь заработать себе на жизнь, вступают в ряды авантюристов, чтобы получить доступ к заданиям различной сложности, за которые полагается вознаграждение.
+В центре сюжета оказывается пятнадцатилетняя девушка, выбравшая профессию жрицы, (   Читать дальше...   )Производство: Liden FilmsЖанр: приключения, фэнтезиРежиссер: Одзаки ТакахаруЯзык озвучки: Японский, русский (AniLibria, Jam Club)Субтитры: Русские (Crunchyroll), английские (Chihiro)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751478   (42425) от 25.09.2024
+
+Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnation Season 2 | Реинкарнация безработного [ТВ-2, часть 2] [2024, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш герой — страшный затворник и отаку, все дни прожигающий дома. Вернее, так было раньше. Теперь он великий маг Рудэус Грэйрат, и рассказы о нём ходят по всему континенту! И неудивительно: мало кому удаётся без единого слова подчинять себе безумное количество маны и болтать с самим королём демонов как с приятелем! Но не все втайны разгаданы: причины появления катаклизма (   Читать дальше...   )Производство: Studio BindЖанр: приключения, фэнтезиРежиссер: Сибуя РёсукэЯзык озвучки: Японский, русский (Studio Band, AniLibria, Jam Club)Субтитры: Русские (Crunchyroll, Alvakarp, YakuSub Studio)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F65C28949240C42E543B8ADE69E4307FA8F4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737332   (42041) от 29.09.2024
+
+Любовь неделима между близнецами | Koi wa Futago de Warikirenai | Love Is Indivisible by Twins [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы когда-нибудь фантазировали об отношениях с близнецами, то вы как раз по адресу! Главный герои истории, парень по имени Джун, с самого детства дружит с двумя очаровательными соседками, близняшками Руми и Наори. Несмотря на идентичные гены, девочки абсолютно не похожи друг на друга. Старшая, Руми, с виду пацанка пацанкой, но на самом деле очень нежная и заботливая. (   Читать дальше...   )Производство: Япония / Студия Roll2, Cre-pЖанр: Романтика, школаРежиссер: Наканиси МотокиЯзык озвучки: Русский (Kazoku Project), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C6BC7838DC396799CABEE9F0BE411BFEF02056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736820   (42039) от 29.09.2024
 
 Почему все забыли мой мир? | Naze Boku no Sekai o Dare mo Oboeteinai no ka? | Why Does Nobody Remember Me in This World? [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +85,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42039.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42028.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 из 12] WEBRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41944.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ Grendizer U | Грендайзер U [2024, TV, 13 из 13] WEBRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41754.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41739.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41730.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41718.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41532.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Hyakkano | Сто
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41350.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41308.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ Girls Band Cry | Плач девичьей группы [2024, TV, 13] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41256.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41182.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40608.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_40087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40087.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39846.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39774.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39586.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_39170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39170.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ Unnamed Memory | Безымянная память [ТВ-1] [2024, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38819.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38809.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38708.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37953.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37934.jpg" />
 </div>
 
 
@@ -595,85 +674,6 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E79E11CF8284A721FB4F206367DDABB86D9ECD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705773   (37805) от 09.11.2024
-
-Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Мастер на все руки Сайто в другом мире [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачастую трансмигрировавший герой обнаруживает в себе новые потрясающие навыки и способности, которые получил в процессе перемещения. Это совершенно не тот случай. Обычный парень Сайто, который занимался тем, что выполнял мелкий ремонт и другие небольшие поручения, перенесясь в другой мир, обнаружил, что, как был обычным человеком, так и остался. Никакой магии или (   Читать дальше...   )Производство: C2CЖанр: комедия, фэнтезиРежиссер: Кубоока ТосиюкиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6B9C8590B40F27D3924158E8601EFB9E0D3A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759606   (37791) от 09.11.2024
-
-Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Истребитель демонов: Тренировка столпов [2024, TV, 8 из 8] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инцидент в Деревне кузнецов завершился, и его последствия могут оказаться судьбоносными для Японии. Собравшись на срочное совещание, столпы, обсудив текущую ситуацию, приходят к заключению, что нынешние охотники на демонов слишком слабы, чтобы оказывать достойное сопротивление Молодым лунам. Такое положение дел чревато большими человеческими потерями и может поставить (   Читать дальше...   )Производство: UfotableЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоЯзык озвучки: Японский, русский (Studio Band, FlarrowFilms, Jaskier, AniLibria, TVShows)Субтитры: Английские, Русские (Crunchyroll, YakuSub Studio)Продолжительность: 1 эп. на 49 мин. ;
-2-6 эп. по 25 мин. ; 7 эп. на 30 мин. ; 8 эп. на 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8066EA62A6B04C58484EAB53377F567F44237004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759570   (37477) от 12.11.2024
-
-Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | Моя любовь к Ямаде 999 уровня [2023, TV, 13 из 13] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аканэ стала играть в онлайн-игру ради своего парня. Но через некоторое время он её бросил, познакомившись в игре с другой. Пытаясь хоть как-то восстановить уязвлённое достоинство, Аканэ отправляется на фестиваль, чтобы ещё раз напомнить бывшему, что он потерял. Однако неожиданно для себя она встречает согильдийца, оказавшегося холодным красавчиком.Производство: MadhouseЖанр: комедия, романтика, повседневностьРежиссер: Асака МориоЯзык озвучки: Японский, русский (AniLibria)Субтитры: Английские, Русские (Crunchyroll)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC03ED23E4115C8F36B66E47492213B2027E69D
 ```
 
 https://mybot314.ru/tekegram_catalog/

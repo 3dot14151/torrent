@@ -1,4 +1,352 @@
 https://t.me/izofen
+###  Публикация: 1876787   (1073570) от 17.06.2026
+
+Daniele Gazzarin - Favorites Collection Part 14 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - At the End of the Line
+02 - The Rebirth
+03 - It Was Not the Fight
+04 - Shadows(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DB7379C525A2F8B64FEBA52B6FA197664041DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876778   (1073569) от 17.06.2026
+
+Daniele Gazzarin - Favorites Collection Part 13 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Equal
+02 - It Stays Under
+03 - God In The Ashtray
+04 - My Life(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFFEA9E136D414B71A98E7A8EAC07611266AFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876777   (1073568) от 17.06.2026
+
+Daniele Gazzarin - Favorites Collection Part 12 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Boats Lost at Sea
+02 - Against Fate
+03 - The Simple Things
+04 - Boogie Dust(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3CC479B894140CF39252C6B1EAC44EE378F824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876775   (1073567) от 17.06.2026
+
+Daniele Gazzarin - - Favorites Collection Part 11 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine Me a Light in the Dark
+ 02 - I Was God
+ 03 - The Doors Open
+ 04 - Only Three Days(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7504BAF08E9DC49CAD16E6E05D4C6A11AD5E0B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876615   (1073378) от 16.06.2026
+
+AI - AI - Russian Poets Covers Compilation Part 27 (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Э. Асадов, Dmitry Slovesnik - Как Много Тех, С Кем Можно Лечь В Постель…
+02 - С. Есенин, Ai Sound Lab - Я Помню, Любимая, Помню..
+03 - С. Есенин, Ai Sound Lab - Да! Теперь Решено. Без Возврата…
+04 - С. Есенин, Ai Sound Lab - Я Давно Ищу В Судьбе Покоя..(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A5C32AAF7CAAD52F8321512CB01B7906884F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876614   (1073374) от 16.06.2026
+
+AI - Russian Poets Covers Compilation Part 26 (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - М. Цветаева, Dmitry Slovesnik - Мне Нравится Что Вы Больны Не Мной
+02 - Б. Пастернак, Pcsv - Никого Не Будет В Доме
+03 - М. Цветаева, Poetica Soul - Анжелика
+04 - Б. Пастернак, Максим Величко - Сосны(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5860F8DC32E493B58FE64147E8FD6E5709E0D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876606   (1073373) от 16.06.2026
+
+VA - No Name Compilation Simply Listen Music Assorted Other Part 93 (2026) [MP3|320 Kbps] <Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Diazza - Only For You
+02 - Elica - Telephone Lights
+03 - Korgstyle Life - Tomorrow
+04 - Elica - Neon Hearts(   Читать дальше...   )Жанр: OtherПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C937C1A7237855B3BED139F5D5539A9B9BAB4264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876602   (1073371) от 16.06.2026
+
+Daniele Gazzarin - Favorites Collection Part 15 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Still
+02 - Take My Hand
+03 - Love
+04 - Hidden Desire(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23049C58DB76DDA56EEB6E571A0CA34B74A91DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876611   (1073359) от 16.06.2026
+
+AI - Russian Poets Covers Compilation Part 25 (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - А. Блок, Lus Aleksandrs - Поэты
+02 - И. Бродский, Pcsv - Уезжай
+03 - М. Цветаева, Pcsv - Мальчик Поёт, А Девчонка Плачет
+04 - А. Блок, Русская Классика - Незнакомка(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991CC12A1F8365D5FB548D2532A6301DE934BFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876609   (1073358) от 16.06.2026
+
+AI - Russian Poets Covers Compilation Part 24 (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Б. Пастернак, Максим Величко - Август
+02 - М. Цветаева, Pcsv - Умирая, Не Скажу
+03 - М. Лермонтов, Поэзия В Новом Звучании - Выхожу Один Я На Дорогу
+04 - М. Цветаева, Русская Классика - О Возмущенье! О Печаль! ....(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18231788744CFB4FBC273483C778BFB1A60E40F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876607   (1073357) от 16.06.2026
+
+AI - Russian Poets Covers Compilation Part 23 (2026) [MP3|320 Kbps] <Cover, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - А. Ахматова, A.M. Artimusic - Ты Знаешь Я, Томлюсь В Неволе
+02 - А. Блок, Pcsv - Лети...
+03 - А. Ахматова, Pcsv - О Знала Ль Я
+04 - М. Лермонтов, Dmitry Slovesnik - К Деве Небесной(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8FBF9852BCA55DCCB49B77C354F20FBE251803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876482   (1073295) от 
+
+VA - Just One Love (2026) [MP3|320 Kbps] <Pop, Lyric, Romantic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Mraz - I Won’t Give Up (04:00)
+ 002. Mr. Samith - Always Choose You (04:12)
+ 003. Tin Grace - Always You (02:46)
+ 004. Angkash - Ambisi (04:15)(   Читать дальше...   )Жанр: Pop, Lyric, RomanticПродолжительность: 08:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8460CBD0724BC46DA270E4A2F6341D56B6A772C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875623   (1072690) от 
 
 VA - Music News For Forum vol.172 (2026) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -7,7 +355,7 @@ VA - Music News For Forum vol.172 (2026) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072690.jpg" />
 </div>
 
 
@@ -36,7 +384,7 @@ VA - ЕвроХит Топ 40 Europa Plus 05.06.2026 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072396.jpg" />
 </div>
 
 
@@ -65,7 +413,7 @@ VA - Music News For Forum vol.171 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072335.jpg" />
 </div>
 
 
@@ -94,7 +442,7 @@ AI - Russian Poets Covers Compilation Part 22 (2026) [MP3|320 Kbps] <Cover, Othe
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072300.jpg" />
 </div>
 
 
@@ -123,7 +471,7 @@ Sade - Collection от ALEXnROCK (2026) [MP3|320 Kbps] <Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072284.jpg" />
 </div>
 
 
@@ -152,7 +500,7 @@ VA - Music News For Forum vol.170 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1071986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1071986.jpg" />
 </div>
 
 
@@ -181,7 +529,7 @@ AI - Russian Poets Covers Compilation Part 21 (2026) [MP3|320 Kbps] <Cover, Othe
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071580.jpg" />
 </div>
 
 
@@ -210,7 +558,7 @@ VA - Music News For Forum vol.169 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071449.jpg" />
 </div>
 
 
@@ -239,7 +587,7 @@ AI - Russian Poets Covers Compilation Part 20 (2026) [MP3|320 Kbps] <Cover, Othe
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071205.jpg" />
 </div>
 
 
@@ -268,7 +616,7 @@ T.G. Sheppard - Super Hits Series (2000) [MP3|320 Kbps] <country>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071143.jpg" />
 </div>
 
 
@@ -297,7 +645,7 @@ Garth Brooks - Hits singles (2026)[MP3|320 Kbps] <country>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071142.jpg" />
 </div>
 
 
@@ -326,7 +674,7 @@ AI - Russian Poets Covers Compilation Part 19 (2026) [MP3|320 Kbps] <Cover, Othe
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070663.jpg" />
 </div>
 
 
@@ -355,7 +703,7 @@ AI - Russian Poets Covers Compilation Part 18 cover by Dmitrii Razinov (2026) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1070662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1070662.jpg" />
 </div>
 
 
@@ -384,7 +732,7 @@ AI - Russian Poets Covers Compilation Part 17 cover by iSenin (2026) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070661.jpg" />
 </div>
 
 
@@ -398,354 +746,6 @@ AI - Russian Poets Covers Compilation Part 17 cover by iSenin (2026) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896395A81D39842922C5E56CC49DA2BD0F413D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1873088   (1070629) от 26.05.2026
-
-VA - Music News For Forum vol.168 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070629.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Old Jim & ARTY & Alexandra Stan & CERES - In My Head (Baby I'm Sorry) (03:00)
- 002. Jerry Baccardi - You Begin (02:58)
- 003. Гравитация - Хмельное вино (04:33)
- 004. Sanch - Темные ночи (03:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67C0E11098292E0CEC213FFBD7FC19A129144E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872334   (1070506) от 21.05.2026
-
-VA - New Tracks 2026 (2026) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070506.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ленинград - Оу, е (02:58)
- 002. Татьяна Королева - Сияй! (03:03)
- 003. Обе-Рек - Господа дверь (04:29)
- 004. Хеменес - Вопреки канону (04:16)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 02:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A47494E9920197760227537F7E3375443FD258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872449   (1070411) от 22.05.2026
-
-AI - Russian Poets Covers Compilation Part 16 (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - С. Есенин, Fpw - Забава
-02 - С. Есенин, Fpw - Молодость
-03 - Н. Гумилев,  Poetica Soul - Сирень
-04 - В. Набоков, Lus Aleksandrs - Тихий Шум(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFBCAB9BC97051508DE68FEF7F91878DBA42404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872096   (1070396) от 22.05.2026
-
-AI - Russian Poets Covers Compilation Part 15 (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - А. Блок, Lus Aleksandrs - О Доблестях, О Подвигах, О Славе...
-02 - С. Есенин, Poetica Soul - Вот Оно, Глупое Счастье
-03 - М. Цветаева, Поэтический Оазис - Совет
-04 - А. Ахматова, Lorelei - Я Умею Любить(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BDEE88475C6F2B59CFA70DE05399CBEF3A2D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1872217   (1070133) от 21.05.2026
-
-VA - Best Disco Hits 70's 80's & 90's (2026) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Gaga, Doechii - RUNWAY (2:51)
-02. Haddaway - Lift Your Head Up (2:58)
-03. Steve Aoki, George Benson - Give Me The Night (3:04)
-04. Patrick Hernandez - Born to Be Alive - The Original (3:08)(   Читать дальше...   )Жанр: DiscoПродолжительность: 04:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813F38E8B6AE7367641D154EEB8A5DAF50481ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871903   (1069852) от 19.05.2026
-
-VA - Synthpop: Ethereal Beats (2026) [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069852.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Erle As - Plastic Emotions (02:07)
- 002. Kazenga Khang - Circuitry Of The Soul (03:01)
- 003. Cody White - Confidence Isn T Quiet (02:49)
- 004. Lyciarh Conform - Deadly Premonition (05:30)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 10:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC98317D890CD34D075B78ADC9BAB1CAADB6113E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871748   (1069809) от 19.05.2026
-
-Ai - Russian Retro Covers Favorites Collection (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ю. Энтин, Е. Крылатов/ Rrc - До Чего Дошел Прогресс (Ai Cover)
-02 - С. Никитин/ Rrc - Диалог У Новогодней Ёлки (Cover Style of Paul Mauriat)
-03 - Ласковый Май/ Rrc - Седая Ночь (Ai Cover Rock Style)
-04 - Кино/ Rrc - Группа Крови (Hans Zimmer Instrumental Cover)(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E1BCD5BABE41BCCC3813E7A9827E0D5B553CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871597   (1069623) от 17.05.2026
-
-Ai - Russian Poets Covers Compilation  Part 14 (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - О. Мандельштайм - Чуть Мерцает Призрачная Сцена
-02 - Сергей Есенин, Сергей Есенин Fm - Пантократор
-03 - Н. Гумилёв, A.M. Artimusic - Уходящей
-04 - С. Есенин, Time Duel - Всё Живое Особой Метой...(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AFA68871C6AD628CF88F8D71EADE1C0CA0431C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871593   (1069622) от 17.05.2026
-
-Ai - Russian Poets Covers Compilation  Part 13 (2026) [MP3|320 Kbps] <Cover, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - С. Есенин - Отговорила Роща Золотая
-02 - А. Жэм - Я Уже Простила Все Обиды
-03 - М. Цветаева, Поэтический Оазис - Встреча С Пушкиным
-04 - А. Блок, Проект Вдох - О Доблестях, О Подвиге, О Славе(   Читать дальше...   )Жанр: Cover, OtherПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8ACE8C54DDAD04E4D3D902E391C850E9BFD689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871056   (1069348) от 15.05.2026
-
-VA - Дискотека 2026 Dance Club Vol. 232 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-001. TRITICUM - Dark Rain (3:18)
-002. Ganger Baster - Car Bass 90s (3:11)
-003. DJ JEDY - Closer (2:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 22:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1CC135FDF4C1BF7B5E8F970DDD3BB5E7AC1AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869857   (1069261) от 08.05.2026
-
-VA - National Pop Dance Music Vol.131 (2026) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069261.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. G.G. - Pipe Down (03:34)
- 002. Razi - Galben (02:07)
- 003. Kandang Music Lab - Rindu Berat (04:58)
- 004. Echo Note - Left On Read (03:55)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BF6F61DA245F79C84FE37B9E334B2A33E8DB59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869975   (1068548) от 09.05.2026
-
-VA - Music News For Forum vol.167 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady Gaga - Abracadabra (03:43)
- 002. Melisa Feat Tommo - I Am Alone (03:00)
- 003. Ofenbach - Miles Away (02:27)
- 004. Alan Walker, Isabella Melkman, Katherine O'Ryan - Broken Strings (02:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CF3DD8B7A4CB4212C086A4D990C19A25EA1FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

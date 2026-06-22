@@ -1,3 +1,81 @@
+###  Публикация: 1554221   (578855) от 29.05.2022
+
+Новые битвы без чести и жалости 2 / Shin jingi naki tatakai: Kumicho no kubi (1975) BDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть трилогии продолжает срывать маску с романтичного образа якудза. На этот раз драма разгорается в проливе Канмон, где группировки Овада и Кюёй схватились за право владеть территориями и контролировать наркотрафик. Семья Овада посылает Тецу и его друга Сюдзи убить босса группировки Кюёй. Сюдзи, которому пообещали славу и богатство лично убивает босса группировки, (   Читать дальше...   )Производство: Япония, Toei Co. Ltd.Жанр: Боевик, драма, комедия, криминалРежиссер: Киндзи ФукасакуАктеры: Сэидзо Фукумото, Юрико Хисими, Мэико Кадзи, Рюдзи Катагири, Хидэо Мурота, Микио Нарита, Ко Нисимура, Бунта Сугавара, Асао Утида, Цунэхико ВатасэПеревод: Авторский (Александр Смиронов)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC8F1C0A2CB1EC1BB3447043F92B590B0E6B7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360849   (578713) от 09.07.2011
+
+[JAP] Пастораль. Умереть в деревне / Den-en ni shisu (1974) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578713.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пастораль» - это откровенная медитация на тему детства и взросления, диалог взрослого режиссера с самим собой в том возрасте, когда ему было 15 лет. Свободный полет фантазии, провокационный тон, богатство поэтических ассоциаций, интеллектуальная полемичность и заостренность в сочетании с жесткой оппозицией академизму; пристрастие к ярким визуальным и театральным эффектам, эротическая образность – все черты режиссерского стиля в полной мере проявились в этой работе.Жанр: ДрамаРежиссер: Сюдзи Тэраяма / Shuji TerayamaАктеры: Кантаро Суга / Kantarô Suga, Хироюки Такано / Hiroyuki Takano, Йошио Харада / Yoshio Harada, Масуми Харукава / Masumi HarukawaЯзык субтитров: РусскиеПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361336   (576963) от 10.07.2011
+
+Трон в крови / Kumonosu-jo (1957) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перемещение шекспировского Макбета в средневековую Японию. После грандиозной победы на поле брани, заблудившись в дремучем лесу, лорды Васидзу и Мики наталкиваются на загадочную вещую старуху, которая предсказывает великое будущее Васидзу, и еще более великое — потомкам Мики. Выбравшись из леса, они действительно получают вызов и почетные назначения от императора. Васидзу, подстрекаемый амбициозной женой, и задумывает пойти дальше предсказаний старой колдуньи, но судьба есть судьба…Жанр: Фэнтези, Боевик, ВоенныйРежиссер: Акира КуросаваАктеры: Тосиро Мифуне, Исудзу Ямада, Такаси Симура, Акира Кубо, Хироши Татикава, Минору Чиаки, Такамару Сасаки, Китидзиро Уэда, Эйко Миёси, Тиэко Нанива, Nakajiro Tomita, Ю Фудзики, Сатио Сакаи, Шин Отомо, Йошио Цучия, Сенкичи Омура, Ёсио Инаба, Takeo Obugawa, Акира Тани, Икио Савамура ...Перевод: Одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5CB5B330244A95A69BD389D18666EBED71A33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554725   (575571) от 31.05.2022
 
 Таксист / Taeksi unjeonsa / A Taxi Driver (2017) BDRip [H.264] [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575571.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573828.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573590.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568475.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568425.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568386.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_567138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_567138.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567023.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566316.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565602.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564580.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563001.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562534.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562366.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_560957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_560957.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560723.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_560229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560229.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558981.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558862.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557315.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556822.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556706.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554776.jpg" />
 </div>
 
 
@@ -594,86 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53FF27640398DC9BC5A492876A4512EE6BB3793B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045842   (553430) от 25.08.2016
-
-Келинка Сабина 2 (2016) WEB-DLRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй части всеми любимая келинка Сабина счастливо живёт в ауле Жугеры вместе со своей новой семьёй. Она открывает реабилитационный центр для келинок, новый кинотеатр под открытым небом, дайвинг-центр, спа-салон «Жугеры де-люкс» и даже кабинет психолога. Казалось бы ничто, даже появление загадочного симпатичного почтальона Мади, не сможет помешать семейному счастью (   Читать дальше...   )Производство: КазахстанЖанр: КомедияРежиссер: Нуртас АдамбайАктеры: Нуртас Адамбаев, Айнур Ильясова, Ерлан Касымжанулы, Карлыгаш Мухамеджанова, Есжан ХамидуллинПеревод: На всю казахскую речь вшиты русские субтитрыЯзык озвучки: Русский, казахскийЯзык субтитров: РусскийПродолжительность: 01:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D03AC74076F0AC2950D4CD7858932867ED2C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 426435   (552087) от 23.08.2014
-
-Полицейская история 2 / Police Story 2 / Ging chaat goo si 2 (1988) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552087.jpg" />
-</div>
-
-
-###  Подробнее
-
-На свободу выходит босс наркомафии Ку, но наркоторговля не остановлена, и первая его мысль после заключения — отомстить полицейскому Кевину Ченгу, упрятавшему его за решетку. Ку нанимает киллера, который, впрочем, явно не в себе...
-Тем временем группа изощренных террористов пугает население серией взрывов в людных местах и вымогает 10 миллионов долларов у одной торговой (   Читать дальше...   )Производство: Гонконг / Golden Way Films Ltd., Paragon Films Ltd.Жанр: Боевик, Триллер, Комедия, КриминалРежиссер: Джеки ЧанАктеры: Джеки Чан, Мэгги Чун, Квок-Хун Лам, Билл Тун, Бенни Лай, Джон Чунг, Чарли Чо, Юэнь Чор, Бен Лам, Чан Чи Фай СанниПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA930B61CE39E907C8AFBFA3C4E397CD798FC25D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237794   (549470) от 26.07.2018
-
-Операция в Красном море / Hong hai xing dong (2018) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549470.jpg" />
-</div>
-
-
-###  Подробнее
-
-События происходят в 2015 году, когда разворачивалась гражданская война в Йемене. История рассказывает о том, как китайские солдаты спасали судьбы тысяч.
-   Война просто стирает с лица земли все живое, она обесценивает жизни людей, делает их ничем. И вот против такого страшного отношения к людским судьбам восстают герои этой картины. Они не жалеют сил, самих себя, свое (   Читать дальше...   )Производство: Китай / Bona Film Group, P.L.A Navy Government TV Art Central of China, The, Star Dream Studio MediaЖанр: БоевикРежиссер: Данте ЛамАктеры: И Чжан, Джонни Хуан, Хай-Цин, Ду Цзян, Луся Цзян, Санаа Алауи, Инь Фан, Ван Юйтянь, Го Цзяхао, Генри Принц МакПеревод: Двухголосый закадровый, любительский (den904 и DeadSno)Субтитры: ОтсутствуютПродолжительность: 02:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADD41D52DBD7839916DF4FF8C7E047CACA5E570
 ```
 
 https://mybot314.ru/tekegram_catalog/

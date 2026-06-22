@@ -1,3 +1,110 @@
+###  Публикация: 1631207   (241129) от 04.05.2023
+
+Преподобный Макарий Оптинский | Душеполезные поучения преподобного Макария Оптинского (2016) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иеросхимонах Макарий – священнослужитель Русской православной церкви, преподобный Оптинский старец. С именем старца Макария связано начало издания в монастыре святоотеческих трудов, которое объединило вокруг обители лучшие духовные и интеллектуальные силы России. Под его духовным руководством находилась не только Оптина пустынь, но и многие другие монастыри, а письма (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC54ED0A063BDA69BC813179D465CC2E1D817C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120940   (241111) от 02.04.2017
+
+Митрополит Вениамин (Федченков) | Строй Православного Богослужения (2007) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очерк посвящён вопросу о строе нашего богослужения...
+Как известно, нужно отличать молитву от молитвословия: первое — в сердце, второе — в устах. И молитвословие ещё не есть молитва.
+
+Отсюда получаются несколько выводов.(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659AC6B7F73AA6B6317C1A6523596173CB78AD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636227   (241058) от 29.05.2023
+
+Святитель Иоанн Златоуст | Полное собрание творений в 12 томах (25 книгах) (2008) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя святителя Иоанна, получившего за свое красноречие прозвание Златоуст, подобно светилу блистает на страницах летописи Церкви. Вместе с несколькими святыми он почитается как вселенский учитель. Его учение просвещало вселенную, вдохновенное слово жгло сердца людей, а жизнь, исполненная трудов и испытаний, сделалась неистощимым источником назидания и укрепления для (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A710C6472932127BD119F7CBABAF5D37B029C786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462473   (241041) от 14.04.2021
+
+В.П. Филимонов | Святой преподобный Серафим Вырицкий и Русская Голгофа (2010) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга основана на собранных автором архивных, исторических и других официальных документах, свидетельствах потомков и духовных чад святого преподобного Серафима Вырицкого чудотворца. На основании этих достоверных и точных сведений Юбилейный Архиерейский Собор Русской Православной Церкви 2000 года принял решение о прославлении вырицкого подвижника в лике преподобных (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC91FEC5A888CE2A6A256DA49B31F4E16732EEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548282   (241028) от 02.05.2022
 
 Липецко-Елецкая Епархия | Святитель Тихон, епископ Воронежский, Задонский Чудотворец [Наставление о христианской жизни. Фотоальбом] [PDF, DJVU]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241028.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241027.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241017.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240976.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240943.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240867.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240838.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240822.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240820.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240816.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240707.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240587.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240563.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240550.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240542.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240508.jpg" />
 </div>
 
 
@@ -432,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240172.jpg" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240156.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239954.jpg" />
 </div>
 
 
@@ -514,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239883.jpg" />
 </div>
 
 
@@ -540,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239747.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239729.jpg" />
 </div>
 
 
@@ -577,110 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:411DF09748FB1746182485A209F9D04E3E4F7F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621986   (239428) от 27.03.2023
-
-Белорусский Экзархат (изд.) | Новый Заветъ [Новый Завет Господа нашего Иисуса Христа] (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евангелие. Новый Завет Господа нашего Иисуса Христа на церковнославянском языке.Жанр: Священное Писание. ПравославиеЯзык: ЦерковнославянскийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78F1179C8A87319F079810856D0A86513BC6D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474086   (239369) от 01.06.2021
-
-Филарет (изд.) | Канон и акафист великомученику Георгию Победоносцу (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святой Георгий Победоносец был ангелом и покровителем нескольких великих строителей русской государственности и русской военной мощи. Сын святого равноапостольного Владимира, Ярослав Мудрый, во святом крещении Георгий (†1054), много способствовал почитанию святого в Русской Церкви. Он построил город Юрьев, основал Юрьевский монастырь в Новгороде, воздвиг храм святого (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7332CEEACBBAF8637F720133EDDBC6FF50BE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622237   (239360) от 28.03.2023
-
-Епископ Аммон | О житии преподобных Пахомия Великого и Феодора Освященного (2002) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочинение епископа Аммона (IV в.) «Послание об образе жития и отчасти о жизни Пахомия и Феодора» – уникальный памятник святоотеческой литературы древнеегипетского монашества. По жанру он представляет собой нечто среднее между житием, похвальным словом и монашеской историей, сближаясь в этом отношении с такими известными произведениями, как «Житие св. Антония» свт. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C00DBF546A0304BFA3CFCA3C5E6A1CA5B96D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622232   (239250) от 28.03.2023
-
-Блаженный Феодорит Кирский | Десять Слов о Промысле (2014) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикуемое произведение известного представителя христианской Антиохийской школы V века, богослова, экзегета и церковного историка блаженного Феодорита, епископа Кирского (393–466), «Десять Слов о Промысле» носит апологетический характер. Блаженный отец обосновывает и защищает церковное учение о том, что Бог не только сотворил этот мир, но и управляет им, заботится (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3163915E8BEC029C4E073F8774DCAAA30282281D
 ```
 
 https://mybot314.ru/tekegram_catalog/

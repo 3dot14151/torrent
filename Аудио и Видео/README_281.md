@@ -1,54 +1,25 @@
-###  Публикация: 1516154   (167104) от 10.12.2021
+###  Публикация: 1782100   (26277) от 27.02.2025
 
-VA - Large Music Best of 2021 (2021) [AAC|~330 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demarkus Lewis - What You Feel (6:15)
-02. Karl Sierra - Ol' School Hustle (5:46)
-03. Jorn Johansen - First Night (Scott Diaz Remix) (6:45)
-04. Feint Young Son, Roland Clark - Protect Your Mind (6:44)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC9EA6D5DC9B34EF1FE0C498F21B88641E8CFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516138   (167096) от 10.12.2021
-
-VA - Caravan 3 (2020) [AAC|~321 Kbps] <Chill Out, Downtempo, Organic House, Ethnic>
+VA - 100 Hits Power Ballads (2016) [AAC|320 Kbps] <Classic Rock, Pop Rock, Vocal>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tolga Maktay - Meftun (7:14)
-02. Anis Karek - Il Mattino (5:31)
-03. T-Puse - Kesem (7:17)
-04. Sound Shapes - Chandra (6:59)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic House, EthnicПродолжительность: 01:56:43
+01. Boston - A Man I'll Never Be
+02. Cheap Trick - Mighty Wings
+03. Daryl Hall & John Oates - Out Of Touch
+04. Deacon Blue - The Hipsters(   Читать дальше...   )Жанр: Classic Rock, Pop Rock, VocalПродолжительность: 06:32:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41EE50EB424272EBD3996C850A87A7746E946933
+magnet:?xt=urn:btih:3A10D03FC5419DCB8F39E3E73591929E8C331939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516281   (167093) от 10.12.2021
+###  Публикация: 1782549   (25986) от 02.03.2025
 
-Racecorner - Radiostation (2021) [AAC|~365 Kbps] <Dub Techno, Deep Techno>
+Сергей Жарковский | Я, Хобо. Времена смерти (2025) [AAC, Роман Волков]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Getwiedel (5:51)
-02. Levia T (6:06)
-03. Frau Grainer (9:46)
-04. Fourtwenty (4:21)(   Читать дальше...   )Жанр: Dub Techno, Deep TechnoПродолжительность: 00:51:41
+…Они рождаются в генетических секвенсорах, пятнадцатилетними. Никто из них никогда не был на Земле. По приказу Императора они тянут в Глубокий Космос Трассу – Дистанция за Дистанцией, декапарсек за декапарсеком, от звезды к звезде, от одного зелёного мира к другому… У них нет выбора: цена Солнечной Визы – двадцать пять лет на Трассе. Скидка – только для мёртвых.Жанр: Научная фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 23:14:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCD64FBAFA72718A0443D66DE0DE7EDC23838760
+magnet:?xt=urn:btih:A385C65711807217471A9D1070FE58489F5EE7B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,649 +53,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516140   (167088) от 10.12.2021
+###  Публикация: 1431010   (19084) от 07.05.2025
 
-VA - Defected Presents Most Rated 2021 (2020) [AAC|~322 Kbps] <House, Nu Disco>
+Артур Конан Дойл | Шерлок Холмс и доктор Ватсон (2020) [M4B|AAC]
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. John Summit - Deep End (Extended Mix) (6:23)
-02. Meduza, Shells - Born To Love (Extended Mix) (6:09)
-03. Endor - Pump It Up (Jax Jones Midnight Snacks Extended Remix) (5:28)
-04. Louie Vega, The Martinez Brothers, Marc E. Bassy - Let It Go (Extended Mix) (7:39)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 06:11:07
+Безусловно, все знают кто такой Шерлок Холмс и чем он знаменит. Его имя говорит само за себя. Благодаря своему методу  раскрытия преступлений, Шерлок Холмс известен на всю Англию. Да и не только Англию, нет в мире человека, который бы не слышал об этом сыщике!
+Шерлок Холмс расследует огромное количество дел, но не все они могут быть в общедоступной печати. Но с течением (   Читать дальше...   )Жанр: ДетективИздательство: Своими рукамиФормат: M4BПродолжительность: 78:29:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87021E3A19FE92C8B1CC5D3C557FBAA63D1D5B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516141   (167084) от 10.12.2021
-
-VA - Defected Presents Most Rated Summer 2021 (2021) [AAC|~318 Kbps] <House, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louie Vega, The Martinez Brothers, Marc E. Bassy - Let It Go (Dom Dolla Extended Remix) (6:12)
-02. John Summit - Deep End (SIDEPIECE Extended Remix) (4:25)
-03. Boys Noize, Jake Shears - All I Want (Purple Disco Machine Extended Remix) (8:08)
-04. Dennis Ferrer, DISCIPLΞS, James Yuill - Whisper (Extended Mix) (5:55)(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 05:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEBDD2EB9B0B491539A3B918C641D2899043664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345372   (167079) от 14.12.2019
-
-Шестеро вне закона / 6 Underground (2019) WEBRip [576p] iPad
-
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть миллиардеров фальсифицируют собственные смерти и создают отряд мстителей, чтобы самостоятельно вершить правосудие.Производство: США / Bay Films, Skydance MediaЖанр: Боевик, триллерРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63E162AD38929C286222ECB99EE7E9B05868ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516205   (167071) от 10.12.2021
-
-VA - Jazz & Soul: Urban Chillout Music (2021) [AAC|~305 Kbps] <Chill Out, Nu Jazz, Chill Hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digby Jones - Vibeotis (Original Mix) (3:23)
-02. Patiotic - Lohip Fihop (1:57)
-03. Roberto Bronco - Come Together (Original Mix) (4:47)
-04. Living Room - Little Summer (Boom Bap Bossa) (3:17)(   Читать дальше...   )Жанр: Chill Out, Nu Jazz, Chill HopПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB39E78007681FA7688A2027C9CF6B2F34B165F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516289   (167067) от 10.12.2021
-
-VA - A Strangely Isolated Place | 2021 (mixed by todos) (2021) [AAC|~304 Kbps] <Ambient, IDM, Drone>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Guentner - Cortical Column (7:20)
-02. One Million Eyes - Arsenale (6:26)
-03. Earth House Hold - Hidden Gardens, Hazy Gods (10:02)
-04. James Bernard - Seasons (4:55)(   Читать дальше...   )Жанр: Ambient, IDM, DroneПродолжительность: 02:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C96A96562B6979901336180AC8830E22420DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516269   (167049) от 10.12.2021
-
-VA - Balkan Connection: Winter 2021 (2021) [AAC|~334 Kbps] <Progressive House, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael A - Returnal (Nicholas Van Orton Remix) (8:47)
-02. Martin Cozar, Rod Notario - Night Before (NOIYSE PROJECT Remix) (8:24)
-03. L Georges - Euphoria (EMPHI Remix) (6:59)
-04. Martin Cozar, Rod Notario - Night Before (Fabri Lopez Remix) (8:32)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 08:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6245B83A2F643BAE8648EAA6FF11730149796B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516295   (167044) от 10.12.2021
-
-VA - FROZEN ORANGE (2021) [AAC|~314 Kbps] <Dub Techno, Deep House, Deep Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DubRiders - Kiseonik (7:23)
-02. Ignacio Tardieu - Basic003 (7:03)
-03. Giacomo Pellegrino - 005.VA (6:02)
-04. Matt Schulz - Echolot (6:42)(   Читать дальше...   )Жанр: Dub Techno, Deep House, Deep TechnoПродолжительность: 02:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D98ABBB913716E2D57BEBF0EAA1C99238A4AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516208   (167037) от 10.12.2021
-
-VA - Bar 25 Music: Selektion 2021 (2021) [AAC|~321 Kbps] <Deep House, Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Althoff, Tom Southey - Young Old Soul (6:10)
-02. Bondi, Roth - Resize (Alar & Korolova Remix) (7:54)
-03. Theo Meier - Adriatic Nights (5:31)
-04. AIWASKA, Robert Owens - Other Side (7:40)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E79AA6A2DADD74CA5AD552855946A6FB0F4449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516316   (167031) от 10.12.2021
-
-VA - Maretimo Late Night Grooves, Vol.1 - Cosmopolitan Lounge Music (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz City - The Jazz Cafe (Sun Day Mix) (5:53)
-02. Vladi Strecker - Listen (The Easy Listening Remastered Cut) (7:17)
-03. Jazzy James Jr. - Virtual Reality (Lazy Afternoon Cut) (4:57)
-04. Cafe Americaine - 5 in the Morning (Coffee Smile Mix) (5:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B031201E15B74C2E3D81B5E692F7EE4D096F89A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516143   (167004) от 10.12.2021
-
-VA - Armada Music 2022 (2021) [AAC|~322 Kbps] <House, Deep House, Dance, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinlicker, Helsloot - Because You Move Me (3:16)
-02. Kidnap, Leo Stannard - Moments (Ben Böhmer & Nils Hoffmann Remix) (4:10)
-03. Loud Luxury, Thutmose - Red Handed (2:51)
-04. Armin van Buuren, Davina Michelle - Hold On (3:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, TranceПродолжительность: 03:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFF709DF50FFDE2379BD08EC030D2A8EC1342DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516299   (166991) от 10.12.2021
-
-VA - FROZEN Yellow (2021) [AAC|~300 Kbps] <Dub Techno, Deep House, Deep Techno>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignacio Tardieu - BASIC002 (6:48)
-02. Kyrro - Regeneration (7:08)
-03. Lotech/Hijack - further out (7:49)
-04. Ajnkana - Monoject (Hypno Dub Edit) (7:34)(   Читать дальше...   )Жанр: Dub Techno, Deep House, Deep TechnoПродолжительность: 02:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8055969E7F4CF861CB495699C25B19828BB8178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516314   (166981) от 10.12.2021
-
-Alicia Keys - KEYS (2021) [AAC|~298 Kbps] <Soul, R&B, Pop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166981.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Alicia Keys, Pusha T - Plentiful (Originals) (3:09)
-1.02. Skydive (Originals) (3:04)
-1.03. Best Of Me (Originals) (3:59)
-1.04. Dead End Road (Originals) (3:32)(   Читать дальше...   )Жанр: Soul, R&B, PopПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94EFABD0879F5BA81E9C127E585C3D385147CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345228   (166970) от 14.12.2019
-
-Шестеро вне закона / 6 Underground (2019) WEBRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть миллиардеров фальсифицируют собственные смерти и создают отряд мстителей, чтобы самостоятельно вершить правосудие.Производство: США / Bay Films, Skydance MediaЖанр: Боевик, триллерРежиссер: Майкл БэйАктеры: Райан Рейнольдс, Мелани Лоран, Мануэль Рульфо, Бен Харди, Адриа Архона, Дэйв Франко, Кори Хоукинс, Лайор Раз, Пейман Моаади, Юрий КолокольниковПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB60A6D6D9A2FE31BEACD31B2AD1CE472C7BAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516247   (166891) от 10.12.2021
-
-Галлиполи / Gallipoli (1981) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166891.jpg" />
-</div>
-
-
-###  Подробнее
-
-1915 год. Два романтически настроенных молодых человека вступают в ряды австралийских вооруженных сил. После ускоренной подготовки в «учебке», затерянной в песках близ древнеегипетских пирамид, приятелей отправляют в полк, который ведет боевые действия против турецкой армии.
-Друзья еще не знают, что им предстоит принять участие в битве при Галлиполи - одном из самых (   Читать дальше...   )Производство: Австралия / R & R Films, The Australian Film CommissionЖанр: драма, приключения, военный, историяРежиссер: Питер УирАктеры: Мэл Гибсон, Марк Ли, Билл Керр, Харольд Хопкинс, Чарльз Латалу Юнипингу, Хит Харрис, Рон Грэхэм, Герда Николсон, Роберт Грубб, Тим МакКензиПеревод: Профессиональный двухголосыйСубтитры: русские, английскиеПродолжительность: 01:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FBE3185CACDF2152F7CCB97261E4D7417E24A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516253   (166792) от 10.12.2021
-
-Венецианский купец / The Merchant of Venice (2004) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Венеции. Жизнерадостные, беспечные, щедрые венецианцы недолюбливают и высмеивают угрюмого иноверца Шейлока, алчного ростовщика, считающего каждую копейку. Шейлок отвечает им лютой ненавистью. Конфликт обостряется, кровопролитие кажется неминуемым. Но тут вмешивается созидающая сила женской любви.Производство: Великобритания, Люксембург, Италия / 39 McLaren St. Sydney, Avenue Pictures, Dania Film, Delux Productions, Film Fund LuxembourgЖанр: драма, мелодрамаРежиссер: Майкл РэдфордАктеры: Аль Пачино, Джереми Айронс, Джозеф Файнс, Линн Коллинс, Зулейха Робинсон, Крис Маршалл, Чарли Кокс, Хезер Голденхерш, Макензи Крук, Джон СешнсПеревод: Профессиональный двухголосыйСубтитры: русские, английскиеПродолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C75BE9429285931C5C6EFCA256C81EC713CBD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516217   (166515) от 10.12.2021
-
-Королевская игра / Schachnovelle (2021) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вена, 1938 год. Юрист Йозеф Барток вместе с женой собирается покинуть оккупированную нацистами Австрию, но его арестовывает гестапо. От Бартока требуют выдать конфиденциальную информацию о клиентах, а после отказа помещают в одиночное заключение и полностью лишают связи с внешним миром. Но однажды Йозефу удается украсть у своих тюремщиков книгу о шахматах. Она становится (   Читать дальше...   )Производство: Германия, Австрия / Walker Worm Film, ARD Degeto Film, Bayerischer Rundfunk (BR)Жанр: драма, триллерРежиссер: Филипп ШтёльцльАктеры: Оливер Мазуччи, Альбрехт Шух, Биргит Минихмайр, Рольф Лассгор, Андреас Луст, Самуэль Финци, Лукас Мико, Клеменс Берндорфф, Герхард Фледль, Луиза-Селин ГаффронПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02A2C6B1F17560B609955017749BE5BB37A38B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516388   (166276) от 11.12.2021
-
-VA - Mystical Frequencies (2021) [AAC|~328 Kbps] <Psy-Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twelve Sessions - Reborn (Original Mix) (6:42)
-02. Lunatica, Hypatia - Brain Sequences (Original Mix) (7:40)
-03. Zephirus Kane - Synchronicity (Original Mix) (7:17)
-04. Redrosid - Energetic State (Original Mix) (7:38)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9AA5805516709F616270359A737B2A6264F034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516390   (166267) от 11.12.2021
-
-VA - Chill Out Perfection, Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Seasons - From A Friend (4:10)
-02. Weathertunes - Morning Sun (4:32)
-03. Marc Hartman - The End (5:33)
-04. Steen Thottrup - You Are (2:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D677AAE8DE5A3D7A677D38F754956FB8E231A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345667   (165609) от 16.12.2019
-
-Злодеи / Villains (2019) WEB-DL [1080p] ATV (AVO)
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара грабителей Микки и Джули проникает в уединенный загородный дом. Его владельцы оказываются тайными садистами, которые держат в подвале маленькую пленницу, и они пойдут на всё, лишь бы их секрет оставался сокрытым за стенами дома. Грабителям не повезло.Производство: США / BRON Studios, Star Thrower Entertainment, Creative Wealth Media FinanceЖанр: Ужасы, триллер, драма, комедияРежиссер: Дэн Берк, Роберт ОльсенАктеры: Билл Скарсгард, Майка Монро, Джеффри Донован, Кира Седжвик, Блейк Баумгартнер, Ной Роббинс, Дэнни ДжонсонПеревод: Авторский одноголосый (BadBajo)Субтитры: Английские (SDH)Продолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EE57EA0812FE1B6AD2D3E56BE78762DA8E7A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516630   (165516) от 12.12.2021
-
-VA - Nature Lovers (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prandtl - Dissolved Rage (6:08)
-02. Mono tuned - Sizzling Hot (6:31)
-03. Vostok Divers - A Slight Vestige (5:57)
-04. Random Classes - Sancerre Mode (5:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0FABF4DA29BE1AD6E8123AE22B7547876DC83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516627   (165506) от 12.12.2021
-
-VA - Chill out Mood, Vol. 3 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystal Morgan - Do It (Original Mix) (5:56)
-02. Sangre De La Tierra - El Sueno Del Mar (Original Mix) (5:00)
-03. Luis Hermandez - Mi Amor (Original Mix) (3:36)
-04. C.A.V.O.K. - Secret Vale (Original Mix) (4:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F36030B754137C2D8142D01DF9E1BAEC887E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516628   (165490) от 12.12.2021
-
-VA - Chill out Mood, Vol. 4 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Shadow - Intro (Original Mix) (1:05)
-02. Derrick - Just to Be (Original Mix) (4:33)
-03. JEN, Razoof - Two Halves of a Whole (Manes Dub) (4:32)
-04. Zen K., Revena - Spirit of Ashram (Original Mix) (3:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EB06CB0DF6C8F8B685036BED3C2A471559F067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516631   (165486) от 12.12.2021
-
-VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamar Ensemble - Rate the Jam! (5:47)
-02. The third floor - 1000 Books (5:39)
-03. Azeotrop - Chilly Beach (5:44)
-04. Pflichta - Alpine Gentian (6:13)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8AEDCA1F31D74BF82E388676453730204F39FE
+magnet:?xt=urn:btih:B3EB7760867A4D798308F85DBBE331C5EE070D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

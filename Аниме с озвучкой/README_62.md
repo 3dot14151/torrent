@@ -1,3 +1,82 @@
+###  Публикация: 1705773   (37805) от 09.11.2024
+
+Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Мастер на все руки Сайто в другом мире [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую трансмигрировавший герой обнаруживает в себе новые потрясающие навыки и способности, которые получил в процессе перемещения. Это совершенно не тот случай. Обычный парень Сайто, который занимался тем, что выполнял мелкий ремонт и другие небольшие поручения, перенесясь в другой мир, обнаружил, что, как был обычным человеком, так и остался. Никакой магии или (   Читать дальше...   )Производство: C2CЖанр: комедия, фэнтезиРежиссер: Кубоока ТосиюкиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB6B9C8590B40F27D3924158E8601EFB9E0D3A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759606   (37791) от 09.11.2024
+
+Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Истребитель демонов: Тренировка столпов [2024, TV, 8 из 8] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инцидент в Деревне кузнецов завершился, и его последствия могут оказаться судьбоносными для Японии. Собравшись на срочное совещание, столпы, обсудив текущую ситуацию, приходят к заключению, что нынешние охотники на демонов слишком слабы, чтобы оказывать достойное сопротивление Молодым лунам. Такое положение дел чревато большими человеческими потерями и может поставить (   Читать дальше...   )Производство: UfotableЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоЯзык озвучки: Японский, русский (Studio Band, FlarrowFilms, Jaskier, AniLibria, TVShows)Субтитры: Английские, Русские (Crunchyroll, YakuSub Studio)Продолжительность: 1 эп. на 49 мин. ;
+2-6 эп. по 25 мин. ; 7 эп. на 30 мин. ; 8 эп. на 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8066EA62A6B04C58484EAB53377F567F44237004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759570   (37477) от 12.11.2024
+
+Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | Моя любовь к Ямаде 999 уровня [2023, TV, 13 из 13] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аканэ стала играть в онлайн-игру ради своего парня. Но через некоторое время он её бросил, познакомившись в игре с другой. Пытаясь хоть как-то восстановить уязвлённое достоинство, Аканэ отправляется на фестиваль, чтобы ещё раз напомнить бывшему, что он потерял. Однако неожиданно для себя она встречает согильдийца, оказавшегося холодным красавчиком.Производство: MadhouseЖанр: комедия, романтика, повседневностьРежиссер: Асака МориоЯзык озвучки: Японский, русский (AniLibria)Субтитры: Английские, Русские (Crunchyroll)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC03ED23E4115C8F36B66E47492213B2027E69D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700139   (37125) от 16.11.2024
 
 Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармацевта [2023, TV, 24 из 24] BDRip 1080p raw+rus
@@ -6,7 +85,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37125.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37100.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37030.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36540.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ Inazuma Eleven | Одиннадцать Молний [2008, TV, 127 эп.] WEB-D
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36299.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36158.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36074.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35973.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35964.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ Grand Blue | Необъятный океан [ТВ-1] [2018, TV, 12 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35658.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35635.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35621.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35542.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ Shinigami Bocchan to Kuro Maid 2 | The Duke of Death and His Maid 2 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35536.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34660.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ Mirai Shounen Conan | Future Boy Conan | Conan, The Boy in Future | Конан -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34523.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ Ginga e Kickoff! | Victory Kickoff! | Вперед, ко вселенной! [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34119.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34051.jpg" />
 </div>
 
 
@@ -479,7 +558,7 @@ Gekijouban Inazuma Eleven: Saikyou Gundan Ogre Shuurai | Inazuma Eleven the Movi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34014.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Князь Тьмы: Retry! R [ТВ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33919.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Gekijouban Inazuma Eleven Go vs Danbooru Senki W | Inazuma Eleven GO vs Danball 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33884.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ Gekijouban Inazuma Eleven Go: Kyuukyoku no Kizuna Gryphon | Inazuma Eleven GO th
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33883.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ Inazuma Eleven: Chou Jigen Dream Match | Одиннадцать молний: М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33854.jpg" />
 </div>
 
 
@@ -595,86 +674,6 @@ Inazuma Eleven: Chou Jigen Dream Match | Одиннадцать молний: М
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0EA9D7E21C1BD9A51AAD5E6D4B23DBAC9498B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754521   (33643) от 20.12.2024
-
-Если бы моя жена стала младшеклассницей | Tsuma, Shougakusei ni Naru. | If My Wife Becomes an Elementary School Student. [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что время лечит, но для Кэйскэ Ниджимы это лишь пустые слова. Уже прошло десять лет со смерти его жены, но утешение к нему так и не пришло.
-В тот момент, когда её не стало, жизнь Кэйскэ полностью потеряла свои краски. Он разучился радоваться, разучился переживать, да и вообще испытывать хоть какие-то эмоции. Окружающая жизнь совсем перестала его волновать. (   Читать дальше...   )Производство: Япония / Студия Studio SignpostЖанр: Драма, повседневность, романтикаРежиссер: Абэ НориюкиЯзык озвучки: Русский (AniLibria), (AniBaza), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A9D511177424855DC448F833BCFAED6FDFBBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753821   (33510) от 21.12.2024
-
-Sayounara Ryuusei, Konnichiwa Jinsei | Goodbye, Dragon Life | Прoщaй, жизнь дрaкoнa [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно человек убил древнейшего божественного дракона. Благородное существо приняло свою гибель, но переродилось человеком по имени Долан, жителем маленькой деревушки. Гуляя по полям очередным спокойным днём, он встречает ламию Селину, которая ищет себе мужа. Странная парочка становится друзьями, но их союзу угрожают опасные повороты судьбы.Производство: Япония, студия SynergySPЖанр: приключения, фэнтезиРежиссер: Нисида КэнъитиЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3EE82F01C9D200ED84F2979405F727A3B9AE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754393   (33397) от 22.12.2024
-
-Мастера меча онлайн: Альтернативная Призрачная пуля II | Sword Art Online Alternative: Gun Gale Online II [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33397.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Боевые лоли с пушками снова в деле! Карен, в мире Призрачной Пули больше известная как ""Розовый Демон"", добилась уже многих своих хотелок: от комплексов избавилась (почти), лучшую подругу в игру затащила, ""Схватку Отрядов"" с ней выиграла, даже жизнь пары своих друзей спасла, причём в обеих реальностях...
-Остаётся (   Читать дальше...   )Производство: Япония / Студия A-1 Pictures, MarcoЖанр: Приключения, фантастикаРежиссер: Сакой МасаюкиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CD058D45D5EAA8E6FAA393E35006289145388C
 ```
 
 https://mybot314.ru/tekegram_catalog/

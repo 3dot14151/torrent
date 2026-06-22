@@ -1,3 +1,55 @@
+###  Публикация: 1772553   (12481) от 05.07.2025
+
+Ship of Fools (2022) [Ru/Multi] (1.5.2.613fe2f3/dlc) Repack Let'sРlay [Aquapocalypse Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ship of Fools — это кооперативное морское приключение в жанре «околорогалик», играть в котором предстоит за Глупцов, единственных существ, которым хватает глупости странствовать по морям. Великий маяк разрушен, и Архипелаг остался беззащитным перед грядущей бурей губительных сил. Вам с командой предстоит бороздить морские просторы на борту корабля Stormstrider. Заряжайте (   Читать дальше...   )Тип издания: RepackРазработчик: Fika ProductionsЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE9A76E52538D82173CE0C58FF11C8236A55024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782170   (12380) от 06.07.2025
+
+Spiritfall (2024) [Ru/Multi] (1.6.27) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бейте, крушите, отбрасывайте и ударяйте о стены толпы врагов с помощью изменчивого арсенала божественных сил. Spiritfall объединяет в себе бои в жанре Platform Fighter, непрерывное движение и механики Roguelite! Исследуйте опасные земли, совершайте смертоносные комбо, отбиваясь от полчищ врагов, и используйте постоянно меняющийся набор сил, продвигаясь по карте, (   Читать дальше...   )Тип издания: RepackРазработчик: Gentle GiantЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF8C531FB9EA9FA942DA15539CF846A7DFC32B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704420   (12211) от 08.07.2025
 
 Spiritfall (2024) [Ru/Multi] (1.6.27) Repack FitGirl
@@ -6,7 +58,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12211.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11265.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Loophole (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10965.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Xeno Rangers (2025) [Ru/Multi] (1.0.19B) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10930.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10710.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Through the Nightmares (2025) [Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9885.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9662.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9653.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ NINJA GAIDEN: Ragebound (2025) [Ru/Multi] (CS36158) Repack FitGirl [Soundtrack E
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9556.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36158) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9437.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Choo Choo Survivor (2023) [Ru/Multi] (Build 18689660) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8528.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Eridani Survivors (2025) [Multi] (12.08.2025) Repack AIexandro
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7751.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (2.3) License GOG [Director’s 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7569.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36928) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7319.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Twilight Monk (2025) [Ru/Multi] (1.4.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6719.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Bleeding Deities (2025) [En] (1.0.7) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6559.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6217.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Shadow Labyrinth (2025) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5782.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs37290) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5730.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Space Adventure Cobra - The Awakening (2025) [Multi] (0.01.35/dlc) Repack Let's�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5620.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5519.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Primal Planet (2025) [Ru/Multi] (Avgust 25th 2025 v1) Repack Let'sРlay [Dino Su
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5458.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Dragon Is Dead (2024) [Multi] (1.0783) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5311.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Residual (2021) [Ru/Multi] (1.3.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5281.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Residual – это платформер с элементами симулят�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC33154CE0BDC1416B76D305FCB4D6D33618D66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815530   (5249) от 30.08.2025
-
-Panzer Knights (2020) [Ru/Multi] (1.1.7/dlc) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы не будем вам лгать: эти кампании непростые. Война не за горами, и вы, среди всех ваших товарищей, были выбраны для поступления в Panzertruppenschule I. Армии требуется больше элитных командиров танков, «Стальных рыцарей», чтобы привести нас к победе, используя самую доминирующую форму войны: танки. . Есть ли у вас что требуется, чтобы вступить в ряды элиты? Готовы (   Читать дальше...   )Тип издания: RepackРазработчик: 樂磚Joy BrickЖанр: Экшены, ИндиЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880D9974EA927536381513BECF2A8D92562FD584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764116   (5058) от 31.08.2025
-
-Astral Ascent (2023) [Ru/Multi] (2.2.3/dlc) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Astral Ascent — это 2D платформер и упрощённый рогалик, действие которого разворачивается в фэнтезийной реальности в наше время. Четыре героя с уникальными характерами пытаются сбежать из Сада, астральной тюрьмы, которую охраняют 12 богоподобных и коварных Зодиака. Заручитесь помощью верных друзей и попытайтесь сбежать, сразившись с тюремщиками в неравном бою.Тип издания: RepackРазработчик: Hibernian WorkshopЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0491F2D692655576672CAA10B820B9F3FEA1DD30
 ```
 
 https://mybot314.ru/tekegram_catalog/

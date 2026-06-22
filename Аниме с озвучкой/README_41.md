@@ -1,3 +1,83 @@
+###  Публикация: 1342163   (224357) от 01.12.2019
+
+Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (компиляция) [2019, Movie, 02 из 02] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданный в Бездне: рассвет путешествия : Бездна — загадочное и смертельно опасное место, которое привлекает всевозможных искателей приключений. Рико — дочь знаменитой исследовательницы Бездны и мечтает пойти по стопам своей матери. Однажды она находит Рега — потерявшего память работа. Вместе они решают бросить вызов глубинам Бездны, чтобы найти мать Рико…
+
+Созданный (   Читать дальше...   )Производство: студия Cinema Citrus / キネマシトラスЖанр: приключенияРежиссер: Кодзима МасаюкиЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 225 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFCD7894298AF6996F547F46B3734340B32C204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342250   (224347) от 01.12.2019
+
+Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение аниме-сериалаПроизводство: Madhouse Studios, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Ито НаоюкиОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 25 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3358F16EF95C0B7D1DBED2CE55939D1A4D3D3E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342252   (224336) от 01.12.2019
+
+Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная онлайн-игра «Иггдрасиль» неожиданно закрывается. Желая остаться в любимом мире подольше, игрок, управляющий персонажем по имени Момонга, решает оставаться в игре до полного отключения серверов. Момонга — лич, глава одной из топовых гильдий, представляющих в игре «тёмную» сторону. В момент отключения сервера он собрал всех своих прислужников в главном (   Читать дальше...   )Производство: MadHouse Studios, ЯпонияЖанр: Приключения, Фэнтези, Сверхъестественное, ЭкшенРежиссер: Ито НаоюкиОзвучка: Многоголосая закадроваяЯзык озвучки: Японский и РусскийСубтитры: Надписи, ПолныеЯзык субтитров: РусскийПродолжительность: 13 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A2957460C6218F823C095CF94138B0A25DB9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503019   (224320) от 28.11.2021
 
 Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истребитель демонов: Поезд «Бесконечный» [ТВ] [2021, TV, 7 из 7] WEBRip 1080p raw+rus
@@ -6,7 +86,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224320.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222937.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221867.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221866.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221831.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ Hadashi no Gen / Barefoot Gen / Босоногий Ген (1983) raw rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221456.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_220797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220797.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217165.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ Drifters | Скитальцы [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216394.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213267.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ Gekijouban One Piece: Stampede | Ван-Пис: Фильм четырнадца�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213259.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213200.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ One Piece: Heart of Gold | Ван-Пис: Золотое сердце [2016, Spe
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213164.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ Anne no Nikki | The Diary of Anne Frank | Дневник Анны Франк [19
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213163.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ One Piece Film: Gold | Ван-Пис: Фильм тринадцатый [2016, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213125.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213070.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213002.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212985.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ Spriggan | Спригган [2022, Web, 06 эп.] WEB-DL 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212981.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212926.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212770.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212675.jpg" />
 </div>
 
 
@@ -597,7 +677,7 @@ Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212543.jpg" />
 </div>
 
 
@@ -608,84 +688,6 @@ Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7BFC1BE4E3C835B01A33C1029EF4C8C9BD036C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563631   (212542) от 15.07.2022
-
-Дворянство | Noblesse [2020, TV, 13 из 13] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэйзел, носящий титул Благородного, чистокровный дворянин и защитник знати, просыпается от своего 820-ти летнего сна. Чтобы защитить Рэйзела, его слуга Франкенштейн берёт Благородного в свою старшую школу Е-Ран, где Рэйзел познаёт жизнь обычных людей. Однако Союз, таинственная организация, заправляющая всем миром, при помощи модифицированный людей заставляет Рэйзела (   Читать дальше...   )Производство: Япония / Студия Production I.GЖанр: Приключения, фэнтезиРежиссер: Тада СюнсукэЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE83B9CD1857F34C8BE63BA69D5E40E4A9F4AE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563638   (212532) от 15.07.2022
-
-Goku Midnight Eye | Гоку: Полуночный глаз [1989, OVA] DVDRip 576p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212532.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 год.Гоку большую часть своей жизни проработал полицейским, но был вынужден стать частным сыщиком. И вот наш герой ввязался в очень опасное дело. Он узнал информацию, которая не была предназначена для посторонних. Ему пришлось бежать от преследователей и в результате он оказался похороненным под водой. Но голос из ниоткуда сказал Гоку, что он не умер. Также голос (   Читать дальше...   )Производство: Япония / Madhouse Toei AnimationЖанр: аниме, мультфильм, фантастика, триллерРежиссер: Ёсиаки КавадзириЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый Любительский)Субтитры: ОтсутствуютПродолжительность: 49 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3726ADAE8F6299FD9EA971C7CBB62AFD23BF9B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564057   (212450) от 17.07.2022
-
-Goku II: Midnight Eye | Гоку 2: Полуночный глаз [1989, OVA] DVDRip 576p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212450.jpg" />
-</div>
-
-
-###  Подробнее
-
-У частного детектива Гоку Фуриндзи новое дело. Он берётся помочь таинственной женщине Рёко Кадома найти и спасти её брата Рю, ставшего объектом военного эксперимента по созданию нового оружия. Последствием экспериментального вмешательства стала практически полная потеря человеческой сущности Рю..Производство: Япония / Madhouse Toei AnimationЖанр: аниме, мультфильм, фантастика, триллерРежиссер: Ёсиаки КавадзириЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый Любительский, стиль видеосалонов 90-х)Субтитры: ОтсутствуютПродолжительность: 52 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F8FD390F299CBBF0CAD2051C29C7DA75D8EDB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

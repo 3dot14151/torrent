@@ -1,3 +1,61 @@
+###  Публикация: 1158191   (495418) от 14.08.2017
+
+Hinder - The Reign (2017) [MP3|320 Kbps] <Hard Rock, Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Reign
+02. Burn It Down
+03. King Of The Letdown
+04. Remember Me(   Читать дальше...   )Жанр: Hard Rock, Alternative Rock, Post-GrungeПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FF6370F193D48494649A616CBB282397318303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565356   (494908) от 23.07.2022
+
+Harlequin's Kiss - We've Been Expecting You (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insane 04:03
+02. Tonight 03:41
+03. The Soldier And The Spider's Web 03:29
+04. Are You Gonna Come Out? 04:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1AC782003E825536661DA2278BC84A65DB7B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565227   (494903) от 23.07.2022
 
 Balls Gone Wild - Stay Wild (2022) [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +64,7 @@ Balls Gone Wild - Stay Wild (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494903.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ The Bateleurs - The Sun in the Tenth House (2022) [MP3|320 Kbps] <Hard Blues Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494897.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Great White - 41 Albums (1982-2012) Дискография [MP3|192 - 320 кб/�
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492989.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ Mad Max - Stormchild Rising (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489399.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Niva - Magnitude (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487825.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ Ian Gillan - Chercazoo & Other Stories (1972) [MP3|192 кб/с]<Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487553.jpg" />
 </div>
 
 
@@ -189,7 +247,7 @@ VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/�
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486767.jpg" />
 </div>
 
 
@@ -224,7 +282,7 @@ Furious Zoo - Back To Blues Rock (2014) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485888.jpg" />
 </div>
 
 
@@ -253,7 +311,7 @@ Tony Mitchell - Church Of A Restless Soul (2020) [MP3|320 Kbps] <Melodic Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485604.jpg" />
 </div>
 
 
@@ -282,7 +340,7 @@ Unruly Child - Big Blue World (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484717.jpg" />
 </div>
 
 
@@ -311,7 +369,7 @@ Oceans of Noise (feat. Sertab Erener) - Oceans of Noise (2018) EP [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484089.jpg" />
 </div>
 
 
@@ -332,6 +390,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384716   (483054) от 06.09.2011
+
+Riverdogs - 4 Albums (1988-1993) [MP3|320 kbps]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_483054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Can't Have You (4:29)
+2. The Man Is Me (4:02)
+3. Toy Soldier (3:40)
+4. Little Hurricane (4:07)
+5. Rainig All Over (4:51)
+6. Sweet Mystery (3:54)
+7. If Love Is The Truth (5:16)
+8. Whisper (5:01)
+9. Eight Questions (4:42)
+10. I Believe (4:33)(   Читать дальше...   )1988-1993Жанр: Hard RockПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938375   (481947) от 18.09.2015
 
 Chemia - Let Me (2015) [MP3|320 кб/с]<Hard Rock>
@@ -340,7 +433,7 @@ Chemia - Let Me (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481947.jpg" />
 </div>
 
 
@@ -369,7 +462,7 @@ Seven - Shattered (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481889.jpg" />
 </div>
 
 
@@ -398,7 +491,7 @@ Stranded by Choice - Lost by Design (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481483.jpg" />
 </div>
 
 
@@ -427,7 +520,7 @@ Grumpynators - Still Alive (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481351.jpg" />
 </div>
 
 
@@ -456,7 +549,7 @@ Deep Purple - Live In Copenhagen (1972) Reissue, Remastered, 2013, 2xCD [MP3|320
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481097.jpg" />
 </div>
 
 
@@ -485,7 +578,7 @@ Black Oak County - Black Oak County (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480049.jpg" />
 </div>
 
 
@@ -514,7 +607,7 @@ Deep Purple - Live On The BBC (2004) SACD Version [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478966.jpg" />
 </div>
 
 
@@ -543,7 +636,7 @@ Slowbone - Tales Of A Crooked Man (1972-74) (1992) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478858.jpg" />
 </div>
 
 
@@ -578,7 +671,7 @@ Tanna - Storm in Paradise (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477480.jpg" />
 </div>
 
 
@@ -607,7 +700,7 @@ Empire - 4 Albums (2001-2007) [MP3|320 kbps]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_476584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_476584.jpg" />
 </div>
 
 
@@ -642,7 +735,7 @@ Bullet - Full Pull (2012) [MP3|320 кб/с]<Hard N' Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476469.jpg" />
 </div>
 
 
@@ -677,7 +770,7 @@ Martina Edoff - Unity (2015) [MP3|320 кб/с]<Melodic Hard Rock / Melodic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475600.jpg" />
 </div>
 
 
@@ -691,99 +784,6 @@ Martina Edoff - Unity (2015) [MP3|320 кб/с]<Melodic Hard Rock / Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:270260B4029E41C0D992167B4FA9C650605BEA65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385458   (474297) от 10.09.2011
-
-Mother's Army - 3 Albums (1993-1998) [MP3|320 kbps]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_474297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. NDE (5:50)
-2. Way Of The World (4:14)
-3. A Day In The World (4:01)
-4. Fire On The Moon (3:57)
-5. Do What I Like (3:18)
-6. Common Ground (5:48)
-7. No Religion (4:00)
-8. Moruroa Atoll (4:08)
-9. The Code (4:39)
-10. The Lonely (5:55)(   Читать дальше...   )1993-1998Жанр: Hard RockПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406563   (473067) от 04.09.2020
-
-Celladoor - Maktub (2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aliens in My Head [05:50]
-02. Spider Guilt [05:13]
-03. Besieged [06:56]
-04. Amethyst [07:43](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner Rock, GrungeПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CCA24D98E8C18BA562BA1375ED7BA8B2FD3766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406573   (472934) от 04.09.2020
-
-The Atomic Bitchwax - Scorpio (2020) [MP3|320 Kbps] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope You Die (04:37)
- 02. Energy (03:24)
- 03. Ninja (04:07)
- 04. Scorpio (03:22)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8AFAB513FC37105C41719B9B1C49993E500C1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

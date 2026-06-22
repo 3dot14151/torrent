@@ -1,3 +1,29 @@
+###  Публикация: 1720586   (57622) от 04.05.2024
+
+Закусочная на колесах / Kuai can che /  Fai caan che / Wheels on Meals (1984) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>След.
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два энергичных китайца организовали в Барселоне передвижную закусочную. Их желтый фургончик дарит людям вкусную еду и очаровательный китайско-испанский сервис. Но однажды всю их выручку похищает хитрая синьорита Сильвия.Производство: Гонконг / Golden Harvest Company, LaurenfilmЖанр: боевик, комедия, криминал, мелодрамаРежиссер: Саммо ХунАктеры: Джеки Чан, Саммо Хунг, Бяо Юэнь, Лола Форнер, Бенни Уркидез, Кит Витали, Херб Эдельман, Сьюзана Сенетес, Мерседес Альберт, Монтсеррат ХулиоПеревод: Многоголосый профессиональный (Россия 1)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5366493802D027155ADDAA4DBE51C8E664BF5173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720737   (57621) от 04.05.2024
 
 Пассажиры / Passengers (2016) HybridRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57621.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57602.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57565.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57564.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57545.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57422.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57394.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57360.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57359.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57349.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57330.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57326.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57313.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57209.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57122.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57069.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57022.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56974.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56892.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56886.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56863.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56826.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56810.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56807.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56803.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12AF506A2C9E7B0115F5371F65B3E6D4B6963C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722448   (56715) от 13.05.2024
-
-Крепкий орешек / Die Hard (1988) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56715.jpg" />
-</div>
-
-
-###  Подробнее
-
-В суперсовременном небоскребе Лос-Анджелеса полицейский Джон Макклейн ведет смертельную схватку с бандой политических террористов, взявших в заложники два десятка человек, в число которых попадает и его жена. Началось все с того, что парень приехал в город к жене, оказался на рождественском приеме, а кончилось настоящей войной...Производство: США / Twentieth Century Fox, Gordon Company, Silver PicturesЖанр: боевик, триллер, криминал, приключенияРежиссер: Джон МактирнанАктеры: Брюс Уиллис, Алан Рикман, Бонни Беделиа, Реджинальд ВелДжонсон, Пол Глисон, Уильям Этертон, Харт Бокнер, Джеймс Сигэта, Александр Годунов, Роберт ДавиПеревод: Дублированный (Blu-ray CEE), двухголосый (Лазер Видео), многоголосый (Карусель/Супербит)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английскиеПродолжительность: 02:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B2D4EE2710429B4BBDBC1D011A913A4DB79CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1031955   (649421) от 05.07.2016
+
+Белый День - Балалайка In Rock (1996) [MP3|320 Kbps] <Rock, Folk, Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen & Deep Purple
+02. Иисус Христос — Суперзвезда
+03. Машина Времени
+04. Boney-M(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A7678508A301E7B7E196A289E41C0F35FA9DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032012   (649121) от 05.07.2016
+
+Натали - О, Боже, какой мужчина! (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Володя
+02. Замуж за лето
+03. Платье на бретелях
+04. Шахерезада(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8809C5510774C8059F513D65F3C124314FE22F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541040   (648544) от 01.04.2022
+
+Чёртово колесо инженера Ферриса - Левиафан (2022) [MP3|320 Kbps] <Power Pop, Dance Punk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648544.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пусть крыша горит!
+2. Беги и режь!
+3. Плюнь на следы!
+4. Демоны и химеры(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE276E87666349CCE0D0EEC3381A085476CD209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032171   (647526) от 06.07.2016
 
 Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo Soul>
@@ -6,7 +93,7 @@ Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo 
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647526.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647145.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646860.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ Mad Show Boys - Чудо из ниоткуда (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646857.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646698.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Artik & Asti - 7 (Part 1) (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646542.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Mad Show Boys - Включите улыбальнички (2011) [MP3|320 Kbps] 
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645035.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644994.jpg" />
 </div>
 
 
@@ -241,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643557.jpg" />
 </div>
 
 
@@ -270,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642753.jpg" />
 </div>
 
 
@@ -305,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642710.jpg" />
 </div>
 
 
@@ -334,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642579.jpg" />
 </div>
 
 
@@ -363,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642437.jpg" />
 </div>
 
 
@@ -392,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641698.jpg" />
 </div>
 
 
@@ -421,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641619.jpg" />
 </div>
 
 
@@ -450,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641175.jpg" />
 </div>
 
 
@@ -479,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639737.jpg" />
 </div>
 
 
@@ -508,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639083.jpg" />
 </div>
 
 
@@ -537,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638927.jpg" />
 </div>
 
 
@@ -566,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637872.jpg" />
 </div>
 
 
@@ -595,7 +682,7 @@ Natasha Morozova (Наташа Морозова) - Перелётные птиц
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637117.jpg" />
 </div>
 
 
@@ -624,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636916.jpg" />
 </div>
 
 
@@ -659,7 +746,7 @@ MOLLY - Косатка в небе (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635363.jpg" />
 </div>
 
 
@@ -673,105 +760,6 @@ MOLLY - Косатка в небе (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C365FB447CBE0CA8F1323CB07B743F4E382BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519568   (632857) от 08.07.2012
-
-Кристина Орбакайте - Лучшая Коллекция (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смородина
-02. Перелетная птица
-03. Без тебя
-04. Просто любить тебя
-05. Не бей любовь
-06. Каждый день с тобой
-07. Пароходик
-08. Рио-де-жанейро
-09. Ты На Свете Есть
-10. Свет твоей любви(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F7319A2D432D8895EFCDC98EF9BE6623B54C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143992   (631491) от 20.06.2017
-
-Группа Крестьяне.RU - 2 альбома (1999-2000) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Судьба-разлучница (3:48)
-02. Бывшая любимая (3:52)
-03. Маленькая хулиганка (3:54)
-04. Туман (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551EE29E1021A86C21794BF283CC2078A9994654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521140   (628666) от 10.07.2012
-
-Лада Дэнс - Лучшая Коллекция (2012) [MP3|320 кб/с]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нежданный звонок
-02. До свидания
-03. Пойду с тобой
-04. Не судьба
-05. Ночные танцы
-06. Нас больше нет
-07. Девочка-ночь
-08. Будь со мной
-09. Ночь
-10. Только дождись(   Читать дальше...   )Жанр: РорПродолжительность: 02:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530B92DF2AF51AE9A9D5F78E0326F14013EB7EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

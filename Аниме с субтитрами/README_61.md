@@ -1,3 +1,29 @@
+###  Публикация: 1217916   (599465) от 24.06.2018
+
+Saredo Tsumibito wa Ryuu to Odoru: Dances with the Dragons | И всё же, грешник танцует с драконом [2018, TV, 12 эп.] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599465.jpg" />
+</div>
+
+
+###  Подробнее
+
+История разворачивается в альтернативном мире, где существуют «заклинания-уравнения», способные управлять квантовой константой h, изменять законы физики на ограниченном участке пространства, создавать взрывчатые вещества или ядовитые газы либо генерировать физические феномены вроде плазмы или ядерной реакции. Два «уравнителя», способные использовать данные «заклинания» (   Читать дальше...   )Производство: студия Seven Arcs / セブン・アークスЖанр: приключения, фэнтезиРежиссер: Нисикиори ХиросиПеревод: HorribleSubs; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A062DC5CB0714E0BA8C705B007C9EC2E894D587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256495   (599196) от 01.05.2019
 
 Tsurune: Kazemai Koukou Kyuudou Bu | Звук тетивы [2018, TV, 13+SP] WEBRip 720p raw
@@ -6,7 +32,7 @@ Tsurune: Kazemai Koukou Kyuudou Bu | Звук тетивы [2018, TV, 13+SP] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599196.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Etotama | Etotama: Eto Tamashii | Этотама [2015, TV, 12 + 6sp] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599177.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Ore no Nounai Sentakushi ga, Gakuen Love Comedy wo Zenryoku de Jama Shiteiru / N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598831.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Hoozuki no Reitetsu 3 / Хладнокровный Ходзуки [ТВ-3] [2018
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597854.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Hoozuki no Reitetsu OAD / Хладнокровный Ходзуки OVA [2014, O
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597850.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Cutie Honey Universe | Вселенная Милашки Хани [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597772.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Gyakuten Sekai no Denchi Shoujo | Rumble Garanndoll | Батарейка из о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597767.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Gun x Sword / Огнём и мечом [2005, TV, 26 эп.] BDRip 1080p Raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597675.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Caligula | Калигула [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597615.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597611.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ High School DxD BorN | High School DxD Third | High School DxD 3rd Season | Де
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597298.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Blend S | Садистская смесь [2017, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596345.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Love Live! Sunshine!! (2017) | Живая любовь! [ТВ-4] [2017, TV, 13 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596144.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Hakaima Sadamitsu / Sadamitsu the Destroyer / Разрушитель Садам�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594590.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Lost Universe / Затерянная вселенная [1998, TV, 26 эп.] WEB
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594582.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Piano no Mori (2019) | Рояль в лесу [ТВ-2] [2019, TV, 12 из 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593775.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Hinamatsuri | Праздник Хины [2018, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593241.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Darker Than Black: Kuro no Keiyakusha / Darker Than Black / Темнее чер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592713.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Yamada-kun to 7-nin no Majo / Ямада и семь ведьм [2015, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592196.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Bakuretsu Hunter | Ganso Bakuretsu Hunters | Sorcerer Hunters | Охотники
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591801.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Golgo 13: The Professional | Голго-13: Профи [1983, MV] DVDRip 480p Hi
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591788.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Aoi Tamago | Pale Cocoon | Бледный Кокон [2006, OVA] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591765.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Plastic Memories | Синтетические воспоминания [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591705.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Date a Live II / Рандеву с Жизнью 2 [2014, TV, 10] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591463.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Ane Log / Дневник сестры [2014, OVA, 3 + 3 sp] DVDRip 576p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591283.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Ane Log / Дневник сестры [2014, OVA, 3 + 3 sp] DVDRip 576p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47211E47B44A73017B96A08706327C911A923989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246197   (590810) от 08.07.2015
-
-Angel Beats! / Ангельские ритмы! [2010, TV, 13ep + 3sp] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не зря говорят, что японская школьная система – самая тяжелая и суровая. Ибо очнулся парень по фамилии Отонаси (имя он забыл) на том свете – а там снова школа! Вот только, несмотря на красивую обертку, школа эта больше походит на исправительную колонию для тех, кто слишком рано покинул бренный мир и не успел (или не захотел) познать правила и законы «реального общества». (   Читать дальше...   )Жанр: приключения, мистика, комедия, драмаРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9F9A459C20A7921A2D898DEAD30EB40F4E6A01
 ```
 
 https://mybot314.ru/tekegram_catalog/

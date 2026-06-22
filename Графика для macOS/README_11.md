@@ -6,7 +6,7 @@ Tonality Pro 1.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639312.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ MesaExif 2.4.14 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637515.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WidsMob Montage 1.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633684.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PhotoLine v. 19.01 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633608.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629812.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Polarr Photo Editor 4.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629230.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Adobe InDesign CC 2015 (11.0.0.72) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629125.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Red Giant Shooter Suite 12.7.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627154.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Enfocus PitStop Pro 13 Update 2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625920.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ TechSmith Snagit 2021.4.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621993.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Video Copilot - Element 3D v2.2 update for Mac OSX [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621274.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ PaintCode for Sketch 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618727.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ AKVIS Artwork 8.1 (1708.1069) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617360.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Excentro 1.9.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613312.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Adobe Character Animator 2022 v22.3 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612783.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Raya Pro 3.0 - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611942.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ FxFactory Plugins 5 (4426) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606304.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ inPixel 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603470.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Photo & Video HDR 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603459.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Color Filters For Photos 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603433.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Photo Sketch 1.8.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600889.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Panorama Photo Stitcher 1.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600265.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ SmartDeblur Pro 2.3 [Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596426.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ FXhome PhotoKey 6 Pro 6.0.0027 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578687.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Everimaging HDR Darkroom 3 v1.1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578326.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ FILTERiT 4.6.5 for Adobe Illustrator CS6-CC2015 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577836.jpg" />
 </div>
 
 

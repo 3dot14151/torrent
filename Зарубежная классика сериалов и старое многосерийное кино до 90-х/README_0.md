@@ -1,3 +1,29 @@
+###  Публикация: 1102262   (888548) от 10.02.2017
+
+Твин Пикс / Twin Peaks (1990) BDRip [H.264/720p-LQ] (сезон 2, серии 1-22 из 22) LostFilm
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888548.jpg" />
+</div>
+
+
+###  Подробнее
+
+История начинается с известия о находке обнаженного тела Лоры Палмер, «завернутого в полиэтилен» и выброшенного волнами на берег озера. В ходе расследования перед внимательными взглядами агента Купера, шерифа Трумана и его помощников проходят разные жители Твин Пикс. Постепенно зритель открывает для себя темную и страшную сторону жизни обитателей на первый взгляд (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, криминал, детективРежиссер: Дэвид ЛинчАктеры: Кайл МакЛоклен, Майкл Онткин, Шерил Ли, Лара Флинн Бойл, Шерилин Фенн, Рэй Уайз, Мигель Феррер, Дэвид Линч, Билли Зейн, Хэзер Грэмс и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:45:00 серия (1 серия ~01:34:00)Реклама: присутствуют заставка и логотип LostFilm
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215F0AF59BA560F58D30866F2B13F37C6312491D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496827   (869792) от 19.09.2021
 
 Вьетнам, до востребования / Vietnam (1987) DVDRip (сезон 1, серии 1-10 из 10) ОРТ
@@ -6,7 +32,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869792.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863424.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861093.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854629.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849471.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844494.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817020.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808317.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808199.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807567.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803306.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787160.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785046.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774023.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764156.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759248.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756423.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732431.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_731220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731220.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723732.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722226.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_710295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_710295.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705387.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_696602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696602.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_691797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691797.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ADEE3D6CF827C97CA725B9149DA765F53E1BEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402942   (689883) от 20.08.2020
-
-Твин Пикс / Twin Peaks (1991) BDRip [H.264] (сезон 2, серии 1-22 из 22) NovaMedia
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689883.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается с известия о находке обнажённого тела Лоры Палмер, «завёрнутого в полиэтилен» и выброшенного волнами на берег озера. В ходе расследования перед внимательными взглядами агента Купера, шерифа Трумана и его помощников проходят разные жители Твин Пикс. Постепенно зритель открывает для себя тёмную и страшную сторону жизни обитателей на первый взгляд (   Читать дальше...   )Производство: США / Lynch/Frost Productions, Propaganda Films, Spelling EntertainmentЖанр: триллер, драма, криминал, детектив, фантастикаРежиссер: Дэвид Линч, Лесли Линка Глаттер, Калеб ДешанельАктеры: Кайл МакЛоклен, Майкл Онткин, Шерил Ли, Лара Флинн Бойл, Шерилин Фенн, Рэй Уайз, Мигель Феррер, Дэвид Линч, Билли Зейн, Хизер Грэм и др.Перевод: Многоголосый, профессиональный - NovaMediaПродолжительность: ~00:46:00 серия (1 серия - 01:34:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4D7F71506B5886DF85E2DF8565406B315859A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

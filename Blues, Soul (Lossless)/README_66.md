@@ -6,7 +6,7 @@ Hot Chocolate - Box Selection: Their 8 RAK Albums 1974-1983 (2011, Remastered) [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500101.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ DC Carnes - Delta Crossroads - Vol II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499716.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Dylan Triplett - Who Is He? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499712.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Seth Loveless - Win or Lose (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499710.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Dennis Johnson - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499709.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Patty Tuite - Hard Case Of The Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499707.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Kozmic Blue - Odyssee Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499706.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Mick Kolassa - I'm Just Getting Started! (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499703.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Ron D Bowes - Nymphomania Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499679.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Eva Carboni - Smoke and Mirrors (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499675.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Leela James - Loving You More... In The Spirit Of Etta James (2012) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499276.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Otis Waygood Blues Band - Otis Waygood Blues Band (1970) /2000, Fresh Music/ [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496394.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Kings Of The Blues (1993) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496200.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Chris Bell & 100% Blues - The Best (2006) [APE|image+.cue]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495939.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Cafe R&B - 4 Albums (1998 - 2012) [FLAC|Lossless|image + .cue|tracks + .cue] <Mo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493972.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Harrison Kennedy - This Is From Here (2015) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493823.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Aynsley Lister - Equilibrium (2009) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493716.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Neal Black - 10 Albums (1993 - 2020) [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493029.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Hurricane Dave and the Storm Chasers - Blooze Blowdown (2022) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492679.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Dr. Jules - Ever Forward (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492602.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dave Thomas - Road to the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492600.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Babaux and the Peacemakers - Lucky 13 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492594.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Lauren Glick - Lush (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492593.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Los Skeletone Blues - Existential Blues (More Vibraslap) (2022) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492591.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Screaming And Crying: 75 Masterpieces By 35 Blues Guitar Heroes (2012) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491241.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Supersonic Blues Machine - Voodoo Nation (2022) [FLAC|Lossless|image + .cue] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490427.jpg" />
 </div>
 
 

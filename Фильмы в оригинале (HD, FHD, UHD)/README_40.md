@@ -1,3 +1,133 @@
+###  Публикация: 1165472   (432120) от 13.09.2017
+
+Пираты Карибского моря: Мертвецы не рассказывают сказки / Pirates of the Caribbean: Dead Men Tell No Tales  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исчерпавший свою удачу капитан Джек Воробей обнаруживает, что за ним охотится его старый неприятель, ужасный капитан Салазар и его призрачные пираты. Они только что сбежали из Дьявольского треугольника и намерены уничтожить всех пиратов, включая Джека. Поможет спастись лишь могущественный артефакт — трезубец Посейдона, который дарует своему обладателю полный контроль (   Читать дальше...   )Производство: США / Walt Disney Pictures, Jerry Bruckheimer Films, Infinitum NihilЖанр: фэнтези, боевик, комедия, приключенияРежиссер: Хоаким Роннинг, Эспен СандбергАктеры: Джонни Депп, Пол МакКартни, Орландо Блум, Кира Найтли, Хавьер Бардем, Джеффри Раш, Кевин МакНэлли, Дэвид Уэнэм, Мартин Клеббэ, Хуан Карлос Веллидо, Брентон Туэйтес, Стивен Грэм, Энгус Барнетт, Адам Браун, Родни Афиф, Кая Скоделарио, Джиллз Нью, Голшифте Фарахани, Делрой Эткинсон, Дэнни КиррейнПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1253AB042D8D44FB9C3D4645276CD9A7D87EC6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249684   (430742) от 25.09.2018
+
+Истощение / Attrition (2018) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о бойце, который вынужден вернуть старую команду, чтобы спасти пропавшую тайскую девушку...Производство: Таиланд, Гонконг, Великобритания, США / Sivko Partners,Steamroller ProductionsЖанр: БоевикРежиссер: Матье ВешлерАктеры: Стивен Сигал, Руди Янгблад, Витхая Пансрингарм, Луис Фань, Джеймс П. Беннетт, Чарли Юн, Танапол Чуксрида, Юй Кан ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2186C98B093027007ADB50BBD090A3F70FA44DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249695   (430392) от 25.09.2018
+
+Бои без правил / A Prayer Before Dawn  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой британец Билли Мур попадает в самую страшную тюрьму Таиланда, где проводятся смертельные бои без правил между самыми жестокими преступниками. Чтобы выжить, Билли должен принять в них участие и выиграть.Производство: Великобритания, Франция, Китай, Камбоджа, США / Senorita Films, Indochina Productions, HanWay Films, Canal+, Ciné+, Meridian Entertainment, Symbolic Exchange, Hurricane FilmsЖанр: боевик, драма, криминал, биография, спортРежиссер: Жан-Стефан СоверАктеры: Джо Коул, Порнчанок Мабкланг, Паня Йиммумрхай, Витхая Пансрингарм, Билли Мур, Николас Шейк, Сура Сирмалай, Сомлок Камсинг, Сакда Ниамхом, Комсан Полсан, Чалоемпорн СаватсукПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBBFA518109C280C31F96978CCD8DFBB3297219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249875   (430384) от 25.09.2018
+
+Дядя Дрю / Uncle Drew  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дрю собирает баскетбольную команду, чтобы принять участие в местных соревнованиях.Производство: США / Creators League Studio, Pepsi Productions, Temple Hill EntertainmentЖанр: комедия, спортРежиссер: Чарльз Стоун IIIАктеры: Ник Кролл, Шакил О’Нил, Терренс Розмор, Эрика Эш, Уильям Уолкер, Кэрри Л. Уолронд, Лил Релл, Крис Веббер, Кристал Ли Браун, Джош Генри, Лиза Лесли, Бенжамин Уивер, Регги Миллер, Майя Бойд, Элайджа Эверетт, Кайри Ирвинг, Жамель ЧэмберсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F107362C7C7E50C1BC2F982DF7BB77817819E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063982   (429879) от 18.10.2016
+
+Очень плохие мамочки / Bad Moms  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальная мать, прекрасная жена, хорошая домохозяйка с успешной карьерой... Но стоит немного расслабиться, как тебе сразу напоминают о твоих обязанностях. Почему только мужчины имеют право развлекаться? Сколько же можно это терпеть?! Пора команде отчаянных мамочек пуститься во все тяжкие.Производство: СШАЖанр: комедияРежиссер: Джон Лукас , Скотт МурАктеры: Мила Кунис, Кэтрин Хан, Кристен Белл, Кристина Эпплгейт, Джада Пинкетт Смит, Энни Мумоло, Уна Лоуренс, Эмджей Энтони, Дэвид Уолтон, Кларк Дьюк, Джей Эрнандес, Уенделл ПирсПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32BA44FEB2A4A4FB2B3A620E04F74C2CADFD538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324196   (429463) от 07.09.2019
 
 Фанат / The Fanatic (2019) WEB-DLRip [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429463.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427646.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427641.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426603.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426294.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426091.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423177.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423172.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421355.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_421076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421076.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419890.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419864.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419784.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419441.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418910.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418573.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418322.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_418308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418308.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417373.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416450.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415328.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95CE68E2978EE76F46D4C5C7657A8014531AA48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251783   (415327) от 02.10.2018
-
-Небоскреб / Skyscraper  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый высокий и технологичный небоскрёб в мире становится центром огненной катастрофы. Только бывший агент ФБР, а теперь эксперт по безопасности Уилл Сойер может спасти вертикальный город под небесами. Когда нельзя доверять никому, а жизнь семьи в опасности, каждая секунда на счету.Производство: США / Legendary Entertainment, Flynn Picture Company, Seven Bucks Productions, The Third FloorЖанр: боевик, триллерРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Нив Кэмпбелл, Чинь Хань, Роланд Мюллер, Ноа Тейлор, Байрон Манн, Пабло Шрайбер, МакКенна Робертс, Ной Коттрелл, Ханна Куинливан, Адриан Холмс, Эльфина ЛюкПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A488606CC88D89A7DD8F3290B18E44049836429D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325250   (413909) от 14.09.2019
-
-Человек-паук: Вдали от дома / Spider-Man: Far from Home (2019) BDRip [H.264/1080p] [EN / EN Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер Паркер вместе с друзьями отправляется на летние каникулы в Европу. Однако отдохнуть приятелям вряд ли удастся: Питеру придётся согласиться помочь Нику Фьюри раскрыть тайну существ, вызывающих стихийные бедствия и разрушения по всему континенту.Производство: США / Columbia Pictures, Pascal Pictures, Marvel StudiosЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд, Зендая Колеман, Энгаури Райс, Джон Фавро, Джейк Джилленхол, Сэмюэл Л. Джексон, Коби Смолдерс, Мариса Томей, Мартин Старр, Нуман АджарПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ECC51E8D0270C03158707A2EC197FF9BF06C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251919   (413066) от 03.10.2018
-
-Операция «Финал» / Operation Finale (2018) WEBRip [H.264/1080p-LQ] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через 15 лет после окончания Второй мировой войны создаётся команда спецагентов, чтобы выследить Адольфа Эйхмана — печально известного сотрудника гестапо, отвечавшего за «окончательное решение еврейского вопроса».Производство: США, Automatik,Metro-Goldwyn-Mayer (MGM)Жанр: Биография, Драма, История, ТриллерРежиссер: Крис ВайцАктеры: Оскар Айзек, Бен Кингсли, Мелани Лоран, Лайор Раз, Ник Кролл, Майкл Аронов, Охад Кноллер, Грег Хилл, Торбен Либрехт ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (Full), Английские (Forced, SDH),..и др.Продолжительность: 02:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ACBE03E9A56B8E0026FC02862900134A3701AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948175   (413065) от 19.10.2015
-
-Город монстров / Tales of Halloween (2015) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять историй, объединённые одной общей темой Хэллоуина, переплетаются вместе в американском пригороде, где упыри, черти, пришельцы и убийцы с топором появляются только в течение одной ночи, чтобы терроризировать ничего не подозревающих жителей.Производство: США, Epic Pictures Group, Film Entertainment ServicesЖанр: ужасыРежиссер: Даррен Линн Боусман, Аксель Кэролин, Адам Гираш, Эндрю Каш, Нил Маршалл, Лаки МакКи, Майк Мендез, Дэйв Паркер, Райан Шифрин, Джон Скипп, Пол СолетАктеры: Бу Бу Стюарт, Бен Вулф, Бэрри Боствик, Грэйс Фиппс, Лин Шэй, Эдриенн Барбо, Серина Винсент, Лиза Мари, Грег Гранберг, Сэм Уитвер и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91CF59A73F9B7A6C1171A0BE4A48963DF5B9F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948206   (413001) от 19.10.2015
-
-Мистер Холмс / Mr. Holmes (2015) BDRip [H.264/720p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие развернётся в 1947 году, а речь в фильме пойдёт об отошедшем от дел Шерлоке Холмсе, живущем в сонной деревушке в Сассексе вместе с горничной миссис Манро и сыном, который занимается сыском в качестве хобби. Несмотря на уединённый образ жизни, знаменитому сыщику с Бейкер-стрит по-прежнему не даёт покоя тайна так и нераскрытого 50 лет назад дела.Производство: Великобритания, США, AI-Film, See-Saw Films, Archer Gray, BBC Films, FilmNation EntertainmentЖанр: драма, криминал, детективРежиссер: Билл КондонАктеры: Иэн МакКеллен, Лора Линни, Майло Паркер, Хироюки Санада, Хэтти Морахэн, Патрик Кеннеди, Роджер Аллам, Филип Дэвис, Фрэнсис де ла Тур, Чарльз Мэддокс и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: Русский, английскийПродолжительность: 01:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C133EEB35311A04C705C35EFA0E967AF82DA62
 ```
 
 https://mybot314.ru/tekegram_catalog/

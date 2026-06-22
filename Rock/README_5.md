@@ -1,3 +1,90 @@
+###  Публикация: 1454513   (1026230) от 15.03.2021
+
+King Kong - King Kong (1981) LP [MP3|320 Kbps] <Electronic, Blues Rock, Krautrock, New Wave, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flyin' Through The Motions (2:52)
+02. School Is Out (2:43)
+03. King Kong's Bodyguard (9:25)
+04. Let Met Be At Home (3:54)(   Читать дальше...   )Жанр: Electronic, Blues Rock, Krautrock, New Wave, DiscoПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9923E2C143EE974C6FD080FD4BA2388010B0837A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455080   (1025839) от 18.03.2021
+
+Haxmastaren - Sol i Exil (2021) [MP3|320 Kbps] <Stoner Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blood Moon [00:04:25]
+02 - Millennium Phenomenon [00:05:47]
+03 - Wavelurker [00:03:40]
+04 - Dödskult Ritual [00:04:00](   Читать дальше...   )Жанр: Stoner Rock, MetalПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF2C87A85F940C75419200D8BD383B0210E9DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455214   (1025825) от 18.03.2021
+
+Pendragon - Masquerade 20 (2017) 2xCD, Live [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025825.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Masquerade Overture (Live) (03:05)
+ 02. As Good As Gold (Live) (07:18)
+ 03. Painbox (Live) (08:08)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC9E74D816A4C70A3B3782560E9F26BD8AB9D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455036   (1025799) от 18.03.2021
 
 Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (2021) [MP3|320 Kbps] <Southern Rock>
@@ -6,7 +93,7 @@ Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (202
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025799.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ U.D.O. - Live In Bulgaria (2020) Pandemic Survival Show, 2021 [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025646.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ The Blue Stones - Hidden Gems (2021) [MP3|320 Kbps] <Blues Rock, Soul>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025583.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Those Who Ride With Giants - Forlorn (2021) [MP3|320 Kbps] <Post-Rock, Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025498.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Barry Goudreau’s Engine Room - The Road (2021) [MP3|320 Kbps] <Hard Rock, Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025300.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ The Settlement - Departures (2021) [MP3|320 Kbps] <Psychedelic, Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024951.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Suzi Quatro - The Devil in Me (2021) Japanese Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024890.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024635.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ dArtagnan - Feuer & Flamme (2021) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024431.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Trettioariga Kriget - Till horisisonten (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024081.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Gaelle Buswel - Your Journey (2021) [MP3|320 Kbps] <Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024042.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Damon Fowler - Alafia Moon (2021) [MP3|320 Kbps] <Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024041.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ The Quill - Earthrise (2021) [MP3|320 Kbps] <Stoner Rock, Heavy Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024040.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ The Dirty Mojo Blues Band - It Is What It Is (2021) [MP3|320 Kbps] <Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024034.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Snake Bite Whisky - Black Candy (2021) [MP3|320 Kbps] <Glam Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023862.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Thomas Frank Hopper - Bloodstone (2021) [MP3|320 Kbps] <Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023458.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Cactus - Tightrope (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023152.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Thunder - All The Right Noises (2021) Deluxe Edition [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022284.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Joanna Stingray - Stay Together (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022280.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022271.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Johan Kihlberg's Impera - Spirit Of Alchemy (2021) [MP3|320 Kbps] <Melodic Hard 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021958.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Jeffrey Erik Mack - The Forgotten Earth (2021) Scarlet Hollow [MP3|320 Kbps] <Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021457.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021408.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA2E760F967A200DB0F1E8D9F0270744B18456B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462849   (1020809) от 16.04.2021
-
-Paul McCartney - McCartney III Imagined (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020809.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paul McCartney/Beck - Find My Way
-2. Paul McCartney/Dominic Fike - The Kiss Of Venus
-3. Paul McCartney/Khruangbin - Pretty Boys
-4. Paul McCartney/St. Vincent - Women And Wives (St. Vincent Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181B71E58A11FDBAC1478827474E83CCBC660FDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463769   (1020323) от 19.04.2021
-
-Wanka - The Orange Album (1977) LP [MP3|320 Kbps] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Up Your Mind (You Can't Have Both) (5:27)
-02. Wrong Door (3:44)
-03. Sue Anne (3:10)
-04. Get Ahead (6:13)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F582D75E4F4C51856D20D0DC8F0381C22D932C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463853   (1020091) от 20.04.2021
-
-David Gilmour - Yes, I Have Ghosts (2021) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes I Have Ghosts (03:50)
- 02. Tell The Truth (01:29)
- 03. Astral Dust (02:04)
- 04. Kokineli (02:15)Жанр: RockПродолжительность: 00:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478EDECEF372358194CB0D9F6870108A09F36078
 ```
 
 https://mybot314.ru/tekegram_catalog/

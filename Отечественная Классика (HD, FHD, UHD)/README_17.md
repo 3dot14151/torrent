@@ -1,3 +1,30 @@
+###  Публикация: 1827828   (193332) от 23.10.2025
+
+Вдали от Родины (1960) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам романа Юрия Дольд-Михайлика «И один в поле воин».
+Советский разведчик лейтенант Гончаренко под именем барона Генриха фон Голдринга заброшен в глубокий немецкий тыл с заданием узнать, где находится секретный подземный завод, который производит новые виды вооружения. Отважному разведчику удается не только получить все необходимые сведения, но (   Читать дальше...   )Производство: СССР / Киевская киностудия им. А. П. ДовженкоЖанр: драма, военныйРежиссер: Алексей ШвачкоАктеры: А.Решетников, Агния Елекоева, Борис Дмоховский, Вадим Медведев, Всеволод Аксенов, Зинаида Кириенко, М.Белоусов, Михаил Козаков, Н.Емельянов, Ольга ВикландПродолжительность: 01:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460A2E3620B92AF22B5CBAB6F22E8B509A0D0A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582246   (191239) от 05.11.2022
 
 Дети Дон-Кихота (1965) WEB-DL [H.264/1080p]
@@ -6,7 +33,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191239.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190950.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190301.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189952.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188181.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187924.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186191.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186180.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186108.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_185977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185977.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183027.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_181907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181907.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181697.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176462.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176439.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176263.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_173802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173802.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173416.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171684.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171651.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170016.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169264.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168770.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167613.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167570.jpg" />
 </div>
 
 
@@ -646,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A907F19B21A642276AA9E40F2983F750F65D6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515818   (164846) от 12.12.2021
-
-Дознание пилота Пиркса / Test pilota Pirxa / Pilot Pirx's Inquest (1978) WEB-DL [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крупная корпорация выпускает человекоподобных роботов, несмотря на общественное мнение, прессу и профсоюзы, которые выступают против. Принимается решение отправить космический корабль к Сатурну для запуска искусственных спутников, где экипаж будет состоять из роботов.
-Для осуществления полета выбирается пилот Пиркс, известный своей честностью и неподкупностью. Недоброжелатели (   Читать дальше...   )Производство: Польша, СССР / Киевская киностудия им. А. П. Довженко, Таллинфильм, Zespol FilmowyЖанр: фантастика, драмаРежиссер: Марек ПестракАктеры: Сергей Десницкий, Болеслав Абарт, Александр Кайдановский, Владимир Ивашов, Збигнев Лесень, Тыну Саар, Фердинанд Матысик, Зигмунт Белявский, Игор Пшегродский, Януш БыльчинскийПеревод: ДублированныйЯзык озвучки: Русский, ПольскийСубтитры: английскиеПродолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68553D2DE50FDDDA658C05C51C42B1966616BB12
 ```
 
 https://mybot314.ru/tekegram_catalog/

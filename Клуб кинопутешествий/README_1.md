@@ -1,3 +1,29 @@
+###  Публикация: 1612542   (1040392) от 15.02.2023
+
+Природа Северного Кавказа (2010) TVRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северный Кавказ - горный массив, расположенный между Черным морем и Прикаспийской низменностью. Это изумительный край глубоких ущелий, зеленых махровых долин и великолепных, ни на что не похожих гор. Здесь есть горные гряды, образованные выветриванием, больше похожие на странной формы изваяния с пещерами и гротами. Есть и горы-лакколиты - в народе их называют неудавшимися (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, путешествияРежиссер: Сергей ДудкинЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3400CD65FAB74F68389654544ACE8768E23DF62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612464   (1040389) от 15.02.2023
 
 Велопрогулка по Петербургу белой ночью (2013) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040389.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040386.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040383.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040316.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039558.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037919.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036995.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036937.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036598.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036398.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036313.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036022.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034118.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034116.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033756.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031887.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031388.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029936.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029847.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029139.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028921.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028869.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028862.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028698.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028692.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1F0CA88F264BCF11D9E5E44CA6F66ACB3906DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451567   (1028204) от 03.03.2021
-
-Франция между небом и землей / La France entre ciel et mer (Frankreichs schonste Kusten) (2012) DVB
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следуя вдоль океана и морей, береговая линия страны раскрывает свое прошлое, очерчивает настоящее, почти может предсказать будущее. Во Франции от Дюнкерка до Ментона, не забывая и о Корсике, линия между морем и небом протягивается на 6'000 км прибрежных контуров географического, геологического, исторического и культурного портрета страны.Производство: Франция, Gedeon Programmes, ARTEЖанр: Документальный, природа, путешествияРежиссер: Шарль-Антуан де Рувр, Жером СемлаПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 01:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752D665AC6B2131CC15756611947177392AF5A81
 ```
 
 https://mybot314.ru/tekegram_catalog/

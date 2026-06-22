@@ -1,3 +1,111 @@
+###  Публикация: 584526   (305472) от 05.12.2012
+
+Подборка | Самостоятельное изготовление некоторых изделий [2012] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз содержит материалы о изделиях доступных самостоятельному изготовлению. В их числе:
+- изделия для сада, огорода и дома - мотоблок, мотопила, миникультиватор, мопед, садовые контейнеры, мебель, светильники и т. п.;
+- изделия для любителей вязания и рисования (касательно народной орнаментальной специфики);
+- поделки из бисераЖанр: хобби, позновательное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCFD6D4C9CBD383FF17221F005E54988355D416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077156   (304314) от 29.11.2016
+
+Игнатий Журавлев | Лекции (2014-2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл лекций Игнатия Владимировича Журавлева, большая часть прочитана на факультете психологии МГУ им. Ломоносова.Жанр: Психология, ПсихиатрияПродолжительность: 28:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF4B97CA8182A347B4F0530128A45E9C48057EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077214   (304312) от 29.11.2016
+
+Максим Маршал | Думай животом! Практическая бизнес-интуиция для лидера (2009) [MP3, DOC, PDF, JPG]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте гением интуиции.
+Дорогой друг, мы с вами начинаем практическую работу по пробуждению и развитию врождённой интуиции. Начнём последовательно открывать закрытые дверцы подсознания, чтобы наладить контакт с собой. Если вы будете серьёзно выполнять все упражнения, то гарантирую – интуиция станет вашим верным, незаменимым другом, безошибочно выводящим вас на единственно (   Читать дальше...   )Жанр: Личностный рост, Лидерство, ИнтуицияФормат: MP3, DOC, PDF, JPGПродолжительность: 14:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AA4B90C54609D2A5037FF3FA21AB00A4B08689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077280   (299837) от 01.12.2016
+
+Татьяна Овчаренко и др. | Школа активного горожанина (лекции) (2014-2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс лекций прочитанный Татьяны Иосифовны Овчаренко направленный на ликвидацию безграмотности в сфере жилищной-коммунального хозяйства и информированию о состоянии жилищного фонда. В раздаче присутствуют вебинары.Жанр: лекцияПродолжительность: 49:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC32EDE2921F769DE887B9FA0BEC50D0483EF8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423506   (299524) от 13.11.2020
 
 Билл О’Рейли, Мартин Дьюгард | Убийство Иисуса. Расследование самого громкого преступления в истории (2020) [MP3]
@@ -6,7 +114,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299524.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296869.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295723.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294786.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290975.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288127.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285511.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285312.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278962.jpg" />
 </div>
 
 
@@ -245,7 +353,7 @@ Jules | Подкасты (2015-2018) [MP3] [En]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276506.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ Max Spiers | Подкасты (2014-2016) [MP3] [En]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276455.jpg" />
 </div>
 
 
@@ -299,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274381.jpg" />
 </div>
 
 
@@ -325,7 +433,7 @@ Jacque Fresco | Подкасты (1974-2012) [MP3]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274069.jpg" />
 </div>
 
 
@@ -352,7 +460,7 @@ Jacque Fresco | Подкасты (1974-2012) [MP3] [En]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271013.jpg" />
 </div>
 
 
@@ -379,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265339.jpg" />
 </div>
 
 
@@ -405,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262204.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261671.jpg" />
 </div>
 
 
@@ -458,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261468.jpg" />
 </div>
 
 
@@ -484,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257981.jpg" />
 </div>
 
 
@@ -510,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257908.jpg" />
 </div>
 
 
@@ -537,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257704.jpg" />
 </div>
 
 
@@ -563,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256770.jpg" />
 </div>
 
 
@@ -574,115 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:230161B8201D2500911A57273B4DC1BA2A9DF443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837155   (256581) от 15.11.2025
-
-Сай Монтгомери | Душа осьминога. Тайны сознания удивительного существа (2019) [MP3, Нона Трояновская]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256581.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Никогда еще научно-популярная книга не была такой восхитительно галлюцинаторной! Бескостные и прекрасные, ее персонажи обладают не только большой душой, но и тремя сердцами. Они умны, обаятельны и ласковы… и одинаково хорошо владеют всеми своими восемью руками. Если мать-природа существует, то ее зовут Сай Монтгомери».
-
-Сай Монтгомери | Душа осьминога. Тайны сознания (   Читать дальше...   )Жанр: Зоология, учебная и научно-популярная литератураИздательство: StorySide ABПродолжительность: 09:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81085BA47EF56AAFA827885B806660F5239FAA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837003   (255880) от 14.11.2025
-
-Александр Дементьев | Популярная астрофизика. Философия космоса и пятое измерение (2022) [MP3, Дмитрий Шабров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для всех тех, кто любит астрономию и мечтает заглянуть в будущее!
-Увлекательная астрофизика вместе с научным журналистом и автором научно-популярного канала Александром Дементьевым!
-Александр Дементьев – журналист (работал в таких изданиях, как РБК, «Ведомости», Лента.ру), закончил МПГУ (бывш. МГПИ им. Ленина) по специальности общая и экспериментальная физика. Автор (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 07:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797C9ACE7F0A4DABD72426F81DCFD773C781906F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836856   (255601) от 13.11.2025
-
-Александр Никонов | Антинаучная физика, загадки пространства, времени и сознания (2022) [MP3, Филипп Матвеев-Витовский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получится ли у вас объяснить природу загадочных событий, не поддающимся законам физики?
-Александр Никонов – журналист, публицист, писатель и популяризатор науки. Без пяти минут кандидат наук, он бросил уже практически написанную диссертацию, ушел в журналистику и писательство, где, надо признать, немало преуспел… Стал лауреатом премий Союза журналистов России (2001) (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 09:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61920F22E55B73ED2717EB072C4FF3DB473F8A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626100   (255237) от 13.04.2023
-
-Нил Деграсс Тайсон | На службе у войны: негласный союз астрофизики и армии (2022) [MP3, Вадим Пугачев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга известного американского астрофизика Нила Деграсса Тайсона, написанная в соавторстве с писателем Эвис Лэнг, посвящена исследованию многолетних отношений науки и армии. Что объединяет астрофизиков и военных специалистов, в чем точки их пересечения, как наука служит войне? Как выясняется, многие открытия и достижения астрофизики, такие как, например, многоспектральное (   Читать дальше...   )Жанр: Астрономия, Научно-популярная литератураПродолжительность: 18:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19C8AB9F63DEEEC0C40D59923CDEBE5E7136C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

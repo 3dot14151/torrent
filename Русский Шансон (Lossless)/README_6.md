@@ -1,3 +1,61 @@
+###  Публикация: 1274508   (793049) от 07.01.2019
+
+VA - Кураж судьбы 2 (2001) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альбатрос ( Александр Немецъ )
+02. 45 налётчиков ( Татьяна Маленкова )
+03. Милая свобода ( Лёня Азбель )
+04. Сонька Ручка - золотая ( Светлана Берчанская )(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF4E96A92E8DD092DA9F9A7F0223231F98DB9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274507   (793012) от 07.01.2019
+
+VA - Москва златоглавая IV (1996) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А душа на волю рвется ( гр.Пики козыри )
+02. Женщина - осень ( Сергей Дикий )
+03. Подарите мне вечер в Москве ( Евгений Кемеровский )
+04. Я люблю тебя, когда ты далеко ( Михаил Круг и Катя Шубкина )(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E569CC8B829287B6877CA59111E45BEF70E273C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200900   (792813) от 24.01.2018
 
 Владимир Бажиновский - Тополиная метель (2007) [FLAC|Lossless|image + .cue]<Шансон>
@@ -6,7 +64,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792813.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792775.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792490.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792413.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792236.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792192.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792185.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792165.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791562.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790811.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789437.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788965.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788134.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786749.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786383.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785778.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785442.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785414.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_781007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781007.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Еврейский ресторан: Музыка эмиграции (2002)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779891.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778298.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777191.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777116.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775678.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9FE27E51ADEB99448E2F6F2BF644A7B9E612531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015292   (774271) от 11.05.2016
-
-Анатолий Полотно - Наша сторона (2015) [FLAC|Lossless|image + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наша сторона (3:06)
-02. Ледостав (Посвящается моему другу Артуру Чилингарову и его жене Татьяне) (3:45)
-03. Вниз по Лене по реке (4:12)
-04. Живи и живи, что ещё... (4:22)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03521077E47AA4C038F5B397435C795DCCFB165C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015430   (774196) от 11.05.2016
-
-Братья Радченко - Туман-туманище (2000) [FLAC|Lossless|image + .cue] <Shanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Туман - туманище "
-02. "Не говори "
-03. "Шанель "
-04. "Только раз "(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65ACBF1D2DF42B7E278E8C21A4BDEDBC5F350681
 ```
 
 https://mybot314.ru/tekegram_catalog/

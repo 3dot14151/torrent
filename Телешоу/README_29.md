@@ -1,3 +1,29 @@
+###  Публикация: 937356   (490077) от 14.09.2015
+
+Прямой эфир с Борисом Корчевниковым (14.09.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об этих проблемах пока не написано ни в печатных, ни в электронных СМИ. Но они существуют! Это реальные проблемы обычных людей, оказавшихся в сложных жизненных ситуациях. Это касается каждого! "Прямой эфир" - хроника нашей жизни.Телекомпания: Россия, ТК Россия 1Жанр: Ток-шоу, информационно-аналитическая программаПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F37C697DA9A6851DD6AA8B35B4798A54E80956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158910   (490076) от 17.08.2017
 
 Деньги или позор (2017.08.17) SATRip (выпуск 5)
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490076.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487732.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486998.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486110.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485451.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484669.jpg" />
 </div>
 
 
@@ -154,6 +180,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 237487   (484598) от 19.09.2010
+
+Тайны великих магов. Разоблачение фокусов / Breaking the Magician's Code: Magic's Biggest Secrets Finally Revealed (2010) SATRip [13 серий]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_484598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот человек не показывает своего лица. Говорят, он помогал лучшим фокусникам мира. Он узнал все их секреты, чтобы потом сделать свое шоу – великих разоблачений. За это его ищут, а он здесь, на ТВ3. Человек в маске и Василий Стрельников раскрывают тайны великих магов!Разоблачение всех фокусов!Жанр: Телепередача, ДокументальныйПеревод: Одноголосый закадровый, профессиональный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545336   (484428) от 10.09.2012
 
 Анатомия для начинающих. Репродукция / Anatomy for Beginners. Reproduction (2005) DVDRip
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484428.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484205.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484054.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483859.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483104.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482479.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482122.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481976.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481775.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479992.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479715.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479489.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478015.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477915.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477823.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477731.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477715.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475986.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE9A25115290330C1CD7117E6893C1C7321F1B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823424   (475843) от 20.09.2014
-
-Танковый биатлон. Сезон 2. Выпуск №5 (2014.09.20) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475843.jpg" />
-</div>
-
-
-###  Подробнее
-
-В августе 2014 года на полигоне Алабино впервые в мире пройдет Чемпионат по танковому биатлону. Более 12 стран подтвердили свое участие в этом виде спорта. Как и в прошлом году, ВГТРК будет наблюдать за ходом проведения соревнования. Чемпионат мира по танковому биатлону направлен на укрепление боевого сотрудничества Вооруженных сил различных государств. Ну что ж, (   Читать дальше...   )Жанр: Cпорт, Военно-спортивное шоуПродолжительность: ~ 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F335C2092E9492102620C213E5E406445E9D084E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160552   (474147) от 25.08.2017
-
-Деньги или позор (2017.08.24) WEB-DLRip (выпуск 6)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое острое комедийное шоу с участием звёзд! Только на телеканале ТНТ4! В июле! Они пойдут ради денег на всё!Каждую неделю одна знаменитость будет опозорена на всю страну и заработает 1 миллион рублей. По условиям шоу каждый звездный гость получает на руки солидную сумму денег, после чего ведущий озвучивает самые откровенные, нелепые, а главное — правдивые факты (   Читать дальше...   )Телекомпания: ТНТ 4Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771C8F491CFE0DD4346A6864429D9FF502B67DC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

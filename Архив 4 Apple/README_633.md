@@ -1,3 +1,55 @@
+###  Публикация: 1599944   (159374) от 25.12.2022
+
+Tipard Blu-ray Player for Mac 6.2.50 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard Blu-Ray Player отличный видеоплеер для воспроизведения Blu-Ray-видео и различных видеофайлов . Программа понимает разные типы Blu-Ray, папки, ISO-образы дисков, Full-HD 1080P-видео и другие популярные аудио и видео форматы, включая MP4, M4V, MOV, FLV, WMV, AVI, MKV и т.д. Плеер сочетает в себе мощные функции воспроизведения и отличное качество картинки. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.08.2022Разработчик: © 2009-2022 Tipard StudioПоддерживаемая ОС: macOS X 10.9 или вышеЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E4E00FA9FE8D05E3F32E64FA25ADDCBDDAF2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599984   (159372) от 25.12.2022
+
+Battery Indicator for Mac 2.14.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2022Разработчик: © 2022 Sindre SorhusПоддерживаемая ОС: macOS 12.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC80F1D84AEA327E6C40AC269254650E06890FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600039   (159351) от 25.12.2022
 
 MediaInfo 22.12 [Multi/Ru]
@@ -6,7 +58,7 @@ MediaInfo 22.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159351.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Live Wallpaper & Themes 4K Pro 14.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159331.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Flyingbee PDF to Word for Mac 8.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159324.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Lunar Pro for Mac 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159306.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Wondershare PDFelement Pro OCR 9.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159291.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Wondershare Filmora 12.0.6  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159248.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Maxon Cinema 4D Studio 2023.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159185.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159075.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ AnyMP4 iOS Cleaner 1.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159051.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159035.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ AnyMP4 iPhone Transfer Pro 9.0.58 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159021.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Vellum 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159016.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ OmniReader Pro for Mac 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159007.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Apeaksoft iPhone Transfer 2.0.60 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159000.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Wondershare UniConverter 14.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158986.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ MouseBoost pro for Mac 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158981.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Infuse PRO 7.4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158968.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158966.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Dynamic Wallpaper Engine 16.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158960.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ DirEqual 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158757.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ System Toolkit 5.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158751.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Stats 2.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158726.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Eassiy Android Data Recovery for Mac 5.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158724.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ iMazing 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158693.jpg" />
 </div>
 
 
@@ -623,62 +675,6 @@ iMazing: отличная альтернатива iTunes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11FD43498565BB06DDA5483A09133EC1F4C6AA4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967460   (158681) от 20.12.2015
-
-Dash 3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash  - браузер документации и примеров кода
-Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2015Разработчик: Bogdan PopescuПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD87777C209A36F8436236CF668BCDAC2B01BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967419   (158648) от 20.12.2015
-
-iStatistica 1.1.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158648.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStatistica - подробный монитор системных ресурсов для OS X.
-В программу входит виджет для Notification Center и меню статистики в области часов. Просто откройте Notification Center, чтобы увидеть подробную статистику по загрузке памяти, процессора, диска или посмотреть карту сети и скорость передачи данных.
-
-*** Загрузите iStatistica Sensors плагин с www.imagetasks.com (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 декабря 2015Разработчик: Andrey TsarkovПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4F25095B2B2D8FBE3F5818ABEA7836708D42F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

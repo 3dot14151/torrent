@@ -1,3 +1,107 @@
+###  Публикация: 1528922   (600711) от 01.05.2022
+
+The Waylanders (2022) [Ru/Multi] (1.10) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может пойти не так на первой встрече кельтского народа с его богами, Туата де Дананн? Оказывается, очень многое: вместо празднества и просветления вы чудом избегаете гибели в битве с одним из божеств и выпадаете из потока времени. Волшебная порча окутала ваши родные земли, а некогда мирное королевство разваливается на грызущиеся за трон фракции. Богатое полотно (   Читать дальше...   )Тип издания: LicenseРазработчик: GATO STUDIOЖанр: Приключение, Ролевая игра, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E5928CF54544B9E2BD42FC56FD777969A7C0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297979   (600671) от 30.04.2019
+
+Fall of Light (2017) [Ru/Multi] (1.50c) License PLAZA [Darkest Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600671.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роли Никса, воина, чьи славные годы давно позади, вам предстоит избегать Теней, пробираться через извилистые коридоры мрачных подземелий, прокладывать путь по темному миру на поверхности и сражаться с послами Тьмы в давным-давно покинутых храмах. Путь будет полон головоломок и смертельно опасных ловушек, что отделяют вас от цели: привести свою дочь Эфиру в последнее (   Читать дальше...   )Тип издания: LicenseРазработчик: RuneHeadsЖанр: Action, RPG, Adventure, Puzzle, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE10C0FC15BCDDC4E2B3CBF82EF9449B8161845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299617   (597408) от 02.05.2019
+
+SUPER DRAGON BALL HEROES WORLD MISSION (2019) [Ru/Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Dragon Ball Heroes World Mission — тактическая карточная игра с бодрым противостоянием, глубокой стратегией и захватывающим сюжетом, разворачивающимся в обширной вселенной Dragon Ball Heroes. Отправляйтесь в путь вместе со своим аватаром и станьте чемпионом мира. Вы должны попасть внутрь игры и в команде с персонажами Dragon Ball восстановить мир в реальности.Тип издания: LicenseРазработчик: Dimps Corporation, SAFARI GAMESЖанр: Action, 3D, StrategyЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C7C2EE440B36AC0C78C779906F55E0958CDAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232918   (594754) от 27.06.2018
+
+Drakkhen (1989) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фэнтезийная РПГ, четыре персонажа, необычный для жанра вид от третьего лица. Речь идет не о привычной изометрии, а именно о камере, находящейся за спинами вашего отряда. Четыре персонажа посещают различные опасные места, противоборствуя различным недружелюбным монстрам. Очередная миссия по спасению мира ложится на этих героев и усердного геймера.Тип издания: LicenseРазработчик: Infogrames Europe SAЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50980D886DCC0F34B47A7931227CAE428917FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548777   (594465) от 05.05.2022
 
 King Arthur: Knight's Tale (2022) [Ru/Multi] (1.0.2) License FAIRLIGHT
@@ -6,7 +110,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (1.0.2) License FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594465.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Fallout of Nevada (2015) [Ru] (1.0/upd2) Repack ak97nsk
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588020.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Immortal: Unchained (2018) [Ru/Multi] (1.15/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587816.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586904.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Goliath (2016) [Ru/Multi] (1.0.6-GLU/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586090.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585120.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585091.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Titan Quest (2016) [Ru/Multi] (2.1/dlc) License PLAZA [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584945.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.5.16.6) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577512.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573976.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Beyond Space Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573967.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Final Fantasy XIII-2 / Final Fantasy 13-2 (2014) [Ru] (1.0/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572132.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Children of Zodiarcs (2017) [En] (1.0.0.4) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571920.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Two Worlds (2007) [Ru/En] (1.07/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571877.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Neverwinter Nights 2 (2006) [Ru/En] (1.023.1765/dlc) License GOG [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_571861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_571861.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Children of Zodiarcs (2017) [Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570087.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ ICY (2015) [En] License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569530.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Pathologic 2 (2019) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568462.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Anima: Gate of Memories (2014) [Ru/Multi] (1.0) Repack Valdeni
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568320.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Xuan-Yuan Sword EX: The Gate of Firmament (2016) [En/Multi] (1.0) Repack АRMENI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568312.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Kyn (2015) [En/De] License FAiRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567801.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566810.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Avernum – настоящая подземная тюрьма с сотнями
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:443F5698A6591273088B371E647C159DDF297A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555667   (566432) от 05.06.2022
-
-Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack Decepticon
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте за викинга по имени Эйвор, которого с самого детства готовили стать бесстрашным воином. Вам предстоит повести свой клан из безжизненной ледяной Норвегии, чтобы обрести новый дом на плодородных землях Англии IX века. Вы должны основать селение и любыми средствами обуздать этот непокорный край, чтобы обеспечить себе место в Вальгалле. В те времена Англия представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: RPG, 3rd Person, Action, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB0C700D47272F92339B698ABAC948AAEE92F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923061   (566011) от 30.07.2015
-
-ICY (2015) [En] (1.0) Rip ALiAS
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icy - сюжетная survival-RPG, где Вы возьмете на себя роль вожака небольшой группы людей, которые пытаются выжить в суровых условиях замерзающего мира. Исследуйте огромный игровой мир и старайтесь найти знающих людей, которые Вам могут поведать больше о событиях, приведших к апокалипсису и чудовищному изменению климата. Icy обладает продуманной диалоговой системой, (   Читать дальше...   )Тип издания: RipРазработчик: Inner VoidЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF77E6C68A714D3CAA3CF4F04D1CC59F5EFF255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555939   (564847) от 06.06.2022
-
-Corpse Party: Blood Drive (2019) [Multi] (0.95) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеко не всем из класса 2-9 Академии Кисараги удалось вернуться из начальной школы известной как Небесное Воинство, охваченной демоническими потусторонними силами. Староста класса Айуми Шинозаки попытался использовать древнюю Книгу Теней, чтобы воскресить погибших друзей, но это лишь усугубило трагедию. А теперь книгу украли.Тип издания: LicenseРазработчик: MAGES. Inc., 5pb.Жанр: Ролевая игра, Приключение, ХоррорЯзык озвучки: ЯпонскийЯзык субтитров: Английски, Японски, КорейскийЯзык интерфейса: Английски, Японски, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A3A235398E460601947E3A8D5B624F271D3C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044682   (564668) от 20.08.2016
-
-The Fall of the Dungeon Guardians (2015) [En/Multi] (1.0e) License PROPHET
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564668.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Fall of the Dungeon Guardians представляет собой бродилку по подземельям с видом от первого лица. В ходе приключений партии из четырех героев игрокам предстоит пройти огромное подземелье, а препятствовать в этом будут монстры 100 разновидностей во главе с 20 различными боссами.Тип издания: LicenseРазработчик: Mana GamesЖанр: RPG, 3D, 1st PersonЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C9C075DB065D59DAF03E8D89EF631EDDD1BA74
 ```
 
 https://mybot314.ru/tekegram_catalog/

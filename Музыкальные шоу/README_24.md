@@ -1,3 +1,111 @@
+###  Публикация: 1418873   (344696) от 26.10.2020
+
+Ты супер! (25.10.2020) WEBRip [H.264/1080p-LQ] (сезон 4, выпуск 6)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344696.jpg" />
+</div>
+
+
+###  Подробнее
+
+На НТВ стартовал четвертый сезон международного вокального конкурса «Ты супер!» для детей, оставшихся без попечения родителей. Талантливые ребята со сложной судьбой выходят на большую сцену, чтобы проявить себя и заявить о себе на весь мир.
+Все участники проекта «Ты супер!» — уникальные, талантливые, яркие, красивые — настоящие маленькие звездочки, чьи истории трогают (   Читать дальше...   )00:00:00 «Ты супер!». Четвертый сезон. Первый полуфинал
+00:07:31 «Сумасшедшая» — Николай Дербенёв, 15 лет, Челябинская область
+00:15:40 Сумасшедший дуэт Коли из Копейска и Алексея Воробьёва
+00:17:01 Поддержать Колю пришел певец Александр Панайотов(   Читать дальше...   )Производство: Россия | «НТВ»Жанр: Тв шоу, музыкаСубтитры: ОтсутствуютПродолжительность: 02:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B44A0068CC0211EB9285210F058363BCF2CF4B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954215   (344167) от 06.11.2015
+
+Голос. Сезон №4. Выпуск №10 (2015.11.06) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344167.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйПродолжительность: ~ 01:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A7E09DAE39E5B661660EA3D51FD04E11748BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954198   (344159) от 06.11.2015
+
+Голос. Сезон №4. Выпуск №10 (2015.11.06) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344159.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйПродолжительность: ~ 01:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE30F5A7095F01AC4661452FCB5E772B399C939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954122   (343928) от 06.11.2015
+
+Голос. Сезон №4. Выпуск №10 (2015.11.06) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343928.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйПродолжительность: ~ 01:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDDFA874F6E36A34C46AE1CA82B076913C908A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180413   (342098) от 03.11.2017
 
 Голос (2017.11.03) HDTVRip (сезон 6, выпуск 10)
@@ -6,7 +114,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342098.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342095.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341961.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341541.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340954.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340896.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340458.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340354.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340092.jpg" />
 </div>
 
 
@@ -240,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339725.jpg" />
 </div>
 
 
@@ -267,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339593.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339592.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339482.jpg" />
 </div>
 
 
@@ -348,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338998.jpg" />
 </div>
 
 
@@ -374,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338435.jpg" />
 </div>
 
 
@@ -400,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338352.jpg" />
 </div>
 
 
@@ -426,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338288.jpg" />
 </div>
 
 
@@ -452,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337881.jpg" />
 </div>
 
 
@@ -478,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337635.jpg" />
 </div>
 
 
@@ -504,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337608.jpg" />
 </div>
 
 
@@ -530,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337518.jpg" />
 </div>
 
 
@@ -556,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335923.jpg" />
 </div>
 
 
@@ -568,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7D89D0D538AF093847AF540AE75CF79E4EC3E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181206   (335459) от 06.11.2017
-
-Танцы (2017.11.05) WEB-DLRip (сезон 4, выпуск 14)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 02:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418D9984D060664C2FEFC9092A1C0D03DB898D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181208   (335453) от 06.11.2017
-
-Танцы (2017.11.05) HDTV [H.264/1080i] (сезон 4, выпуск 14)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0395B25414AE7413D734C8346FA2CEC4BC55A013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181044   (335451) от 06.11.2017
-
-Успех (2017.11.05) SATRip (выпуск 1)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы стать звездой, необязательно иметь много денег и продюсера! Если ты талантливый вокалист — от сцены тебя отделяет всего один шаг. И мы докажем это в новом шоу «Успех», которое можно смотреть онлайн бесплатно в хорошем качестве сразу после выхода выпусков шоу в эфир! Вокальное шоу «Успех» мировая пресса уже назвала заменой суперпопулярному проекту American Idol. (   Читать дальше...   )Телекомпания: СТСЖанр: Музыкальное ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:30:55Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1B1D34CB7821CDFCF68D370BBEC253773D8E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181207   (335374) от 06.11.2017
-
-Танцы (2017.11.05) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 14)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 02:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDA05C82979E2B0646E8AA1DBE5F4FA86DDCB01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 1580246   (331526) от 30.09.2022
+
+Виктор Пелевин | Трансгуманизм (Книга 2). KGBT+ (2022) [MP3, Максим Суханов, FEDUK]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вбойщик KGBT+ (автор классических стримов «Катастрофа», «Летитбизм» и других) известен всей планете как титан перформанса и духа. Если вы не слышали его имени, значит, эпоха green power для вас еще не наступила и завоевавшее планету искусство B2B (brain-to-brain streaming) каким-то чудом обошло вас стороной.
+
+Но эта книга – не просто очередное жизнеописание звезды (   Читать дальше...   )Жанр: современная прозаПродолжительность: 15:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFE0917D5E0FE68868D0F64CFFB8B51E1F7F3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580461   (330646) от 01.10.2022
+
+Юрий Поляков | Совдетство (Книга 1) (2021) [MP3, Александр Аравушкин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта удивительная аудиокнига будет интересна и тем, кто хочет вспомнить свое детство, и тем, кто не застал то время, но стремится понять, каким оно было на самом деле – «Совдетство».
+
+Новая книга известного русского писателя Юрия Полякова «Совдетство» – это уникальная возможность взглянуть на московскую жизнь далекого 1968 года глазами двенадцатилетнего советского (   Читать дальше...   )Жанр: Современная прозаИздательство: АудиокнигаПродолжительность: 12:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074DC00C965FACE501A188E0FCE75BADF783E060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260455   (330641) от 20.11.2010
+
+Екатерина Вильмонт | Полоса везения, или Все мужики козлы [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_330641.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Марии Шубиной начинается полоса везения. Она неожиданно получает высокооплачиваемую работу в издательстве, директор которого проявляет к ней особое внимание. К тому же некий таинственный незнакомец присылает ей роскошные цветы и дорогие конфеты...
+Но два вопроса терзают Марию: кто этот незнакомец и действительно ли все мужики – козлы или все таки есть исключения?..
+Слушайте историю любви от Екатерины Вильмонт!
+Главное – это ЛЮБОВЬ. Именно любовь помогла ей стать писательницей. Именно о ней все ее романы. Именно поэтому книги Екатерины
+Вильмонт столь любимы читателями и всегда становятся лидерами продаж на рынке так называемой женской прозы в России. Екатерина Вильмонт – настоящий мастер лирической прозы. И особенно привлекают ее душевные переживания женщин независимых, способных управлять обстоятельствами, а не покоряться судьбе.Жанр: Современная проза
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87FC4BB23904411E907C94F46A1AC8B4A2BC57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580802   (329929) от 02.10.2022
 
 Георгий Мдивани | Украли консула (1964) [MP3, Евгений Весник и др.]
@@ -6,7 +92,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329929.jpg" />
 </div>
 
 
@@ -32,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329811.jpg" />
 </div>
 
 
@@ -60,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328975.jpg" />
 </div>
 
 
@@ -87,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327483.jpg" />
 </div>
 
 
@@ -113,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325750.jpg" />
 </div>
 
 
@@ -139,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_324410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324410.jpg" />
 </div>
 
 
@@ -165,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323980.jpg" />
 </div>
 
 
@@ -191,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323711.jpg" />
 </div>
 
 
@@ -217,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323568.jpg" />
 </div>
 
 
@@ -243,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323567.jpg" />
 </div>
 
 
@@ -269,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323294.jpg" />
 </div>
 
 
@@ -295,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323172.jpg" />
 </div>
 
 
@@ -323,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323154.jpg" />
 </div>
 
 
@@ -349,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322937.jpg" />
 </div>
 
 
@@ -375,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322208.jpg" />
 </div>
 
 
@@ -403,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321874.jpg" />
 </div>
 
 
@@ -429,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321293.jpg" />
 </div>
 
 
@@ -455,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321285.jpg" />
 </div>
 
 
@@ -481,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320885.jpg" />
 </div>
 
 
@@ -507,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320884.jpg" />
 </div>
 
 
@@ -533,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319431.jpg" />
 </div>
 
 
@@ -559,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318758.jpg" />
 </div>
 
 
@@ -585,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318746.jpg" />
 </div>
 
 
@@ -596,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8B24C87BAA57899EC139696F482AC2979CA049C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331995   (318513) от 18.10.2019
-
-Михаил Нисенбаум | Волчок (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В волшебной квартире на Маросейке готовят клей для разбитых сердец, из дачной глуши летят телеграммы, похожие на узоры короедов, в Атласских горах бродят боги, говорящие по-птичьи. «Волчок» – головоломка любви, разбегающейся по странам и снам, бестиарий характеров, коллекция интриг. Здесь все неподдельное: люди, истории, страсти. Здесь все не то, чем кажется: японский (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B222EB432CF88915A6207D8F427F64D60BE06C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421720   (317296) от 05.11.2020
-
-Фредрик Бакман | Тревожные люди (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фредрик Бакман «Тревожные люди» – новая книга шведского классика современной литературы о человеческой психологии XXI века.
-Вооружённое ограбление, захват заложников – роман начинается как триллер, но продолжаются как комедия. В этом весь Бакман, который умеет найти смешное даже в такой ситуации, как ограбление банка. Заложники, среди которых беременная дама, миллионер (   Читать дальше...   )Жанр: Современная зарубежная литератураПродолжительность: 10:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23AAF4238CCFBD3B9DF693C435FD0C499EAB0880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182454   (316948) от 10.11.2017
-
-Джонатан Франзен | Свобода (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американскому президенту подарили экземпляр готового к продаже романа Джонатана Франзена! И о «Свободе» заговорили ВСЕ! Герои «Свободы» Патти и Уолтер демократичны, образованны, заботятся об окружающей среде и лишены предрассудков; у них идеальная семья. Но благие намерения не спасают их от потрясений, которыми чреваты отношения свободных людей в семье и в обществе. (   Читать дальше...   )Жанр: Триллер, Современная зарубежная литератураПродолжительность: 23:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FAB1E726C9C28760F7DDDD43B574F257E007E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

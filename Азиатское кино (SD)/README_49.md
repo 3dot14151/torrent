@@ -1,3 +1,81 @@
+###  Публикация: 1376553   (241747) от 18.04.2020
+
+Повелитель Восточно-китайского моря 2 / Shang Hai huang di zhi: Xiong ba tian xia / Lord of East China Sea II (1993) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241747.jpg" />
+</div>
+
+
+###  Подробнее
+
+События второй части происходят во времена японской оккупации. Дабы не быть схваченным, Лук Юй Сань (Рэй Луй) уезжает в Гонконг и оттуда руководит партизанской войной, Вон (Кент Чэн), которому японцы предложили должность губернатора Шанхая, изображает из себя слабоумного, а Юэнь Сю Квань (Цуй Кам-Кон) переходит на сторону японцев.Производство: Гонконг / Golden Harvest Company Ltd., Johnny Mak ProductionsЖанр: Драма, криминал, детективРежиссер: Мэн Кит ПунАктеры: Рэй Лю, Кент Чэн, Карина Лау, Сесилия Ип, Элвис Цуй, Чан Гин-Чун, Сю-Люн Чинг, Изабелла Чоу, Майкл Мю, Кен ТонПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Английские - отдельным файломПродолжительность: 01:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDC9A87E6BA227443906BAD3F8004C481991D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545318   (240702) от 19.04.2022
+
+Битва на озере / Битва при Чосинском водохранилище / Zhang jin hu / Chang jin hu / The Battle at Lake Changjin (2021) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет основан на реальных событиях — одноимённой битве, произошедшей в 1950 году в ходе Корейской войны между силами ООН и китайскими добровольцами. Ноябрь - декабрь 1950 года. На восточном побережье Корейского полуострова в районе водохранилища Чосин 9-й корпус китайских народных добровольцев вступает в жестокое противостояние с корпусом ООН (в составе 1-й дивизии (   Читать дальше...   )Производство: Китай, Гонконг / Alibaba Pictures, August 1st Film Studio, Beijing Dengfeng International Culture Communications Company,...Жанр: драма, боевик, военный, историческийРежиссер: Кайгэ Чэнь, Данте Лам, Харк ЦуйАктеры: Джеки У, Джексон И, Ихун Дуань, Явэнь Чжу, Ли Чэнь, Элвис Хань, Цзюнь Ху, Ханьюй Чжан, Сюань Хуан, Охо ОуПеревод: любительский двухголосый (Колобок)Субтитры: английскиеПродолжительность: 02:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABEFB39F2931E2D2466F12A913CCD03C2282681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627069   (240164) от 17.04.2023
+
+Злой гений / Chalard games goeng (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличница и медалистка Линн переводится в дорогую престижную школу, где учится золотая молодежь, и сразу заводит дружбу с Грейс, которая не сильна в математике. Однажды Линн помогает лучшей подруге на экзамене, и вот уже выстраивается очередь из богатеньких старшеклассников, желающих платить за экзаменационные ответы. Поскольку отец Линн — обычный школьный учитель, (   Читать дальше...   )Производство: Таиланд, GDH 559, Jorkwang FilmsЖанр: драма, комедия, триллерРежиссер: Наттавут ПунпирияАктеры: Чутимон Чынгчаренсукйинг, Ейсая Хосуван, Тирадон Супапунпинйо, Чанон Сантинаторнкул, Тханет Варакулнукрох, Саринрат Томас, Иго Микитас, Пасин Куансатапорн, Сахаяк Бунтханакит, Канджана ВинаипанидПеревод: профессиональный многоголосыйЯзык озвучки: русский, тайскийСубтитры: русские, английскиеПродолжительность: 02:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F7AA319998FE81848AC85890A569C348C528A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627012   (240151) от 17.04.2023
 
 Хочу посмотреть в глаза твоим родителям / Ni bumo eolguli bogo sipda / I Want to Know Your Parents (2022) WEB-DLRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240151.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239622.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239599.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239081.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237733.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234548.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_234057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234057.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233727.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233582.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233565.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233336.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_233254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233254.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232929.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232575.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232131.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231776.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_231549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231549.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230897.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230802.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230528.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230369.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230327.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230178.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EB65E613600EC7275E43BBE875982AF41BD8F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583136   (230174) от 13.10.2022
-
-Волки / The Wolves (2022) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолет с членами отряда по борьбе с браконьерами терпит крушение над тайгой. Выживают не все, но тем, кто пришел в себя после приземления, еще предстоит побороться за свою жизнь со стаей волков-мутантов – гигантских, высокоорганизованных и очень голодных.Производство: КитайЖанр: Приключения, триллер, драмаРежиссер: Ло Ци, Хуан СыюаньАктеры: Аллен Го, Ши Чжэньлун, Ма Юань, Лю Ихань, Чжу Шубэй, Люн Ка-Янь, Ду ШуайПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, китайскийСубтитры: отсутствуютПродолжительность: 01:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BDCB2C2EAB7AA475ECFDC4D04C4CCA9446E0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583393   (230081) от 14.10.2022
-
-Ты была подобна дикой хризантеме / Nogiku no gotoki kimi nariki / She Was Like a Wild Chrysanthemum (1955) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой возвращается в места, где прошла его юность, и предается воспоминаниям о первой любви. Развиваются два параллельных сюжета — в прошлом и в настоящем. Но, как бы не сложился нынешний, былой уже свершился, и никакие действия не могут повлиять на его исход.Производство: Япония, Shochiku Films Ltd.Жанр: драма, мелодрамаРежиссер: Кэйсукэ КиноситаАктеры: Норико Арита, Тисю Рю, Харуко Сугимура, Такахиро Тамура, Тошио Кобаяси, Каппэй Мацумото, Кадзуко Мотохаси, Нобуо Такаги, Синдзи Танака, Кумэко УрабэПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: русский, английскийПродолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7C520FFA72307F0A2D53E6622AC773141A66A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341491   (230007) от 28.11.2019
-
-Сторонник (Нарковойна) / Dokjeon / Believer (2018) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230007.jpg" />
-</div>
-
-
-###  Подробнее
-
-В руки оперативников из отдела по борьбе с наркотиками попадает один из работников взорвавшейся нарколаборатории. Чтобы отомстить за погибшую мать, он начинает сотрудничество с органами и обещает сдать всю сеть, вплоть до верховного наркобарона, неуловимого мистера Ли. Глава опергруппы, используя информатора, запускает масштабную операцию, и теперь его команде предстоит (   Читать дальше...   )Производство: Южная Корея, Yong FilmЖанр: Боевик, триллер, драма, криминалРежиссер: Ли Хэ-ёнАктеры: Чо Джин-ун, Рю Джун-ёль, Ким Джу-хёк, Пак Хэ-джун, Чха Сын-вон, Ким Сон-нён, Со Хён-у, Кан Сын-хён, Чон Джун-вон, Чон Га-рамПеревод: Двуголосый любительский, одноголосый любительскийСубтитры: Русские (ФСГ 'cardinals'), английские - отдельными файламиПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA7FAAB7CD3F43B5AD6EB4ECFB1EF8D2350BAD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

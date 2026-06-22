@@ -1,3 +1,83 @@
+###  Публикация: 1313567   (518944) от 14.07.2019
+
+Поворот не туда / Wrong Turn (2003-2014) BDRip [H.264] [Antology]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия фильмов ужасов совместного американо-немецкого производства.
+
+Сюжеты первых трех частей франшизы следуют в хронологическом порядке, в то время как сюжет четвертой части повествует о событиях, случившихся задолго до событий первой части. Пятый и шестой фильмы франшизы рассказывают о событиях, происходивших в промежутке времени между событиями четвертой и первой (   Читать дальше...   )Производство: США, Германия, Канада / Summit Entertainment, Constantin Film, Media Cooperation One, Twentieth Century Fox, 20th Century Fox Home EntertainmentЖанр: ужасы, триллерРежиссер: Роб Шмидт, Джо Линч, Деклан О’Брайэн, Валерий МилевАктеры: Десмонд Хэррингтон, Элиза Душку, Эммануэль Шрики, Эрика Лирсен, Генри Роллинз, Тексас Бэттл, Том Фредерик, Джанет Монтгомери, Джил Колирин, Дженнифер Пудавик, Теника Дэвис, Кейтлин Либ, Даг Брэдли, Камилла Арведсон, Саймон ДжинтиПеревод: Многоголосый, ДублированныйСубтитры: Русские, АнглийскиеПродолжительность: 01:24:14 / 01:36:57 / 01:32:02 / 01:33:21 / 01:30:48 / 01:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EEA3A301328F858B4E8A6FF4F81BFBBB709572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314651   (514856) от 18.07.2019
+
+Белый шум / White Noise (2005, 2007) HDRip [H.264] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514856.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Белый шум» — американский мистический триллер с элементами фильма ужасов 2005 года режиссёра Джеффри Сакса. В основе сюжета фильма — предположение о том, что в белом шуме можно услышать голоса умерших людей. Премьера фильма состоялась 7 января 2005 года. В 2007 году вышло продолжение фильма — «Белый шум 2: Сияние».Производство: Великобритания, Канада, США / Universal Pictures, Gold Circle Films, White Noise UK Ltd., Brightlight PicturesЖанр: ужасы, триллер, драма, детектив, фэнтезиРежиссер: Джеффри Сакс, Патрик ЛюссьеАктеры: Майкл Китон, Чандра Уэст, Дебора Кара Ангер, Иэн МакНис, Сара Стрэйндж, Николас Элиа, Майк Допуд, Марша Режис, Брэд Сивон, Митчелл Костерман, Нэйтан Филлион, Кэти Сакхофф, Крэйг Фэйрбрасс, Адриан Холмс, Кендалл Кросс, Терил Ротери, Уильям МакДональд, Джошуа Дж. Баллард, Дэвид Милчард, Теган МоссПеревод: ДублированныйСубтитры: Русские (полн.), английские (полн. х2)Продолжительность: 01:37:53 / 01:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DA41E2EE00BE647D2AEF8604E95121C3DABB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536755   (513139) от 19.08.2012
+
+Обитель Зла: Квадрология / Resident Evil: Quadrilogy (2002, 2004, 2007, 2010) [1080p] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элис продолжает свой путь в мире, поражённом вирусной инфекцией, превращающей людей в нежить. Героиня ищет оставшихся в живых, чтобы вывести их в безопасное место. Её смертельная битва с корпорацией Амбрелла выходит на новый уровень…Жанр: Ужасы, Фантастика, Боевик, ПриключенияРежиссер: Пол У. С. АндерсонАктеры: Милла Йовович, Эли Лартер, Ким Коутс, Шоун Робертс, Серджо Перис-Менчета, Спенсер Лок, Борис Коджо, Вентворт Миллер, Сиенна Гиллори, Кейси БарнфилдПеревод: Дублированный, ОдноголосыйЯзык субтитров: Русские (forced, Stevvie, mr_greenwood) АнглийскиеПродолжительность: 01:36:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 230691   (512674) от 27.08.2010
 
 Пила / Saw (2002-2009) [H.264/720p-LQ] BDRip [антология]
@@ -6,7 +86,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512674.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512058.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512008.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511157.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509388.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508870.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508658.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508653.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506242.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_505919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_505919.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504315.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504290.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503999.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502216.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501388.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500860.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497142.jpg" />
 </div>
 
 
@@ -446,6 +526,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382790   (492810) от 01.09.2011
+
+Шаг вперед (трилогия) / Step Up (2006, 2008, 2010) DVDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_492810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторые учатся танцевать, другие рождены для этого. Люк ищет танцоров для своей команды «Пираты». В конце концов, ему встречаются Лось, поступивший в Нью-Йоркский университет, и Натали, загадочная танцовщица, которая никогда не проигрывает. Смогут ли они превзойти лучших мировых танцоров?Жанр: драма, мелодрама, музыка, ...Режиссер: Джон М. ЧуАктеры: Рик Маламбри, Адам Дж. Севани, Шарни Винсон, Элисон Стоунер, Кит «Ремеди» Сталлворт, Кендра Эндрюс, Стивен Стэннерт, Мартин Ломбард, Факундо Ломбард, Орен МихаэлиПеревод: ДублированныйПродолжительность: 01:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62BA31DF558C1793CD8DF36E1BBCF0EDC1E242A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543781   (492707) от 06.09.2012
 
 Дети шпионов: Трилогия / Spy Kids: Trilogy (2001/2002/2003) [1080p] BDRip
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492707.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492401.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492394.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491802.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488497.jpg" />
 </div>
 
 
@@ -571,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742902   (487581) от 29.08.2018
-
-Трилогия Безумный Макс / Trilogy Mad Max (1979/1981/1985) 3-Disc Blu-ray CEE [1080p]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487581.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалёком будущем, после крупной катастрофы, поразившей нашу урбанистическую цивилизацию, вся жизнь сосредоточилась вдоль бесчисленных магистралей...
-Дорога стала способом существования. И дала многим возможность проявлять свои самые жестокие инстинкты. В роли Макса - Мел Гибсон, тогда ещё мало известный широкой публике.Производство: Австралия, Warner Brothers Entertainment, Kennedy Miller Productions, Mad Max Films.Жанр: фантастика, боевик, триллер, приключения.Режиссер: Джордж Миллер, Джордж Огилве.Актеры: Мэл Гибсон,  Брюс Спенс, Адам Кокберн, Тина Тёрнер, Фрэнк Тринг, Анджело Росситто, Пол Ларссон, Энгри Андерсон, Роберт Грубб, Джордж Спартелс.Перевод: ДубляжСубтитры: English, Arabic, Chinese, Croatian, Czech, Dutch, Finnish, French, German, Greek, Icelandic, Hebrew, Hungarian, Italian, Japanese, Korean, Norwegian, Polish, Portuguese, Romanian, Russian, Serbian, Slovenian, Spanish, Swedish, Thai, Turkish.Продолжительность: 01:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB471F1A57E883AB0C7475576DD40FE506F37161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 237176   (486711) от 18.09.2010
-
-Остин Пауэрс: Коллекция / Austin Powers Collection: Shagadelic Edition (1997-2002) BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Боевик, Комедия, ПриключенияРежиссер: Джей РоучАктеры: Майк Майерс, Бейонсе Ноулз, Сет Грин, Майкл Йорк, Роберт Вагнер, Мелинда Стерлинг, Верн Тройер, Майкл Кейн, Фред Сэвадж, Дайан Мизота...Перевод: Дублированный + Авторский закадровый (Е.Гранкин)Продолжительность: 01:34:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544741   (486235) от 09.09.2012
-
-Люди в черном 1,2,3 / Men in Black I,II,III (1997,2002,2012) BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент Джей узнает, что никакого защитного галактического щита, способного отразить иноземный удар, не существует. Агент Кей не построил его, потому что был убит в 1969 году. Агент Джей должен совершить путешествие во времени, чтобы спасти Землю и жизнь напарника.Жанр: Фантастика, боевик, комедия, приключенияРежиссер: Барри ЗонненфельдАктеры: Уилл Смит, Джош Бролин, Томми Ли Джонс, Джемейн Клемент, Эмма Томпсон, Майкл Стулбарг, Майк Колтер, Николь Шерзингер, Майкл Чернус, Элис ИвПеревод: ДублированныйПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D823CCC64960810AC56A23BB35584AD0C440D49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821762   (485634) от 15.09.2014
-
-Матрица: Трилогия / The Matrix: Trilogy (1999-2003) HDDVDRip [H.264/1080p-LQ] [10-bit]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США, АвстралияЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энди Вачовски, Ларри ВачовскиАктеры: Киану Ривз, Лоуренс Фишборн, Кэрри-Энн Мосс, Моника Беллуччи, Хьюго Уивинг, Глория Фостер, Джо Пантолиано, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Энтони Рэй Паркер, Пол Годдар, Роберт Тейлор, Дэвид Эстон, Марк Грэй, Ада Никодему, Денни Гордон, Роуэн Уитт, Эленор Уитт, Тамара Браун, Яная Пендер, Джада Пинкетт Смит, Рэй Энтони, Кристин Ану, Энди (   Читать дальше...   )Перевод: Дублированный, Многоголосый, Двухголосый, Авторский, ЛюбительскийЯзык субтитров: Русский x2, Украинский, АнглийскийФормат: MKVПродолжительность: 02:17:05, 02:18:17, 02:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180C2DA5355F252C906D13C5C766E99C6335F98D
 ```
 
 https://mybot314.ru/tekegram_catalog/

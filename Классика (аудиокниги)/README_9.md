@@ -1,3 +1,31 @@
+###  Публикация: 992834   (899281) от 03.03.2016
+
+Николай Карамзин | Письма русского путешественника (2016) [MP3, Виктор Татарский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Литературная композиция Виктора Татарского.
+К 250-летию историка и писателя Николая Михайловича Карамзина.
+В 1789—1790 годы Карамзин предпринял поездку в Европу, в ходе которой посетил Иммануила Канта в Кёнигсберге, был в Париже во время великой французской революции. В результате этой поездки были написаны знаменитые «Письма русского путешественника», публикация (   Читать дальше...   )Жанр: Классическая и современная прозаИздательство: Радио РоссииПродолжительность: 02:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBCDA64778F6DDDC9D4A2A03F514ACEB731DEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992818   (899222) от 03.03.2016
 
 Вениамин Каверин | Открытая книга (2016) [MP3]
@@ -6,7 +34,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899222.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899159.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897312.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_897236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897236.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896193.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895672.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894703.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894570.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894456.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893835.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893727.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893026.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892913.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892776.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891282.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891135.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891028.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890096.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889327.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_889099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889099.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887061.jpg" />
 </div>
 
 
@@ -553,6 +581,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763066   (886922) от 05.03.2014
+
+Шарль де Костер | Легенда об Уленшпигеле (2011) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_886922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда об Уленшпигеле смело может быть отнесена к тем десяти книгам, без которых не может прожить ни один человек. Шарль де Костер дал нам незабываемую интерпретацию средневековой фламандской легенды. Бродяга и балагур, отчаянный герой и проходимец Тиль проходит по жизни, ломая ее и устраивая по своему вкусу. Не влюбиться в этого шалопая просто невозможно, как и (   Читать дальше...   )Жанр: Классическая прозаИздательство: МедиаКнига
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28886E7B1A4AD7B9AE06D8E13079750102C93AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763075   (886570) от 05.03.2014
 
 Жюль Верн | Дети капитана Гранта (2014) [MP3]
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886570.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884529.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883456.jpg" />
 </div>
 
 
@@ -624,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCB8013EA41166FF3BD6DD0BE3D427C96EDEB671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641453   (883121) от 09.04.2013
-
-Николай Лесков | Однодум [2007] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил-был обычный, казалось бы, человек, да начитался он Библии, и произошла в нем «вредная фантазия» – стал он жить по Писанию. Проявлял чудеса нестяжательства на казенных должностях, жалование получая весьма небольшое, а точнее сказать – нищенское.
- Праздности не предавался, обывателей не обижал, начальству не угодничал, и даже, говорят, самого губернатора графа Ланского (   Читать дальше...   )Жанр: Радиоспектакль, русская литература, классическая литература
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E227C9A52129F35E5A55EF767300BFB03011166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641490   (882610) от 09.04.2013
-
-Эрнест Хемингуэй | Старик и море [2004] [MP3, Василий Ливанов] [320 kb/s]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Старик и море» — книга о вечном поединке Человека с Жизнью — была опубликована в 1952 году и принесла писателю настоящий творческий триумф. Это философская притча об одиночестве и о стихии. Старик любит море, он думает о нем как о женщине, которая «дарит великие милости», из моря он черпает свое благосостояние — ведь он рыбак. Но море может и отвернуться, (   Читать дальше...   )Жанр: Повесть-притчаИздательство: Союз
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC813B958E0E26B79B6F3F227AC8F68D4BA59BBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

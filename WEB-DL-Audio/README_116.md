@@ -6,7 +6,7 @@ Bon Jovi - Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54180.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pet Shop Boys - A new bohemia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Éle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54167.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54153.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ elkka - Prism of Pleasure (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54140.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ David Crosby - If I Could Only Remember My Name (1971) 50th Anniversary Edition,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54044.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Elvis Presley - Masters of Rock Presents Elvis Presley (2024) 2024 Remastered [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53838.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Jeff Healey - Road House (The Lost Soundtrack) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53729.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Grand Slam - Wheel Of Fortune (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53621.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Moby - always centered at night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53393.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ David Bowie - Rock 'n' Roll Star! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53301.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Lindsey Stirling - Duality (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53297.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Seal - Seal (1994) Deluxe Edition, 2024, Warner Records Inc.[FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53202.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Fire From The Gods - Soul Revolution - The Collabs (2022) Deluxe, 2024, Better N
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53101.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Riff Kitten - Chaos Parade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53001.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Connolly Hayes - Remember Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52995.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Sparks - No. 1 In Heaven (1979) 45th Anniversary Edition, 2024, Lil Beethoven Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52980.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Atom Smith - Playing with Fire (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52977.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Charles Wagner - Chucktallica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52811.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Hugo Kant - Beyond the Tracks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52808.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Hugo Kant - Far From Home (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52807.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52806.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Foreigner & Styx - Renegades & Juke Box Heroes - Live (2024) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52768.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ The Rolling Stones - 12 X 5 (1964) Remastered, 2005, Abkco Music [FLAC 24/176.4|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52684.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Dying Wish - Flesh Stays Together (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52288.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Michael Schenker Group - Don't Sell Your Soul (2025) earMUSIC [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52240.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Babbba - Cabaret Conversation (Vol 2) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52221.jpg" />
 </div>
 
 

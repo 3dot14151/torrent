@@ -1,3 +1,56 @@
+###  Публикация: 261837   (327839) от 23.11.2010
+
+Гомер | Илиада (2004) [MP3, Вадим Максимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327839.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Илиада" - легендарная поэма в сокровищнице мировой литературы: источник идей, сюжетов, характеров в искусстве. Имя ее создателя - слепого певца Гомера - скрывается в тумане мифа. Ни время, ни место его рождения и смерти не установлены окончательно. Нет уверенности и в слепоте поэта, рассказавшего нам в мельчайших подробностях историю Троянской войны и (   Читать дальше...   )Жанр: Поэма
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC44C8E24F748E9957E4840514A52AD7436CC542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 414457   (327698) от 24.11.2011
+
+Чингиз Айтматов | Тополёк мой в красной косынке (1984) [MP3, Николай Козий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чингиз Торекулович Айтматов (1928–2008) – киргизский писатель, писавший на киргизском и русском языках. Народный писатель Киргизской ССР (1974). Герой Социалистического Труда (1978). Лауреат Ленинской (1963) и трёх Государственных премий СССР (1968,1977,1983). Член редакционного совета «Библиотеки всемирной литературы».
+Из сборника «Ранние журавли», в повести «Тополёк (   Читать дальше...   )Жанр: Классика советской литературы, повестьИздательство: Нигде Не КупишьПродолжительность: 04:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC38557AE25BD83C0F543658A9371DE4F5D4409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957012   (327558) от 17.11.2015
 
 Марк Твен | Американский претендент (2014) [MP3]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327558.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327546.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327488.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327375.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326727.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326615.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326576.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326553.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325917.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325890.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325646.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325590.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323860.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323630.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323582.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323579.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323474.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323437.jpg" />
 </div>
 
 
@@ -491,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323355.jpg" />
 </div>
 
 
@@ -518,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323296.jpg" />
 </div>
 
 
@@ -544,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323173.jpg" />
 </div>
 
 
@@ -570,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321355.jpg" />
 </div>
 
 
@@ -596,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321170.jpg" />
 </div>
 
 
@@ -622,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320992.jpg" />
 </div>
 
 
@@ -633,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFE905EEAE693164441F829A55048841B974DCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074652   (320803) от 22.11.2016
-
-Фёдор Достоевский | Кроткая. Избранные рассказы [сборник] (2013) [MP3, Владимир Ерёмин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что объединяет фильмы «Полет над гнездом кукушки», «Игра» и «Знакомьтесь, Джо Блэк»? Голос Владимира Еремина, который дублирует главных героев. Голосом этого актера и признанного мастера дубляжа говорят на русском Джек Николсон, Аль Пачино, Роберт де Ниро, Энтони Хопкинс, Дастин Хоффман и многие другие. Предлагаемая вашему вниманию аудиокнига раскрывает Владимира (   Читать дальше...   )Жанр: КлассикаИздательство: ИП Сергей ГригорянПродолжительность: 03:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618328F3E1791BD1136C382ACFE5C38E5487521E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074957   (320802) от 22.11.2016
-
-Эмиль Брагинский, Эльдар Рязанов | Сослуживцы (1972) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нерешительный и робкий сотрудник статистического управления Новосельцев влюбляется в директора Калугину, женщину властную и категоричную. В результате этого возникают неожиданные ситуации, в которых грустное соседствует со смешным. Любовь помогает героям пьесы многое переосмыслить и преображает обоих...Жанр: Комедия, радиоспектакльПродолжительность: 01:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DE7E9AB3924DC754617542A1CF4B65C2A70116
 ```
 
 https://mybot314.ru/tekegram_catalog/

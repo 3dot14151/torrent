@@ -1,3 +1,263 @@
+###  Публикация: 1203475   (788041) от 02.02.2018
+
+Salt Lake 2002 (2002) [En] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Salt Lake 2002 является официальной игрой XIX зимних Олимпийских игр, которые прошли в американском городе Солт-Лейк-Сити в 2002 году. В проекте представлено шесть различных видов спорта, состоящих из ряда престижных зимних соревнований. В каждом из них у вас будет уникальная возможность посоревноваться за звание Олимпийского чемпиона.Тип издания: RepackРазработчик: Attention To DetailЖанр: Sport (Winter Sport, Olympics), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBF6B78A2280A50065C13BB28B554279FBD7FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203506   (788011) от 02.02.2018
+
+Alpine Skiing 2006 / Лучшие из лучших. Горный слалом 2006 (2005) [Ru] (1.03) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающие дух трассы, сумасшедшие скорости, а вместо крови – чистый адреналин! Кажется, что это безумство – нестись на лыжах с почти отвесных склонов, рисковать жизнью ради минутной славы на пьедестале почёта и странички в истории большого спорта. Может быть. Но у вас всегда есть выбор: остаться дома, на уютном диване или покорить снежных гигантов, бросив вызов (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sport, Skiing), 3D, 1'st Person, 3'rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137B6715E5D7C15DE5D31D3DCF3E4711E0097CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203527   (788008) от 02.02.2018
+
+Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олимпийские игры пользуются огромным успехом и это неудивительно: раз в четыре года в одном месте собираются "лучшие из лучших" спортсменов и выкладываются на все сто процентов. Одно участие в этом соревновании вызывает гордость, а оказаться на пьедестале почёта для многих спортсменов означает достижение мечты. Да уж, испытать те эмоции, которые испытывают (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sport, Olympics), 3D, 1'st Person, 3'rd PersonЯзык озвучки: Английский, Французский и другиеЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39AB580A01F4AE6797661D0EC628DE90EE5140A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203679   (787569) от 03.02.2018
+
+RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот спортивный симулятор введет вас в образ биатлониста. Ваша задача,это как можно быстрее пройти забег и быть точным при стрельбе. Биатлон принадлежит к тем видам зимнего спорта ,которые очень требовательны к спортсмену. Основным условием победы является выносливость при преодолении громадных дистанций по пересеченной местности,хладнокровное спокойствие при стрельбе (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sports, Biathlon), 3D, 1'st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E2046B327E7EB351A6388A64882593B4A84E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203520   (787566) от 03.02.2018
+
+Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в атмосферу кёрлинга, этого модного и с недавнего времени, олимпийского вида спорта. Самое главное - теперь вы поймёте, в чем смысл этой игры, где "кидают утюги" и "трут швабрами" лёд. Ну что, потрём?Тип издания: RepackРазработчик: Geronimo Entertainment, "SoWhat!" s.r.o.Жанр: Sport (Winter Sport, Сurling), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA74441C186E0338E0D545D838F563B24941EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203713   (787565) от 03.02.2018
+
+RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вряд ли кто-то не согласится с тем, что зимние олимпийские игры - это самый торжественный и драматичный праздник спорта на планете. Не правда ли досадно, что такое грандиозное событие случается лишь однажды за долгих четыре года? Да, но только томиться в ожидании вовсе не обязательно. Всего несколько минут, как лавина надежд, триумфов и острых ощущений накроет вас (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sports, Olympics), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E338991CB1ECBA02C871D7F1EDC97E37CBC17AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203792   (787564) от 03.02.2018
+
+RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разогнаться до безумной скорости и взмыть ввысь, преодолевая сопротивление воздушных потоков. Подобно стреле лететь над искрящимся снегом, вызывая шок у болельщиков. Приземлиться и понять, что ты – абсолютный чемпион в одном из самых экстремальных видов спорта.Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sport, Ski Jumping), 3D, 3'rd PersonЯзык озвучки: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9E999B8E276761B289080C921B73C24F964A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203717   (787562) от 03.02.2018
+
+RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) Repack CoD - MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прыжки с трамплина один из любимейших видов зимнего спорта в мире. Вам предстоит пройти испытания на 41-ом реально существующем трамплине,включая всемирно известные места проведения соревнований кубка этого года. Сможете выбрать, играть ли профессиональным спортсменом либо стать тренером национальной команды.На протяжении всей игры за кадром звучать голоса настоящих (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sport, Ski Jumping), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E378604FD4C247920EB3A674E9D7C7D4B2BFBFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203672   (787561) от 03.02.2018
+
+Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 2007 (2006) [Ru] (1.0) Repack CoD- MW2
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реалистичный симулятор лыжных гонок. Динамичная игра из одноименной серии предлагает вам окунуться в мир спортивной борьбы на очередном Кубке Мира по скоростному спуску на лыжах. На этот раз дана возможность попробовать себя в борьбе с королями скоростного спуска и звездами спорта Германом Майером и Боде Миллером. Можете создать своего спортсмена, пройти курс тренировки, (   Читать дальше...   )Тип издания: RepackРазработчик: 49Games GmbHЖанр: Sport (Winter Sports), 3D, 1'st Person, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1011FC2A8BF0E1725688AFC45077668C52C25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 12813   (787274) от 24.11.2021
+
+Эмулятор игровых автоматов ЦНТ (9 в 1) (2005) [Ru/En] (1.0) Unofficial
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симулятор самых популярных игровых автоматов!!! Здесь собраны такие игры как: Crazy Hunter (пробки), Fairy Land (лягушки), Whisky, Low Monkey (макаки), Chukchi Man (чукчи), Calligvla, Fruit Coctail (клубнички), Black Horse, Garage (гаражи). Все игру представлены в полноценном варианте со всеми бонусами... Тем кто хоть раз заходил в игровые клубы обязательно понравится... (   Читать дальше...   )Тип издания: UnofficialРазработчик: Центр новых технологийЖанр: SimulatorЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C0BA32844ACE895B1AE77305226F292CF0F1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123917   (786018) от 09.04.2017
 
 Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru/En] (2.5.26461/dlc) License GOG [Complete]
@@ -6,7 +266,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786018.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ Peter Jackson's King Kong: The Official Game of the Movie (2005) [Ru/Multi] (1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785193.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ RTL Winter Sports 2008: The Ultimate Challenge / Зимний спорт 2008 (2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784829.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ The Guild (2002) [Ru] (1.0) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784717.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783731.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781170.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ Athens 2004 / Летние игры. Афины 2004 (2004) [Ru] (1.0) Repack Co
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780488.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780475.jpg" />
 </div>
 
 
@@ -214,7 +474,7 @@ Screamer 4x4 (2000) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780468.jpg" />
 </div>
 
 
@@ -240,7 +500,7 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780359.jpg" />
 </div>
 
 
@@ -266,7 +526,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776298.jpg" />
 </div>
 
 
@@ -292,7 +552,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775892.jpg" />
 </div>
 
 
@@ -318,7 +578,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775565.jpg" />
 </div>
 
 
@@ -344,7 +604,7 @@ Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774028.jpg" />
 </div>
 
 
@@ -370,7 +630,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774022.jpg" />
 </div>
 
 
@@ -396,7 +656,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773971.jpg" />
 </div>
 
 
@@ -407,266 +667,6 @@ Brothers in Arms: Hell's Highway является третьей частью в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3C5CBD38E5AB6232FE1F76995D350ADF55E92E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125128   (772900) от 13.04.2017
-
-The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772900.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Момент истины» – это классический квест в жанре point-and-click, действие которого происходит в Нью-Йорке 2044 года. Игроки окажутся в шкуре Питера Райта, специалиста по рекламе, в данный момент продвигающего правительственную кампанию "Свобода слова"... Когда вооруженные силовики вламываются в квартиру его соседа, Питер сталкивается с неприятной правдой (   Читать дальше...   )Тип издания: LicenseРазработчик: House of TalesЖанр: AdventureЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E94D2F2C80418EB2AD51012E3BE1C4B28C2B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016570   (770034) от 14.05.2016
-
-Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте футуристические гоночные трассы с трюками из песен вашей музыкальной библиотеки. Мчите за музыкой, чтобы не потерять ритм. Получайте очки за прыжки, дрифт и езду с креном. Бросьте вызов другим гонщикам с помощью ваших любимых треков.Тип издания: RepackРазработчик: FOAM EntertainmentЖанр: Arcade, Racing, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5559A6CAEEB9A5E126061540954298B4FC366CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016948   (769425) от 15.05.2016
-
-Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание «метроидвании» Shadow Complex, оригинальная версия которой появилась на Xbox 360 в 2009 году. События одной из самых зрелищных игр своего жанра разворачиваются во вселенной «имперской» дилогии романов Орсона Скотта Карда, где США скатывается в новую гражданскую войну.Тип издания: RepackРазработчик: ChAIR EntertainmentЖанр: Arcade (Platform), 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D930F7EC0631B59F1D607285BF4734C61178F0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201095   (768562) от 18.05.2010
-
-UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Strategy (Real-time / Tactical) / 3D
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123934   (768226) от 26.01.2019
-
-Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26ND) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Thief™ II: The Metal Age предоставит вам шанс вновь выйти на мрачные улицы Города, преобразившиеся с приходом к власти Ордена Механистов – нового культа, который потеснил и принял в свои ряды Хаммеритов. В новом мире камер и роботов на паровом ходу Гаррету предстоит встретиться с новым врагом – шерифом Горманом Труартом, служителем закона, задумавшим избавить (   Читать дальше...   )Тип издания: LicenseРазработчик: Looking Glass StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36591EBCEF0BC70E03FEC6173DD01AE81F78A74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125750   (767716) от 15.04.2017
-
-Codename: Iceman (1990) [En] (1.033) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ныне практически забытый, а в своё время – почти культовый шпионский квест от Sierra. Вам предстоит играть за секретного агента Джонни Вестланда, отправленного на подводной лодке в Тунис, чтобы разведать обстановку около недавно обнаруженного крупного нефтяного месторождения и таинственных слухов вокруг него. Впрочем, это лишь начало: потом вам предстоит разоблачить (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C18A880570B557BD90E11EB5199AB9B829ABAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393617   (766730) от 01.07.2020
-
-Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition]
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766730.jpg" />
-</div>
-
-
-###  Подробнее
-
-2178 год. Альянс терранов разработал новую технологию – гипердвигатель. Чертежи новинки попали к инопланетянам, и началась борьба за необитаемые планеты. Вы – лидер Объединенной Земли. Вам предстоит разрабатывать новые технологии, строить экономику, набирать и обучать войска, не забывая при этом соблюдать политический, дипломатический и торговый баланс.Тип издания: LicenseРазработчик: StardockЖанр: Стратегия, Экономика, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4F0602B99F5598338759161ACBC25B26F08617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126412   (765991) от 17.04.2017
-
-AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's American Civil War: Война Севера и Юга (2007) [Ru] (1.08d) License
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765991.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Древо свободы должно время от времени орошаться кровью патриотов», - эти слова третий президент США Томас Джефферсон произнёс в период исторической юности северо-американского государства, предвосхитив скорые ужасы гражданской войны. Она продлилась пять лет - с 1861 по 1865 гг. Победитель мог по-своему перестроить политическую систему страны. Прогрессивные янки (   Читать дальше...   )Тип издания: LicenseРазработчик: AGEodЖанр: Strategy, TBSЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD60D1EDE3E93150A0B5E72151269CD63F6B784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126391   (765987) от 17.04.2017
-
-Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) Unofficial
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765987.jpg" />
-</div>
-
-
-###  Подробнее
-
-В такую мясорубку Странник не попадал никогда: свинцовый дождь превращает в опилки ближайший салун, динамит разносит на части фургоны переселенцев, а угрюмые бандиты хотят только одного - его смерти. Тихий американский городок в одно мгновение превращается в ад. Странник снова выходит на тропу войны, и с этого дня имя ему - Отчаянный!Тип издания: UnofficialРазработчик: Jarhead GamesЖанр: Action, Shooter, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DBE355E377A4822845EAD3D641C7C2DD5901DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126568   (764148) от 19.04.2017
-
-Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Return of the Incredible Machine: Contraptions была выпущена в 2000 году. Как и версия игры для Windows 95, она имеет 800x600 разрешения экрана. Также в игре содержатся новые уровни, большинство из которых из The Incredible Machine 2. Итак, добро пожаловать в мир невероятной механики! В этой игре вам предстоит создавать фантастические устройства из самых обычных (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra EntertainmentЖанр: Strategy, Building, PuzzleЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF4CCFD7F880D2264D38405BF360078E89067CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

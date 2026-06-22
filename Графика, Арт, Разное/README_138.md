@@ -1,3 +1,211 @@
+###  Публикация: 1633214   (198416) от 14.05.2023
+
+Иконки - 3D Object Set [PNG, BLEND]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор иллюстраций и 3D моделей с мультяшными гаджетами.Формат: PNG, BLENDРазрешение файлов: 2000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BA08624E3B089859CF32EEC350EFA4407FC655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633622   (198316) от 16.05.2023
+
+Иконки - Рrofеssiоn 3D Аvаtаrs [BLEND, PNG, OBJ, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аvаtаr Рrofеssiоn 3D Icon Pack - это пакет аватаров премиум-класса, который вы можете использовать для своего дизайна, анимации, веб-дизайна, дизайна UI/UX, презентаций и многого другого.Формат: BLEND, PNG, OBJ, PSDРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1ED0F08A011709B4178774D53D5E50195AFD4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633839   (198283) от 17.05.2023
+
+Иконки - 3D Cyber Security Icon [BLEND, PNG, GLTF, OBJ, FBX]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшите свое мобильное приложение, UI/UX и проекты веб-дизайна с помощью 3D-иконок «Значки кибербезопасности», добавив в свой дизайн уникальный и привлекательный элемент.Формат: BLEND, PNG, GLTF, OBJ, FBXРазрешение файлов: 2000x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5832134D157920C832C22C8C20878C182C980FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950045   (198176) от 21.05.2023
+
+Картинки - Розовый бриз. 2048x1152 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскошные розы разнообразных нежных оттенков, поданные фотографами изящно и красиво.Формат: JPGРазрешение файлов: 2048х1152
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B273CE9D7B846009056157FC6A3C8505685F943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634971   (198120) от 23.05.2023
+
+Иконки - 3D Gym and Fitness Icon Vol 1 [BLEND, PNG, GLTF]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновите свой проект с помощью этих 3D-иконок Gym and Fitness, созданных с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру блендера, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNG, GLTFРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B900B71BE9387C329A5FBCF8F2ACC98AE94B983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634975   (198116) от 23.05.2023
+
+Иконки - 3D Gym and Fitness Icon Vol 2 [BLEND, PNG, GLTF]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновите свой проект с помощью этих 3D-иконок Gym and Fitness, созданных с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру блендера, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNG, GLTFРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDCF26837DFE3FABA0AAC754C6675D6E9A08E768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634962   (198108) от 23.05.2023
+
+Иконки - Creative Market - Japanese Food - 3D Collection - 10853827 [BLEND, PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вам 3D-иллюстрацию японской кухни, которая поможет в вашей дизайнерской работе, такой как презентации, UX-дизайн, социальные сети, целевые страницы, веб-сайты и многое другое.Формат: BLEND, PNGРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422BC3499BC5B03CA8C443BB2A96D6ACF28AC229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634977   (198094) от 23.05.2023
+
+Иконки - 3D Gym and Fitness Icon Vol 3 [BLEND, PNG, GLTF]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновите свой проект с помощью этих 3D-иконок Gym and Fitness, созданных с любовью и страстью. Отлично подходит для ваших лендингов, приложений, презентаций и других проектов. Вы можете легко изменить цвет и текстуру блендера, чтобы они идеально соответствовали рекомендациям вашего бренда.Формат: BLEND, PNG, GLTFРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7800A0EFD98CA241BDC188501B4338FCC37A23A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634984   (198082) от 23.05.2023
 
 Иконки - Creative Market - 3D Building Illustration Vol.1 - 7440459 [BLEND, PNG]
@@ -6,7 +214,7 @@
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198082.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198037.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197902.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196981.jpg" />
 </div>
 
 
@@ -114,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196434.jpg" />
 </div>
 
 
@@ -145,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195103.jpg" />
 </div>
 
 
@@ -175,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194278.jpg" />
 </div>
 
 
@@ -201,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193598.jpg" />
 </div>
 
 
@@ -227,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193595.jpg" />
 </div>
 
 
@@ -253,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192485.jpg" />
 </div>
 
 
@@ -279,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191131.jpg" />
 </div>
 
 
@@ -306,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187921.jpg" />
 </div>
 
 
@@ -332,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187315.jpg" />
 </div>
 
 
@@ -359,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187020.jpg" />
 </div>
 
 
@@ -390,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186354.jpg" />
 </div>
 
 
@@ -418,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_184950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184950.jpg" />
 </div>
 
 
@@ -444,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180246.jpg" />
 </div>
 
 
@@ -470,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179599.jpg" />
 </div>
 
 
@@ -481,216 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D5029E1A59B69B657706E55F044D6DEB18EFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593983   (179091) от 29.11.2022
-
-Иконки - Christmas hands and objects by icons8 [PNG, C4D, FBX, OBJ, MAX]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используется для любых веб-сайтов, приложений, поздравительных открыток, баннеров, открыток, брошюр и любых других проектов.Формат: PNG, C4D, FBX, OBJ, MAXРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82870C3BEA87EE15CBAB8D572BDC2CD9652B0997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593982   (179069) от 29.11.2022
-
-Иконки - 3D Character Male Doctor Illustration [PNG, PSD]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используется для любых веб-сайтов, приложений, поздравительных открыток, баннеров, открыток, брошюр и любых других проектов.Формат: PNG, PSDРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A564D7D35EB9F2C2EDB030C64E5DC0E083427E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593984   (179018) от 29.11.2022
-
-Иконки - UI8 - 3D Winter [PNG, BLEND]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3D зимние иконок предоставит вам простые, знаковые иконки для вашего потрясающего дизайна, а цвет легко изменить в соответствии с вашим стилем.Формат: PNG, BLENDРазрешение файлов: 2000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678C830152E1830F1B69AAE908FA066F2502BE91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428701   (177961) от 04.12.2020
-
-Фотография - ArtStation - Grafit Studio - 700+ Warrior & Fairy Character Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177961.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Все дело в контрасте" - подумали мы, когда выпустили этот комплект фотографий в костюмах. Этот пакет включает в себя более 700 фотографий с высоким разрешением с совершенно разными, но одинаково эпическими персонажами.Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3716B3BC4A3377FA4967104ED42EC84A108FF867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428867   (177946) от 04.12.2020
-
-Фотография - ArtStation - Grafit Studio - 500+ Clothing Textures Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рисовать одежду может быть очень трудным, особенно если вы хотите добиться подлинного внешнего вида. Мы начинаем новую серию, ориентируясь на различную одежду, фактуры и материалы. Если вы хотите изучить как драпировка, складки или волосы движутся вместе с персонажем - изучите эти фотографии! Мы также включили различные варианты освещения.
-Этот пакет фото референсов (   Читать дальше...   )Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA3BF2796FB5699A36E486B70B5932C2703D9CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594598   (177631) от 01.12.2022
-
-Картинки - Американские Индейцы [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картинки в жанре американские индейцы.Формат: JPGРазрешение файлов: 1440х1920-1920х1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6701DE35822B7369D998A518A9A678D42885DAA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429185   (177187) от 05.12.2020
-
-Фотография - ArtStation - Grafit Studio - 560+ Folds & Clothing Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_177187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рисовать одежду может быть очень трудным, особенно если вы хотите добиться подлинного внешнего вида. Мы начинаем новую серию, ориентируясь на различную одежду, фактуры и материалы. Если вы хотите изучить как драпировка, складки или волосы движутся вместе с персонажем - изучите эти фотографии!
-Это вторая часть серии. Первая часть: 500+ Clothing Textures Reference (   Читать дальше...   )Формат: JPGРазрешение файлов: 4000x6000, 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18D91BEC490659DE301740A4BBFA2A7F4EC53C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429524   (176285) от 06.12.2020
-
-Фотография - ArtStation - Grafit Studio - 350+ Knight Reference Pictures for Artists [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здравствуйте, друзья! Мы выпускаем очень захватывающий пакет референсов, включающий более 350 фотографий в высоком разрешении с различными видами доспехов, условиями освещения, боевыми позами и многим другим!Формат: JPGРазрешение файлов: 3840x5760
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A83DF992FAD456291166BA16F5A31C3321BCD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

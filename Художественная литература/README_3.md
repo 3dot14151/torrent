@@ -1,3 +1,81 @@
+###  Публикация: 1871426   (1069758) от 17.05.2026
+
+Книжная серия | The Big Book. Исторический роман [66 книг] (2016-2026) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия исторических романов охватывает историю с древних времен до средних веков, на ее страницах вас ждут Древние Греция и Рим, викинги и крестоносцы, Спартак и Чингисхан и многое другое от лучших авторов жанра, что гарантирует отлично проведенное время и море положительных эмоций.Жанр: Исторический романИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DC7A233C35B087592C507AAF129ED2E4C22B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871424   (1069757) от 17.05.2026
+
+Книжная серия | Военно-фантастический боевик [38 книг] (2011-2019) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги данной серии объединяют в себе истории о пападанцах а также альтернативную историю. Частично пересекается с другими сериями (Враг у ворот, АнтиМиры)...Жанр: Боевая фантастика, попаданцы, постапокалипсисИздательство: Эксмо, ЯузаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F99316599D3C93DC72AC06198DB92A392E2753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871420   (1069755) от 17.05.2026
+
+Книжная серия | Руны любви [55 книг] (2015-2019) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия женского романтического фэнтези от издательства «АСТ»Жанр: ФэнтезиИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9EA43CE046851093F112D92F8753695E178E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871518   (1069674) от 17.05.2026
 
 Андреас Грубер | Совиные врата (2008) [FB2, EPUB, MOBI]
@@ -6,7 +84,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069674.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069612.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069549.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069458.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069446.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069425.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068930.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068646.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068466.jpg" />
 </div>
 
 
@@ -251,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068420.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068378.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068364.jpg" />
 </div>
 
 
@@ -332,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068363.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068360.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068359.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068346.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068344.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068343.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068342.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068341.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068334.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068333.jpg" />
 </div>
 
 
@@ -595,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068332.jpg" />
 </div>
 
 
@@ -606,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:184DBF09FE05F85DF5B7C19F79B139341AB45E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869399   (1068277) от 06.05.2026
-
-Фантом Пресс | Серия книг [448 книг] (1992-2026) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство «Фантом Пресс» выпускает изрядное количество интересных остросюжетных книг, которые не входят в серии, но достойны внимания. «Фантом Пресс» старается открывать новые имена среди зарубежных писателей, первыми издавая их книги на русском языке.Жанр: БеллетристикаИздательство: Фантом ПрессФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0953C1D2703B8FCB72DFAC793817D346E3AA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869402   (1068276) от 06.05.2026
-
-Дмитрий Ромов | Сборник произведений [29 книг] (2023-2026) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068276.jpg" />
-</div>
-
-
-###  Подробнее
-
-митрий Ромов пишет альтернативную историю, попаданцев, советскую ностальгию, боевики и социальные драмы, почти всегда строя сюжет вокруг взрослого мужчины, переносящегося в прошлое или в школьные годы, чтобы изменить судьбу — свою и страны. Его ключевые циклы: «Цеховик», «Второгодка», «Исправитель», «Союз‑77».
-Его творчество — это смесь ностальгии по СССР, (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6862A528AE17F67754D377BBC5601073AF347AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869418   (1068275) от 06.05.2026
-
-Анджей Ясинский | Сборник произведений [32 книги] (2008-2026) [FB2, DOC]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анджей Ясинский пишет прежде всего приключенческое фэнтези и попаданческую фантастику с сильным уклоном в технологии, компьютерные системы и развитие героя. Его главное направление — большие циклы о путешествиях между мирами, становлении силы и исследовании неизвестного.
-Что объединяет его творчество:
-Главный герой — умный, рациональный, технарь. Часто программист (   Читать дальше...   )Жанр: Боевая фантастика, Киберпанк, Фэнтези, ПопаданцыИздательство: РазличныеФормат: FB2, DOCКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A3B72C2538770E893A01AA2B29CAB2564CCF41
 ```
 
 https://mybot314.ru/tekegram_catalog/

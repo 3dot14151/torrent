@@ -1,3 +1,109 @@
+###  Публикация: 1594927   (176672) от 03.12.2022
+
+AirMail Pro 5 v.5.5.81 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2.11.2022Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2904697691AE15AA8108CEF38B34AD8677494B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594936   (176654) от 03.12.2022
+
+Tower Pro 9 v.9.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tower - мощный и элегантный Git клиент для Mac
+Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2022Разработчик: © 2010-2022 TowerПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FA0270B1EB6B01D21767FB3730BC3192EA8D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594953   (176615) от 03.12.2022
+
+Luminar Neo 1.5.1 ARM [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 28.11.2022Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031BA6FEA439315C7D09A9D98E4CBA64437B7A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429368   (176241) от 06.12.2020
+
+Aseprite 1.2.25 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aseprite - это инструмент для создания пиксельной графики, позволяющий создавать 2D-анимацию для видеоигр.Тип издания: macOS SoftwareРелиз состоялся: 18.08.2020Разработчик: David CapelloПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB38C98E5B8187C820695B177FB19E5860C1E5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429613   (176034) от 07.12.2020
 
 Monodraw 1.5 [En]
@@ -6,7 +112,7 @@ Monodraw 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176034.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_176028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176028.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ Elmedia Player Pro 7.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175698.jpg" />
 </div>
 
 
@@ -90,7 +196,7 @@ GraphicConverter for Mac 12.0.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175461.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ Screens 4 v.4.12.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175418.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ Viper FTP 6.3.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175382.jpg" />
 </div>
 
 
@@ -169,7 +275,7 @@ Audio Editor - Merge Split And Edit 1.6.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175373.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ Typora for Mac 1.7.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175370.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ Pro Microphone: Audio Recorder 1.5.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175356.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ PortsMonitor 1.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175316.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ Gemini 2: The Duplicate Finder 2.9.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_175029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175029.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ ABBYY FineReader PDF for Mac 15.2.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174964.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ A Better Finder Rename 12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174820.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ Vellum 3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174810.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ HoudahGeo 6 v.6.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174802.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ iCalamus 2 v.2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174776.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ Image Resizer – Resize Photos 2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174757.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ FTP Disk for Mac 1.5.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174746.jpg" />
 </div>
 
 
@@ -489,7 +595,7 @@ Rhizomatic Plasmonic AU, VST3, Standalone for Mac 1.2.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174743.jpg" />
 </div>
 
 
@@ -516,7 +622,7 @@ Pixea Plus for Mac 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174721.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ WiFi Signal: Status Monitor  4.4.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174649.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ Bartender 4 v.4.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174643.jpg" />
 </div>
 
 
@@ -580,112 +686,6 @@ Bartender - утилита для простой организации икон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5980D6F925E85FCA165840682B2B1263D9C26F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668291   (174640) от 11.10.2023
-
-Macgo Mac Blu-ray Player Pro 3.3.22 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в macOS. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 2023 MacgoПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC618699ECFE6901F2C323FC6D03B7BA6632285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430208   (174561) от 09.12.2020
-
-GIF'ted 1.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свои фильмы MPEG-4 в анимированные GIF-файлы в кратчайшие сроки. GIF'ted будет анализировать цвета вашего исходного фильма, чтобы лучше всего выглядеть GIF. Или используйте классическую палитру, например, из Gameboy или SNES, для дурацких и забавных результатов. Вы также можете обрезать и обрезать выходной GIF в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский и Шведский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23990A4AF5EEAAC17C4EE9DF83C5D49588972E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668314   (174541) от 11.10.2023
-
-Rhinoceros 7 v.7.34 [Multi/Ru]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
-Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 1993-2023 Robert McNeel & AssociatesПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F0FBA33C8B199AC94662B250A622269E03647B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430250   (174492) от 09.12.2020
-
-Bongiovi Digital Power Station (DPS) 2.2.5.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bongiovi Digital Power Station ™ (DPS) - это идеальное решение для обработки звука которое сочетает в себе усовершенствованную акустическую технологию, созданную звукорежиссерами со страстью к отличному звучанию.
-Bongiovi DPS - запатентованный алгоритм, который оптимизирует аудио в реальном времени. Профили DPS создаются и реализуются для максимальной гибкости звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2020Разработчик: BONGIOVI ACOUSTIC LABS LLCПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7E572995D1766AAB6B2476D7823A12A02AC600
 ```
 
 https://mybot314.ru/tekegram_catalog/

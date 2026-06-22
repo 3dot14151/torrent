@@ -6,7 +6,7 @@ Cultist Simulator v3.5.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027338.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KineMaster - Pro Video Editor v4.13.4.15898.GP Mod by Unknown Author [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027286.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JRemote2 v2.0.9 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027202.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DIGI Clock Widget Plus 2.3.5 Mod by DmitrySanich, 2Sist [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027033.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ POCO Launcher 2.7.4.13 Mod by Pycm и JDM.707 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027010.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Crunchyroll v3.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024910.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VivaCut v2.2.4 [Ru] - Профессиональный видеоредакто�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024682.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ QuitNow! PRO v5.145.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023778.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ CryptoTab Browser Pro v4.1.46 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023774.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ LEDBlinker 8.1.3-pro Mod by Dragon [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023766.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ OfficeSuite + PDF & HD + Modificstions & Addons 11.2.34540 Mod by Balatan, derri
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023736.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Xodo PDF Reader & Annotator 5.0.22 + Modifications [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023650.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Adobe Acrobat Reader для PDF 21.3.0.17414 Mod by Saksham, koctik-2017, Alex.S
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023551.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Nova Launcher Premium v6.2.18 + Modifications [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023545.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ PDF Extra (Quick PDF Scanner) v6.9.4.985 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023407.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NFC EMV Card Reader 2.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023062.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Memento Database Pro 4.10.0 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022757.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Voloco v6.5.1 [Ru/Multi] - автонастройка голоса + гармо�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022431.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Event Flow 1.8.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022262.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Alarmy (Sleep If U Can) 4.55.08 Mod by Balatan, Alex0047, RОManskiy [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022082.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ EOBD Facile v3.29.0752 [Ru] - Диагностика автомобиля OBD2 &
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021860.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ GPS Map Camera Lite v1.3 [Ru/Multi] - Geotag Photo Location
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021571.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VoIP Recorder & Screen Recorder v2.2 [En] (обновляемая)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021564.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ DiveMate (Логбук дайвера) v5.5 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021314.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Casse-o-player v3.0.16 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021263.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ GOM Audio Plus v2.4.1 [En] - Music, Sync lyrics, Streaming
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021146.jpg" />
 </div>
 
 

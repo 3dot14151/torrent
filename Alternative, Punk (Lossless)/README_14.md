@@ -1,3 +1,32 @@
+###  Публикация: 1011211   (795444) от 29.04.2016
+
+Interpol - Our Love To Admire (2007) Deluxe Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pioneer To The Falls  5:42
+02.  No I In Threesome  3:51
+03.  The Scale  3:25
+04.  The Heinrich Maneuver  3:29(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660FFC11A26D897D9674CE7C6AA1FA996C25D5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274234   (794172) от 06.01.2019
 
 Dylan Mondegreen - A Place in the Sun (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -6,7 +35,7 @@ Dylan Mondegreen - A Place in the Sun (2018) [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794172.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dave Gahan & Soulsavers - Imposter (2021) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793969.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793063.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793050.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Missy Higgins - The Special Ones (2018) Anthology [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793010.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Gorillaz - Humanz (2017) Pre-Release Tracks [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792372.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Emma Ruth Rundle - On Dark Horses (2018) Japanese Edition [FLAC|Lossless|tracks 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792273.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Nirvana - Nevermind (1991) Limited Edition, 30th Anniversary, 2021, Remastered, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791961.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Lonewolves - A True Discourse (2010) EP [FLAC|Lossless|tracks + .cue] <Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791721.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Poets of the Fall - Ultraviolet (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791684.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mirah - Understanding (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791161.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ AFI - All Hallow's E.P. (1999) EP [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791160.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Augie March - Bootikins (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791158.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Alter Bridge - Fortress (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791124.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Alice in Chains - Greatest Hits (2001) Compilation [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791122.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Cure - The Cure (2004) Special Edition [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791086.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ No Age - Snares Like a Haircut (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Nois
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791025.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Dream Wife - Dream Wife (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790982.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Daughtry - 6 альбомов (2006 - 2018) [FLAC|Lossless|tracks+.cue]<Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790836.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acou
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790545.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790515.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Alter Bridge - AB III (2010) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790487.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Hole - Live Through This (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790130.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Baby Jey - Someday Cowboy (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789483.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Field Music - Open Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789090.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Field Music - Open Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:476710516EAACEB44ECD96490954E20209149FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203226   (788665) от 01.02.2018
-
-Morrissey - Bona Drag (1990) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piccadilly Palare (03:27)
-02. Interesting Drug (03:28)
-03. November Spawned A Monster (05:25)
-04. Will Never Marry (02:22)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D992D201567AF582C2E5B2DBE1B226FFFA9F27
 ```
 
 https://mybot314.ru/tekegram_catalog/

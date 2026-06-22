@@ -1,3 +1,82 @@
+###  Публикация: 1186564   (286026) от 25.11.2017
+
+Человек-торпеда / Aa kaiten tokubetsu kogekitai (1968) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художественный фильм с элементами документального о создании и начале использования человеко-торпед кайтэн (морских камикадзе).
+Это один из немногих японских военных фильмов, в котором рассказывается о жизни экипажей торпед камикадзе известных под названием Кайтэн. Два главных героя, капитан-лейтенант Осато и лейтенант Мисима прилагают все усилия для развития подводных (   Читать дальше...   )Производство: Япония / Toei Co. Ltd.Жанр: Драма, ВоенныйРежиссер: Сигэхиро ОдзаваАктеры: Бин Аматсу, Сонни Тиба, Тацуо Эндо, Дзюнко Фудзи, Рё Икэбэ, Дзюдзо Итами, Нобуо Канэко, Асао Койкэ, Дзюсиро Коноэ, Кёскэ МасидаПеревод: Одноголосый закадровый, любительский (DeMon)Субтитры: Русские (отдельным файлом)Продолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A348649426B921C2D3FD1B60D057BCDA4C954BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186584   (285850) от 25.11.2017
+
+Береговая охрана / Hae anseon (2002) DVDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капрал южнокорейского пограничного подразделения береговой охраны, ставший в результате ежедневных беспощадных тренировок фанатиком, мечтает поймать шпиона - нарушителя государственной границы. Однажды ночью он в упор расстреливает молодого гражданского парня, пришедшего со своей девушкой на пляж. В то время как девушка, на глазах у которой все произошло, постепенно (   Читать дальше...   )Производство: Корея ЮжнаяЖанр: Драма, ВоенныйРежиссер: Ким Ки ДукАктеры: Чан Дон-гон, Ким Джон-хак, Пак Чи-а, Ю Хэ-джин, Джин Жонг, Ким Гу-тхэк, Ким Ган-у, Пак Юн-джэ, Ким Тхэ-у, Ким Ён-джэПеревод: Двуголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BC830BB307954CA71A7F66BCAE8BF0821A6D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423288   (285539) от 15.12.2011
+
+Остров / Seom / The Isle  (2000) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285539.jpg" />
+</div>
+
+
+###  Подробнее
+
+По безмятежной глади озера дрейфуют плавучие рыбацкие домики, их хозяйка, загадочная и молчаливая Хви-Джин, днем продает рыбакам еду, а ночью — свое тело. Она покорно терпит издевательства своих гостей, не подозревающих, что их жизнь целиком зависит от ее воли и капризов. Но когда в одном из домиков поселяется бывший полицейский, убивший свою подругу, между ним и (   Читать дальше...   )Производство: Корея Южная / Myung Film Company Ltd.Жанр: Триллер, ДрамаРежиссер: Ким Ки ДукАктеры: Йунь Су, Йусук Ким, Сунь-хи Парк, Чо Чжэ Хён, Чан Хан Сон, Ким Ё Чжин, Вон СоПеревод: Двухголосый профессиональныйСубтитры: Русские, Английские (отдельным файлом *.srt)Продолжительность: 01:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF89741C8B819457DA66F8594200366AFE9CD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263702   (285444) от 20.11.2018
 
 Инуясики / Inuyashiki (2018) WEBRip [MVO]
@@ -6,7 +85,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285444.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283852.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283388.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281946.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281791.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280336.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278479.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278278.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277571.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277074.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277071.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276863.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275100.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274360.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274221.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273349.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273342.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273260.jpg" />
 </div>
 
 
@@ -479,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271277.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270894.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269975.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269913.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269844.jpg" />
 </div>
 
 
@@ -595,85 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1532D903A2DA10349F72CBC65E731D81FC8DC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338312   (269416) от 15.11.2019
-
-Паразиты / Gisaengchung (2019) WEB-DLRip [H.265] [10-bit] [PR]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычное корейское семейство жизнь не балует. Приходится жить в сыром грязном полуподвале, воровать интернет у соседей и перебиваться случайными подработками. Однажды друг сына семейства, уезжая на стажировку за границу, предлагает тому заменить его и поработать репетитором у старшеклассницы в богатой семье Пак. Подделав диплом о высшем образовании, парень отправляется (   Читать дальше...   )Производство: Корея Южная / Barunson E&A, CJ E&M Film Financing & Investment Entertainment & Comics, CJ EntertainmentЖанр: Триллер, драма, комедияРежиссер: Пон Джун-хоАктеры: Сон Кан-хо, Ли Сон-гюн, Чо Ё-джон, Чхве У-щик, Пак Со-дам, Чан Хе-джин, Чон Джи-со, Чон Хён-джун, Ли Джон-ын, Пак Со-джунПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные), английскиеПродолжительность: 02:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A1967057CA1E433CCD99878BAC12D489352B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338971   (268121) от 17.11.2019
-
-Твоя апрельская ложь / Shigatsu wa kimi no uso / Your Lie in April  (2016) HDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268121.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Косэя Ариму считали мальчиком-гением. Юное дарование выиграло почти все известные конкурсы по игре на фортепьяно. Но потом у Косэя умерла мать, после чего он больше никогда не прикасался к музыкальным инструментам. Мальчик перестал слышать музыку. Окружающий мир стал пугающе монохромным.
-Прошло несколько лет. Подросший Косэй знакомится со своей сверстницей-скрипачкой, (   Читать дальше...   )Производство: Япония, C&I EntertainmentЖанр: Драма, мелодрама, музыкаРежиссер: Такэхико СиндзёАктеры: Кэнто Ямадзаки, Судзу Хиросэ, Анна Исий, Таиси Накагава, Масахиро Комото, Хиротаро Хонда, Юка Итая, Рэи ДанПеревод: Многоголосый любительский, Одноголосый любительскийСубтитры: Русские (Doranime & Eternity) - отдельным файломПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B065B7649C31CAB455AE654E80C48ABE6309D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267190   (267528) от 05.12.2018
-
-Мастер / The Master (2014) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китай, середина 19 века.Великобритания наводнила Китай опиумом.Истинные патриоты всеми силами пытаются остановить гибель нации.По всей стране открываются школы боевых искусств, в расчете на то, что молодежь будет вести здоровый образ жизни.В фильме показана история открытия первой школы Чой Ли Фут...Производство: КитайЖанр: Боевые искусства, ИсторическийРежиссер: Ке ЧжоуАктеры: Сянгуо Чан, Май Цзинь Тун, Чен НиПеревод: Любительский одноголосый, закадровый Виктор БереговыхПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A199E211B19E0E95DC3D68D2C9D2033E96DE88A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

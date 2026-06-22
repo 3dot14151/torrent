@@ -1,3 +1,84 @@
+###  Публикация: 905781   (299271) от 13.11.2020
+
+Робертино Лоретти - Избранное (2003) [MP3|320 кб/с]<Italian pop, vocal>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_299271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ямайка
+02. Солнце Мое
+03. Аве Мария
+04. Мама(   Читать дальше...   )Жанр: Italian pop, vocalПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68207FB7D0A9D7B7C3E26187473DD7A5DA3940A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582777   (297183) от 14.11.2020
+
+VA - Das Traumstern-Orchester spielt Hits [12CD] (2010) [MP3|320 кб/с]<Instrumental, Колыбельные>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спокойной ночи, малыши!  Das Traumstern-Orchester исполняет хиты суперзвезд - ABBA, Elton John, Madonna, Mariah Carey, Michael Jackson, Phil Collins, Pink Floyd, Queen, Rolling Stones, Stevie Wonder, Sting & The Police, U2. Нежные и мелодичные звуки помогут молодым родителям спокойно убаюкать своих младенцев, которые безусловно увидят прекрасные сны.Жанр: Instrumental, КолыбельныеПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B597B8219EFB501F3CB5DF6359B68479695E74D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334391   (296826) от 28.10.2019
+
+Люси Монтгомери | Эмили из «Молодой Луны» (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296826.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ферме "Молодая Луна" жизнь течет давным-давно заведенным чередом. Но однажды две бездетные хозяйки дома были вынуждены приютить девочку, дочь своей покойной сестры. Жесткие рамки, в которые пытаются поставить Эмили ее сдержанные и гордые родственники, не могут вместить трепетную поэтическую душу подростка - поэтому конфликты неизбежны. Тем не менее, (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 14:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47122342A22E9B79AC990370D3DA04F8C05DBC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079285   (296122) от 03.12.2016
 
 Ганс Христиан Андерсен | Новое платье короля. Соловей императора. Стойкий оловянный солдатик (2010) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296122.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296020.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296019.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295946.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295944.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295938.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ Zouzounia - Christmas in the World (2009) [MP3|192 kbps]<Детские песе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295840.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ VA - Любимые детские песни (2009) [MP3|320 kbps]<Pop>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295645.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ VA - Новогодние детские песенки (2011) [MP3|320 kbps]<Д
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295500.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ VA - Детский карнавал. Сборник песен для дете�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295489.jpg" />
 </div>
 
 
@@ -282,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294362.jpg" />
 </div>
 
 
@@ -311,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294265.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294150.jpg" />
 </div>
 
 
@@ -366,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294144.jpg" />
 </div>
 
 
@@ -395,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293736.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293369.jpg" />
 </div>
 
 
@@ -450,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293180.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292148.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291981.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ Shamindra - Baby Massage (2007) [MP3|320 kbps]<Музыка для малыше�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291750.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291376.jpg" />
 </div>
 
 
@@ -582,7 +663,7 @@ Tweenies - The Christmas Album (2004) [MP3|320 kbps]<Детские песенк
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290133.jpg" />
 </div>
 
 
@@ -611,7 +692,7 @@ Disney - Princess Christmas Album (2009) [MP3|192 kbps]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290119.jpg" />
 </div>
 
 
@@ -625,84 +706,6 @@ Disney - Princess Christmas Album (2009) [MP3|192 kbps]<Детские песе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67B7A1AAA1E213030634630549D28D14386ECE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963424   (288954) от 07.12.2015
-
-Евгений Клюев | Сказки Простого Карандаша (2014) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказывается, если присмотреться повнимательней к простым вещам, которые нас окружают, можно увидеть, что вокруг творятся самые настоящие чудеса! Герои сказок Клюева – Оловянная Ложка, которая мечтает о Барселоне, Балкончик, который грезит, что он птичка, Мыльный Пузырь, который катается на карусели, Пирожок-ни-с-Чем, который любит классическую музыку, и множество (   Читать дальше...   )Жанр: СказкиПродолжительность: 04:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919E609CA43DD3AE958311F9E9CA9D1C948CBA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963382   (288724) от 07.12.2015
-
-VA - Снова в школу (2015) [MP3|320 кб/с]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детские песниПродолжительность: 01:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D878936CE280FEA07D8A01614A9617ADCB7376E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080648   (288545) от 07.12.2016
-
-Екатерина Каретникова | Гость из Белого Камня (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятилетний Антон живёт в маленьком городке на берегу Японского моря. Больше всего на свете ему хочется узнать правду о таинственном посохе, принадлежавшем его деду. Шестнадцатилетний петербуржец Саша пытается разобраться: кто его преследует и почему. Судьба сталкивает ребят при драматических обстоятельствах, но оба готовы помочь друг другу справиться с, казалось (   Читать дальше...   )Жанр: Приключения, детективПродолжительность: 04:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6886FD9DDD3CFA1F64D016DD505825AFCF26D80D
 ```
 
 https://mybot314.ru/tekegram_catalog/

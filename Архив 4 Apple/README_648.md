@@ -1,3 +1,55 @@
+###  Публикация: 1678087   (148041) от 20.11.2023
+
+PullTube 1.8.5.19 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 19.11.2023Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0E9D11F9ABCBA729F814FA377D78DE06BDC91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678058   (148016) от 20.11.2023
+
+Amadeus Pro 2.8.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2023Разработчик: © 2022 HairerSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53186E60BD1583298927A973BD274F2ADC7C314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678200   (148008) от 20.11.2023
 
 Tipard FixMP4 for Mac 1.0.6 [Multi/Ru]
@@ -6,7 +58,7 @@ Tipard FixMP4 for Mac 1.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148008.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ OmniGraffle Pro 7.22.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147994.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Unite 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147992.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Native Instruments Kontakt 6 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147947.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Text Workflow 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147938.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Sound Siphon 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147904.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Iris 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147901.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Notebooks – Write and Organize 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147868.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Tipard DVD Creator for Mac 3.2.38 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147861.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ XMind Pro 11.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147854.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ TechTool Pro 15 v15.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147852.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ KCNcrew Pack 11-15-23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147823.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ TG Pro (Temperature Gauge Pro) 2.88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147704.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Mac FoneLab Android Data Recovery 3.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147693.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Mac DVDRipper Pro 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147678.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Permute 3 v.3.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147665.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ UltraEdit 20.00.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147662.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ Postbox 6 v6.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147604.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ Wattagio 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147598.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Sublime Text 4.0 Build 4166 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147580.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ AweEraser 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147579.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ PeakHour 4 v4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147567.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ ON1 Photo RAW 2024 v.18.0.4.14758  [Multi/Ru] [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147543.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Focus Matrix Pro 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147534.jpg" />
 </div>
 
 
@@ -625,60 +677,6 @@ Focus Matrix Pro 1.3.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C4828C428BCDF7745106A4E6C2BF62BC8AE337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271818   (147481) от 25.12.2018
-
-MacFamilyTree 8 v8.3.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147481.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacFamilyTree 8 поможет вам запечатлеть историю своей семьи и превратит данные и факты в отчёты и впечатляющие графики.
-
-MacFamilyTree 8 предлагает множество вариантов захвата и визуализации истории вашей семьи. Теперь от того, как вы хотите проиллюстрировать свои семейные отношения - MacFamilyTree 8 найдёт правильное решение, предлагая различные типы отчётов, диаграмм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10.0+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1480AA8C4BF4C60B51BDF19E00256AD388C602B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588757   (147459) от 15.12.2012
-
-Modern Combat 4: Zero Hour [4.3+jailbreak]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший шутер от первого лица возвращается на мобильные девайсы с новой историей! В результате ядерной катастрофы, единственный шанс избежать глобальных разрушений падает на небольшой взвод элитных солдат, которые должны спасти мир от лидеров террористической группы.Тип издания: ЛицензияЖанр: Шутер от первого лицаЯзык интерфейса: Мультиязычный (Русский присутствует)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

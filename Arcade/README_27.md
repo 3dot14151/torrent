@@ -1,3 +1,55 @@
+###  Публикация: 1246741   (458698) от 12.09.2018
+
+Unravel Two (2018) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда рвешь связи с прошлым, всегда появляются новые. В Unravel Two вам предстоит создать собственного Ярни. А затем встретить других Ярни в совместной локальной или одиночной игре, подружиться и помогать друг другу.Тип издания: LicenseРазработчик: Coldwood InteractiveЖанр: Adventure (Platformer), Puzzle, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D388A125324DB350BB45AD5C997465B1C103D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162453   (458609) от 01.09.2017
+
+NARUTO Ultimate Ninja STORM Dilogy (2017) [En] (1.0/1.0) Repack xatab
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458609.jpg" />
+</div>
+
+
+###  Подробнее
+
+NARUTO SHIPPUDEN: Ultimate Ninja STORM 2 - это все самое яркое, что есть в мире Наруто! Игра остается верной духу сериала и погружает игрока в сюжет Ураганных хроник, на этот раз дополненный новой боевой системой.Тип издания: RepackРазработчик: CyberConnect2Жанр: Arcade (Fighting), ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DEF85610C55A23AB4C2AF8F7D11AD040210442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162319   (458461) от 01.09.2017
 
 Death Point (2017) [Ru/En] (1.0) Repack Covfefe
@@ -6,7 +58,7 @@ Death Point (2017) [Ru/En] (1.0) Repack Covfefe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458461.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Brave: The Video Game / Храбрая сердцем [Ru/En] (RePack/1.0.0.3) 2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457027.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Iron Brigade + DLC [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456862.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Mines of Mars (2018) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456402.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Unravel Two (2018) [En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456388.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Death Point (2017) [Ru/En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456254.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Brave: The Video Game / Храбрая сердцем [Ru] (RePack/1.0) 2012 | A
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454395.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Epica (2016) [En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452252.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ WARRIORS ALL-STARS (2017) [En/Ja/Ko] (1.0.0.1/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452063.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Teslagrad (2013) [Ru/Multi] (1.4.1) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450662.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Brave: The Video Game [Ru/En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449935.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ A.I. Invasion (2015) [En] (1.0) Repack Mr.Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448820.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Super Lucky's Tale (2018) [Ru/En] (2827966/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448057.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Color Guardians (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446791.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446290.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.6/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444335.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Double Dragon: Neon (2014) [En] (1.0/u3) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443617.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Injustice 2 (2017) [Ru/Multi] (1.0/u12/dlc) Repack R.G. Catalyst [Legendary Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441298.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438767.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Gravity Ghost (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_437702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437702.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436598.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Clockwork (2016) [En] (1.0.0.3) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436364.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) Unofficial CoolGames
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434327.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Indivisible (2019) [Ru/Multi] (42940/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431267.jpg" />
 </div>
 
 
@@ -615,59 +667,6 @@ Indivisible - игра в жанре экшн-RPG / платформер с ве
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:509B7D7AA27591287653128A790D8AE598368325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033666   (430533) от 25.09.2018
-
-Rocket League (2015) [Ru/Multi] (1.53/dlc) Repack Other s [Game of the Year Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rocket League - это аркадный проект, который сочетает в себе элементы футбола и боевых гонок на мощных автомобилях. Приятная физика автомобилей, отличная картинка, ураганный геймплей, кооперативный локальный режим вплоть до четырех игроков, онлайн для 8 игроков, множество арен и автомобилей, возможность за просмотром повторов создавать свои неповторимые видеоролики. (   Читать дальше...   )Тип издания: RepackРазработчик: Psyonix, Inc.Жанр: Arcade, Racing (Cars, Soccer), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E895A8199F16D770467A0EAF784A88FAC529C372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165341   (429953) от 14.09.2017
-
-Bloody Zombies (2017) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон наводнили полчища нежити. Город кишит ордами мутировавших зомби.
-Bloody Zombies – это кооперативный экшен/файтинг, в который могут играть как игроки с VR, так и игроки с обычными плоскими экранами. Сражайтесь в руинах Лондона с устрашающими своим разнообразием зомби, используя изощренную систему сражений свободного формата, а также постоянно расширяющиеся (   Читать дальше...   )Тип издания: LicenseРазработчик: Paw Print Games Ltd.Жанр: Action (Fighting), Coop, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60C5FDA6ECED8E9C6164CF4F1949010A0D6E0D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

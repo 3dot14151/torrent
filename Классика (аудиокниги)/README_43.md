@@ -1,3 +1,57 @@
+###  Публикация: 106066   (179552) от 02.12.2020
+
+Сенкевич Генрик | Огнём и мечом [1846-1916] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрик Адам Александр Пий Сенкевич
+Родился в городке Воля Окжейска, учился в Варшавском университете. В 1870 году устроился на работу в газету, с 1876 по 1878 год путешествовал по США в качестве специального корреспондента. В восьмидесятых годах обратился к литературе: его перу принадлежат широко известные исторические романы "Огнем и мечом", "Потоп", (   Читать дальше...   )Жанр: Исторический романПродолжительность: 43:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F496CFC779B33C296256398A2794247E9338E749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594056   (179320) от 29.11.2022
+
+Джон Бойнтон Пристли | Улица Ангела (2009) [MP3, Маргарита Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179320.jpg" />
+</div>
+
+
+###  Подробнее
+
+На улице Ангела в Лондоне находилась контора "Твиг и Дэрсингем". Дела фирмы шли плохо, но неожиданно в конторе появляется агент по сбыту товаров. С его приходом фирма стала преуспевать, и у людей, работавших там, появились радужные надежды на будущее.....
+Произведение пронизано тончайшими психологическими сюжетами, за которыми кроются размышления автора (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 23:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFF31342B03A2E6477E6A4607B9E7638E787556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428952   (178273) от 04.12.2020
 
 Майн Рид | Гвен Винн (2020) [MP3]
@@ -6,7 +60,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178273.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_177970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177970.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176041.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175609.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175526.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174093.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173428.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172416.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172412.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172404.jpg" />
 </div>
 
 
@@ -283,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172332.jpg" />
 </div>
 
 
@@ -311,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172227.jpg" />
 </div>
 
 
@@ -339,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172226.jpg" />
 </div>
 
 
@@ -368,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172225.jpg" />
 </div>
 
 
@@ -394,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172223.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172222.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172221.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172220.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172219.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172218.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172215.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172214.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172209.jpg" />
 </div>
 
 
@@ -643,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172208.jpg" />
 </div>
 
 
@@ -656,59 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78DA40F3ECFDABA5E12030FC54569AA51DE76AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351018   (172206) от 19.10.2023
-
-Александр Грин | Психологические новеллы. Часть 1 (2007) [MP3, Борис Хасанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Степанович Грин (1880–1932) – русский писатель, прозаик и поэт, представитель неоромантизма, автор философско-психологических произведений с элементами символической фантастики. Создатель вымышленной страны, которая благодаря критику К.Л. Зелинскому получила название «Гринландия». Один из самых талантливых, загадочных русских писателей первой половины XX (   Читать дальше...   )Жанр: Русская литература, классика, новеллаИздательство: Вира-МПродолжительность: 05:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D7DC36575D891E2B17E3E21441F81F6F386321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459544   (172205) от 19.10.2023
-
-Джек Лондон | Майкл, брат Джерри (2011) [MP3, Евгений Карпов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Лондон (1876–1916) был и остается одним из самых популярных иностранных писателей. Читатели любят его книги за их жизнеутверждающий оптимизм, за мужество и целеустремленность героев, за прославление в них героического начала в человеке.
-«Майкл, брат Джерри» – тяга к путешествиям, любознательность и огромное желание отыскать своего брата заставили ирландского (   Читать дальше...   )Жанр: Классика, повестьИздательство: ИДДКПродолжительность: 11:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F46E617FCBFDB73D0AAAB94301AE670C37FBC69
 ```
 
 https://mybot314.ru/tekegram_catalog/

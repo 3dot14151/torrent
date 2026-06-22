@@ -1,3 +1,81 @@
+###  Публикация: 1392179   (769808) от 24.06.2020
+
+Когда вяжут серьёзно / Karera ga honki de amu toki wa / Close-Knit (2017) HDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцатилетняя Томо живет со своей мамой Хироми, но та бросает Томо и уходит из дома. Томо, оставшись совсем одна, приезжает к дяде Макио. У Макио есть красавица-девушка Ринко, она родилась мужчиной и сейчас работает в доме престарелых. Томо удивлена и сбита с толку, ведь Ринко относится к ней более ласково и тепло, чем её родная мать.Производство: Япония / Dentsu, J Storm, Paradise CafeЖанр: ДрамаРежиссер: Наоко ОгигамиАктеры: Тома Икута, Эико Коикэ, Норико Эгути, Муги Кадоваки, Кэнта Киритани, Рин Какихара, Рири, Мисако Танака, Мимура, Сюдзи КасивабараПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C967C9D83B190868F316C7A0512ED7ACC51FC06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392160   (769604) от 24.06.2020
+
+Гундала / Gundala (2019) BDRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё ребенком Санчака потерял родителей — отец погиб, отстаивая права рабочих, а мать уехала на заработки и не вернулась — с тех пор мальчик выживал самостоятельно. Нелегкая жизнь на улице научила его не только эффективно махать ногами, а и думать в первую очередь о собственной безопасности, но когда волна насилия захлёстывает город, мужчине приходится встать на сторону (   Читать дальше...   )Производство: Индонезия / Screenplay Films, Bumilangit Studios, Legacy PicturesЖанр: Боевик, фантастика, драмаРежиссер: Джоко АнварАктеры: Абимана Арьясатья, Тара Басро, Бронт Паларэ, Арио Баю, Лукман Сарди, Арсвенди Насутион, Pritt Timothy, Aqi Singgih, Донни Аламшя, Tanta GintingПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 02:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F579F21BFDD8CB038F30F1D242CD08F293B07C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392597   (769180) от 26.06.2020
+
+Очень плохой монах (Порочный монах) / Gokuaku bozu / Wicked Priest (1968) DVDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монах Синкай (Томисабуро Вакаяма) любит женщин, выпивку, азартные игры, за что настроил против себя всех монахов своего храма, кроме настоятеля, который считает Синкая своим сыном и прощает ему все его грехи. Однажды Синкай вступает в противоборство с бандой Кито, которые обманом и силой заставляют приезжих молодых девушек работать в борделе.Производство: Япония / Toei CompanyЖанр: КриминалРежиссер: Киёси СаэкиАктеры: Томисабуро Вакаяма, Бунта Сугавара, Кэндзиро Исияма, Хосэй Комацу, Масуми Татибана, Мари Сираки, Тацуо Эндо, Канби Фудзияма, Тэруо Исияма, Кэйко КодзимаПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B89031363886901AF1654A6B288E0957F3951A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125935   (766957) от 16.04.2017
 
 Сенсация! / Scoop! (2016) HDRip
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766957.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766782.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766209.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766057.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764436.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764183.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763707.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762719.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762412.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760251.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759752.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_759702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_759702.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758633.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758395.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758081.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757096.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756911.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756511.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756331.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754942.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754517.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754469.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_753654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753654.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A5735823213FEA284B6F0B70E75E61BD93543D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395763   (752025) от 12.07.2020
-
-Всё, что тебе нужно - это любовь / Luo pao ba ai qing / All You Need Is Love (2015) HDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатая и заносчивая Фэнь приезжает на Тайвань на маленький курорт Пэнху, потому что побывать там мечтали ее умершие родители. Там она останавливается в крохотном частном отеле, которым управляет местный отец-одиночка У. Девушке резко не нравится это богом забытое место, но уехать оттуда она не может – она случайно утопила все свои вещи, включая документы. Со временем (   Читать дальше...   )Производство: Гонконг, Тайвань, Media Asia Films, Media Asia GroupЖанр: Мелодрама, комедияРежиссер: Ричи Рен, Энди ЛоАктеры: Шу Ци, Ричи Рен, Цзю Кун, Лего Ли, Ма Ниен-Сиен, Лун Ти, Лотус Ван, Вивиан Доусон, Сиу-Чинг Чанг, Кун Да СеПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23EDBBCE0A74A83FB4D234F40354251DEBB5718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 322549   (751947) от 12.04.2011
-
-Черные кошки в бамбуковых зарослях / Kuroneko / Yabu no naka no kuroneko (1968) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый японский киношедевр основан на классическом сюжете о кошках-обортнях, которые в японском фольклоре обладают магической силой и способны обитать в обоих мирах. Мать и дочь становятся жертвами надругательства со стороны отряда солдат и заживо сгорают в своей хижине. Вскоре после этого, по ночам у ворот Расёмон объявляются женщины знатного происхождения, (   Читать дальше...   )Производство: Япония / Toho CompanyЖанр: Ужасы, Фэнтези, ДрамаРежиссер: Канэто СиндоАктеры: Китиэмон Накамура, Нобуко Отова, Кивако Тайти, Кэй Сато, Тайдзи Тонояма, Рокко Тоура, Хидэо Кандзэ, Эимеи Есуми, Сёдзи Оки, Рика МидзукиПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D218EA264E4A94E051CE681A926C62EBAD6AE173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523358   (751554) от 11.01.2022
-
-Смерть в состоянии экстаза (Смерти в Токимеки) / Tokimeki ni shisu / Deaths in Tokimeki (1984) HDTVRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наёмный убийца приезжает в небольшой провинциальный городок, чтобы убить лидера местной религиозной секты, под властью которого, похоже, находится всё местное население.Производство: Япония, New Century ProducersЖанр: Драма, криминалРежиссер: Ёсимицу МоритаАктеры: Кэндзи Савада, Канако Хигути, Наоки Сугиура, Харуко Като, Иттоку Кисибэ, Такэси Кусака, Нобуко Миямото, Сигэру ЯдзакиПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322A41199C236923D36435D03FCCDAFC381C9CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

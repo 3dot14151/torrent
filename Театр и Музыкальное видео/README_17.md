@@ -1,3 +1,174 @@
+###  Публикация: 977762   (965409) от 21.01.2016
+
+Квартирник у Маргулиса. 10 выпуск. Варвара Визбор (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Варвара Визбор — внучка известного советского барда Юрия Визбора. Талантливая девушка пробовала пройти «слепые» прослушивания шоу «Голос», но, несмотря на проникновенное исполнение, ни один из наставников к ней не повернулся. Зато Варвара обрела самое дорогое — зрительскую любовь. В теплой и душевной атмосфере Варвара Визбор исполнит песни, полюбившиеся слушателям. (   Читать дальше...   )01. Рассказ женщины
+02. Зима
+03. Осень
+04. Радуга(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D7A4C332DD59C2F78E6FB25F11329588151C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359160   (964996) от 11.02.2020
+
+Новогодний концерт Венского филармонического оркестра / Neujahrskonzert der Wiener Philharmoniker (2020) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии. Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Carl Michael Ziehrer
+Overture to "Die Landstreicher (The Vagabonds)"
+Josef Strauss
+Liebesgrüße (Greetings of Love) Waltz, op. 56(   Читать дальше...   )Производство: Австрия/Sony Classical, ORFOЖанр: Музыкальный концерт, классическая музыкаРежиссер: Хеннинг КастенПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 01:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87E2E5ADF82B96DE958966EA5BB86688E087AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359222   (964934) от 11.02.2020
+
+Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за февраль 202001_Francesca Lombardo - Call Me Wrong
+02_Боронина - Малолетка
+03_Milk Sugar, Münchner Symphoniker, Euphonica - Right Here, Right Now
+04_МАЧЕТЕ - Никуда не смыться(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F264249F1B1E5C1F4405E7307086D3098D60C23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746255   (964828) от 17.01.2014
+
+Gregorian - Epic Chants Tour 2013 (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964828.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Gregorian" проект знаменитого продюсера Франка Петерсона, среди подопечных которого Сара Брайтман, Офра Хаза, "Enigma". Название отражает суть, вернее, ее часть: в манере григорианского песнопения звучат отнюдь не молитвы, а знаменитые на весь мир поп и рок хиты! В раздаче находится бонусный DVD, вышедший в специализированном издании в Германии (   Читать дальше...   )01. Chariots Of Fire
+02. Conquest Of Paradise
+03. The Sound Of Silence
+04. The Rose(   Читать дальше...   )Производство: Nemo StudiosЖанр: New Age, Pop, Neo-Medieval, Symphonic Rock, Classical CrossoverСубтитры: НетПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DEAA392C173C2CD730B7CE5D8A80F2A67CD7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619111   (964048) от 19.02.2013
+
+BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E9C1F354FF00B031A155202E6931A3C14D141E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359616   (964011) от 12.02.2020
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 4 (2020) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся сила энергия и мощь понастоящему крутой музыки! Это 4я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 4 — Intro
+01. Def Leppard — Let’s Get Rocked
+02. Offspring — Gotta Get Away
+03. Lee Aaron — Some Girls Do(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DA6B0B7BE3848C150851034293B197E4FB36BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 746746   (963749) от 18.01.2014
 
 UFO - On Air At The BBC TV 1979-1982 (Disc Six) (2013) DVD5
@@ -6,7 +177,7 @@ UFO - On Air At The BBC TV 1979-1982 (Disc Six) (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963749.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ James Last - Live at the Royal Albert Hall (2008) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963738.jpg" />
 </div>
 
 
@@ -61,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963225.jpg" />
 </div>
 
 
@@ -91,7 +262,7 @@ Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962993.jpg" />
 </div>
 
 
@@ -120,7 +291,7 @@ Roxette - Live, Travelling the World (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962532.jpg" />
 </div>
 
 
@@ -149,7 +320,7 @@ Roxette - Live, Travelling the World (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962328.jpg" />
 </div>
 
 
@@ -178,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962314.jpg" />
 </div>
 
 
@@ -204,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962107.jpg" />
 </div>
 
 
@@ -233,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962010.jpg" />
 </div>
 
 
@@ -260,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961654.jpg" />
 </div>
 
 
@@ -289,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961385.jpg" />
 </div>
 
 
@@ -317,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961216.jpg" />
 </div>
 
 
@@ -343,7 +514,7 @@ Scorpions - MTV Unplugged In Athens (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960979.jpg" />
 </div>
 
 
@@ -372,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960940.jpg" />
 </div>
 
 
@@ -401,7 +572,7 @@ Michael Flatley - Gold (2000/2004) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960875.jpg" />
 </div>
 
 
@@ -430,7 +601,7 @@ Roxette - Live, Travelling the World (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960857.jpg" />
 </div>
 
 
@@ -459,7 +630,7 @@ Epica - Retrospect: 10th anniversary (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960853.jpg" />
 </div>
 
 
@@ -488,7 +659,7 @@ VA - Зимний марафон № 221: Продвинутые Зимние Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960807.jpg" />
 </div>
 
 
@@ -517,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960670.jpg" />
 </div>
 
 
@@ -543,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960469.jpg" />
 </div>
 
 
@@ -557,174 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BEA38059D829E2A862F34706F8C4776A9D62F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622299   (960464) от 22.02.2013
-
-"O2label"/Strannik (vol.1.) HDTV 720p (2013) HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Blue
-02. An Universe Is In A Pocket
-03. Autumn
-04. Out Of Mirror(About Love)(   Читать дальше...   )Жанр: Музыка, Electronic, Downtempo, ChilloutПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3ABF01FE6A40FB23B591A4E47EC9BB44CCA473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622058   (960319) от 22.02.2013
-
-Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectronicПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EDAF4941AC802103734A7644B8B967ACB6A44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 277969   (959978) от 03.01.2011
-
-Дискотека 80-х: 3D-Шоу. Авторадио представляет (2011.01.01) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959978.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Дискотека 80-х" стала дискотекой в полном смысле этого слова, где в одном непрерывном музыкальном ряду встали кумиры 80-х: C.С.Сatch, Alphaville, Secret Service, Ricchi e Poveri, Ottawan, Savage, Pupo, Barrabas, Олег Газманов, Стас Намин и группа "Цветы", Юрий Шатунов… В качестве специального гостя на фестиваль были приглашены музыканты легендарной (   Читать дальше...   )01. Юрий Шатунов - Белые розы
-02. Юрий Шатунов - Седая Ночь
-03. Ottawan - Hands Up
-04. Ottawan - D.I.S.C.O.(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3F4D7042BC1C0D3B89237139C1909A4977E191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979166   (959700) от 26.01.2016
-
-Квартирник у Маргулиса - Найк Борзов (2016) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса  автор песен Найк Борзов. Дата эфира: 16.01.201601. Верхом на звезде
-02. Ты говоришь
-03. Ева
-04. Приснится мне(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A96425748D61632B71FB9C79FEBFEE7869CB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278293   (959028) от 04.01.2011
-
-Лучшие песни 2010 года (31.12.2010) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Лучшие Песни пройдет на самой главной концертной площадке страны, в Кремлевском Дворце. Лучшие Песни 2010, как ежегодное шоу, проводится именно на этой сцене мирового уровня, так как в программе звучат только - самые лучшие песни, выступают - самые талантливые и одаренные исполнители. Концерт Лучшие Песни 2010 - это прекрасный вечер, проведенный в кругу семьи, (   Читать дальше...   )01.Николай Басков - Все цветы
-02.Валерия - Птица-разлука
-03.Валерий Меладзе - Небеса
-04.Анна Вески - Радоваться жизни(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDD8445A21CD4580C370E62F9B547C1C96DDF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622600   (958682) от 23.02.2013
-
-Helene Fischer -Live/Fur einen Tag (2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958682.jpg" />
-</div>
-
-
-###  Подробнее
-
-За свою успешную семилетнию карьеру, Хелене Фишер отмечена большим успехом и была удостоена многочисленными наградами. В 2012 году Хелене отправилась в тур под названием "Fur einen Tag", 50 концертов в семи странах. 350000 зрителей были восхищены профессионально поставленым шоу. "Fur einen Tag" - это не просто еще одна достопремечательность, но (   Читать дальше...   )Производство: EMI Music Germany GmbHЖанр: PopПеревод: ОтсутствуетПродолжительность: 02:33:58
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

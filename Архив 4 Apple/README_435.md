@@ -1,3 +1,58 @@
+###  Публикация: 1419538   (340121) от 28.10.2020
+
+MWeb: Markdown writing, note taking, static blog generator 3.4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340121.jpg" />
+</div>
+
+
+###  Подробнее
+
+MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
+MWeb оддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др.. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: CoderForArt IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC61163362456B7A89EF35512066185408D8789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419446   (340120) от 28.10.2020
+
+URL Manager Pro 5.4.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340120.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2020Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C1BE2A5D295B3970C5F7508411D6E5F60AC363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419586   (339989) от 28.10.2020
 
 Elmedia Player Pro 7.16 [Multi/Ru]
@@ -6,7 +61,7 @@ Elmedia Player Pro 7.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339989.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Exposure X6 v6.0.1.100 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339985.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Airy 3.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339984.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ Magnet 2.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339977.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339885.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ iMazing 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339884.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Audirvana Plus 3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339874.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ Blocs 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339873.jpg" />
 </div>
 
 
@@ -226,7 +281,7 @@ Folx Pro 5 v5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339718.jpg" />
 </div>
 
 
@@ -255,7 +310,7 @@ Privatus 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339020.jpg" />
 </div>
 
 
@@ -282,7 +337,7 @@ SnippetsLab 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338817.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ SuperDuper! 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338693.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ News Explorer 1.8.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338684.jpg" />
 </div>
 
 
@@ -363,7 +418,7 @@ DEVONthink Pro Office 2.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338682.jpg" />
 </div>
 
 
@@ -389,7 +444,7 @@ Liquivid Video Improve 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338675.jpg" />
 </div>
 
 
@@ -417,7 +472,7 @@ aText 2.30.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338669.jpg" />
 </div>
 
 
@@ -443,7 +498,7 @@ SubsMarine 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338668.jpg" />
 </div>
 
 
@@ -472,7 +527,7 @@ AnyMP4 PDF Converter for Mac 3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338666.jpg" />
 </div>
 
 
@@ -498,7 +553,7 @@ iThoughtsX 5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338534.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ iStat Menus 6 v6.40 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338331.jpg" />
 </div>
 
 
@@ -551,7 +606,7 @@ Luminar 1.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338100.jpg" />
 </div>
 
 
@@ -579,7 +634,7 @@ Airmail 3.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337976.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ PatterNodes 2 v2.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337916.jpg" />
 </div>
 
 
@@ -634,7 +689,7 @@ Color Wheel 4.7 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337915.jpg" />
 </div>
 
 
@@ -645,60 +700,6 @@ Color Wheel 4.7 [Multi/Rus]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FA30129D09998D9A2AD115CAF8DB578904C2764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419720   (337914) от 29.10.2020
-
-File List Export 2.4.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337914.jpg" />
-</div>
-
-
-###  Подробнее
-
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл!
-
-Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17572D659F3274A36753A9DC97108A6F3FD3F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419717   (337913) от 29.10.2020
-
-Export for iTunes 2.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Export for iTunes -  экспортируйте свои плейлисты и альбомы из iTunes (или из нового музыкального приложения на MacOS Catalina) в любую локальную папку, внешнее хранилище, SD-карту или USB-накопитель.Вы можете легко перенести свои плейлисты на автомобильную стереосистему или любой другой медиаплеер. Конвертируйте файлы aac / m4a в mp3 для лучшей совместимости с большинством (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56397FB8C612579911FD786E8F963222D61D6A0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

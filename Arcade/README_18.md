@@ -1,3 +1,55 @@
+###  Публикация: 1138365   (663941) от 29.05.2017
+
+LEGO City Undercover (2017) [Ru/En] (1.0/upd4) Repack xatab
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к Чейзу! В игре LEGO® CITY Undercover вы примерите на себя роль Чейза Маккейна — офицера полиции, которому поручена операция под прикрытием по поиску преступника Рекса Фьюри. В совместном режиме для двух игроков можно исследовать открытый мир мегаполиса LEGO® City, состоящего из более чем 20 кварталов, в котором вас ждут расследования, угонщики, вождение (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Arcade, 3D, 3rd Person, Open WorldЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59879C8B331EF935C5C2DDB594B2B77EC08A3810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138706   (662947) от 30.05.2017
+
+Dustoff Heli Rescue 2 (2017) [Ru/Multi] (21) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662947.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dustoff Heli Rescue 2 вы сможете: спасать заложников, которых удерживают в лагерях военнопленных. Принять участие в военных действиях в пустыне, лесах, шахтах, на болотах и фьордах. Строить мосты и радиовышки. Защищать дружественные грузовики и VIP-конвои до того, как враги настигнут и уничтожат их! Находить и возвращать украденный груз и технику обратно в штаб! (   Читать дальше...   )Тип издания: LicenseРазработчик: Invictus Games Ltd.Жанр: Action, Arcade, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAEF5A0B7A30270113880BD5D905DF16C06B3AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225090   (662645) от 13.05.2018
 
 Heat Guardian (2018) [Ru/Uk/En] (0.0.4) Repack Other s
@@ -6,7 +58,7 @@ Heat Guardian (2018) [Ru/Uk/En] (0.0.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662645.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Synthetik (2018) [Ru/Multi] (15.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661653.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tokyo 42 (2017) [Ru/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660916.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Marvel vs. Capcom: Infinite (2017) [Ru/Multi] (1.0/dlc) License PLAZA [Deluxe Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659536.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ EXAELLA (2018) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659534.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Lara Croft GO: The Mirror of Spirits (2015) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657526.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (1.0/dlc) License FAIRLIGHT [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656851.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Creepy Road (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656463.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Guitar Hero Antology / Антология Guitar Hero [En] (RePack) 2007-2009 | 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655213.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Hirilun (2022) [Ru/Multi] (1.0c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654647.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Aztech Forgotten Gods (2022) [Ru/Multi] (1.0.8.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654639.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ THE MERCURY MAN (2018) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_654428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654428.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Spider: Rite of the Shrouded Moon (2015) [Ru/Multi] (1.1.1.11836) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651033.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ LEGO Batman 2. DC Super Heroes (RePack/1.0.0.18994) [Ru/En] 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650783.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Chicken Shoot 2 Edition 2012 (Р) [Multi9\+] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650782.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Lemma (2015) [Multi] (1.0.7.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650662.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Brigador (2016) [En] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649225.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ TEKKEN 7 (2017) [Ru/Multi] (2.21/dlc) License CODEX [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648188.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Brigador (2016) [En] (1.0) SteamRip ALiAS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647251.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Harold (2015) [Ru/Multi] (1.0.0.1.3) Repack xGhost
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646911.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646200.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Party Hard (2015) [Ru/Multi] (1.4.030.r/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644184.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Fossil Echo (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643354.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Pinball FX2 (2013) [Multi] (1.0.28/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642945.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ Pinball FX 2 — это пинбол с трёхмерной графикой, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0A9802C239704C8933992391525F2E534189151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136629   (642238) от 14.06.2017
-
-Impact Winter (2017) [Ru/Multi] (1.0.10) License CODEX
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642238.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Помощь придет через 30 дней...»
-Таинственное радиосообщение гласит: спасатели уже в пути. Вы — Джейкоб Соломон, лидер группы людей, переживших опустошительное падение астероида. Мир изменился, и теперь он погребен под толщей снега.Тип издания: LicenseРазработчик: Mojo BonesЖанр: Adventure, Action (Survival), Top-DownЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7F3AF1CD06785628253830BDB9D0240374A0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227988   (640826) от 29.05.2018
-
-Zombie Forest 2 (2018) [Ru/En] (1.01) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640826.jpg" />
-</div>
-
-
-###  Подробнее
-
-В режиме Истории вам необходимо любой ценой добраться до бункера, по пути преодолевая жажду и голод, сложности морального выбора и различные неприятные сюрпризы. Но с каждым убитым зомби, найденным оружием, встреченным выжившим вы становитесь только сильней. Режим Выживания - это настоящий вызов. Днем вы обустраиваете убежище, строите укрепления, добываете ресурсы, (   Читать дальше...   )Тип издания: LicenseРазработчик: Alexander TavintsevЖанр: Action (Survival, Top-Down), 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBCEF46D061F39570F1D528AC34FECB381089DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

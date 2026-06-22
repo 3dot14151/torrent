@@ -6,7 +6,7 @@
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549685.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545316.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545315.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542392.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534873.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531156.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517689.jpg" />
 </div>
 
 
@@ -190,6 +190,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380578   (499971) от 27.08.2011
+
+А. Трещев | Семейный юридический справочник [2010] [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_499971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся наша жизнь регламентируется законом, и знать свои права и ответственность по закону - наша обязанность.
+Этот семейный справочник поможет разобраться в очень непростых житейских ситуациях. Автор легко, доступно и нескучно истолковывает самые важные моменты нашей жизни.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382683   (492860) от 01.09.2011
 
 Э.В. Бойко | 1С: Предприятие 8.0. Универсальный самоучитель [2010] [PDF]
@@ -198,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492860.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488608.jpg" />
 </div>
 
 
@@ -259,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488411.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482313.jpg" />
 </div>
 
 
@@ -311,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463049.jpg" />
 </div>
 
 
@@ -340,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427882.jpg" />
 </div>
 
 
@@ -368,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_388384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_388384.jpg" />
 </div>
 
 
@@ -395,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_388280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_388280.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ ICAO - IAMSAR | ИКАО - МАМПС 2013 (Том I,II,III) [3 книги] (201
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386745.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362810.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347354.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344384.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340796.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339804.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339342.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337876.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335558.jpg" />
 </div>
 
 
@@ -671,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334878.jpg" />
 </div>
 
 
@@ -682,32 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E8DDAC6BDF26D7F6CF6DBF4030EB26A4A49639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960306   (305431) от 29.11.2015
-
-Ю. И. Немчинов и др. | От Укрытия до Конфайнмента четвертого блока Чернобыльской АЭС. Строительные аспекты (2006) [PDF, DJVU]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые представлены интегрированные данные о строительных аспектах преобразования объекта "Укрытие" Чернобыльской АЭС в экологически безопасное состояние, основанные на результатах отечественных и зарубежных исследований с 1986 по 2006 гг. Приведены результаты натуральных наблюдений, проанализированы состояние поврежденных конструкций и проблемы разработки (   Читать дальше...   )Жанр: Строительные аспектыФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B5B26AAC290A09B6D21DF087074203FC722245
 ```
 
 https://mybot314.ru/tekegram_catalog/

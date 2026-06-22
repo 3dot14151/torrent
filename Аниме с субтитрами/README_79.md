@@ -1,3 +1,29 @@
+###  Публикация: 1153194   (398354) от 02.10.2017
+
+Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2017, TV, 10 эп.] WEB-DL 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В школе народ обычно делится на две категории. В первой - задроты и ботаники, а во второй народ попроще, без закидонов. Обычным ребятам, которые не испытывают никаких трудностей с общением, проще простого найти себе пару и как следует насладиться первой юношеской любовью. У задротов и ботаников с этим дело обстоит на порядок хуже, но ведь они такие же люди, а значит (   Читать дальше...   )Производство: NAZЖанр: комедия, этти, романтика, школа, сёненРежиссер: Фурукава ХироюкиСубтитры: РусскиеПродолжительность: 10 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E81E58C6BAFECA304015E60B94FD8E471764316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 400003   (398224) от 15.10.2011
 
 Hanappe Bazooka / Базука Ханаппэ [1992, OAV] DVDRip raw
@@ -6,7 +32,7 @@ Hanappe Bazooka / Базука Ханаппэ [1992, OAV] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_398224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_398224.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kyukioku no Sex Adventure Kamasutra / Камасутра [1992, OAV] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398060.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tokyo Vice / Tokyo Project / Токийский проект [1988, OAV] DVDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397203.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Nobunaga Concerto | Концерт Нобунаги [2014, TV, 10] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394783.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Azumanga Daioh / Адзуманга Дайо [2002, TV, 26 эп. + Omake] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394197.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Centaur no Nayami / A Centaur's Life / Тревоги кентавра [2017, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393827.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Jigoku Shoujo: Yoi no Togi | Адская девочка (четвёртый с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393769.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akad
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391726.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Meitantei Holmes / Sherlock Hound / Famous Detective Holmes / Великий д�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391721.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391712.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Gekijouban Sword Art Online: Ordinal Scale | Мастера меча онлай�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391711.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391704.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391699.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Gamers! / Геймеры! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390285.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390233.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388956.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388803.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388769.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Kami Kuzu Idol | Phantom of the Idol | Богиня идола-мерзавца 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387751.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Kurogane no Linebarrels | Linebarrels of Iron | Стальной Лайнбар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387590.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Gekijouban Mahouka Koukou no Rettousei: Hoshi o Yobu Shoujo | Непутевый
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387273.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Bang Dream! | Ура мечте! (ТВ-1) [2017, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387178.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Gekijouban Kidou Senshi Gundam 00: A Wakening of the Trailblazer | Mobile Suit G
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386807.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Captain Earth | Капитан Земля [2014, TV, 25] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386227.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Macross 7 / Макросс 7 [1994, 49] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_386182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386182.jpg" />
 </div>
 
 
@@ -653,35 +679,6 @@ Macross 7 / Макросс 7 [1994, 49] DVDRip raw
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719443   (385824) от 05.11.2013
-
-Taneyamagahara no Yoru / Night of Taneyamagahara / Ночь на Танэямагахаре [2006, OVA] DVDRip 480p Raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танеямагахара представляет собой плоскогорье примерно посередине гор Китаками.
-Там почти всегда облачно, так что, естественно, нередки туманы, дожди и грозы.
-Там есть широкие луга, где пасётся более 800 лошадей.
-В одном из уголков Танеямагахары вокруг костра собралась группа людей.(   Читать дальше...   )Жанр: сказкаРежиссер: Ога КадзуоСубтитры: •Продолжительность: 27 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581E80E0DE892DAB83F5BBDC65C1B11D79BD1875
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1695298   (120413) от 28.01.2024
+
+Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat для MongoDB предоставляет вам высокоэффективный графический интерфейс для управления, администрирования и разработки баз данных MongoDB. Подключайтесь к локальным/удаленным серверам MongoDB и совместим с MongoDB Atlas. Navicat для MongoDB предлагает замечательные функции для управления, мониторинга, запроса и визуализации ваших данных. Вы можете легко повысить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09426E03CD4EC641E92B791CDE5AE3C238EE6071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695296   (120407) от 28.01.2024
+
+Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat для PostgreSQL — это мощный, но простой в использовании графический интерфейс PostgreSQL, предоставляющий обширные функциональные возможности для управления базой данных PostgreSQL и ее разработки. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7767B8161385AED810F423767792AB4C31362C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695550   (120366) от 29.01.2024
 
 JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.3 Intel/ARM [En]
@@ -6,7 +58,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120366.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ CrossOver 24.0-b1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120320.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120272.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Noir – Dark Mode for Safari 2024.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120264.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ EdgeView 4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120261.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Boxy SVG 4.23.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120260.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ doubleTake 2.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120258.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ GraphicConverter 12 for Mac 12.1 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120257.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ PullTube 1.8.5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120255.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ iReal Pro 2024.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120253.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Mimestream 1.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120247.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ OmniReader Pro for Mac 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120246.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ HitPaw Video Converter for Mac 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120110.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Infuse PRO 7.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120099.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ AltTab for Mac 6.65.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120096.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Native Instruments Kontakt 7 for Mac v.7.8.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120090.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ ForkLift 4 v.4.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120083.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ File List Export for Mac 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120081.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ NCH ClickCharts Diagram Pro 9.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120077.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Iris 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120076.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ MWeb Pro 4.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120074.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Debit & Credit Premium 6.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120072.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Stats 2.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_120070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120070.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ JetBrains PhpStorm for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119996.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ PhpStorm – это интегрированная среда разработк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFC35E3514DB126F0F0DECF3FF5DD110CD168328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695883   (119941) от 31.01.2024
-
-Dropshare 5 v.5.46 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119941.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2022 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75606B7FE0CD2A0935DD15AC928FB51390299D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696017   (119940) от 31.01.2024
-
-SponsorBlock for YouTube 5.5.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_119940.jpg" />
-</div>
-
-
-###  Подробнее
-
-SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE07D50C3837BEEE2A7DAA2ACC5CF6C309C1454
 ```
 
 https://mybot314.ru/tekegram_catalog/

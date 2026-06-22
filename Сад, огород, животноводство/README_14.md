@@ -1,3 +1,55 @@
+###  Публикация: 256592   (350326) от 10.11.2010
+
+Instituto Geografico, Novara, Italy | Растения от А до Я. Энциклопедия в 2-х частях [2007] [DJVU]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_350326.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свое время выходил журнал "Комнатные и садовые растения", а, может, это был другой журнал, который вел одноименную серию. Одним словом, предлагалось собрать 100 выпусков, объединить их и получить полноценную энциклопедию комнатных и садовых растений. И вот она перед вами. Красочная, подробная и, надеюсь, полезная. В ней не только описание растений, но и советы по агротехнике.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE16CB44753A44976F0ECE02A86631C79FF41E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418604   (346554) от 25.10.2020
+
+Римма Карписонова | Стильный цветник. Популярная энциклопедия (2018) [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие садоводы убеждены – создать в тени красивый цветник невозможно. Римма Анатольевна Карписонова – доктор биологических наук, профессор, главный научный сотрудник Главного ботанического сада РАН, автор крупнейшей в Европе коллекции «Сад в тени» – уверена, что даже под кронами больших деревьев растут сотни красивейших декоративных многолетников, отличающихся оригинальной (   Читать дальше...   )Жанр: Сад и огород, Хобби / увлечения, ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56006DB3996FEA1D9A6953FF692D7CA613E3F222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953669   (346494) от 05.11.2015
 
 Андрей Кашкаров | Бывший горожанин в деревне. Лучшие рецепты для загородной жизни (2011) [FB2]
@@ -6,7 +58,7 @@
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346494.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344089.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340642.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340339.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340208.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336908.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Black & Decker | The Complete Guide to Landscape Projects / Ландшафтны
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322167.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317081.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317077.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317068.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305225.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304177.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303077.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Philip Schmidt | The Complete Guide to Gazebos & Arbors / Беседки и ле
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_302885.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Black & Decker - The Complete Guide to Outdoor Carpentry / Руководств�
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_302695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_302695.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301131.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301022.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300931.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300808.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300431.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299566.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297933.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297927.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297926.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D8FD6AC95ED524364339022247E0157FC748C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078820   (297799) от 02.12.2016
-
-Н. Медведева (сост.) | Азбука пчеловода. Руководство по разведению пчел на приусадебном участке (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297799.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Мед и другие продукты пчеловодства только дорожают и из-за своей цены становятся почти недосягаемы. Но владельцы земельных участков могут обеспечить себя медовыми деликатесами сами. Стоит только захотеть. Ведь многие пчеловоды выросли из обычных садоводов-любителей. Однажды, заведя пару ульев для увеличения урожаев на даче, они настолько увлеклись разведением (   Читать дальше...   )Жанр: ПчеловодствоФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A7B37A5C0993999BC434B0D57E784093171832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078958   (297668) от 02.12.2016
-
-Мартин Штангль, Петер Клок | Умная обрезка и прививка плодовых и декоративных деревьев и кустарников (2014) [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все секреты обрезки и прививки деревьев, плодовых и декоративных кустарников под одной обложкой! Именно правильная обрезка способствует высокому качеству плодов и помогает сохранить здоровье деревьев без каких-либо опрыскиваний. А прививка позволяет самостоятельно и успешно размножать растения, сохраняя важные свойства сорта, экономить на покупке саженцев. Детальные (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E6543DDD4C37B99A99B0A2650167B8A1F4DA39
 ```
 
 https://mybot314.ru/tekegram_catalog/

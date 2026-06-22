@@ -1,3 +1,107 @@
+###  Публикация: 1226699   (653490) от 22.05.2018
+
+FAR - Lone Sails (2018) [Ru/Multi] (1.02) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653490.jpg" />
+</div>
+
+
+###  Подробнее
+
+FAR: Lone Sails – это приключенческая игра про путешествие на корабле. Ваш корабль уникален тем, что движется по высушенному морскому дну по следам некогда процветающей цивилизации. Вам нужно продолжать движение, даже несмотря на ряд препятствий на вашем пути и трудные погодные условия. Куда заведет вас ваше приключение? Неужели вы – единственный выживший?Тип издания: RepackРазработчик: OkomotiveЖанр: Adventure, ArcadeЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1B959B5FBF7CAD04B1E9ABC2B2974BA2B1B01D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031270   (653151) от 03.07.2016
+
+Desire (2016) [Ru/Multi] (1.0.3) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дезире – это поэтичный черно-белый классический квест. Когда учительница спрашивает Дезире, почему он не нарисовал солнце, как все другие ученики, мальчик непринужденно отвечает: «В моей голове всегда ночь.» Дезире от рождения не различает цвета, так что он станет вашим гидом в мир черного и белого. И заранее простите его за нерешительность, жизнь редко была с ним (   Читать дальше...   )Тип издания: RepackРазработчик: Sylvain SecciaЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5421DD62FFDBC548E6C11924EAD735F1916246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242059   (651888) от 26.03.2019
+
+The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Episode 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами заключительная глава истории Клементины, ставшей закаленным бойцом. Кошмары живого и мертвого мира долгие годы терзали девочку, и теперь затерянная в глуши школа может стать для нее желанным домом. Но ей придется многим пожертвовать, чтобы защитить его.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFCE356066A6BEDE19CC0C8CB2B513DE3657CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240921   (651878) от 26.03.2019
+
+The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1/upd1) License CODEX [Episode 1-4]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами заключительная глава истории Клементины, ставшей закаленным бойцом. Кошмары живого и мертвого мира долгие годы терзали девочку, и теперь затерянная в глуши школа может стать для нее желанным домом. Но ей придется многим пожертвовать, чтобы защитить его. Клем должна построить самостоятельную жизнь и взять на себя ответственность за Эй-Джея — осиротевшего (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADEAC57F778DDBD09BD293372873FA1B1698F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031470   (651369) от 04.07.2016
 
 Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
@@ -6,7 +110,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651369.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651117.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) License CPY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650646.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650123.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Copoka (2016) [En] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649008.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ We. The Revolution (2019) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_648182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648182.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646313.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Office Quest (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644380.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644333.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Lost Crown: A Ghosthunting Adventure / The Lost Crown: Призраки из
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642600.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Zero Escape: Zero Time Dilemma (2016) [En/Ja] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639361.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ House of Evil (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636985.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636901.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636662.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635694.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635551.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [Ru/En] (RePack)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634513.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ J.U.L.I.A. - Among The Stars (2014) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632839.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Pineview Drive - Homeless (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631389.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Dance of Death: Du Lac & Fey (2019) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631379.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Afterparty (2020) [Ru/Multi] (1.4.26f2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630948.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629627.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ Pineview Drive — хоррор первого лица, действие кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2CF949202054BFE306DF90FEE7BAF46DE4FEB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213638   (629563) от 04.06.2018
-
-Tunnels of Despair (2018) [Ru/En] (1.05) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tunnels of Despair представляет из себя атмосферную игру с элементами выживания и хоррора, в которой Вам предстоит исследовать заброшенные подземелья метро, чтобы найти выход и спастись. Вас отправили проверить состояние давно заброшенного тоннеля метро. Поначалу это казалось обычной работой, но во время осмотра старые своды тоннеля не выдержали и обвалились. Вам (   Читать дальше...   )Тип издания: RepackРазработчик: BearFighterDevЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1806D95F4030773EB28DB98CBBAC8F33C35F446B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269819   (629343) от 07.04.2019
-
-Beholder 2 (2018) [Ru/En/Ch] (Upd20190129) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работать в Министерстве – мечта любого гражданина нашей великой Страны! Ты счастливчик, стажер – твоя мечта только что стала реальностью! Сейчас ты стоишь на низшей ступени карьерной лестницы, но это УЖЕ больше, чем всё, чего ты смог бы добиться в обычной жизни! Ты уже решил, кем ты станешь? Ответственный и исполнительный сотрудник, которого Мудрый Вождь лично наградит (   Читать дальше...   )Тип издания: RepackРазработчик: Warm Lamp GamesЖанр: Стратегия, Приключение, МенеджментЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13352AFC30411741010339A9B3C9A49CCA2DDBD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258981   (629309) от 07.04.2019
-
-Call of Cthulhu (2018) [Ru/Multi] (1.0upd2) Repack R.G. Механики
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Cthulhu – это детектив с элементами психологического триллера, официальная игровая адаптация одноименной настольной ролевой системы компании Chaosium. Рассказы о владыке миров Ктулху, созданные писателем Говардом Лафкрафтом, со временем превратились в одну из самых проработанных и известных вселенных в современной литературе, отправной точкой которой выступило (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Adventure, Detective, RPG, Survival Horror, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F1CEDC5A6EFB4BEF8B19927537A8E391696EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165840   (629303) от 07.04.2019
-
-Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5.1805151406/dlc) Repack R.G. Механики
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам уготована роль необычной мятежницы в мрачном приквеле к популярной игре Life is Strange, выпущенной студией Dontnod в 2016 году. Before the Storm, новая глава, действие которой происходит за три года до драматических событий оригинальной игры, вновь перенесет вас в вымышленный город Аркадия-Бэй, где 16-летняя Хлоя Прайс неожиданно для себя находит подругу в лице (   Читать дальше...   )Тип издания: RepackРазработчик: Deck NineЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский (первый эпизод), АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2BC16668A06218909E893EB2CBC42B2D83817F
 ```
 
 https://mybot314.ru/tekegram_catalog/

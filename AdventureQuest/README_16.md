@@ -1,3 +1,107 @@
+###  Публикация: 1103486   (885124) от 12.02.2017
+
+Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры продолжает серию подвигов героя Ларри Лаффера. Ларри участвует в ТВ-шоу "Жеребцы" и выигрывает бесплатную поездку в роскошный спа-центр, заселённый женщинами. Всю игру Ларри пытается затащить в постель разных женщин, которых встречает в отеле. Практически все локации, которые есть в игре, доступны сразу: их можно посетить, не предпринимая (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Adventure, For AdultsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0147A9F53BFD8FF2189DC5C95F8D237689C5BDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337407   (884571) от 03.04.2020
+
+Moons of Madness (2019) [Ru/Multi] (1.02) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moons of Madness — сюжетный фантастический хоррор от первого лица, в котором тема научного исследования Марса переплетается со сверхъестественными лавкрафтовскими ужасами.Тип издания: RepackРазработчик: Rock Pocket GamesЖанр: Adventure (Horror), Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55D63DCF4AA1A0808EFFE4BA45BDCB5B2C7E327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356168   (884565) от 03.04.2020
+
+The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6/dlc) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884565.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Coma 2: Vicious Sisters — атмосферная сюжетная игра. Погрузитесь в искажённый район «Сехва», встретьтесь со множеством персонажей, решайте головоломки, находите ошеломляющие сведения и боритесь за выживание против безжалостного психа. Героини, столкнувшиеся со своими наихудшими кошмарами, редко остаются невредимыми. Во время истории Мина столкнётся с опасностью, (   Читать дальше...   )Тип издания: RepackРазработчик: Devespresso GamesЖанр: Adventure (Horror), 2DЯзык озвучки: КорейскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DEA30323241CF9391337A72B357BF969044500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495069   (884118) от 10.09.2021
+
+The Rewinder (2021) [Multi] (1.26.5) License TiNYiSO
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческая игра-головоломка, основанная на китайской мифологии. Вы играете за Ци Юня, последнего известного Перемотчика, который может общаться с духами и исследовать воспоминания других людей, чтобы изменить прошлое. В игре используется пиксельная графика, чтобы имитировать эстетику китайских рисунков тушью. Игрокам предстоит встретиться с такими мифологическими (   Читать дальше...   )Тип издания: LicenseРазработчик: MistyMountainStudioЖанр: Adventure, Horror, Detective, Puzzle, ThrillerЯзык субтитров: Английский, Китайский (Упрощённый, Традиционный)Язык интерфейса: Английский, Китайский (Упрощённый, Традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79726AC04BCD455B379F37F28C12F91B59D35E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494957   (883914) от 10.09.2021
 
 The Artful Escape (2021) [Ru/Multi] (7272069) License CODEX
@@ -6,7 +110,7 @@ The Artful Escape (2021) [Ru/Multi] (7272069) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883914.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Guest (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883908.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Guest (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883835.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Blues and Bullets - Episode 2 (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883821.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Figment (2017) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883140.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883051.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Last Will (2016) [En] (1.0) License HI2U [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882910.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Leisure Suit Larry: Reloaded (2013) [Ru/Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882678.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882051.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Old City: Leviathan (2014) [Ru/En] (28.02.2016) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882039.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dreamfall Chapters (2014) [Ru/Multi] (5.4.1.1) SteamRip Let'sPlay [Special Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880965.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879637.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879390.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_879262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879262.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Alm
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877549.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_877535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877535.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876271.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876213.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ The Wardrobe (2017) [En/It] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875880.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Little Nightmares II (2021) [Ru/Multi] (1160/dlc) License GOG [Echanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_874211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874211.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_874018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874018.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ White Night (2015) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873100.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ White Night перенесет игроков в Бостон образца 30-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF24793AD98675523ACAF767EC1DAE0D44AEAF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997567   (872961) от 17.03.2016
-
-Shelter 2: Mountains (2015) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shelter 2: Mountains – DLC, в котором вам предстоит пережить снежные будни в образе матери-рыси. В игре Shelter 2 вам предстоит влиться в семью пушистой и милой рыси, которая борется за выживание в дикой природе. Растите рысят, учите их охотиться и осваивайте просторные заснеженные степи новой игровой зоны в DLC Mountains. И соблюдайте осторожность, ведь превратиться (   Читать дальше...   )Тип издания: LicenseРазработчик: Might and DelightЖанр: Adventure, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85CD0BC2A44D0C4DA7C21514E4936981B13EA73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373029   (872167) от 10.04.2020
-
-In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872167.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Эллери Вас, ксенобиолога, которая открывает внеземные формы жизни в поисках пропавшей напарницы. Эллери получает от Минэ Номура вызов на планету Глиезе 677Cc. Прибыв туда, она обнаруживает лишь заброшенную базу. Эллери отправляется в плавание по океану тайн, имея в своем распоряжении только неисправный акваланг и странный ИИ, указывающий ей путь. Этим ИИ (   Читать дальше...   )Тип издания: LicenseРазработчик: Jump Over The AgeЖанр: Приключение, Головоломка, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E95A60E5828E09D97BC0D163E50A9ECF79C205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374794   (870250) от 11.04.2020
-
-Wanderlust: Transsiberian (2020) [En] (1.1.13.2003271410) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wanderlust: Transsiberian - это приключенческая игра, в которой двое протагонистов отправляются в путешествие по траннсибирской железной дороге. Для одного из них это мечта всей жизни, для второго же - необходимость. Игроков ждут различные уникальные персонажи, неизведанные уголки Сибири, а также возможность исследовать суровый северный край, не покидая своего дома.Тип издания: LicenseРазработчик: Different TalesЖанр: Приключение, Симулятор, ДрамаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2A8F53F4072BE3667580A7450DCABB4615408C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374681   (870227) от 11.04.2020
-
-Mask of Mists (2020) [Ru/Multi] (1.0.4) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870227.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной игре вы выступаете в роли наемника, которому было поручено отыскать пропавшего человека. Один из Архимагов Академии, проводивший свои исследования в глубине Зараженной Территории, перестал выходить на связь. В свое время данная область была подвергнута воздействию чудовищного количества магии и теперь заполнена порождениями Бездны. Отправляйтесь по следам (   Читать дальше...   )Тип издания: RepackРазработчик: 9 Eyes Game StudioЖанр: Adventure, Action, 1st Person, 3DЯзык озвучки: Русский, Английский, КитайскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A46AB9483AC6EB70A4B3DBF84F98CF68BEF8F63
 ```
 
 https://mybot314.ru/tekegram_catalog/

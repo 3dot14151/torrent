@@ -1,3 +1,29 @@
+###  Публикация: 1326263   (386836) от 19.09.2019
+
+Татьяна Ульянова (ред.) | Тибетская астрология и психология личности. Книга 1-2 (2019) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти книги можно использовать и как опору для личностного роста, повышения личной эффективности, улучшения отношений с коллегами и близкими. Вы познакомитесь с более глубоким уровнем понимания ха­рактеристик рождения в натальной астрологии, получите знания о внутреннем и тайном уровнях анализа личности в астрологии элементов джунгци, о звёздной астрологии карци и (   Читать дальше...   )Жанр: ЭзотерикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82330F45B52FCA223E300358BC8D60A42A873F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414566   (385181) от 08.10.2020
 
 Наоми Аннанд | Йога: дыши, тянись, живи (2020) [EPUB]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385181.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385102.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_384817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384817.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383291.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379373.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377867.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377023.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375975.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374901.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371425.jpg" />
 </div>
 
 
@@ -285,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368446.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367774.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367181.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365018.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364904.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364831.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364830.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364755.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364487.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363258.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362601.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362597.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362488.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357990.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357977.jpg" />
 </div>
 
 
@@ -672,33 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17ED746616FC306A2E5DF8761FF470117F4011B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178299   (357860) от 27.10.2017
-
-Лия Соколова | Система Усуи Рэйки Риохо [6 книг] (2014-2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Метод естественного исцеления Рэйки в наши дни является поистине интернациональным. При наличии множества направлений и школ Рэйки в разных странах и сопутствующих этому различных толкований и эмоциональных суждений сила Рэйки как метода остается бесспорной.
-Две трети своей жизни автор провела, как и многие, в достижении профессиональных успехов, время от времени (   Читать дальше...   )Жанр: ЭзотерикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768E7E396546EB3D8C3372F7674870BC3310F585
 ```
 
 https://mybot314.ru/tekegram_catalog/

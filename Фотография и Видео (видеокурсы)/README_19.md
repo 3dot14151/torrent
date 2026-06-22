@@ -1,3 +1,30 @@
+###  Публикация: 1422862   (303794) от 11.11.2020
+
+LiveClasses, Антон Мартынов | Мужской портрет в низком ключе (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снимай броские мужские портреты
+Хотите снимать интересные портреты и передавать при помощи кадра глубокие эмоции? Снимайте в низком ключе! Такие фотографии (особенно, в черно-белом варианте) создают дополнительный драматический эффект. И если ваша модель – мужчина, вы легко добавите ему брутальности и маскулинности при помощи правильно выставленного света. Кроме (   Читать дальше...   )Производство: LiveClassesЖанр: ФотографияПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CBC61D3CDA82A4CF8167A28B6A86C3A1B5EBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422944   (303792) от 11.11.2020
 
 LiveClasses, Антон Мартынов | Вспышки (2020) HDTVRip
@@ -6,7 +33,7 @@ LiveClasses, Антон Мартынов | Вспышки (2020) HDTVRip
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303792.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ LiveClasses, Антон Мартынов | Типичные ошибки нач�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303789.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ LiveClasses, Антон Мартынов | Упражнения для само�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303785.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ LiveClasses, Антон Мартынов | Фотография: Быстрый 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303784.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ LiveClasses, Антон Мартынов | Как снимать портрет�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303783.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Fstoppers, Andreas H. Bitesnich | Искусство ню фотографии /
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303782.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ LiveClasses, Дмитрий Ларионов | Работа с шаблонам�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303777.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303733.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ LiveClasses, Дмитрий Ларионов | Эффекты и анимаци�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303722.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ LiveClasses, Дмитрий Ларионов | Монтаж видео для с
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303720.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302575.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ Werner Herzog | Вернер Херцог учит кинопроизводст�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301856.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301728.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301652.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301649.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301648.jpg" />
 </div>
 
 
@@ -441,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301550.jpg" />
 </div>
 
 
@@ -468,7 +495,7 @@ Highlights School | МК Photo-Art. Творческая обработка в P
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298995.jpg" />
 </div>
 
 
@@ -494,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298426.jpg" />
 </div>
 
 
@@ -521,7 +548,7 @@ Movie Park | Видеокурс по видеопродакшену, съёмк�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296373.jpg" />
 </div>
 
 
@@ -547,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294384.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294375.jpg" />
 </div>
 
 
@@ -601,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291389.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281705.jpg" />
 </div>
 
 
@@ -653,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281608.jpg" />
 </div>
 
 
@@ -667,35 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABFE9526DB6D7CB9F3FEAC8813F82537F8D2E55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081837   (279890) от 11.12.2016
-
-Александр Тулупов | Photoshop. Tips, tricks, techniques (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Тулупов - Профессиональный ретушер, создатель множества популярных уроков по обработке изображений, колорист, композитор.
-Практические советы. Хитрые техники. Грамотная работа с инструментами.
-
-Основные темы:(   Читать дальше...   )Производство: amlabЖанр: Ретушь фотоПродолжительность: 04:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF4F3E05D4C27B2834D0D5D411713FD83303C59
 ```
 
 https://mybot314.ru/tekegram_catalog/

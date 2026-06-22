@@ -1,3 +1,29 @@
+###  Публикация: 996350   (878856) от 14.03.2016
+
+Дед Азиз / Bab Aziz (2005) DVDRip [Fa / Ru Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два человека, затерянные в океане песка. Иштар, веселая маленькая девочка, и ее дед, Баб Азиз, слепой дервиш. Их цель – великое воссоединение дервишей, которое происходит каждые тридцать лет. Но узнать, где это произойдет, каждый пытается исходя из своей веры. Каждый должен услышать бесконечную тишину пустыни своим сердцем. Пока они пересекают безграничное пространство (   Читать дальше...   )Производство: Германия, Франция, Великобритания, Швейцария, Иран, Венгрия, Тунис, Behnegar, Farabi Cinema Foundation, Hannibal Films, Inforg Stúdió, Les Films du Requin, Pegasos Film, Zephyr FilmsЖанр: ДрамаРежиссер: Насер ХемирАктеры: Парвиз Шахинхо, Марьям Хамид, Нессим Кахул, Мохаммед Грайя, Гульшифте Фарахани, Хоссейн ПанахиПеревод: ОтсутствуетЯзык озвучки: ФарсиЯзык субтитров: РусскийПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D901B2154E6AD7217C4BF105AA15578FB531E7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107638   (858443) от 27.02.2017
 
 Волынь / Wolyn / Hatred (2016) HDTVRip [PL]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858443.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852460.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850316.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848190.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840633.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837840.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832550.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832396.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832290.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832211.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830203.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826014.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822460.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820654.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820599.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813212.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812799.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811364.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811331.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811228.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809584.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807709.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807463.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805769.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804004.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D491E9A727DF4EA9C952F39724B17829113827E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010440   (803958) от 24.04.2016
-
-Небо просто голубее / Il cielo e sempre piu blu (1996) TVRip [IT]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803958.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме представлены 24 часа некоторых людей: грабителей банка, стоматолога, журналиста, таксиста и других.Производство: Италия, Colorado Film Production, FandangoЖанр: ДрамаРежиссер: Антонио Луиджи ГримальдиАктеры: Азия Ардженто, Дарио Ардженто, Моника Беллуччи, Лука Барбарески, Маргерита Буй, Роберто Читран, Энрико Ло Версо, Ивано Марескотти, Джиджио Алберти, Чезаре Аполито, Давид БекиниПеревод: ОтсутствуетЯзык озвучки: ИтальянскийПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E73145F7CF4E008FE795DE287956A586C864C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

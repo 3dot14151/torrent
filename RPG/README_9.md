@@ -1,3 +1,109 @@
+###  Публикация: 1089990   (948399) от 05.01.2017
+
+Risen 3: Titan Lords (2015) [Ru/Multi] (3.0.30.0/dlc) License PLAZA [Enhanced Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Risen 3! Мир, забытый богами и раздираемый войной титанов, мир, где угроза исходит из самой земли. Вы - молодой воин, получивший удар из теней, лишивший вас души. Вам нужно отправиться в путь, чтобы вернуть то, что потеряно во тьме и расползается по миру.Тип издания: LicenseРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46C63E96670544C14FA2B109853513FBDF3B2BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625096   (946778) от 03.03.2013
+
+Risen [Ru/En/Multi7] (L) 2009 | PROPHET
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волей всемогущей Инквизиции! Слушайте высочайший указ владыки. До нас дошли слухи, что соседний остров проклят. В джунглях разверзлась твердь земная, и древний храм поднялся над остатками забытых поселений. Так вот – все это грязная клевета. Любой, кто посмеет покинуть город без разрешения с целью проверить лживую байку, будет казнен. Мы уже отправили отряд стражи и скоро узнаем подробности. Впрочем, считайте случившееся извержением вулкана. В джунгли ходить не стоит – несколько человек так и не вернулись. Да будет их судьба уроком для всех!
+
+Новая ролевая игра от создателей знаменитой серии Gothic сразу же привлекла внимание поклонников жанра. Каждый найдет здесь что-то свое – элегантный стиль боя на мечах, могущественные заклинания, потрясающие возможности прокачки персонажа. От ваших действий зависит многое – различные фракции постараются привлечь героя на свою сторону. Обилие оружия и снаряжения поразит даже бывалых искателей приключений. Над локализацией игры работали лучшие актеры нашей страны – вы сможете с удовольствием погрузиться в череду невероятных приключений, диалогов и яростных боев. (   Читать дальше...   )Тип издания: ЛицензияЖанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский / Английский / Multi7Язык интерфейса: Русский / Английский / Multi7
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982692   (946438) от 04.02.2016
+
+Icewind Dale Dilogy (2000-2002) [Ru/En] (1.42/02.01.016/dlc) Repack R.G. Catalyst
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярной фэнтезийной RPG основано на третьей редакции правил широко известной настольной игры Dungeons & Dragons. Действие Icewind Dale 2 разворачивается в северо-западной части вселенной Забытые Королевства (Forgotten Realms), вокруг Таргоса, одного из Десяти Городов Долины Ледяного Ветра (Icewind Dale), спустя тридцать лет после событий, произошедших (   Читать дальше...   )Тип издания: RepackРазработчик: Black Isle StudiosЖанр: RPG (Hack-and-slash), IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4670585C1354EA82913133D1A87DD81C7C837B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362881   (946293) от 25.02.2020
+
+Conglomerate 451 (2020) [Ru/Multi] (1.1.0) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Conglomerate 451 представляет собой ролевую игру в стиле Rogue с процедурными подземельями и видом от первого лица. Ее действие происходит в футуристическом мире киберпанка. Вы - генеральный директор специального агентства. Правительство города Конгломерат поручило вам вернуть контроль над сектором 451, где сейчас ведут войну продажные корпорации. Благодаря последней (   Читать дальше...   )Тип издания: RepackРазработчик: RuneHeadsЖанр: RPG, TBS, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC5540CA0695B2BE3CB1D07CB6368D7D796E5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091217   (943983) от 08.01.2017
 
 Inquisitor / Инквизитор (2012) [Ru/En] (1.10.17) Repack R.G. Механики
@@ -6,7 +112,7 @@ Inquisitor / Инквизитор (2012) [Ru/En] (1.10.17) Repack R.G. Меха�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943983.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы (2004) [Ru/En] (1.506
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943255.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Divine Divinity / Divine Divinity. Рождение легенды (2002) [Ru/En
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943251.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Mount & Blade: With Fire and Sword / Mount & Blade. Огнем и мечом - �
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942456.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Fallout 2 (1998) [En] (1.02d) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939209.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16708) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938098.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Sword of the Stars: The Pit [En] (L) 2013 | COGENT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936097.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Transistor (2014) [Ru/Multi] (1.42500) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934699.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (306.41/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931490.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ Nioh (2017) [Ru/En] (1.21.06/dlc) Repack xatab [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928568.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ Torn Tales (2017) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928408.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ Guild of Dungeoneering (2015) [En] (1.06) SteamRip Let'sРlay [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923754.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.6/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923365.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ Titan Quest (2016) [Ru/En] (2.9mphf/dlc) Repack xatab [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923196.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) License CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921934.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.07) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921415.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ God Eater 2: Rage Burst (2016) [Ru/Multi] (1.00) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920113.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919866.jpg" />
 </div>
 
 
@@ -474,7 +580,7 @@ Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914583.jpg" />
 </div>
 
 
@@ -500,7 +606,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914558.jpg" />
 </div>
 
 
@@ -526,7 +632,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911590.jpg" />
 </div>
 
 
@@ -552,7 +658,7 @@ Tyranny (2016) [Ru/En] (1.0.4.0048/dlc) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909660.jpg" />
 </div>
 
 
@@ -563,110 +669,6 @@ Tyranny (2016) [Ru/En] (1.0.4.0048/dlc) Repack R.G. Revenants
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC3B6A4E572CDC3D641D5F095F3D69BF9FB9D9A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990768   (909266) от 26.02.2016
-
-We Are The Dwarves (2016) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры повествует о трёх гномах-астронавтах, которые отправились за новым Солнцем для своих соплеменников. Только вместо космического корабля у них механический бур, которым они прокладывают путь в земной тверди. А роль Солнца в их мире играет волшебные камни, источающие магический свет. В зависимости от стиля игрока, персонажи могут либо вступить в открытый (   Читать дальше...   )Тип издания: LicenseРазработчик: Whale Rock GamesЖанр: Action, Adventure, Indie, RPG, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAA2789C3B749FDAAE03C776D9B46C928CD2822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490855   (908190) от 26.08.2021
-
-Sword of the Necromancer (2021) [Multi] (2.0.0) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dungeon-crawler Action RPG с элементами roguelike, где Вы можете оживлять побеждённых врагов, чтобы они сражались на Вашей стороне. Превратите своих врагов в союзников, используя запрещённые силы меча некроманта и помогите Таме достичь глубин подземелья, чтобы получить силу, которая смогла бы вернуть Коко из мёртвых. Соберите небольшую армию монстров, вооружитесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Grimorio of GamesЖанр: RPG, Dungeon Crawl, Action, RoguelikeЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Испанский, Французский и другиеЯзык интерфейса: Английский, Японский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFE64AA12E675C017313EA48311D4AF8895F0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991574   (905663) от 28.02.2016
-
-Torchlight (2009) [Ru/En] (1.15) Repack R.G. Origami
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький шахтерский городок Сумеречный охвачен ужасом. Каждую ночь штольни и подземелья выплескивают на поверхность несметные орды ужасающих монстров. Добыча бесценного магического минерала, Эмбера, под угрозой. Какие силы стоят за срывом работ, что заставляет тварей уничтожать все живое на своем пути? В поисках ответов вам предстоит совершить невероятно опасное (   Читать дальше...   )Тип издания: RepackРазработчик: Runic GamesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42430BC09A4FED84CD67F052BC36CFB3945E58ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369030   (904544) от 22.03.2020
-
-NEO Scavenger (2014) [En] (1.15) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_904544.jpg" />
-</div>
-
-
-###  Подробнее
-
-NEO Scavenger – это игра, где вы должны протянуть на разоренной земле достаточно долго для того, чтобы вам хватило времени понять, кто вы. Каждый ход – это решение, куда идти, где найти припасы и как справиться с проблемами, которые вас поджидают. С каждой минутой ваш желудок пустеет, жажда усиливается, мышцы устают, а температура тела падает в стылом осеннем воздухе. (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Bottle GamesЖанр: Ролевая игра, Пошаговая, RoguelikeЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BC141F6420D7C1F674945D73440C7925CAD37C
 ```
 
 https://mybot314.ru/tekegram_catalog/

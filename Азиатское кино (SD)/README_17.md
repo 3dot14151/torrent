@@ -1,3 +1,81 @@
+###  Публикация: 1378073   (848268) от 24.04.2020
+
+Мисс и миссис Коп (Девушки-копы) / Geolkapseu / Miss & Mrs. Cops (2019) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то давно Ми-ён была легендарным детективом, но вышла замуж и стала работать в центре обслуживания населения в полицейском участке. Там она встречается с новенькой Чи-хе, которую сослали на эту работу в качестве наказания. Судьба даёт обеим шанс проявить себя, и женщины берутся за расследование уголовного преступления.Производство: Южная Корея / CJ Entertainment, Film MomentumЖанр: Боевик, комедия, криминалРежиссер: Чон Да-вонАктеры: Ра Ми-ран, Ли Сон-гён, Юн Сан-хён, Чхве Су-ён, Ём Хе-ран, Ви Ха-джун, Чу У-джэ, Кан Хон-сок, Ким До-ван, Ан Чхан-хванПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDFA8B8F2C3CA844DD9B0EE379913E726C9C72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378077   (848257) от 24.04.2020
+
+Мистер Сократ / Miseuteo Sokeurateseu / Mr. Socrates (2005) WEB-DLRip [VO, DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ку Дон-хёк живёт жизнью уличного подонка и бродячей собаки. Он выпрашивает деньги у заключенного в тюрьму отца, шантажирует товарища и крадёт деньги у друзей. Однажды парня похищают члены неизвестной банды и начинают тренировать его, одновременно очень жестоко с ним обращаясь. Дон-хёк пытается сбежать, но бандиты ловят его, а обучение становится совсем жёстким. Вскоре (   Читать дальше...   )Производство: Южная Корея / Lotte entertainmentЖанр: Боевик, криминалРежиссер: Чхве Джин-вонАктеры: Ким Рэ-вон, Кан Щин-иль, Ли Джон-хёк, О Гван-нок, Пак Чхоль-мин, Пак Сон-ун, Юн Со-хён, Юн Тхэ-ён, Ку Бон-ун, Ким Ван-гынПеревод: Одноголосый любительский (DeMon); любительский двухголосый (den904, DeadSno) одноголосый любительский (М. Бирюков)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2791DFB04E2AACF20251E1EB7C37415D40B6B9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378162   (848172) от 24.04.2020
+
+Пока женщины спят / Onna ga nemuru toki / While the Women Are Sleeping (2016) HDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Писатель средних лет приезжает на курорт со своей женой. Семейная жизнь ему порядком надоела, писательство, честно говоря, тоже, поэтому целыми днями герой зависает в фойе отеля и думает, как радикально поменять собственную жизнь. Однажды его внимание привлекает семейная пара его соотечественников — очень необычная семейная пара. Муж-пенсионер и жена на сорок лет (   Читать дальше...   )Производство: Япония / Creative Associates Limited (CAL)Жанр: ДрамаРежиссер: Уэйн ВанАктеры: Хидэтоси Нисидзима, Такэси Китано, Саюри Оямада, Сиори Куцуна, Хирофуми Араи, Макико Ватанабэ, Рири ФрэнкиПеревод: Авторский (A.Смирнов)Субтитры: отсутствуютПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3122B985B2C454B66A6BD639171B050D6B086514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499528   (847592) от 02.10.2021
 
 Стеклянный сад / Yoorijungwon / Glass Garden (2017) WEB-DLRip [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847592.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846529.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844795.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844739.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844434.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842898.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840947.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839521.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_839205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_839205.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837873.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837644.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837464.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836406.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834630.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833580.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833537.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833465.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832864.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832696.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832621.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832538.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832531.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831960.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F72379EF623B95718D746D7514E49B7D5579435A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502164   (830000) от 13.10.2021
-
-Двенадцать ночей / Shap yee yeh / Twelve Nights (2000) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дженни узнаёт в свой день рождения от подруги-гадалки, что отношения с её бойфрендом Джонни вот-вот порвутся из-за того, что кто-то из них лжёт другому. Полная решимости покончить с этим первой, Дженни расходится с ничего не подозревающим Джонни и в ту же ночь, сквозь череду невероятных совпадений, оказывается в постели с бывшим парнем своей подруги, Аланом. Их любовь (   Читать дальше...   )Производство: Гонконг, Golden Harvest Company Ltd., Golden Harvest Pictures (China)Жанр: драма, мелодрамаРежиссер: Обри ЛамАктеры: Сесилия Чунг, Изон Чан, Су Ау, Рональд Чэн, Николя Чун, Стивен Фанг, Гу-Би ДжиСи, Кэнди Ло, Николас ТсеПеревод: любительский одноголосый (Виктор Береговых)Субтитры: русские, английскиеПродолжительность: 01:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E16F05980F38C281EC34F70A9C97D097E7A9F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381040   (829501) от 05.05.2020
-
-Гость (Дудочник) / Sonnim / The Piper (2015) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829501.jpg" />
-</div>
-
-
-###  Подробнее
-
-После Корейской войны хромой музыкант с сыном странствуют по стране. Они случайно забредают в отдаленную деревушку в горах и просят приюта на пару дней. Деревенский староста разрешает им остаться, но, кажется, что он что-то скрывает. Кроме того, деревня терпит настоящее бедствие — по ночам крысы нападают на людей, и особенно на детей.Производство: Южная Корея / CJ Entertainment, Ubu FilmЖанр: Триллер, детектив, ужасыРежиссер: Ким Гван-тхэАктеры: Рю Сын-нён, Ли Сон-мин, Чхон У-хи, Ли Джун, Ку Сын-хён, Ли Сын-джун, Чон Гук-хван, Ким Джон-ён, Мин Чжи Ли, Чон Джун-вонПеревод: Многоголосый любительский, двухголосый любительскийСубтитры: Русские, английские - отдельными файламиПродолжительность: 01:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEABC68269D8181E81AF273E44DA023CC57D81EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115402   (827884) от 17.03.2017
-
-Гамера: Защитник Вселенной / Gamera daikaiju kuchu kessen (1995) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гигантская огнедышащая суперчерепаха Гамера — мускулистая боевая машина с семидесятиметровым панцирем, защищающая человечество от ужасных тварей, особей и чудовищ из космоса. Гамера — ближайший родственник легендарного Годзиллы и один из самых впечатляющих монстров мирового кино.
-Только Гамера может спасти Землю от гибели, вступив в битву с новым воплощением гиперзла (   Читать дальше...   )Производство: ЯпонияЖанр: Фэнтези, боевик, триллер, драма, приключенияРежиссер: Сюсукэ КанэкоАктеры: Цуёси Ихара, Акира Онодэра, Синобу Накаяма, Аяко Фудзитани, Юкидзиро Хотару, Хацунори Хасэгава, Хиротаро Хонда, Акира Кубо, Кодзиро Хонго, Такаси МацуоПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63433F322DFD7D7CFF6F78F45A79AC56935B811
 ```
 
 https://mybot314.ru/tekegram_catalog/

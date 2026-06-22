@@ -1,3 +1,29 @@
+###  Публикация: 1150240   (779553) от 24.02.2018
+
+Stars in Shadow (2017) [En] (21910/dlc) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stars in Shadow это пошаговая научно-фантастическая игра жанра «4X». Исследуйте звезды, заселяйте дальние миры и стройте межзвездную империю. Воссоздавайте древние технологии и ведите переговоры с инопланетными лидерами. В игре Stars in Shadow, которую создали двое заядлых любителей стратегий, представлено оптимизированное управление империей, тщательно продуманные (   Читать дальше...   )Тип издания: LicenseРазработчик: Ashdar GamesЖанр: Стратегия, Пошаговая, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17ED5E0F8609455F44FA5F57C83CFF991EF83BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012980   (778168) от 02.05.2016
 
 Decisive Campaigns: Barbarossa (2015) [En] (1.00) Repack Other s
@@ -6,7 +32,7 @@ Decisive Campaigns: Barbarossa (2015) [En] (1.00) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778168.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Codename: Panzers, Phase One - Phase Two (2004-2005) [Ru/En] (1.25/1.10) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778145.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Jagged Alliance: Rage! (2018) [Ru] (34445.663) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775552.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Crookz - The Big Heist (2015) [Ru/En] (1.0.0.24360) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771310.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771199.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Valkyria Chronicles 4 (2018) [Multi] (1.0/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771196.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Warhammer 40,000: Armageddon (2014) [En] (1.05/dlc) License SKIDROW [Untold Batt
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769679.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ TASTEE: Lethal Tactics (2016) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769441.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Tank Warfare: Tunisia 1943 (2017) [Ru/En] (11.30.21/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765004.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764040.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763201.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Re-Legion (2019) [Ru/Multi] (1.0.0.194-j) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763197.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Sudden Strike 4 (2017) [Ru/En/Ger] (1.14.29902/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754713.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Jagged Alliance: Rage! (2018) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745965.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.1.5hf/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745064.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ BATTLETECH (2018) [Ru/Multi] (1.4.0/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744828.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Excubitor (2016) [En/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744507.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Excubitor (2016) [En/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742916.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Panzer Corps: U.S. Corps (2016) [Ru/Multi] (1.26/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742870.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Worms W.M.D (2016) [Ru/Multi] (1.0.0.273а/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741871.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Empires Apart (2018) [Ru/Multi] (1.0.4) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741694.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Valkyria Chronicles (2014) [Ru/En] (1.0.0.1/upd3/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741623.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Empires Apart (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741621.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ XCOM: Chimera Squad / XCOM: Отряд «Химера» (2020) [Ru/Multi] (15321
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736755.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731466.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Phantom Doctrine — шпионская пошаговая стратегия-т
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DDE920372388DEF7546F26E416E951A456E7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127346   (731354) от 21.04.2017
-
-Halo Wars (2017) [Ru/Multi] (1.2033.2.0) License CODEX [Definitive Edition]
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731354.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Halo Wars: расширенное издание» — дополненная версия классической стратегии в реальном времени Halo Wars, в которую можно играть и на PC. Действие игры разворачивается в начале войны между Ковенантом и ККОН, о которой мы узнали из известных шутеров Halo. В «Halo Wars: расширенное издание» вы взглянете на это противостояние несколько иначе, а на поле боя появятся (   Читать дальше...   )Тип издания: LicenseРазработчик: Ensemble Studios, Behaviour Interactive, 343 IndustriesЖанр: Strategy, Real-time, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C988BF4C8C0377094C257592B6EDEF7691364F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 873011   (872073) от 26.02.2015
+
+The Storyteller - Sacred Fire (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As I Die
+02. One Last Stand
+03. Sacred Fire
+04. Ferryman(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61381B51C51C95D8779FD6E71D55CF8212CFC830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997776   (872037) от 18.03.2016
+
+Entwine - 7 альбомов (1999-2015) [MP3|320 кб/с] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872037.jpg" />
+</div>
+
+
+###  Подробнее
+
+1999 - The Treasures Within Hearts
+2001 - Gone
+2002 - Time Of Despair
+2004 - diEversity(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 04:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EBBCFD9A8B92E94CBDEA06F406EFEB59113FC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997765   (872029) от 18.03.2016
+
+Dante - When We Were Beautiful (2016) [MP3|320 кб/с] < Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rearrangement of the Gods
+02. Ambitious
+03. Beautiful Again
+04. Until the Last Light Breaks In(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131894F90B5B29F36EB1634B868E81F3D83E4545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106826   (871659) от 20.02.2017
+
+Ancestral - Master Of Fate (2017) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to Life
+02. Wind of Egadi
+03. Seven Months of Siege
+04. Master of Fate(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92B6FB94E39D3ACF0692DD0D3E5FCC831110ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374784   (871360) от 11.04.2020
 
 Final Product - 3 Singles (2019-2020) [MP3|320 Kbps] <Metalcore, Melodic Death Metal>
@@ -6,7 +122,7 @@ Final Product - 3 Singles (2019-2020) [MP3|320 Kbps] <Metalcore, Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871360.jpg" />
 </div>
 
 
@@ -34,7 +150,7 @@ Viscera - Obsidian (2020) [MP3|320 Kbps] <Progressive Metalcore, Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871354.jpg" />
 </div>
 
 
@@ -63,7 +179,7 @@ Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871202.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ Dawn Of Winter - Pray For Doom (2018) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869098.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Graveyard Disciples - Devil's Night (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869095.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Era Divina - Reflecții Din Abis (2020) [MP3|320 Kbps] <Folk Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869093.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ We Blame The Empire - Aero (2020) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869084.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Paragon - Hell Beyond Hell (2016) Digipack Edition [MP3|320 кб/с] <Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868507.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Cirith Ungol - Forever Black (2020) [MP3|320 Kbps] <Heavy, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867270.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Lord Vigo - 4 Albums (2015 - 2020) [MP3|320 Kbps] <Epic Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867201.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Existence - When Tomorrow Comes (2016) [MP3|320 кб/с] <Thrash Metal, Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866728.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Mourning Wolf - Duskfallen (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866700.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Temperance - The Earth Embraces Us All (2016) Japanese Edition [MP3|320 Kbps] <M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866245.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Power Tale - Урфин Джюс И Его Деревянные Солдаты (
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865947.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Kraniall - Infected Faith (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865732.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Serious Black - Suite 226 (2020) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865626.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Trollfest - Helluva (2017) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864644.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Amon Amarth - Jomsviking (2016) [MP3|320 кб/с] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864508.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Ex Deo - The Immortal Wars (2017) [MP3|320 Kbps] <Symphonic Death Metal, Epic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864416.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Once Upon A Dream - Cruciamentum (2020) EP [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864107.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Leeched - To Dull the Blades of Your Abuse (2020) [MP3|320 Kbps] <Sludge Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864106.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Big Scenic Nowhere - Vision Beyond Horizon (2020) [MP3|320 Kbps] <Stoner Rock, H
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864013.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Big Scenic Nowhere - Vision Beyond Horizon (2020) [MP3|320 Kbps] <Stoner Rock, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F21BE531D6A9D0DF3005A94C2858E1B3AB3FE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560546   (863385) от 18.03.2014
-
-Тінь Сонця  - 4 Альбома (2005 - 2014) [MP3|320 кб/с]<Folk, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Меч Арея
-02. Сонцечоловік
-03. Народна Війна
-04. Коли На Серці Сумно(   Читать дальше...   )Жанр: Folk, Power Metal  |Продолжительность: 03:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50442863B6A9A32C764E779EDF3C98A122B7E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108582   (863192) от 25.02.2017
-
-Theory - The Art Of Evil (2017) [MP3|320 Kbps] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863192.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Awakening (0:51)
-2. The Art of Evil (5:12)
-3. Sea of Damnation (5:23)
-4. Demon's Domain (6:02)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E8A03F5CBD221F993CF8FDD5B790D46259D929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376011   (862357) от 16.04.2020
-
-Wartooth - Programmed Dichotomy (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wired to Die [00:07:12]
-02. Scourge [00:05:23]
-03. Benevolent Destroyer [00:07:45]
-04. Predator [00:04:54](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD14A1BEC0A49961AEDD9274CE8D6EC236DDA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375986   (862272) от 16.04.2020
-
-God's Speed - 3 Albums (2012-2020) [MP3|320 Kbps] <Psychedelic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862272.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2012) ...And This Will Soon Pass
-(2015) Mother Of God
-(2020) Mother Of God ((2020 Edition)Жанр: Psychedelic Doom Metal
-Страна: USA (Huntington, West Virginia)Продолжительность: 3 CD, 04:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D362812958BE0A433587BB1E4559B466D18B2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

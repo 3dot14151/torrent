@@ -1,32 +1,3 @@
-###  Публикация: 926257   (533312) от 10.08.2015
-
-Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533312.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 июня 2013 года, «Europe» вышли на сцену на своей родине Швеции по особому поводу: празднование своей 30-й годовщины в рок-музыке. Эта Шведская рок-группа праздновала это событие вместе с 30 тысячами человек на популярном Шведском Рок Фестивале, играя подборку из 28 песен собирая свои персональные любимые моменты, начиная с ранних лет вплоть до их наиболее свежих (   Читать дальше...   )01. Intro / Riches To Rags
-02. Firebox
-03. Not Supposed To Sing The Blues
-04. Scream Of Anger(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalРежиссер: Patric UllaeusПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C964C9524F3D299AD74D0C9C01ECA4597A465FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 367535   (532722) от 25.07.2011
 
 Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
@@ -35,7 +6,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532722.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ Deep Purple: Phoenix Rising (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532070.jpg" />
 </div>
 
 
@@ -91,7 +62,7 @@ Blackmore's Night - A Knight In York (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531922.jpg" />
 </div>
 
 
@@ -126,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531290.jpg" />
 </div>
 
 
@@ -155,7 +126,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531194.jpg" />
 </div>
 
 
@@ -184,7 +155,7 @@ Alice Cooper - Live at Bonnaroo Festival (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529715.jpg" />
 </div>
 
 
@@ -213,7 +184,7 @@ A MusiCares Tribute to Carole King (2015) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529627.jpg" />
 </div>
 
 
@@ -243,7 +214,7 @@ Alice Cooper - Raise the Dead – Live from Wacken (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529508.jpg" />
 </div>
 
 
@@ -272,7 +243,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529395.jpg" />
 </div>
 
 
@@ -301,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528037.jpg" />
 </div>
 
 
@@ -327,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527747.jpg" />
 </div>
 
 
@@ -356,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527628.jpg" />
 </div>
 
 
@@ -385,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524465.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524200.jpg" />
 </div>
 
 
@@ -437,7 +408,7 @@ Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523941.jpg" />
 </div>
 
 
@@ -466,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523383.jpg" />
 </div>
 
 
@@ -492,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520331.jpg" />
 </div>
 
 
@@ -518,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519371.jpg" />
 </div>
 
 
@@ -544,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_519272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519272.jpg" />
 </div>
 
 
@@ -570,7 +541,7 @@ Anathema – Universal (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518342.jpg" />
 </div>
 
 
@@ -599,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518261.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518229.jpg" />
 </div>
 
 
@@ -653,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517216.jpg" />
 </div>
 
 
@@ -681,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_517033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517033.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516593.jpg" />
 </div>
 
 
@@ -722,6 +693,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E6BA38584E4361959B6F3B44A8657BC98CDBA00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314973   (516056) от 17.07.2019
+
+Славянский базар в Витебске. Церемония закрытия фестиваля (15.07.2019) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь на 16 июля в витебском Летнем амфитеатре торжественно закрыли «Славянский базар — 2019». Гала-концерт собрал на одной сцене артистов из Беларуси, России, Украины, Молдовы, Италии, Швеции. Самой звездной гостьей стала София Ротару — певица уже давно не была на «базаре» и подарила витебским зрителям новую песню.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4118D5151B529C3568715796864831A51B185E18
 ```
 
 https://mybot314.ru/tekegram_catalog/

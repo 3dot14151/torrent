@@ -1,3 +1,29 @@
+###  Публикация: 1100233   (900753) от 03.02.2017
+
+Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack YelloSOFT
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гнилые стены заброшенной фермы на американском Юге порождают чувство страха и одиночества. Жуткая «изолированная камера» - это новая страница в жанре survival horror. Движок RE Engine раздвигает границы ужаса - вы не сможете оторваться от экрана, настолько реалистичным будет изображение. Переживите новый чудовищный кошмар.Тип издания: RepackРазработчик: CapcomЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389BD4552E9489AEB32EE855094370F6B56020B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993169   (896766) от 04.03.2016
 
 Chasing Dead (2016) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +32,7 @@ Chasing Dead (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896766.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3/dlc) Rip Other s [Digital Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_895403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895403.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Call of Duty: Infinite Warfare (2016) [En] (6.0.1211685) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893292.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Duke Nukem Forever (2011) [Ru] (1.0.244/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893104.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891444.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Call of Duty: Advanced Warfare (2014) [Ru] (1.22.01/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887236.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Solus Project (2016) [Ru/Multi] (1.031) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886723.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Feelings Adrift (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885612.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5.0/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883817.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882799.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882788.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Dark Shores (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882675.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_881329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881329.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880282.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Thief (2014) [Ru/En] (1.7 u8/dlc) Repack R.G. Games [Master Thief Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876864.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_876581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876581.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Borderlands 2 (2013) [Ru/En] (1.8.4/dlc) Repack R.G. Механики [Game of t
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872400.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ DOOM VFR (2017) [Ru/Multi] (6.1.1.1930) Repack xatab [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872165.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ ANNIE: Last Hope (2020) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_872161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872161.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Obscuritas (2016) [En/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870988.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870229.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869370.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869368.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Shadow Warrior: Anthology (1997-2016) [Ru/Multi] (1.1.6/1.5.0/1.1.2/1.1.9.0/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869140.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ NecroVisioN: Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869125.jpg" />
 </div>
 
 
@@ -644,33 +670,6 @@ NecroVisioN: Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A31017B5DE8A141B9830B672AC801B3DFE1D38BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851159   (867219) от 22.02.2017
-
-NecroVision (2009) [Ru] (1.2) SteamRip Let'sPlay
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война — это ад. NecroVision — это шутер от первого лица, который проведет игроков через безумные поля сражений Первой мировой войны и сквозь темные подземелья, полные вампиров, демонов и темной магии.
-В поисках приключений, молодой американец Саймон Бакнер присоединился к британской армии в разорванной войной Европе в 1916 году. Во время особенно ожесточенного сражения, (   Читать дальше...   )Тип издания: SteamRipРазработчик: The Farm 51Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDDAF859098C1ED681BD8AF3354DE353929DF11
 ```
 
 https://mybot314.ru/tekegram_catalog/

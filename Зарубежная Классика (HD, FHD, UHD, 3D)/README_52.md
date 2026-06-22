@@ -1,3 +1,56 @@
+###  Публикация: 1320190   (458656) от 24.08.2019
+
+Джоси Уэйлс – человек вне закона / The Outlaw Josey Wales (1976) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458656.jpg" />
+</div>
+
+
+###  Подробнее
+
+В классическом вестерне «Джоси Уэйлс - человек вне закона» Клинт Иствуд, предстаёт в роли отважного героя, напоминающего его знаменитого Человека Без Имени, впервые появившегося в культовой картине «За пригоршню долларов».
+Но, в отличие от хладнокровного персонажа классической трилогии Серджио Леоне, у Джоси Уэйлса есть имя, сердце и... праведный гнев! Отомстив за (   Читать дальше...   )Производство: США / The Malpaso Company, Warner Bros. PicturesЖанр: ВестернРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Вождь Дэн Джордж, Сондра Лок, Билл МакКинни, Джон Вернон, Пола Трумен, Сэм Боттомс, Джеральдин Кимс, Вудроу Парфри, Джойс ДжеймисонПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: АнглийскиеПродолжительность: 02:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FABBC2ED8C85817267E132ED571BF26BD22C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318066   (458643) от 24.08.2019
+
+Индиана Джонс и последний крестовый поход / Indiana Jones and the Last Crusade (1989) BDRip [H.265/720p] [10-bit] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть невероятных похождений прославленного археолога и искателя приключений Индианы Джонса. На этот раз бесстрашный Индиана разыскивает самую таинственную реликвию в истории человечества - Святой Грааль. В этом археологу помогает его отец - профессор Джонс старший. Теперь под бдительным оком своего отца и при помощи своих верных талисманов, неизменной шляпы (   Читать дальше...   )Производство: США / Paramount Pictures, Lucasfilm Ltd.Жанр: Фэнтези, боевик, приключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Шон Коннери, Денхолм Эллиот, Элисон Дуди, Джон Рис-Дэвис, Джулиан Гловер, Ривер Феникс, Майкл Бирн, Кеворк Маликян, Роберт ЭддисонПеревод: Многоголосый профессиональныйСубтитры: Русские (pgs), английские (pgs)Продолжительность: 02:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75288B6FEF226080D24DC15223FB8B21B56B6297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562892   (457621) от 10.08.2022
 
 Оскорбление / Outrage (1950) BDRip [H.264/720p] [VO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457621.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457205.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455003.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454792.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_453266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_453266.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453105.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452446.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452445.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451344.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451187.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_450888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_450888.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450496.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450369.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450368.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450354.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450270.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449992.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448969.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448642.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448600.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448034.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447028.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447007.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446828.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E618B0155C1F8FD6126C4B33FE45D237DDBFAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247791   (446071) от 18.09.2018
-
-Жандарм из Сен-Тропе / Le gendarme de Saint-Tropez (1964) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив повышение, в уютный курортный городок Сен-Тропе приезжает бравый жандарм Крюшо с красоткой-дочерью Николь. Добрые, но недотепистые местные жандармы с радостью принимают Крюшо в свой круг. Но их радость быстро проходит: не такой добряк, но еще более придурковатый Крюшо с рвением бросается на защиту закона даже тогда, когда закон в его защите не нуждается. (   Читать дальше...   )Производство: Франция, Италия / Société Nouvelle de Cinématographie (SNC), Franca FilmЖанр: Комедия, Приключения, КриминалРежиссер: Жан ЖироАктеры: Луи де Фюнес, Женевьев Гра, Мишель Галабрю, Даниэль Коши, Мария Паком, Клод Пьеплю, Франс Румилли, Габриэль Тинти, Мишель Варнье и др.Перевод: Многоголосый закадровый, одноголосыйСубтитры: Русские, Французские, АнглийскиеПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB03999AD6A342A7CD3AFFF9D85E2506C852E6D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687303   (445722) от 07.09.2017
-
-Война и мир / War and Peace (1956) WEB-DL [H.264/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драма, номинированная на Оскар в 1957 году, рассказывает о международном конфликте, опасных приключениях, захватывающей интриге и трагической любви на фоне широкомасштабного вторжения Наполеона в Россию.Производство: США, Италия / Ponti-De Laurentiis CinematograficaЖанр: Драма, Мелодрама, ВоенныйРежиссер: Кинг ВидоАктеры: Одри Хепберн, Генри Фонда, Мел Феррер, Витторио Гассман, Херберт Лом, Оскар Хомолка, Анита Экберг, Хельмут Дантин, Туллио Карминати, Бэрри Джонс, Милли Витале, Лиа Зайдль и др.Продолжительность: 03:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EF34DEBA388C30E1E40E36636A212F2F8F0F1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

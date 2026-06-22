@@ -1,3 +1,55 @@
+###  Публикация: 1585316   (222543) от 21.10.2022
+
+Антон Чехов | Кошмар (2022) [MP3, Джахангир Абдуллаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ А. П. Чехова «Кошмар» написан как осуждение той жизни, которой живут люди, не знающие беды других. Павел Михайлович Кунин вернулся из Петербурга в своё имение. Ему предлагают взять под попечительство церковно-приходскую школу. Кунин знакомится с отцом Яковом. Тот производит на него тягостное впечатление: ему не нравится его внешний вид. Но когда он ближе (   Читать дальше...   )Жанр: КлассикаПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBC1E6048C162B5DCD06327925628AA745AF13D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083452   (220948) от 18.12.2016
+
+Николай Лесков | Шерамур. Русское тайнобрачие (2009) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий Русский писатель Николай Семёнович Лесков стремился в своем творчестве постигнуть жизнь разных классов, социальных групп, сословий России, создать многокрасочный, сложный, во многом еще не изученный образ всей страны в один из самых трудных периодов ее существования. Горький скажет о произведениях Николая Лескова: "... он писал не о мужике, не о нигилисте, (   Читать дальше...   )Жанр: КлассикаПродолжительность: 03:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D375571BABB668D1E7491C8FC727B38E57415998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084483   (218981) от 19.12.2016
 
 Яков Полонский | Медный лоб самого низкого сорта (2011) [MP3]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218981.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217317.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217115.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216961.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216943.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216926.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_216892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216892.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216711.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215810.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213529.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212958.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211909.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211637.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210642.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209252.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209248.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208848.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208701.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208585.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207759.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_206494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206494.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_205660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205660.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205371.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202406.jpg" />
 </div>
 
 
@@ -637,63 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D521532B7DAA292C68310BC95ADF3792BAC8B870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830176   (202401) от 26.10.2025
-
-Иван Тургенев | Первая любовь (Радиоспектакль) (2025) [MP3, Полина Красавина, Антон Багров и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Иван Сергеевич Тургенев (1818–1883) – русский писатель, поэт, переводчик, член-корреспондент императорской Академии наук по разряду русского языка и словесности (1860).
-Повесть «Первая любовь» И.С. Тургенева рассказывает о чувствах и связанных с ними душевных переживаниях шестнадцатилетнего юноши…
-(   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D363CB9912AF62F01ECD49384A9F271CAB5534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354817   (197379) от 06.06.2023
-
-Александр Пушкин | Руслан и Людмила (2008) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека школьника (Союз).
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-«Руслан и Людмила» – А.С. Пушкин работал над своей поэмой более трех лет. В результате на свет появилось произведение уникальное по своей структуре (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 02:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC23B480619AF2E902A3406A0716C07B58432FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

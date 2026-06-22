@@ -1,237 +1,3 @@
-###  Публикация: 1680055   (134807) от 27.11.2023
-
-Smart Launcher 6.3 build 036 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Launcher - лаунчер являющийся одним из самых лучших в своём сегменте за счёт качеств, возможностей и функционала, и как следствие, очень популярным у пользователей мобильных устройств, что предпочитают искать и находить альтернативы стандартному и далеко не идеальному варианту. Людям предлагается максимальное удобство управления, что выливается в возможность (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.11.2023Разработчик: Smart Launcher TeamПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5B9D08774BACF2C5C4B4F62F6C8AAB7FAD630F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680038   (134787) от 27.11.2023
-
-Square Home Launcher 3.0.5 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Square Home - красивый, стильный и функциональный лаунчер для мобильных работающих на Android-е. Им предлагается вариация оболочки выполненной в стиле Metro UI от Windows 10. Это очень понравится всем, кто постоянно использует данную операционную систему на других гаджетах. И считает, что подобная механика удобна и понятна для него и для его работы. Красивое исполнение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.11.2023Разработчик: ChYK the devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF87F8760F7CF492C5B11CA8253706A20A836790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680165   (134513) от 28.11.2023
-
-VIP Notes 9.9.77 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134513.jpg" />
-</div>
-
-
-###  Подробнее
-
-VIP Notes - программа-блокнот, что несмотря на своё незатейливое изначальное предназначение является на самом деле весьма внушительным по своим качествам комплексом возможностей и инструментов для полноценной работы с текстом. При этом приложение может быть защищено самыми разными способами, а так же всё содержимое просто-напросто зашифровано. Система настроек позволяет (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 31.10.2023Разработчик: OgromanПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDB0242A3B58626A999CB3B7F0295067A9771F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680527   (134322) от 29.11.2023
-
-PhotoRoom 4.7.5 (b1174) Lite-Mod by CMAPTOC [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134322.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 18.11.2023Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский и Украинский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167F7788BE8C1462DC7459C1C81516DF1B7F7C2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680556   (134155) от 29.11.2023
-
-izi.TRAVEL v7.2.2.514 Mody Ale.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свой телефон в персонального гида и станьте настоящим путешественником. Откройте для себя новые города, живописные маршруты, необычные музеи и колоритные достопримечательности. Аудиогид поможет вам лучше проникнуться местной атмосферой. Поделитесь с друзьями своими впечатлениями о путешествиях и расскажите им свои истории. Превратите свою поездку в настоящее (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 20.08.2023Разработчик: Informap Technology CenterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F41BA9F8C1A4A2A54F7FA5F12348A35709B4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680476   (134133) от 29.11.2023
-
-V Recorder - Запись видео с экрана 7.1.1 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134133.jpg" />
-</div>
-
-
-###  Подробнее
-
-V Recorder – качественный и простой экранный рекордер. Если вы постоянно сталкиваетесь с такой проблемой, когда вам необходимо записать видео с экрана и еще со звуком, то данное приложение вам в этом отлично поможет. В данном приложении представлено множество функций, которые направлены на то, чтобы облегчить вам жизнь. И теперь с его помощью запись видео с экрана (   Читать дальше...   )Тип издания: VIP (Pro)Релиз состоялся: 15.07.2023Разработчик: VIDEOSHOW Video Editor & Maker & AI Chat GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCB9ED09F619FEEFB4C349C13AB5F5866270682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677872   (134065) от 29.11.2023
-
-FBReader Premium v3.5.4 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 21.11.2023Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A23B3A862E4123B6C5E16FE2EBBB7A4F117201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680836   (133888) от 30.11.2023
-
-Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Базарт - это удостоенное различных наград приложение для редактирования фотографий и графического дизайна, которое поможет вам легко создавать красивые фотографии, профессиональные дизайны и потрясающее коллажное искусство. Откройте для себя возможности бесконечного творчества!Тип издания: Premium / ModРелиз состоялся: 26.11.2023Разработчик: Bazaart Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6009DC8A12D730211A0DA0C6D0D36DD7D920C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680584   (133825) от 30.11.2023
-
-Mobizen Screen Recorder 3.10.0.31 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mobizen Screen Recorder - невероятно популярное приложение из-за своих качеств и свойств, что впечатлили всех кому необходимо функция записи экрана мобильных гаджетов. Подобная функция может потребоваться и в работе и гарантированно необходима для всех стримеров, обзорщиков и прочих личностей. И зачастую быстро найти программу с подходящим функционалом для выполнения (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.10.2023Разработчик: MOBIZENПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA20B155D05060E1960EBDE50079F79E0CE2668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680799   (133763) от 30.11.2023
 
 Shazam (шазам) 14.3.1-231120 Lite-Mod by inqvizitor [Ru]
@@ -240,7 +6,7 @@ Shazam (шазам) 14.3.1-231120 Lite-Mod by inqvizitor [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133763.jpg" />
 </div>
 
 
@@ -266,7 +32,7 @@ Music Folder Player Full 3.1.31 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133727.jpg" />
 </div>
 
 
@@ -292,7 +58,7 @@ PROTO - симулятор схем v1.25.0 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133564.jpg" />
 </div>
 
 
@@ -318,7 +84,7 @@ Polarr v6.8.13 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133058.jpg" />
 </div>
 
 
@@ -344,7 +110,7 @@ Moon+ Reader Pro v8.6 (build 806004) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132972.jpg" />
 </div>
 
 
@@ -370,7 +136,7 @@ Photo Lab PRO v3.12.80 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132671.jpg" />
 </div>
 
 
@@ -396,7 +162,7 @@ Psiphon Pro 390 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132637.jpg" />
 </div>
 
 
@@ -422,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132624.jpg" />
 </div>
 
 
@@ -448,7 +214,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132604.jpg" />
 </div>
 
 
@@ -476,7 +242,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.1 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132590.jpg" />
 </div>
 
 
@@ -502,7 +268,7 @@ AR Ruler App: Линейка Рулетка v2.7.4 Mod by Timozai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132588.jpg" />
 </div>
 
 
@@ -528,7 +294,7 @@ OBDeleven VAG car diagnostics v0.76 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132545.jpg" />
 </div>
 
 
@@ -554,7 +320,7 @@ Planner 5D - дизайн интерьера v2.8.8 Mod by App_modz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132505.jpg" />
 </div>
 
 
@@ -580,7 +346,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131780.jpg" />
 </div>
 
 
@@ -609,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131616.jpg" />
 </div>
 
 
@@ -635,7 +401,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131479.jpg" />
 </div>
 
 
@@ -661,7 +427,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 Mod By ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131336.jpg" />
 </div>
 
 
@@ -675,6 +441,243 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED206A970DF2C733C228676EA154BAC7B75B1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682502   (131333) от 07.12.2023
+
+VPN Inf - Security Fast VPN 7.6.301 Mod by ModdingUnited [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131333.jpg" />
+</div>
+
+
+###  Подробнее
+
+VPN Inf - быстрый, безопасный и безлимитный VPN
+Это лучшее приложение для посещения сайтов, безопасности Wi-Fi и защиты конфиденциальности.
+Не нужно никакой настройки, просто нажмите одну кнопку, и вы сможете безопасно путешествовать по Интернету.Тип издания: PremiumРазработчик: Inf Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E413C389917BDA802683C1590560E8BEC5B633AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682511   (131315) от 07.12.2023
+
+XY VPN - Security Proxy VPN 4.7.329 Mod by ModdingUnited [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131315.jpg" />
+</div>
+
+
+###  Подробнее
+
+XY VPN — это абсолютно бесплатный VPN! Быстрое и глобальное VPN-приложение для обеспечения конфиденциальности и безопасности в Интернете для всех пользователей Android.Тип издания: VIPРазработчик: MATRIX MOBILE PTE. LTD.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93B7022F51FD5C03C7F5972566448ED2A2186C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606337   (131253) от 07.12.2023
+
+Поздравления, открытки, цитаты v14.0.34 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение создано для тех, кто хочет радовать своих друзей и близких ежедневными красивыми открытками с пожеланиями на любой случай жизни. Каждый день новые изображения и приятные пожелания с добрым утром, хорошего дня, спокойной ночи, приятной недели, мудрые слова о любви, религии, вере, мотивации, привязанности, отношениях, браке, а также шутки, поздравления (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 28.11.2023Разработчик: M3 appsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6AE49069973BBF686426CA4FB90B089BF977E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682756   (131104) от 08.12.2023
+
+Speedtest от Ookla 5.2.4 Mod by LEEAPK [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.12.2023Разработчик: OoklaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440B5B6CF9173973995F70EB127EC5CF19F932EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682571   (131014) от 08.12.2023
+
+Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый красивый и мощный монитор на андроид! Включите хранилище и монитор оперативной памяти. Вы можете одновременно контролировать использование памяти и оперативной памяти. Он предоставляет множество видов инструментов. в том числе: виджет оперативной памяти, виджет процессора, виджет батареи, рабочий стол, плавающее окно, строка состояния, плавающее окно. Вы можете (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.12.2023Разработчик: System monitor tools lab - Cpu Ram BatteryПоддерживаемая ОС: Android: 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F424D959A5E3FC19027F3EA0E2EE51E92D6F9139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524954   (130458) от 18.01.2022
+
+UPlayer Pro v2.0.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130458.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPlayer (Видеоплеер со всеми форматами) - Удобный видео проигрыватель для устройств Android, обладающий поддержкой большинства форматов, а так же позволяющий продолжить воспроизведение с того же места, даже после закрытия плеера. В UPlayer так же вошел пяти полосный эквалайзер и функция блокировки экрана на время воспроизведения видео.Тип издания: PremiumРелиз состоялся: 07.09.2021Разработчик: UPlayerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F453A5739B5AD412B9AA8FF7B19812B6109CB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524955   (130442) от 18.01.2022
+
+UPlayer Pro v2.0.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130442.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPlayer (Видеоплеер со всеми форматами) - Удобный видео проигрыватель для устройств Android, обладающий поддержкой большинства форматов, а так же позволяющий продолжить воспроизведение с того же места, даже после закрытия плеера. В UPlayer так же вошел пяти полосный эквалайзер и функция блокировки экрана на время воспроизведения видео.Тип издания: PremiumРелиз состоялся: 19.10.2021Разработчик: UPlayerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD785DB788868722EC7EAF5E5C519820B99DDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525277   (130115) от 19.01.2022
+
+Numia: Астрология и Гороскопы v2.0.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130115.jpg" />
+</div>
+
+
+###  Подробнее
+
+С каждым годом наша жизнь становится все более непредсказуемой! Но Мы сделали все, чтобы помочь тебе и сделать твою жизнь проще, интереснее и лучше. Наше приложение станет твоим личным убежищем от любых невзгод и самым лучшим астрологом на пути к твоим целям.Тип издания: Пиратка (Full)Релиз состоялся: 11 января 2022 г.Разработчик: APPS DEVELOPERSПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75520E3D16FAE1AD452E07D40934BCDFF15532B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525303   (129745) от 20.01.2022
+
+eWeather HDF погода и барометр v8.5.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129745.jpg" />
+</div>
+
+
+###  Подробнее
+
+eWeather HDF - это точный прогноз погоды от двух метеоагенств, домашняя метеостанция и барометр.
+Уникальные виджеты погоды на экране телефона имеют более 50-ти тем оформления на выбор, включающие виды Санкт-Петербурга, Москвы, Парижа, римские и арабские часы на экране и т.д. Виджет часы показывает время будильника и текущее время на домашнем экране телефона как в (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 14 января 2022 г.Разработчик: Elecont softwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E311BFBAAE185E003699730E45972E114EF2B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

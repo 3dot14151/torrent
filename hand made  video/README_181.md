@@ -1,3 +1,29 @@
+###  Публикация: 1802385   (14474) от 16.06.2025
+
+Выкрутасы (2011) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слава Колотилов, простой школьный учитель из сонного приморского городка с небанальным названием «Пальчики», приехал покорять Москву с рукописью романа в руках, а покорил… красавицу Надю. Уже близится свадьба, ресторан заказан и гости приглашены, но цепкие Пальчики не дают Славе вырваться к суженой, подстраивая череду «непреодолимых обстоятельств». Вот и приходится (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: мелодрама, комедия, спортРежиссер: Леван ГабриадзеАктеры: Милла Йовович, Константин Хабенский, Иван Ургант, Александр Кержаков, Сергей Гармаш, Владимир Меньшов, Ольга Тумайкина, Сергей Селин, Галина Логинова, Татьяна Лютаева и др.Перевод: Не требуетсяПродолжительность: 01:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C16FE8926244360A8DBCFC155838BC23E5230D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758817   (14459) от 16.06.2025
 
 Юнона и Авось (2004) DVDRip [H.264/1080p] [handmade upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14459.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14458.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14345.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14264.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14212.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14113.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14109.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14107.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14038.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14022.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13978.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13963.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13952.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13928.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13924.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13904.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13897.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13896.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13895.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13823.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13809.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13808.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13806.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13802.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13801.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40FDBD21B8DBCBBEA19C98B8D6B74709A96BBC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800127   (13797) от 22.06.2025
-
-Непримиримые противоречия / Irreconcilable Differences (1984) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Альберт и Люси собираются развестись и начинают раздел имущества. Это приводит в возмущение их десятилетнюю дочь Кейси, которая вскоре подает на них в суд с целью лишить своих родителей родительских прав.Производство: США / Hemdale, Lantana, Warner Bros.Жанр: драма, мелодрама, комедияРежиссер: Чарльз ШайерАктеры: Райан О’Нил, Шелли Лонг, Дрю Бэрримор, Сэм Уонамейкер, Аллен Гарфилд, Шэрон Стоун, Ортенсия Колорадо, Ким Марринер, Венди Гордон, Кен Гэйл и др.Перевод: Дублированный (Хлопушка), многоголосый, авторский (А. Алексеев)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86BA3B35ABA985F18F279BDCF40A1B842DF2557
 ```
 
 https://mybot314.ru/tekegram_catalog/

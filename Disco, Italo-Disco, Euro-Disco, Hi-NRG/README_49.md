@@ -6,7 +6,7 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30830.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Best Of Made Up Records Vol. 2 (1999) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30742.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Daro-X - After The Rain (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29131.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26776.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26463.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Good Ride - Faces (2023) [MP3|320 Kbps] <Italo-Disco, Italo-Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24986.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - ZYX Italo Disco Collection (The Memory Label) (2002) 3 CD [OGG Vorbis|480 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24985.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Maxi Talo - Emotions (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24890.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - I Love ZYX Italo Disco Collection 2 (2010) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24789.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Valerie Star - I Can’t Forget You (2025) [MP3|320 Kbps] <Italo Disco, Synthpop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16830.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AI Talking - Mega Album Vol. 1 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4438.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AI Talking - Mega Collection Vol. 6 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4436.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ AI Talking - Mega Collection Vol. 4 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4412.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ AI Talking - Mega Collection Vol. 5 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4409.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ AI Talking - Mega Collection Vol. 3 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4408.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ AI Talking - Mega Collection Vol. 2 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4407.jpg" />
 </div>
 
 

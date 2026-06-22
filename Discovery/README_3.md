@@ -6,7 +6,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876366.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Discovery. Техногеника. Буран (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871602.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870801.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Discovery. Города живые и мёртвые. Молога - Мышки�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869666.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Discovery: Строительство небоскреба "Шард" / The Tall
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867693.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Discovery. Города живые и мёртвые. Губаха HDTVRip [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865925.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Discovery. Города живые и мёртвые. Аксай HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865918.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Discovery. Города живые и мёртвые. Совза - Вытегр�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864261.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) BDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862538.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858771.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858653.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Discovery: Самогонщики (серии 1-6 + спецвыпуск) / Disc
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858526.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Discovery: Будущее с Джеймсом Вудсом. Как стать с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857370.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Discovery: Смертельный улов / Deadliest Catch (2005) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854542.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Discovery: Звездное выживание с Беаром Гриллсом 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851606.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Bi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851001.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Bi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850995.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Discovery: Смертельный улов / Deadliest Catch (2007) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849375.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Discovery: Будущее с Джеймсом Вудсом. Заменяя Бо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846773.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Discovery: Железная дорога Аляски  / Railroad Alaska (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841061.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Discovery: Золотая лихорадка / Gold Rush (2018) HDTV  [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_840741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_840741.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840688.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Discovery: Золотая лихорадка / Gold Rush (2019) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840627.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840150.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Discovery. Дороги России: Трасса Кола (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839622.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Discovery. Смертельный улов / Deadliest Catch (2019) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838923.jpg" />
 </div>
 
 

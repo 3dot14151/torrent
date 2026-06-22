@@ -1,3 +1,189 @@
+###  Публикация: 1175609   (369096) от 22.10.2017
+
+Borderlands 2 (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 1.07 / 6 DLC] [En]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369096.jpg" />
+</div>
+
+
+###  Подробнее
+
+В команде с тремя соратниками по сети или же в режиме одиночной игры отправляйтесь в рейд по неизведанным еще территориям Пандоры искать приключения на свою… голову.
+Выберите героя, как следует снарядите его – по традиции в вашем распоряжении гигантский арсенал оружия, боеприпасов и экипировки, – и вперед! Открывайте новые тайны Пандоры, прокачивайте персонажа по (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Action, Shooter, First-PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC37418F93010812A170E08A71198B561F5A554D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070093   (368343) от 06.11.2016
+
+Magic Orbz (2009) [PS3] [EUR] 4.21 [Repack / 1.03 / 3 DLC] [Ru/En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Orbz - новая интерпретация классического жанра арканоид, в которой игрок разносит на кусочки полностью трехмерные пространства. Помимо реалистичной физики и продвинутой системы разрушаемых объектов, Magic Orbz предоставляет поддержку системы трофеев и около 50 уровней для прохождения. Пробейтесь сквозь десятки красочных и стильных уровней, через острова пиратов (   Читать дальше...   )Тип издания: RepackРазработчик: Creat StudiosЖанр: ActionЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8A6E2B227AA13214F123769B5611AF24F4299D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069784   (368320) от 06.11.2016
+
+Bayonetta (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скорость, драйв, сердце, бьющееся в бешеном ритме сражения — все это Bayonetta. Игра от создателя Devil May Cry Хидэки Камии, на голову превзошедшего свои былые достижения. Чистый, незамутненный адреналин, который выплескивается вместе с кровью поверженных врагов. И, конечно, сексуальность — такой обаятельной и привлекательной воительницы не было еще ни в одном боевике.Тип издания: LicenseРазработчик: Platinum Games, Bee TribeЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED62EDF9085331916A5F228645FABD0D57CCF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327927   (367687) от 28.09.2019
+
+The Chronicles of Narnia: Prince Caspian (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый сериал "Хроники Нарнии" о фэнтезийном мире, созданном писателем Клайвом Льюисом- продолжается в кино и в игре! Вернитесь вместе с повзрослевшими детьми из семейства Певенси в Нарнию, где прошло 1300 лет. Замок Кэр-Перавел лежит в руинах, страной правит подлый узурпатор, сказочные существа терпят притеснения… Помогите законному наследнику, принцу (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Adventure, Hack & Slash, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7330904B562031929343C830F389A2571C72D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327703   (367523) от 28.09.2019
+
+PAC-MAN and the Ghostly Adventures (2013) [PS3] [USA] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pac-Man возвращается в ином обличии, чтобы предстать перед новым поколением поклонников. Вас ждет оригинальный сюжет и обаятельные персонажи, взятые из долгожданного мультсериала PAC-MAN and the Ghostly Adventures, создателем и продюсером которого является Ави Арад (Avi Arad), признанный режиссер и основатель Marvel Studios. Pac-Man и два его лучших друга, Spiral (   Читать дальше...   )Тип издания: LicenseРазработчик: Namco Bandai GamesЖанр: Arcade, Platform, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CAD4DBE3295D5B572651283B37909AC0EFD3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328143   (367392) от 28.09.2019
+
+Ori and the Blind Forest: Definitive Edition (2019) [Switch] [EUR] 8.1.0 [License] [Ru/En]
+
+>>Консольные Игры
+>>Switch
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367392.jpg" />
+</div>
+
+
+###  Подробнее
+
+После разрушительного шторма и последующих страшных событий лес Найбел находится на краю гибели. Чтобы спасти его, Ори должен набраться смелости и восстать против могучего врага.
+
+Игра Ori and the Blind Forest по праву получила несколько престижных наград. Это история о юном сироте, которому судьбой уготован героический путь, эмоциональная повесть о любви, самопожертвовании (   Читать дальше...   )Тип издания: LicenseРазработчик: Moon Studios GmbHЖанр: платформерЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047DCDC8C6FED93F00A8FEBC03D8144AA275DBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575920   (367369) от 15.11.2012
+
+Disney Epic Mickey 2: The Power of Two [Wii] [NTSC] [Eng] (2012)
+
+>>Консольные Игры
+>>Wii, GameCube
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сила волшебной кисточки велика! Особенно, если у Микки есть союзник.
+Disney Epic Mickey 2: The Power of Two является продолжением платформера Epic Mickey, рассказывающего о приключениях Микки Мауса. Во второй части Микки предстоит путешествовать вместе с Кроликом Освальдом, поэтому разработчики добавили кооперативный режим, позволяющий другому игроку в любой момент (   Читать дальше...   )Разработчик: Junction Point StudiosЖанр: action, adventureЯзык интерфейса: EngФормат: Образ в формате
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8495998CCC527DAA8C453173753EB53467D4961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575690   (367361) от 15.11.2012
 
 Marvel Avengers: Battle for Earth [ENG] (RegionFree) (LT+3.0/15574) (2012) [KINECT] [Xbox 360]
@@ -6,7 +192,7 @@ Marvel Avengers: Battle for Earth [ENG] (RegionFree) (LT+3.0/15574) (2012) [KINE
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367361.jpg" />
 </div>
 
 
@@ -32,7 +218,7 @@ WWE 2K16 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367195.jpg" />
 </div>
 
 
@@ -58,7 +244,7 @@ Burnout Paradise: The Ultimate Box (2009) [XBOX360] JTAG [License] [Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367065.jpg" />
 </div>
 
 
@@ -84,7 +270,7 @@ Sly Cooper: Thieves in Time / Sly Cooper: Прыжок во времени (2013
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366957.jpg" />
 </div>
 
 
@@ -110,7 +296,7 @@ NBA 2K18 (2017) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366955.jpg" />
 </div>
 
 
@@ -136,7 +322,7 @@ Just Dance Disney Party 2 (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [M
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_366091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366091.jpg" />
 </div>
 
 
@@ -163,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365912.jpg" />
 </div>
 
 
@@ -189,7 +375,7 @@ The Walking Dead - Survival Instinct (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365909.jpg" />
 </div>
 
 
@@ -216,7 +402,7 @@ Fight Night Champion [PS3] [USA] [En] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365793.jpg" />
 </div>
 
 
@@ -242,7 +428,7 @@ Super Smash Bros. for Wii U (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365761.jpg" />
 </div>
 
 
@@ -270,7 +456,7 @@ Assetto Corsa Competizione (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/En
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365628.jpg" />
 </div>
 
 
@@ -296,7 +482,7 @@ Mario + Rabbids Kingdom Battle (2017) [Switch] [EUR] 5.1.0 [License / DLC] [Ru/E
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365226.jpg" />
 </div>
 
 
@@ -323,7 +509,7 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364945.jpg" />
 </div>
 
 
@@ -349,7 +535,7 @@ Tower of Guns: Special Edition (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364941.jpg" />
 </div>
 
 
@@ -375,7 +561,7 @@ Phineas and Ferb: Across the 2nd Dimension / Финес и Ферб: Покор�
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364849.jpg" />
 </div>
 
 
@@ -401,7 +587,7 @@ Space Hulk (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364818.jpg" />
 </div>
 
 
@@ -427,7 +613,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364680.jpg" />
 </div>
 
 
@@ -453,7 +639,7 @@ Injustice: Gods Among Us (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363633.jpg" />
 </div>
 
 
@@ -481,7 +667,7 @@ Donkey Kong Country: Tropical Freeze (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363426.jpg" />
 </div>
 
 
@@ -493,194 +679,6 @@ Donkey Kong Country: Tropical Freeze — это новейший и первый
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:868D1032151C60D9F1CBFB88B49B3299E0D0F61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951367   (362611) от 29.10.2015
-
-Project Sylpheed: Arc of Deception (2007) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G. GamePress
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project Sylpheed является духовным наследником shoot 'em up серии Silpheed. Действие игры разворачивается в 2632 году, через пятьсот лет после того, как люди покинули солнечную систему. За это время было колонизировано и терраформировано 11 звездных систем, а правление сосредоточилось в руках. Terra Central Government. Колонисты четырех звездных систем, не желая (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Game ArtsЖанр: Simulators / SpaceЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53F1BE024BAE880D2676C9802DE47348B687520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576721   (362268) от 17.11.2012
-
-Transformers: Fall of Cybertron [Xbox 360] [Region Free] [RUS] [XGD3 / LT+2.0] (2012)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сражение за планету Кибертрон вступает в решающую фазу. Жестокие Десептиконы и противостоящие им Автоботы готовятся к последнему удару, который должен поставить финальную точку в затянувшемся конфликте. Станьте свидетелем и непосредственным участником величайших событий в истории эпической саги о Трансформерах, управляя самыми популярными разумными машинами всех времен.
-В новом игровом блокбастере вас ожидает невиданный масштаб разрушений. Перед вами откроются мрачные страницы угасания древней цивилизации, погрязшей в ужасах войны на уничтожение. Используйте уникальные способности Трансформеров, чтобы выйти победителем из схватки с несокрушимой формой Т-Рекса от Смельчака и легендарными Боевиконами. Крушите врагов в захватывающей одиночной кампании, посвященной обеим сторонам конфликта или бросьте вызов соперникам в сетевой игре!Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F844927D0941DF11FD016BA00AA4B6B358AB3C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576683   (362265) от 17.11.2012
-
-LEGO The Lord of the Rings [Wii] [MULTI4] (2012)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концептуально LEGO The Lord of the Rings предлагает все тот же суповой набор развлечений, что и тысяча игр с мясистой биркой LEGO до нее. В качестве декораций и сюжетного фона тут предсказуемо используются материалы из кинотрилогии «Властелин Колец». На правах пластмассовых фигурок, условно копирующих персонажей из трех фильмов Питера Джексона, игрокам предстоит поскитаться по Средиземью, посетить шахты Мории, миновать черные ворота Мордора и, естественно, уничтожить зловещее кольцо. Развлекать путников по мере того, как они будут сплавляться по сюжетному руслу всей трилогии, суждено угловатым оркам, Балрогу и прочей фэнтезийной живности, фигурировавшей в кинолентах.
-
-В плане игровой механики народ может рассчитывать на «кооператив», простенькую боевку, понятную «всем возрастам», фирменный юмор, непритязательные головоломки и целую бригаду легко узнаваемых героев – Фродо, Арагорн, Гэндальф, Леголас, Гимли, Боромир, Сэм, Мэрри и Пиппин непременно засветятся в LEGO The Lord of the Rings.Жанр: Action-adventure, open worldЯзык интерфейса: MULTI4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51E7D7E7C6AF87C36417427769441F1CB7402BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576794   (362261) от 17.11.2012
-
-Geronimo Stilton in the Kingdom of Fantasy The Videogame [PSP] [ENG] (2011)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Джеронимо Стилтону в увлекательном путешествии по семи землям, входящим в Фантастическое королевство. Все семь частей королевства наполнены головоломками и загадками, а также таинственными существами, играющими свою роль в этой захватывающей истории.
-Приключение начинается в Королевстве ведьм, где вам придется решать загадки карликового великана, помогать незадачливому рыцарю искать доспехи и даже сражаться с хищными растениями! Игра «Джеронимо Стилтон в Фантастическом королевстве» - захватывающее приключение для игроков всех возрастов!
-Вы окажетесь в красочном и живом мире. У каждого обитателя сказочной страны свой яркий и неповторимый характер, и вы не раз от души рассмеетесь, выполняя задания – будь то чтение книг для впечатлительного паука или поиск хрустального шара для гиппогрифа...
-В своем путешествии Джеронимо и Scribblehopper встретят русалок, драконов, пикси, гномов и многих других удивительных существ. Поможете ли вы этим отважным героям спасти Цветочка?Жанр: Quest, AdventureЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD32279BE4A42BB45306F19716DD0220A5031FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574815   (362170) от 17.11.2012
-
-Tokyo Jungle [PS3] [ENG] [NTSC] [FIXED FOR 3.55] (2012)
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все люди внезапно куда-то исчезли, и опустевший Токио захватили животные. Столица Японии превратилась в бетонные джунгли, в которых выживает сильнейший, а те, кто слабее, идут на корм. Tokyo Jungle – необычный экшен, в котором игрокам предстоит выступить в роли диких животных, заселивших Токио после таинственного исчезновения людей. В борьбе за выживание, зверям предстоит использовать всю свою хитрость, природные инстинкты и безжалостную агрессию, чтобы отвоевывать свою территорию и право на жизнь.Опасность повсюду, и только сильнейший может выжить.Жанр: Action/Arcada/SurvivalЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3090A75918B7C849B0FC6E9D272125214800B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379353   (362082) от 18.10.2020
-
-Indivisible (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.0.2] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Indivisible - игра в жанре экшн-RPG / платформер с великолепной нарисованной вручную графикой и уникальной механикой боев в реальном времени. Отправляйтесь в фантастический мир с десятками игровых персонажей, в котором вас ждет обширная сюжетная линия, простой в освоении, но сложный в совершенствовании геймплей, а также фирменное высочайшее качество, которым славятся (   Читать дальше...   )Тип издания: LicenseРазработчик: Lab Zero GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7063D8352612834EFA5E7EBF0522A887B4EFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071828   (356464) от 11.11.2016
-
-Tiny Troopers: Joint Ops (2014) [PS3] [USA] 4.21 [PSN / 1.01 / 1 DLC] [Multi]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tiny Troopers Joint Ops — эпичная миниатюрная аркада, наполненная хаосом битвы! Управляйте солдатиками, используйте разнообразное оружие. Нанимайте спецов: медиков, пулеметчиков или элитные войска «Дельта»! Собирайте медали, жетоны и разведданные. Играйте онлайн в режиме «Зомби», становитесь лидером. Tiny Troopers — это более 7 часов стрельбы и взрывов, это целая (   Читать дальше...   )Тип издания: PSNРазработчик: Kukouri Mobile EntertainmentЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский и другиеЯзык интерфейса: Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E3EDDF7F31DDC5183C01C597865905569D4AF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

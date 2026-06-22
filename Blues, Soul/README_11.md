@@ -6,7 +6,7 @@ Spencer MacKenzie - Cold November (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739363.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Robertas Semeniukas Aleksandr Belkin - Amber Blues (2021) [MP3|320 Kbps] <Blues,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_733529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733529.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Micki Free - Turquoise Blue (2022) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733072.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Primer & Bob Corritore - Ain't Nothing You Can Do! (2017) [MP3|320 Kbps] <W
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732175.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bridget Kelly Band - 2 Альбома (2013, 2016) [MP3|320 кб/с] <Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732086.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dustin Douglas & The Electric Gentlemen - Dustin Douglas & The Electric Gentleme
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729997.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Songhoy Blues - Music In Exile (2015) [MP3|320 кб/с] <Ethnic Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729984.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Slow Soul: Bedroom Jams (2019) [MP3|320 Kbps] <Soul, Disco, RnB>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728868.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Vargas Blues Band - Cambalache & Bronca (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728666.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gary Clark jr. - This Land (2019) [MP3|320 Kbps] <Blues-Rock, Modern Blues, Neo-
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727762.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mike Bloomfield - The Prime of Mike Bloomfield (2019) [MP3|320 Kbps] <Chicago Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727757.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ana Popovic - Trilogy (2016) 3CD [MP3|320 кб/с] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727591.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Boo Boo Weavils - Who The Hell Are The Boo Boo Weavils (2016) [MP3|320 кб/с] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724639.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Wax & Boogie - Lost In A Dream (Milano Club Blues Nights) (2012) [MP3|320 кб/�
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724408.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fantastic Negrito - The Last Days Of Oakland (2016) [MP3|320 кб/с] <Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724109.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Karen Lovely - Fish Outta Water (2017) [MP3|320 Kbps] <Blues, Blues Jazz, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722500.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Blue Floyd - Begins (2008) 2CD [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_720571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720571.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wille And The Bandits - Steal (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718829.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Justin Johnson - Drivin' It Down (2017) 2 CD [MP3|320 Kbps] <Blues, Roots, Ameri
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718429.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Uphill - Uphill (2009) [MP3|320 кб/с] <Swamp Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716213.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tyler Dow Bryant - Born In Texas (2007) [MP3|~170 кб/с] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716132.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Beth Hart - Front And Center (Live From New York) (2018) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715359.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Diggin' Roots Band - Bring It Home (2016) [MP3|320 кб/с] <Funky Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712221.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Ed Deane - Wireless Set (2016) [MP3|320 кб/с] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712209.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Martha High - Singing for the Good Times (2016) [MP3|320 кб/с] <Soul, Funk, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710109.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Allison August - Holy Water (2016) [MP3|320 кб/с] <West Coast Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708211.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Udemy, Vicki Lau | VFX Compositing with Nuke: Invisible Visual Effects (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157025.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dharmendra Giri | Learn and Master IN Nuke X VFX (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156954.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Learn Squared, Steven Cormann | 3D Matte Painting (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156932.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Liveclasses, Антон Мартынов | Нейросети для генер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156137.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155592.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Domestika, Trini Guzmán | Interior Mural Painting (2023) WEB-DL [AD] [ES / EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155454.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Udemy, Harsh Gupta | Paint and prep training in Nuke: fundamental – NK101 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155430.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Udemy, Alex Hanneman | Introduction to Nuke VFX Compositing: The Essentials - NK
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155243.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Hudozhnik Online, Настасья Кучинская | Рисование те�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155217.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Grant Warwick, Grant Warwick | Mastering Lighting Lessons 5 (2016) PCRec [Час
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155196.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Grant Warwick | Mastering Lighting Lessons 5 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155112.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Learn Squared, Paul Chadeisson | World Building (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155011.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ New Masters Academy, Erik Olson | Perspective 17: Drawing the Figure in Perspect
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154951.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Cubebrush, Marc Brunet | Character Concept for Video Games (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154904.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Gumroad, Cedric Lepiller | Sony BSP10 - Non-Destructive workfow on Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154880.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Learn Squared, Philipp Kruse | Character Illustration (2020) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154782.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Learn Squared, Maxx Burman | Intro to Matte Painting (2017) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154673.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Skillbox, Оксана Осадченко | Fashion-скетчинг (2021) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154622.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Udemy.com | Photoshop CC 2020 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154592.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154204.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154111.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Compositing Academy, Alex Hanneman | Methods of 3D VFX Compositing Nuke Mastercl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153970.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Compositing Academy, Alex Hanneman | Fundamentals of CG VFX Compositing in Nuke 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153936.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Gumroad, Alex Hanneman | NUKE: Advanced CG Compositing and Look Development NK60
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153855.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Stepik, Александр Бондарев | Revit 2024: Основы созд�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153810.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Stepik, Александр Бондарев | Revit 2024: Создание се�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153736.jpg" />
 </div>
 
 

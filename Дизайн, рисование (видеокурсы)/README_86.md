@@ -6,7 +6,7 @@ Learn Squared, John Sweeney | Cinematic Concept Design (2017) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153698.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chung Kan | Quick UV Mapping For Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153357.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Justin Marshall | Topology Tools in TopoGun 2.0 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153286.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chung Kan | Real-Time Creation For Games Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153218.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chung Kan | Hard Surface 3D Modeling for Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152789.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CGMA, Kurt Kupser | Texturing and Shading for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152737.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Compositing Academy, Alex Hanneman | VFX Color Grading and Re-Lighting in Nuke �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152450.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ SOA Academy | Photorealism with Corona Renderer Online (2021) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152285.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152260.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Learn Squared, Milan Nikolic | Creature Design (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152247.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Kaplan School, Гунефа Матюшенкова | Техники скетчи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152068.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ ProArt School, Майк Вазовский | Game Art иллюстрация (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151982.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Udemy, Joe "tripplejaz" Zavaletta | How to Design Comic Book Characters Course (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151796.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151788.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ HighLights | Веб-дизайн. Продвинутый уровень (2016) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150893.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Liveclasses, Алексей Шадрин | Секреты современног
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150645.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Udemy, Alexander Hanneman | VFX Compositing Elements Photorealistically in Nuke 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150634.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ SOA Academy | Postproduction & Matte Painting Online (2021) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150631.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150617.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150602.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150473.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ cg-school.org, Андрей Заморский | Сборник видеоуро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150318.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ CGMA, Nate Wragg | Character Design for Animation (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150281.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Bang Bang Education | Дизайн-библиотека (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150247.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150074.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Learn Squared, Maciej Kuciara | Intro to Environment Painting (2016) WEB-DLRip [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149167.jpg" />
 </div>
 
 

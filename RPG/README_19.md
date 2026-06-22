@@ -1,3 +1,107 @@
+###  Публикация: 1009166   (731270) от 30.05.2016
+
+Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License HI2U
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь погрузиться в мир где магия и технология схлестнулись в вечном антагонизме! Совершенно безумный сплав RPG, RTS и неповторимого обаяния 80-х. А что у нас отвечает за обаяние? Музыка, так? А кто у нас тут? Бааа да это же легенда легенд Mitch Murder, композитор музыки к Kung Fury и Hotline Miami 2.Тип издания: LicenseРазработчик: BeautiFun GamesЖанр: RPG, IsometricЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C2A87AC384B1C87EE3EE445D93273EBCB5547F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092831   (730469) от 19.02.2019
+
+Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.4) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hero Defense - Haunted Island приглашает всех любителей MOBA, RPG и TD проверить себя на способность к стратегическим маневрам в борьбе с ордами зловещих крипов. Hero Defense - Haunted Island предоставляет игроку пять уникальных героев, проходящих через различные арены, чтобы победить Графа Некросиса.Тип издания: RepackРазработчик: Happy TuesdayЖанр: Strategy, RPG, Tower Defence, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16819F69B65FF5DA0E500A7FD88A15AC2227423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010944   (729164) от 01.06.2016
+
+Cornerstone: The Song of Tyrim (2016) [En] (3.1.7) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cornerstone: The Song of Tyrim – приключенческая игра в открытом мире, полная удивительных открытий и напряженных боев. Однажды все воины-викинги пропали с вашего острова, и с тех пор мир и гармония покинули эти края. Тем, кто остался, с каждым днем становится все труднее. Тайрим – обыкновенный юноша, чей отец, как и многие другие, отправился в тот злосчастный поход. (   Читать дальше...   )Тип издания: LicenseРазработчик: Overflow GameЖанр: RPG (Rogue,Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00164F91B2B0B1AF44A21BBF4E63E0794BACB844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 324959   (729068) от 18.04.2011
+
+Disciples III Дилогия [Ru] (Lossless Repack) 2009-2010 | R.G. Catalyst
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая веха в истории Невендаара, где в главной роли выступит безжалостная и беспощадная раса – Орды Нежити. Это история самоотверженной любви и неувядающей славы, в которой лишённые жизни, но не лишившиеся способности чувствовать герои вершат страшную месть во имя богини смерти Мортис..Тип издания: RepackЖанр: Add-on (Standalone) / Strategy (Turn-based) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AE4575E21FC10294D7A1F5868EDDD93C3E8259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128388   (728096) от 24.04.2017
 
 The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механики
@@ -6,7 +110,7 @@ The Flame in the Flood (2016) [Ru/Multi] (24.04.2017) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728096.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Diablo + Hellfire (L) [En] 1996/1997
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727948.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.0.8) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725454.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_725453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725453.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724762.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Tokyo Xanadu eX+ (2017) [En] (1.08/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724757.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Kingdoms of Amalur: Reckoning (2012) [Ru] (1.0.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_724039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724039.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Stories: The Path of Destinies (2016) [Ru/Multi] (0.0.13825) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723431.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Ys: Memories of Celceta (2018) [Ru/Multi] (1.0.0.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722101.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Megamagic: Wizards of the Neon Age (2016) [En/Multi] (1.05) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719457.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Stranger of Sword City (2016) [En/Ja] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719306.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) License CPY [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718984.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Masters of Anima (2018) [Ru/En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718980.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Anima Gate of Memories (2016) [En/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717238.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ SWORD ART ONLINE: Fatal Bullet (2018) [Ru/Multi] (1.1.2/dlc) Repack xatab [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716908.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713427.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Pharaonic (2016) [Ru/Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711114.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Ca
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711112.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710461.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710211.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ BloodLust Shadowhunter (2015) [En] (1.028) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709190.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ Kenshi (2018) [Ru/Multi] (1.0.17) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_708714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708714.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ Kenshi — революционная ролевая «песочница», в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C36721CAADE790AD3181F384094827938D1D0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533433   (704644) от 24.02.2022
-
-Monark (2022) [Multi] (1.00/dlc) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приручите собственное эго с безумием! Ролевая игра, в которой вы сражаетесь с вашим эго и силой дьявола, питающегося безумием, вместе со своими друзьями, которая суждена привести к четырём концовкам. «Настоящая Студенческая Организация» была создана для решения нештатных ситуации в вашем учебном заведении. Как заместитель её директора, вы сформировали группу из четырех (   Читать дальше...   )Тип издания: LicenseРазработчик: FURYU CorporationЖанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Корейский, Японский, КитайскийЯзык интерфейса: Английский, Корейский, Японский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D719C6EB39B6FABBF7042103ABACFAFD72C386A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218435   (704095) от 19.04.2018
-
-Hand of Fate 2 (2017) [Ru/Multi] (1.3.5/dlc) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hand of Fate 2 — это «ползание по подземельям» в стилистике темного фэнтези, живая настольная игра, каждый уровень которой составляется из карт встреч, подобранных вами! Выбирайте с умом: ваш соперник, загадочный Дилер, не собирается нежничать, превращая вас в инструмент отмщения. Расклады на столе изменились, но ставка та же: жизнь или смерть!Тип издания: LicenseРазработчик: Defiant DevelopmentЖанр: Action, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD9B779E356E3F2BB2669E18C553D7820C3B948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220520   (703876) от 19.04.2018
-
-All Walls Must Fall - A Tech-Noir Tactics Game (2018) [En/Pt] (1.1.0649) License SKIDROW
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703876.jpg" />
-</div>
-
-
-###  Подробнее
-
-All Walls Must Fall – это изометрическая RPG с элементами стратегии и атмосферным нуар стилем. Перед вам альтернативная реальность, при которой СССР не отдал свои позиции и сохранил блок Варшавского договора. Действия игры происходят в Берлине 2089 года, Берлинская стена все еще на месте. Жесткая конкуренция привела к созданию технологий манипуляции временем, что (   Читать дальше...   )Тип издания: LicenseРазработчик: nbetweengamesЖанр: Action, RPG, StrategyЯзык субтитров: Английский, ПортугальскийЯзык интерфейса: Английский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F655C7EE2C5CC3A95A0005881704ACC4B4A8B4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276307   (702852) от 07.03.2019
-
-My Time At Portia (2018) [Ru/Multi] (2.0) License CODEX
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните новую жизнь в волшебном городе Портия! Восстановите заброшенную мастерскую своего отца, выращивайте урожаи, разводите животных, заводите друзей и раскрывайте секреты забытого волшебного мира!Тип издания: LicenseРазработчик: Pathea GamesЖанр: Adventure (Casual), Indie, RPG, 3DЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Китайский и другиеЯзык интерфейса: Русский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E545A089A39C5872BD39419039CCA41B903206D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

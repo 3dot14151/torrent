@@ -1,3 +1,110 @@
+###  Публикация: 1843605   (1049469) от 21.12.2025
+
+Питер Саррис | Юстиниан. Византийский император, римский полководец, святой (2025) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько реформ способен реализовать император за 83 года своей жизни, 20 из которых правил совместно с женой? Правда ли, что храм Святой Софии так восхищал современников, что в Средние века писали, будто там живет ангел? Действительно ли персидский царь предложил императору Юстиниану «усыновить» своего сына?
+Император Юстиниан правил почти четыре десятилетия, с 527 (   Читать дальше...   )Жанр: Биографии, мемуары, историяИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7448833DDCAA40C611EF53E60F6310A3D5F77527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843613   (1049467) от 21.12.2025
+
+Хаим Бен Яаков | Чемодан, вокзал, Израиль. К истории антисемитизма в СССР (2024) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийство Михоэлса и разгром Еврейского антифашистского комитета, московская каденция Голды Меир и метания обласканного Кремлем Ильи Эренбурга, борьба с безродными космополитами и «Дело врачей», юдофобские «хозяйственные» процессы начала 1960-х и всплеск национального самосознания после Шестидневной войны, антисемитские нарративы в советской пропаганде и деятельность (   Читать дальше...   )Жанр: ИсторияИздательство: Freedom LettersФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6E1D38AF92269AF3E32ECB62780A80BB1320B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843348   (1049196) от 20.12.2025
+
+Джонатан Димблби | Операция «Барбаросса». Начало конца нацистской Германии (2025) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049196.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Захватывающий рассказ о крупнейшей военной операции всех времен — вторжении нацистской Германии на территорию Советского Союза в 1941 году
+• Автор использует донесения, дневники, письма и мемуары командующих, офицеров и солдат группы армий «Центр» вермахта, а также неопубликованные документы из российских архивов
+• В книге анализируются исторические предпосылки (   Читать дальше...   )Жанр: История, военнаяИздательство: Альпина нон-фикшнФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96B6814DC64B0C5EDBAAC12EB3D9887C09FD68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843098   (1049168) от 18.12.2025
+
+Кирилл Рогов (ред.) | Демонтаж коммунизма. Тридцать лет спустя (2021) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Эта книга посвящена 30-летию падения Советского Союза, завершившего каскад крушений коммунистических режимов Восточной Европы. С каждым десятилетием, отделяющим нас от этих событий, меняется и наш взгляд на их последствия – от рационального оптимизма и веры в реформы 1990‐х годов до пессимизма в связи с антилиберальными тенденциями 2010‐х. Авторы (   Читать дальше...   )Жанр: История, политология, экономикаИздательство: Новое литературное обозрениеФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934C6BA77FCF48B811DF23CE4C585A93BF38DC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842349   (1048612) от 15.12.2025
 
 Росс Кинг | Микеланджело и Сикстинская капелла (2020) [FB2]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048612.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047505.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047504.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047428.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045137.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044400.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043452.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043073.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042641.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042486.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041935.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041461.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040045.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039897.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039238.jpg" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037719.jpg" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037493.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037132.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037125.jpg" />
 </div>
 
 
@@ -507,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037115.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035421.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033352.jpg" />
 </div>
 
 
@@ -571,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7EFE36907DD9CA1B62C672A4E6D3DFB526A6B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446363   (1032989) от 08.02.2021
-
-Николай Волковский | Александр Македонский. Рожденный побеждать (2017) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032989.jpg" />
-</div>
-
-
-###  Подробнее
-
-С древности об Александре Македонском слагались многочисленные легенды, создан целый мифологический эпос. В XIX–XX вв. изучению жизни и деятельности знаменитого полководца посвящены труды ряда исследователей. В данной книге рассказывается о личности Александра Македонского, его роли в развитии военного искусства Древней Греции, дается описание выигранных им сражений. (   Читать дальше...   )Жанр: Биографии и мемуары, Общая историяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDB2964EC5EB0A14FD0CEC17B482494A7246D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446452   (1032690) от 09.02.2021
-
-Чарльз Оман | Темные века европейской истории. От падения Рима до эпохи Ренессанса (2020) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032690.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 476 году пала Западная Римская империя. Обширные территории Западного Средиземноморья оказались в руках вандалов, вестготов, франков и других племен, которых римляне прежде называли варварами. Римской империи, такой, какой ее знал Древний мир, больше не было. Но, даже в условиях упадка власти, Европа не погрузилась во мрак. По-прежнему существовала Восточная Римская (   Читать дальше...   )Жанр: История, КультурологияПеревод: Л.А. ИгоревскийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE6C59E057F09C2D82D40DF42AE90A02F319894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447493   (1031712) от 13.02.2021
-
-Книжная серия | Всемирная история (Изд-во «Вече») [27 книг] (2016-2020) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031712.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всемирная история» от издательства «Вече» - одна из самых необычных серий научно-популярных книг о всемирной истории. В ней с новой стороны раскрываются исторические личности, быт древних, события и развитие тайных обществ. Загадки истории, о которых не пишут в учебниках, ведь они не всегда имеют глобальное политическое и социальное значение. Но это только на первый (   Читать дальше...   )Жанр: История, Историография, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D5B3BCD81556CD1F7FF32689C2FFFD61DEA372D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447523   (1031701) от 13.02.2021
-
-Джон Гай | Елизавета. Золотой век Англии (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальная беллетризованная биография могущественной королевы Англии Елизаветы I, помещенная в широкий контекст истории Англии с 1584 по 1603 год. Другие биографы Елизаветы освещали преимущественно ранние этапы ее правления, лишь кратко упоминая о событиях, произошедших после того, как ей исполнилось 50 лет. Между тем это и становление Англии как «владычицы морей», (   Читать дальше...   )Жанр: Биографии и мемуары, Популярно об историиПеревод: В.И. ФроловФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E5875B5C3BF808DB788C691677D594F8C5552A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,64 @@
+###  Публикация: 611217   (989229) от 30.01.2013
+
+Курамухаммад хаджи Рамазанов | Основы мусульманской религии. Часть I (учебник) [1999] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989229.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-я часть учебника "Основы мусульманской религии": Общие сведения о мусульманской религии. Столпы имана.
+
+Рекомендовано ДУМД в качестве учебника по основам мусульманской религии.
+
+В брошюре 112 страниц, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D084099841E1C83E9D62972D4822C80B1740E10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611214   (989188) от 30.01.2013
+
+Архимандрит Тихон (Покровский) | Двенадцать Евангелий святых страстей Христовых [репринт ≈ 1998] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Репринт книги дореволюционного издания, выполненный ориентировочно в 1998 году санкт-петербургским издательством "Алгоритм".
+
+Полное название книги - "Двенадцать Евангелий святых страстей Христовых. Евангельские чтения святых страстей Господа и Спасителя нашего Иисуса Христа, предлагаемые церковью в великий пяток на утрени. С объяснениями, составленными архимандритом Тихоном (Покровским)".
+3-е издание.
+
+В брошюре 24 страницы, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2808B1196ECAD240674A93CC39CEDD203DD9CBBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971014   (988479) от 01.01.2016
 
 Карен Армстронг | Поля крови. Религия и история насилия (2016) [FB2]
@@ -6,7 +67,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988479.jpg" />
 </div>
 
 
@@ -32,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987659.jpg" />
 </div>
 
 
@@ -58,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987578.jpg" />
 </div>
 
 
@@ -84,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987575.jpg" />
 </div>
 
 
@@ -110,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987526.jpg" />
 </div>
 
 
@@ -136,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987513.jpg" />
 </div>
 
 
@@ -163,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987043.jpg" />
 </div>
 
 
@@ -189,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987035.jpg" />
 </div>
 
 
@@ -215,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986169.jpg" />
 </div>
 
 
@@ -241,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986120.jpg" />
 </div>
 
 
@@ -269,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986070.jpg" />
 </div>
 
 
@@ -295,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986028.jpg" />
 </div>
 
 
@@ -323,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986027.jpg" />
 </div>
 
 
@@ -349,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986026.jpg" />
 </div>
 
 
@@ -375,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986024.jpg" />
 </div>
 
 
@@ -401,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986019.jpg" />
 </div>
 
 
@@ -427,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986015.jpg" />
 </div>
 
 
@@ -453,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985930.jpg" />
 </div>
 
 
@@ -479,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985324.jpg" />
 </div>
 
 
@@ -505,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984777.jpg" />
 </div>
 
 
@@ -531,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984774.jpg" />
 </div>
 
 
@@ -557,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983508.jpg" />
 </div>
 
 
@@ -583,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983501.jpg" />
 </div>
 
 
@@ -609,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983424.jpg" />
 </div>
 
 
@@ -620,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CF86B01F5A36C3821EEE6DE49C1CC460F87C2E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971980   (983348) от 05.01.2016
-
-Николай Осокин | История альбигойцев и их времени (2000) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этой книги, Николай Алексеевич Осокин, — один из самых одаренных историографов России, обладавший поистине поразительной способностью обращать сухие исторические факты не просто в научные труды, но в книги — живые, интересные, увлекательные для самых широких кругов читателей.
-Перед вами — самое капитальное из исследований, посвященных истории альбигойской ереси (   Читать дальше...   )Жанр: Христианство, ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0FA21E5F9D4A84C183E928C4EAB6B71ED4AD38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972160   (983101) от 05.01.2016
-
-Г. Майер, П. Штир | Фашизм и политический клерикализм (1963) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вниманию читателя работа Гарри  Майера — научного сотрудника Института экономики  Германской Академии наук в Берлине, и Петера  Штира — научного сотрудника Высшей экономической школы в Берлине — Карлхорсте, посвящена критике и разоблачению одной из реакционнейших разновидностей идеологии современного империализма - политического клерикализма.Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2783209BADABFDD0182A09617C482B52B72D29AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

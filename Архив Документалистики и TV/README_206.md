@@ -1,3 +1,88 @@
+###  Публикация: 366090   (540852) от 21.07.2011
+
+Затерянные племена. Жизнь с племенем Мек (Западное Папуа). Чье колдовство сильней [7 серия] / World's Lost Tribes - New Adventures of Mark and Olly. The Battle of Beliefs (2007) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540852.jpg" />
+</div>
+
+
+###  Подробнее
+
+07. Чье колдовство сильней / The Battle of Beliefs
+Марк и Олли посещают врагов племени. Они обнаруживают деньги и знакомятся с религиозными верованиями. Однако, вернувшись, они узнают, что одна девушка напустила на вождя порчу.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C6C16BC3A5A0C28A29DE284E5094BB2B6C26EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049619   (540772) от 07.09.2016
+
+Хоккей. КХЛ 2016-2017. Торпедо (Нижний Новгород) - Сочи (04.09.2016) IPTVRip [H.264] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540772.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 сентября 2016, воскресенье. 17:00 МСК
+
+Стадион: Нагорный (Нижний Новгород, Россия) , 5 350 зрителей (96 % при вместимости 5 600)
+Главный судья: Александр Сергеев (Жуковский, Россия)(   Читать дальше...   )Телекомпания: КХЛ ТВЖанр: СпортЯзык озвучки: Русский (Владимир Гучек, Сергей Борисов)Продолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BA3A91923B99C34384811B42C922C29A3431EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050239   (540771) от 07.09.2016
+
+Футбол. Товарищеский матч. Россия - Гана (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540771.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 сентября 2016, вторник. 19:00 МСК
+Товарищеские матчи 1
+
+Стадион: Локомотив (Москва, Россия) , вместимость: 28800(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Дмитрий Шнякин, Владислав Батурин)Продолжительность: 02:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFB9B5A46DC06F456AB5EDBEE6DE68ADC339912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050226   (540770) от 07.09.2016
 
 Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа A. 1-й тур. Швеция - Голландия (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
@@ -6,7 +91,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540770.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540769.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540768.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540767.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540753.jpg" />
 </div>
 
 
@@ -148,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540747.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ Verizon IndyCar Series 2016. Этап 15. Grand prix at the Glen. Watkins Glen I
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540656.jpg" />
 </div>
 
 
@@ -201,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540652.jpg" />
 </div>
 
 
@@ -230,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540599.jpg" />
 </div>
 
 
@@ -259,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540326.jpg" />
 </div>
 
 
@@ -287,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540173.jpg" />
 </div>
 
 
@@ -322,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539309.jpg" />
 </div>
 
 
@@ -348,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539285.jpg" />
 </div>
 
 
@@ -377,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539284.jpg" />
 </div>
 
 
@@ -406,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539188.jpg" />
 </div>
 
 
@@ -432,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539085.jpg" />
 </div>
 
 
@@ -458,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538706.jpg" />
 </div>
 
 
@@ -484,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538678.jpg" />
 </div>
 
 
@@ -510,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538436.jpg" />
 </div>
 
 
@@ -539,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538435.jpg" />
 </div>
 
 
@@ -568,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538434.jpg" />
 </div>
 
 
@@ -597,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538433.jpg" />
 </div>
 
 
@@ -626,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538431.jpg" />
 </div>
 
 
@@ -640,87 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:437FF059AFDDCA87BCD666C97752DF96C3EDAB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050231   (538430) от 08.09.2016
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа B. 1-й тур. Швейцария - Португалия (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538430.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 сентября 2016, вторник. 21:45 МСК
-Группа B. 1-й тур
-
-Стадион: Санкт-Якоб Парк (Базель, Швейцария) , вместимость: 42500(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Георгий Черданцев)Продолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385CFE2E5860462C82C9BAD4B2208AFCEF6A7B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050530   (538429) от 08.09.2016
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Южная Америка. 8-й тур. Обзор матчей (08.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [POR]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 8-го тура отборочного раунда Южной Америки.Телекомпания: Sport TV 1 HDЖанр: СпортЯзык озвучки: ПортугальскийПродолжительность: 00:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3185BC8A1DD34BAE43F1F28E8064FFBB5604FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532324   (538411) от 07.08.2012
-
-Путешествия по Москве (1981) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы-путешествия рассказывают об исторических и архитектурных памятниках, знакомят с достопримечательностями и памятными местами Москвы.Жанр: Документальный, ТелепередачаПродолжительность: 10 x ~ 00:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABAD7B553F9D11495AA160CC7326F2157868E847
 ```
 
 https://mybot314.ru/tekegram_catalog/

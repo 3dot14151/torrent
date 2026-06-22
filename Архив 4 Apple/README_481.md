@@ -1,3 +1,57 @@
+###  Публикация: 1266106   (270996) от 01.12.2018
+
+Contacts Journal CRM 1.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Contacts Journal CRM представляет собой мощный инструмент, который превратит ваши деловые и личные отношения: сохранять заметки о важных встречах, создавать пользовательские поля контактов, и возможность приложить важные документы для каждого из ваших контактов. Доступно на Mac, iPhone и iPad, с бесшовной iCloud синхронизацией на всех устройствах.
+
+До тех пор пока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2018Разработчик: zaal LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF518DCE7975DBC5017E0CC2E6FC8F5C607120E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338133   (270684) от 14.11.2019
+
+File Cabinet Pro 7.3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270684.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Cabinet Pro - файловый менеджер строки меню Mac OS. Программа позволяет быстро перейти к нужным файлам, не загружая рабочий стол. Открыть, переместить, переименовать, сжать, добавить теги, удалить, копировать и многое другое, все из строки менюбар. Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Writes All Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC27757446FF9D8991B08DD63556BCF7E2E4540C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265981   (270666) от 01.12.2018
 
 Grids for Instagram 5.2 [Multi/Ru]
@@ -6,7 +60,7 @@ Grids for Instagram 5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270666.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Adguard 2.2.2.652 nightly (CL - 1.5.113) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270630.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ NoteBurner Spotify Music Converter 1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270606.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ ACDSee Photo Studio 5.3.1401 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270552.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Translate Tab 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270517.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ iCash 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270346.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ Untitled Goose Game (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270311.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ iMazing 2.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270186.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Dash 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269891.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ EdgeView 2 v2.831 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269886.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Affinity Publisher Beta 1.8.0.502 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269880.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ Valentina Studio Pro 9.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269877.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269790.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ Carbon Copy Cloner 5 v5.1.14 (build 5863) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269711.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ Adobe Bridge 2020 10.0.0.124 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269691.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ Sketch 48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269545.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ Adobe Acrobat Pro DC 2019.021.20049 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269541.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269476.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ Gifox – Gif Recording & Sharing 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269471.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ Airmail 3 v3.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269421.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ Paste 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269163.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269035.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ TinkerTool System 6.82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268918.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ CleanMyMac X 4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268671.jpg" />
 </div>
 
 
@@ -635,59 +689,6 @@ CleanMyMac сканирует каждый уголок вашей систем�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66251C2E42B43D5E05B0C2C600CE6A7F7FC106E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190027   (268574) от 08.12.2017
-
-Sketch 48.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под Mac OS X!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07 декабря 2017Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C867D14C4E9517B40915AA6B4629A5104BD4D9D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266857   (268426) от 04.12.2018
-
-iFinance 4.5.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268426.jpg" />
-</div>
-
-
-###  Подробнее
-
-iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5B469699DCD4F4E1131F83C2285421E658438F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 970680   (984060) от 04.01.2016
+
+Звёздные войны: Эпизод 5 - Империя наносит ответный удар / Star Wars: Episode V - The Empire Strikes Back (1980) BDRip [H.264/1080p] [ 35mm Renegade Grindhouse Scan]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борьба за Галактику обостряется в пятом эпизоде космической саги. Войска Императора начинают массированную атаку на повстанцев и их союзников.
+Хан Соло и принцесса Лейя укрываются в Заоблачном Городе, в котором их и захватывает Дарт Вейдер, в то время как Люк Скайуокер находится на таинственной планете джунглей Дагобар.
+Там Мастер - джедай Йода обучает молодого рыцаря (   Читать дальше...   )Производство: США, Lucasfilm Ltd.Жанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Ирвин КершнерАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Дэвид Праус, Питер Мейхью, Кенни Бейкер, Фрэнк Оз, Алек Гиннесс.Перевод: Дублированный, Многоголосый закадровый, Двуголосый закадровый, Одноголосый закадровыйПродолжительность: 02:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622205112120513AC66A4718DD9B06E0641D9012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967823   (983096) от 05.01.2016
+
+Громовержец и Виннету / Winnetou und sein Freund Old Firehand (1966) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комендант приграничного городка Мирамонте захватил и посадил в тюрьму брата главаря банды Сайлера. Узнав об этом, Сайлер грозит сравнять город с землей, если его брат не будет выпущен на свободу. Знаменитый охотник Громовержец и вождь апачей Виннету помогают защитить город и отбить нападение бандитов.Производство: Германия (ФРГ), Югославия / Jadran Film, Rialto Film Preben-PhilipsenЖанр: Приключения, ВестернРежиссер: Альфред ФорерАктеры: Пьер Брис, Род Камерон, Мари Верзини, Тодд Армстронг, Харальд Ляйпниц, Надя Грей, Уолтер Вилц,  Йорг Марквардт, Рик Батталья, Виктор де КоваПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90421DAF1D2F1FA94E3B650243BEC1AA9C36E3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967828   (982710) от 05.01.2016
 
 Привидение / Призрак / Ghost (1990) BDRip [H.264/1080p-LQ]
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982710.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982385.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981542.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980755.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980102.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979830.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979695.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978731.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978392.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976699.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_976209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976209.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975340.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_974202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_974202.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972797.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971947.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971840.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971525.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970879.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970588.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970036.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969450.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969298.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968987.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968534.jpg" />
 </div>
 
 
@@ -625,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBAEC030E5A6BC96ED54D02BC9EB1712272F475D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976498   (968244) от 18.01.2016
-
-Розенкранц и Гильденстерн мертвы / Rosencrantz & Guildenstern Are Dead (1990) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блестящая лента Тома Стоппарда, в которой он с воистину британским юмором наводит зрителя на философские размышления о сущности бытия, используя для этого вывернутого наизнанку "Гамлета" Вильяма Шекспира. В ролях лучшие из молодых английских актеров - Тим Рот и Гарри Олдмэн - разыгрывают странную и вместе с тем смешную историю, поставленную, кстати, по (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Драма, КомедияРежиссер: Том СтоппардАктеры: Гари Олдман, Тим Рот, Ричард Дрейфусс, Ливио Бадурина, Томислав Маретич, Маре Млачник, Срджан Сорик, Младен Васари, Зелько Вукмирича, Бранко ЗаврсанПеревод: Многоголосый закадровый, одноголосный закадровыйЯзык субтитров: русский, украинский, английскийПродолжительность: 01:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AAF634CC4A330E9AEA6CD1CFCDDF1D5E5679A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976841   (967406) от 19.01.2016
-
-Вспомнить всё / Total Recall (1990) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967406.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2048 году жизнь простого рабочего парня Дага Куэйда скучна и однообразна. Поэтому, чтобы хоть как-то поразвлечься, он решает воспользоваться услугами некой компании, которая за определенную плату посылает в его мозг импульсы, создающие полную иллюзию того, что он - другой человек, живущий другой, интересной жизнью.
-Все бы хорошо, но после сеанса Дагу совершенно (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Пол ВерховенАктеры: Арнольд Шварценеггер, Шэрон Стоун, Рейчел Тикотин, Ронни Кокс, Майкл Айронсайд, Маршалл Белл, Мэл Джонсон мл., Майкл Чэмпион, Рой Броксмит, Рэй БэйкерПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29100F227CBE707F9F5FD5B4C796DC444F11D03
 ```
 
 https://mybot314.ru/tekegram_catalog/

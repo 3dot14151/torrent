@@ -1,3 +1,57 @@
+###  Публикация: 1216394   (749580) от 31.03.2018
+
+А. Т. Лукачевский | Марксизм-ленинизм как воинствующий атеизм (1933) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая брошюра не является новой работой. В основу ее легла глава «Марксизм-ленинизм как воинствующий атеизм» из учебника по диамату, вышедшего под редакцией тт. Митина и Разумовского. Некоторые места взяты из других работ автора, в которых прорабатывались им отдельные вопросы марксистско-ленинского учения о религии и борьбе с ней («Маркс и Энгельс о религии», (   Читать дальше...   )Жанр: История, политология, науковедение, философия, религиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DC2F7107F5D8A0C3F7585E80B38A7596072A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216513   (749579) от 31.03.2018
+
+А. Дмитрев | Вопрос об историчности Христа в свете археологии (1930) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос об историчности основателя христианской религии Иисуса Христа с точки зрения положительных свидетельств, вещественных памятников первоначального христианства, хоть и заставляет нас на некоторое время погрузиться в глубокую древность, тем не менее, представляет сейчас жгучую злободневность и имеет весьма важный практический интерес.
+
+Археология раннего христианства (   Читать дальше...   )Жанр: История, политология, археология, религиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F15228694862B578903472274C37A6FC1386295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216474   (749426) от 31.03.2018
 
 Инок Максим (Смирнов) (сост.) | Сильнее смерти любовь (2016) [PDF, DJVU]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749426.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748100.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747897.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746953.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746633.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746547.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746130.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746010.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745511.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745269.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745190.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743892.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743870.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743799.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743764.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743582.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743477.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743422.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742544.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742472.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742470.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742469.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742468.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742431.jpg" />
 </div>
 
 
@@ -621,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F79BA2D384668E81082076BEEC434A5D545A85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217411   (742399) от 05.04.2018
-
-Н.С. Посадский (сост.) | Гроб Господень (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742399.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Великую Субботу Церковь вспоминает пребывание Иисуса Христа телом во Гробе, сошествие душой в ад, введение разбойника в рай. Здесь же произошла окончательная победа Христа над диаволом, торжество добра над злом, здесь воскрес Христос и совоскресил род человеческий. Отсюда, из этого Гроба, воссияла жизнь и, как из чертога, вышел Победитель смерти и зла. Мы многократно (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D1CF42B556972A86464701C863B6F696C43B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524735   (742254) от 17.01.2022
-
-О. Рожнёва (сост.) | Архимандрит Фаддей Витовницкий. Наставления, поучения, советы (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена архимандриту Фаддею (Штрбуловичу; 1914†2003) — известному сербскому духовнику, одному из самых почитаемых старцев Сербской Православной Церкви XX века. Он стяжал дары непрестанной молитвы, смирения, любви, прозорливости и духовного рассуждения. В книге собраны его наставления, поучения и советы.
-
-Старец советовал духовным чадам: «Не придавайте такого (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60ACD996CAE48EE1BD1743DCC6E1C0C7AAD3A612
 ```
 
 https://mybot314.ru/tekegram_catalog/

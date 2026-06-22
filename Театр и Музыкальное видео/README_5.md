@@ -1,3 +1,58 @@
+###  Публикация: 1459013   (1022894) от 03.04.2021
+
+Хранители (1991) TVRip [H.264] (части 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионный спектакль Ленинградского телевидения, поставленный по мотивам первой книги трилогии Властелина колец: Братство кольца в переводе Муравьёвой и Кистяковского. Эта постановка интересна тем, что в ней не забыли про Тома Бомбадила, которого безжалосто выкинул из сюжета Джексон. Спектакль к тексту гораздо ближе, чем фильм Джексона. В нём отображены все важные (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Спектакль, фэнтези, экранизацияРежиссер: Наталья СеребряковаАктеры: Георгий Штиль, Виктор Костецкий, Валерий Дьяченко, Вадим Никитин, Владимир Матвеев, Сергей Шелгунов, Лилиан Малкина, Сергей Паршин, Регина Лялейките, Александр Саюталин, Лариса Дмитриева, Николай Буров, Андрей Тенетко, Евгений Соляков, Андрей Толшин, Евгений Баранов, Елена Соловей, Андрей РомановПродолжительность: 00:50:02 + 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883FA5A057229ED5690AD742A4ADFE8A6C98CB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392170   (1022722) от 04.04.2021
+
+Коррозия металла - Клипы (1996-2020) WEBRip [H.264/720p/1080p] <Thrash Metal> (15 штук)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022722.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Bad Girls Train
+002 - Russian Vodka
+003 - Голая Марина
+004 - Джек-потрошитель(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E110C29581627D65C5D332B9EB557E55228BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121990   (1022401) от 06.04.2021
 
 Иосиф Бродский - Мрамор. Представление (2011) SATRip  (Театр "У Никитских ворот")
@@ -6,7 +61,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022401.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022365.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022195.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021579.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021282.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ The Beatles: Не приставай / Don’t Bother Me (A Hard Day's Night) (1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020800.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020483.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019615.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019266.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018532.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018346.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016354.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016145.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016143.jpg" />
 </div>
 
 
@@ -389,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016139.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ Thundercloud - Lightning Queen (2021) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016062.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015771.jpg" />
 </div>
 
 
@@ -467,7 +522,7 @@ The Beatles: Я счастлив просто потанцевать с тобо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015757.jpg" />
 </div>
 
 
@@ -495,7 +550,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015718.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015714.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014812.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014655.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014521.jpg" />
 </div>
 
 
@@ -625,7 +680,7 @@ New Order – Education Entertainment Recreation (2021) BDRip [EN]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014497.jpg" />
 </div>
 
 
@@ -636,61 +691,6 @@ Education Entertainment Recreation - лимитированное издание
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8321383473FE70FB9190CF49E7C1376BB494B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472173   (1014487) от 24.05.2021
-
-New Order – Education Entertainment Recreation (2021) BDRemux [H.264/1080i] [EN]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Education Entertainment Recreation - лимитированное издание концертного шоу 2018 года коллектива New Order. Концерт прошел в Великобритании 9 ноября 2018 года в лондонском Alexandra Palace с текущим составом группы, состоящим из Бернарда Самнера, Стивена Морриса, Джиллиан Гилберт, Фила Каннингема и Тома Чапмена. Это было зрелищное с точки зрения звука и изображения (   Читать дальше...   )Производство: Великобритания, Warner UK, Universal Music Operations Ltd., Decca UKЖанр: Концертная программа, рокРежиссер: Ричард Томас, Джейсон ХантерАктеры: Бернард Самнер, Стивен Моррис, Джиллиан Гилберт, Филл Каннингем, Том ЧапменПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 02:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46448AC4ACE2E8D6A162FDC11EFF7B638302D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084833   (1014112) от 26.05.2021
-
-Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия заключительного концерта группы Motley Crue,состоявшегося  в Лос-Анджелесе 28, 30 и 31 декабря 2015 года.01. Intro
-02. Girls, Girls, Girls
-03. Wild Side
-04. Primal Scream(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard Rock, Heavy Metal, Glam MetalРежиссер: Christian LambПеревод: ОтсутствуетПродолжительность: 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DEB1E52404CC375773CD0E82D5EAD6C4257D69
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Vampire Hunter D: Bloodlust | D: Жажда крови | Ди - охотник �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035590.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035298.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034751.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034716.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033325.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kaze no tani no Naushika | Nausicaa of the Valley of the Wind | Навсикая
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033094.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Princess Connect! Re:Dive Season 2 | Связь принцесс! Новое п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032915.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032831.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Senya Ichiya Monogatari | A Thousand and One Nights | Сказки 1001 ночи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032370.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cleopatra | Cleopatra: Queen of Sex | Клеопатра, королева се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032368.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-3) [2020, Web, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032154.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Psycho-Pass: Sinners of the System | Психопаспорт: Грешники 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032152.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031994.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031940.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031939.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина служба д�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031693.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031518.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031073.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Gekijouban Bem: Become Human | Bem Movie: Become Human | Бэм: Стать че
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030909.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030847.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030399.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030169.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029959.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029950.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029763.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Kyou kara Ore wa!! | Сегодня и начну!! [1993, OVA, 10 из 10] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029690.jpg" />
 </div>
 
 

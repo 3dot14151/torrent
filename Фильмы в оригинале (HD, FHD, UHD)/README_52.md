@@ -1,3 +1,133 @@
+###  Публикация: 1645084   (233052) от 07.07.2023
+
+Залог / Pawn / Dambo (2020) WEB-DL [H.264/1080p] [KOR / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инчхон, 1993 год. Грозный снаружи, но добрый внутри коллектор Ту-сок пытается взыскать долг с нелегальной иммигрантки и забирает в качестве залога её семилетнюю дочь Сын-и. Но женщина попадает в поле зрения миграционной службы и перед депортацией даёт Ту-соку телефон дяди, который выплатит её долг и заберёт девочку. Но пока Сын-и вынужденно живёт в квартире Ту-сока (   Читать дальше...   )Производство: Южная Корея, CJ EntertainmentЖанр: драма, комедия, семейныйРежиссер: Кан Дэ-гю / Dae-gyu KangАктеры: Сон Дон-иль, Пак Со-и, Ким Хи-вон, Ха Джи-вон, Ким Юн-джин, Ким Джэ-хва, Тео Ю, Чон, Ин-ги, Хон Сын-хи, Ким Мин-джуПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: русские, английскиеПродолжительность: 01:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8712C4283AB2541B36BB20B2E0A362FE42261430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643233   (232912) от 30.06.2023
+
+Мисс Пэк / Miss Baek / Mi-sseu-baek (2018) BDRip [H.264/1080p] [KOR / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшая заключенная Пэк Сан-а, женщина с непростым прошлым, после смерти матери въезжает в её квартиру. Постоянно видя на улице босую 11-летнюю девочку, над которой издеваются родители, мисс Пэк решает ей помочь.Производство: Южная Корея / LiTTLE BiG PiCTURES, Sega Sammy EntertainmentЖанр: драмаРежиссер: Ли Джи-вон / Lee Ji-wonАктеры: Хан Джи-мин, Ким Щи-а, Ли Хи-джун, Квон Со-хён, Ли Джу-ён, Пэк Су-джан, Чан Ён-нам, Ким Сон-ён, Ли Джон-ын, Чон Сок-хоПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: русские (18+), английскиеПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD2BAE06E24CF762F6A0B227F5E9981AA89D6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579581   (232657) от 27.09.2022
+
+Пустота / Nix (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья отправляется в страшное путешествие в собственное безумие, когда сталкивается с таинственной сущностью.Производство: США / All Roads ProductionsЖанр: ужасы, триллерРежиссер: Энтони ФеррантеАктеры: Джеймс Зимбарди, Ди Уоллес-Стоун, Майкл Паре, Энджи Дик, Скайлер Калеб, Niesha Renee Guilbot, Анджела Коул, Майкл Деворзон, Эмили Киллиан, Трэйси ПфауПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DC45625DB740B38544BB8C93592CE3FCAC9225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554170   (232239) от 29.05.2022
+
+Чрезвычайная ситуация / Emergency (2022) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовые к легендарной вечеринке, трое студентов колледжа должны взвесить все за и против вызова полиции, когда сталкиваются с неожиданной ситуацией.Производство: США / Amazon Studios, Temple Hill EntertainmentЖанр: Триллер, драма, комедияРежиссер: Кэри УильямсАктеры: АрДжей Сайлер, Дональд Уоткинс, Себастьян Чакон, Сабрина Карпентер, Мэдди Николс, Мэдисон Томпсон, Диего Абрахам, Саммер Мэдисон, Джиллиан Рабин, Патрик Ламонт мл.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, немецкие и др.Продолжительность: 01:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93C8DCCA68FAD79824991E78F1EF124463EFEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580199   (232221) от 30.09.2022
+
+Экзорцизм моей лучшей подруги / My Best Friend's Exorcism (2022) WEB-DL [H.264/1080p] [EN / RU, EN, Multi Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие подруги Эбби и Гретхен борются с потусторонним демоном, который вселяется в тело Гретхен.Производство: США / Endeavor Content, Gotham GroupЖанр: комедия, ужасыРежиссер: Дэймон ТомасАктеры: Элси Фишер, Амайя Миллер, Рэйчел Кану, Кэти Ан, Клэйтон Ройал Джонсон, Крис Лоуэлл, Нэйтан Андерсон, Синтия Эванс, Рэйчел Леа Коэн, Джон СтоунбернерПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (Full, SDH) и др.Продолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D712E84D1A1E4FBC72960C1A6402F96E65D6CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581940   (230910) от 07.10.2022
 
 Восставший из ада / Hellraiser (2022) WEB-DL [H.264/1080p-LQ] [EN / EN, ES Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230910.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229860.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_229855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229855.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229699.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229613.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229541.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229280.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_228833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228833.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227559.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227544.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227488.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_227318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227318.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226980.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225737.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225726.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225478.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224957.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224227.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224027.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223253.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223157.jpg" />
 </div>
 
 
@@ -537,137 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27B1EFBA3549AFE966287EEF0B71A5986D266E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269004   (222637) от 13.12.2018
-
-Багровая мята / Peppermint (2018) BDRemux [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222637.jpg" />
-</div>
-
-
-###  Подробнее
-
-После жестокого нападения Райли Норт выходит из комы и узнает, что ее муж и дочь не выжили. Когда она понимает, что правосудие не настигнет убийц, женщина решает отомстить им собственными руками. Годами они тренирует свое тело и дух, готовясь отобрать жизнь у тех, кто повинен в смерти ее семьи.Производство: Гонконг, США / Huayi Brothers, Lakeshore Entertainment, STXfilmsЖанр: Боевик, Триллер, ДрамаРежиссер: Пьер МорельАктеры: Дженнифер Гарнер, Ричард Кебрал, Джон Галлахер мл., Джон Ортис, Метод Мэн, Энни Илонзе, Тайсон Риттер, Хуан Пабло Раба, Джефф Хефнер, Пелл ДжеймсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDD95AAAC2DCF6926E9A168C1ADEBD2AC2350E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269184   (222246) от 13.12.2018
-
-Месть Лиззи Борден / Lizzie (2018) BDRemux [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, основанный на реальных событиях, рассказывает о Лиззи Борден, которую связывали близкие отношения с молодой горничной семьи, ирландкой Бриджет Салливан (Кристен Стюарт). В 1892 году Борден была обвинена в двойном убийстве, а суд над ней стал одним из самых противоречивых процессов в истории США.Производство: США / Powder Hound Pictures, Artina Films, Destro FilmsЖанр: Триллер, Драма, КриминалРежиссер: Крэйг Уилльям МакнейллАктеры: Хлоя Севиньи, Кристен Стюарт, Ким Диккенс, Дэнис О’Хэр, Фиона Шоу, Джефф Перри, Джейми Шеридан, Джэй Хьюджули, Джереми Сайкес, Тара ОксПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501F0AA6BEE86194B1F7BCA3ADD3B6B5A88336B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342835   (221969) от 03.12.2019
-
-К звёздам / Ad Astra (2019) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалёкое будущее. Несколько лет назад человечество запустило программу поиска внеземной жизни «Проект «Лима»», во главе которой стоял капитан Клиффорд Макбрайд. Последний сигнал экспедиции был зафиксирован в районе Нептуна, и с тех пор о её судьбе ничего не было известно. Сам капитан Макбрайд стал героем и самым известным космонавтом, вдохновившим многих на исследование (   Читать дальше...   )Производство: США, Китай, Бразилия / New Regency Pictures, Bona Film Group, Keep Your HeadЖанр: Фантастика, триллер, драма, детектив, приключенияРежиссер: Джеймс ГрэйАктеры: Брэд Питт, Томми Ли Джонс, Рут Негга, Дональд Сазерленд, Кимберли Элиз, Лорен Дин, Донни Кешаварц, Шон Блейкмор, Бобби Ниш, Лиза Гэй ХэмилтонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4826EAF7A8A8880F56BAEAAB0498CABFE75FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966138   (221851) от 16.12.2015
-
-Синистер 2 / Sinister 2  (2015) BDRemux [H.264/1080p] [EN / Da, Fi, No, Sw Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиквел рассказывает о молодом шерифе, решившем продолжить расследование серии таинственных убийств, описанных в первой части фильма, из-за которых в своё время потерял жизнь друг шерифа, сержант Элиссон Освальф.
-Расследование приводит шерифа к ферме, где он знакомится с дружелюбной семьей - близнецами Заком, Диланом и их матерью Кортни. Семьей, сбежавшей от издевательств (   Читать дальше...   )Производство: США, Великобритания, Alliance Films, Blumhouse Productions, IM Global, Automatik Entertainment, Entertainment One, Tank Caterpillar, Steady AimЖанр: ужасы, триллер, детективРежиссер: Киран ФойАктеры: Джеймс Рэнсон, Шаннин Соссамон, Роберт Дэниэл Слоун, Дартаниан Слоун, Лиа Коко, Тейт Эллингтон, Джон Бизли, Лукас Джейд Зуманн, Джейден Клейн, Лайла Хейли, Кейден М. Фриц, Оливия РэйниПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: датский, финский, норвежский, шведскийПродолжительность: 01:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0069359BC10902521699F53B4C6B5EBD8D36D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965934   (221843) от 16.12.2015
-
-400 дней / 400 Days  (2015) BDRemux [H.264/1080p] [EN / Fr Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет вращается вокруг астронавтов, отправившихся на симуляторе в путешествие по направлению к далекой планете. Цель этого эксперимента состоит в том, чтобы проверить членов экипажа космического корабля на психологическую совместимость во время длительного полета.Производство: США, New Artists AllianceЖанр: фантастика, триллер, детективРежиссер: Мэтт ОстерманАктеры: Брэндон Рут, Кейти Лотц, Бен Фельдман, Дейн Кук, Томас Кэвэна, Грант Боулер, Сэлли Прессман, Фернанда Ромеро, Фрэнк Эшмор, Доминик Богарт, Марк Стегер, Люк БарнеттПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: французскийПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98ACBDC2D6764AE9500FDB7FC4A1379083DB0B60
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Spiritual Gaia - Compilation (2026) [MP3|320 Kbps] <Easy Listening, Meditation, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069296.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Frontmusic - Relaxing Piano (2026) [MP3|320 Kbps] <Chillout, Piano, Instrumental
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068331.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Gabriella Quevedo - Collection (2026) [MP3|320 Kbps] <Acoustic, Pop>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065269.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Anna Zueva - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048891.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Stive Morgan - Dancing Under The Moon (2025) [MP3|320 Kbps] <New Age, Ambient, E
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048431.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Christos Stylianou - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043331.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Sexy Chilling Lounge Music (2023) [MP3|320 Kbps] <Downtempo, Chill Out, Eas
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041554.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Relax Collection 7 - Гармония Тишины (2009) [MP3|320 Kbps] <I
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038645.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Elias Rahbani - Compilation (2023) [MP3|320 Kbps] <Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037499.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036128.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Healing Rhythms (2021) [MP3|320 Kbps] <Downtempo, Relax, Meditation>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032068.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Hector Loza - The Best (2021) [MP3|320 Kbps] <Native American, World music>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024197.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Harmonic Convergence (2021) [MP3|320 Kbps] <New Age, Meditative, Relax, Amb
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021568.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Three Shaman (2021) [MP3|320 Kbps] <Native American, World music>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020284.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - House of the Spirit NA (2020) [MP3|320 Kbps] <Native American, New age, Wor
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018777.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Music Collection Vol.3 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013489.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Music Collection Vol.5 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010118.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Amure - Euphoria (2020) [MP3|320 Kbps] <New age, Enigmatic>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004222.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Happy New Year! Инструментальная музыка 2013 [MP3|320
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000335.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Relaxing Instrumental Jazz Ensemble - Chill Music (2012) [MP3|320 кб/с]<Instr
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997493.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Первый свадебный вальс (2011) [MP3|320 кб/с]<Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996076.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Meeting with Love (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Blue
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992380.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Gold Instrumental Songs (2013) [MP3|256 кб/с]<Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_981251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981251.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Acoustic 90s Rock Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Inst
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980677.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - A mystery to people (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age, Ethnic>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980390.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ VA - Music Collection (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980361.jpg" />
 </div>
 
 

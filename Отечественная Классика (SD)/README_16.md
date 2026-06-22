@@ -1,3 +1,55 @@
+###  Публикация: 197785   (816302) от 03.05.2010
+
+Светлый путь (1940) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неграмотная, но трудолюбивая деревенская девушка Таня, приехав в  город и поработав домработницей, нашла свое счастье в учебе и стахановском труде. Ее избирают депутатом Верховного Совета…Жанр: Комедия, МьюзиклРежиссер: Григорий АлександровАктеры: Любовь Орлова, Евгений Самойлов, Елена Тяпкина, Владимир Володин, Осип Абдулов, Николай Коновалов, Анастасия Зуева, Рина Зеленая, Павел Оленев, Вера Алтайская, Ф. Селезнев, В. Житкова, Н. Федосюк, Александра ТерехинаПродолжительность: 01:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E884AAF33780FA9E175858AD704FCE40BB098CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 654587   (815222) от 15.05.2013
+
+Женя, Женечка и «катюша» (1967) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние месяцы Великой Отечественной войны. В Женечку Земляникину, связистку полка "катюш", все немножечко влюблены. Но она любит несколько ироничного, но всё же романтичного москвича с Арбата - Женю Колышкина, который прослыл среди однополчан разгильдяем. Впрочем, не всё тут так однозначно и неисправимо. "Капли датского короля пейте, кавалеры!" (   Читать дальше...   )Жанр: Мелодрама, Комедия, ВоенныйРежиссер: Владимир МотыльАктеры: Олег Даль, Галина Фигловская, Михаил Кокшенов, Павел Морозенко, Георгий Штиль, Марк Бернес, Адольф Ильин, Любовь Малиновская, Владимир Федоров, Нелли Гуцол, Галина Игнатова, Николай Мартон, Александр Ульянов, Бернд Шнейдер, Владимир Ильин, Булат ОкуджаваПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4BE7E22E7B6F49BF482E3F43459C064F4DBFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004849   (815098) от 18.04.2016
 
 Золотая речка (1976) SATRip [H.264]
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815098.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814279.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813568.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813005.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812761.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811590.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811529.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809554.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809369.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808318.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805689.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805669.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804985.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804944.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804675.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804012.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802872.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801409.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799760.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799429.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799299.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798895.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797858.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797740.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ XVII век. Трое отважных рижан защищают родной 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E429A93A88FD671EB7E482C96092D16CDB9304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384722   (797099) от 25.05.2020
-
-Слуги дьявола на чертовой мельнице (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческий фильм о борьбе рижан против иноземных завоевателей в XVII веке. Три неразлучных друга, герои фильма "Слуги дьявола" на этот раз выкрадывают ключи от Риги, которые должны быть переданы шведскому королю в знак полной капитуляции...Производство: СССР/ Рижская киностудияЖанр: Приключения, комедияРежиссер: Александр ЛейманисАктеры: Артур Экис, Лолита Цауке, Харальд Ритенбергс, Ольга Дреге, Байба Индриксоне, Эдуард Павулс, Карл Себрис, Янис Грантиньш, Эльза Радзинь, Ингрид АндриньСубтитры: ОтсутствуютПродолжительность: 01:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81063CF1D70EE436C352D66A53B608EDB0E04B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782847   (796496) от 26.05.2020
-
-Охота на единорога (1989) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796496.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Охота на единорога» — советский художественный фильм, снятый по военной повести В. Б. Туболева «Чужое небо».
-    Начало Великой Отечественной войны. Выпускник лётного училища Тесленко летит ведомым у командира эскадрильи Грабаря. Их сбивают, и Тесленко оказывается в лагере при немецком аэродроме, где советских лётчиков используют в качестве живых мишеней для немецких (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Владимир ЛаптевАктеры: Сергей Быстрицкий, Виталий Зикора, Виктор Соловьев, Владимир Завьялов, Юрий Лазарев, Виталий Яковлев, Гедиминас Гирдвайнис, В.Кадочников, Альгис Матуленис и др.Продолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58F79AD3721788EFA76E9B7DF02BC02A98EC2F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

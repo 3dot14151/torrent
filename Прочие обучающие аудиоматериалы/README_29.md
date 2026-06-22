@@ -1,3 +1,29 @@
+###  Публикация: 1587622   (192630) от 31.10.2022
+
+Элизабет Маршалл Томас | Собаки и тайны, которые они скрывают. Легендарный бестселлер о сознании, поведении и привычках наших питомцев (2022) [MP3, Дина Пятро Дабришюте]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему собаки разных размеров по-разному относятся друг к другу? В чем реальная суть словосочетания «метить территорию» на собачьем языке? Что делает питомец, когда хозяина нет рядом? На эти и многие другие вопросы Элизабет Маршалл отвечает и как ученый, и как собаковод.Жанр: Домашние животныеПродолжительность: 03:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6647F814A3EA920BBC227CBACEB92F078D87EB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657992   (191805) от 06.09.2023
 
 Александр Никонов | Квантовая механика и парадоксы сознания (2023) [MP3, Алексей Данков]
@@ -6,7 +32,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191805.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191619.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191606.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191581.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191316.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191202.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190612.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190606.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190601.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190417.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190328.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190321.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190297.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190269.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190050.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190027.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189986.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189978.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189766.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189736.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189731.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189679.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189657.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189284.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189126.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68FF10E16E0EC969432438ED4EAA17088C36E75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661490   (188546) от 15.09.2023
-
-Эдит Холл | Счастье по Аристотелю (2022) [MP3, Никита Карасов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слова «счастье», «счастливый» мы слышим на каждом шагу. Мы хотим быть счастливыми. Но что такое счастье? Аристотель первым из философов занялся изучением этой субъективной модели. Автор книги, полностью соглашаясь с утверждением Аристотеля о том, что главный долг человека и его великий дар – это стремление к личному счастью, помогает нам пройти путь к его обретению (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: ЛитРес: чтецПродолжительность: 08:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42D389107AA11225F8F01936B1CDAEE267CC8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

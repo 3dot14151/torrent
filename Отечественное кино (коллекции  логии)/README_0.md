@@ -6,7 +6,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_614960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614960.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531590.jpg" />
 </div>
 
 
@@ -52,6 +52,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380767   (497899) от 29.08.2011
+
+Антиснайпер 1,2,3,4 (2007-2010) DVDRip
+
+>>Коллекции / *логии
+>>Отечественное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_497899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снайпер, получивший оперативный псевдоним «Дальнобойщик», отстреливает криминальных авторитетов одного за другим. Кто этот киллер — исполнитель чужого заказа или инициатор криминальной войны с целью бандитского передела? Это и предстоит выяснить полковнику Погожеву.Жанр: Драма. КриминалРежиссер: Сергей СоколюкАктеры: Илья Шакунов, Ольга Филиппова, Игорь Филиппов, Сергей Газаров, Сергей Романюк, Владимир ГоловинПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490B8118B0E8EA78291F3C5EBB4CB943608B8DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391883   (467932) от 06.09.2020
 
 Освобождение (1967-1971/2020) WEBRip [H.264/1080p-LQ] [PR] (фильмы 1-5 из 5) [Киноэпопея] + Бонус: Цена Освобождения (2020) DVB [H.264/1080p-LQ]
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467932.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462668.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395656.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355961.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355957.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354478.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343844.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339487.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332763.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313461.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311068.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304450.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275464.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270096.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268598.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ AURUMfilm. Сборник короткометражек (2013-2017) WEBRip [H.2
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262195.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251340.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247591.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246710.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245433.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244214.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211489.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201990.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B917C35CA608B9E9B88C446216A5C364F35DF781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079702   (192812) от 02.09.2023
-
-Освобождение (1968-1971) BDRemux [H.264/1080p] (киноэпопея)
-
->>Коллекции / *логии
->>Отечественное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм пятый — «Последний штурм». Последние дни войны, штурм рейхстага, сражение за каждый метр, за каждый этаж — и, наконец, водружение Знамени Победы над рейхстагом. Раздались первые залпы Победы. Главные герои фильма встречаются у входа в рейхстаг...Производство: СССРЖанр: драма, мелодрама, военныйРежиссер: Юрий ОзеровАктеры: Николай Олялин, Михаил Ножкин, Фриц Диц, Валерий Носик, Ангелика Валлер, Хорст Гизе, Леонид Куравлёв, Анатолий Ромашин, Михаил Постников, Лариса ГолубкинаПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA5A6219D5D74E910D2607D96B9EF40446778BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

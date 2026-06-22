@@ -1,3 +1,60 @@
+###  Публикация: 540939   (497125) от 04.09.2012
+
+Мадемуазель Нитуш / Mam'zelle Nitouche (1954) DVDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серьезный и скромный господин Селеcтен - органист в монастырском приюте для девочек. Он дает уроки музыки и служит примером хороших манер. Почтительность и преданность делу господина Селеcтена вызывают у монахинь безграничное доверие и уважение. Однако у чопорного преподавателя есть своя большая «маленькая тайна».
+По вечерам зануда Селеcтен превращается в озорного мсье Флоридора - сердцееда, проказника и сочинителя веселых оперетт. Юные барышни узнают о двойной жизни сурового наставника, и очаровательная Дениза (   Читать дальше...   )Жанр: Комедия, МюзиклРежиссер: Ив АллегреАктеры: Пьер Анджели, Оливье Юссено, Бернар Ла Жарриж, Кэтерин Кэт, Gaston Orbal, Фернан Рене, Клодетт Дональд, Луи де Фюнес, Андре Роанн, Жан Дебюкур, Марго Лион, Нерио Бернарди, Жорж Шамара, Даниэль Секкальди, Макс Эллуа, Паула Борбони, Фернандель, Пьер Олаф, Франсуа Герин, Хелен ТоссиПеревод: Многоголосый закадровыйПродолжительность: 01:27:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 379715   (497116) от 30.08.2011
+
+30 Seconds To Mars - MTV Unplugged 2011
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_497116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Closer to the Edge
+Hurricane
+Kings and Queens
+Night of the Hunter
+Where the Streets Have No NameЖанр: Alt/Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543550   (494043) от 06.09.2012
 
 Alexander Brown feat. Szhirley - Sidste Gang (2012) [H.264/1080р] WEBRip
@@ -6,7 +63,7 @@ Alexander Brown feat. Szhirley - Sidste Gang (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494043.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ Fabio XB & Wach vs Roman Sokolovsky - Eternal (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494034.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ DJ Sergey Fisun - Aura (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493903.jpg" />
 </div>
 
 
@@ -84,7 +141,7 @@ ARMIA - Follow your feeling (Vina del Mar Festival Sensation!) (2012) [H.264/720
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493732.jpg" />
 </div>
 
 
@@ -110,7 +167,7 @@ Papa Roach - Still Swingin (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493600.jpg" />
 </div>
 
 
@@ -136,7 +193,7 @@ Muse - Madness (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493583.jpg" />
 </div>
 
 
@@ -162,7 +219,7 @@ Audio Girls feat. Mr. On - My Prisoner (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491969.jpg" />
 </div>
 
 
@@ -188,7 +245,7 @@ Leticia Sabater - Mr. Policeman (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491714.jpg" />
 </div>
 
 
@@ -214,7 +271,7 @@ Korn III: Remember Who You Are (Bonus DVD) (2010) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490622.jpg" />
 </div>
 
 
@@ -249,7 +306,7 @@ WTF! - The Sway! (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487717.jpg" />
 </div>
 
 
@@ -275,7 +332,7 @@ Tiesto & Steve Aoki - Tornado (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487702.jpg" />
 </div>
 
 
@@ -301,7 +358,7 @@ Musicmatters Videomix - Pop, Rap & RnB Vol. 2 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486208.jpg" />
 </div>
 
 
@@ -330,7 +387,7 @@ Musicmatters Videomix - Pop, Rap & RnB Vol. 1 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486207.jpg" />
 </div>
 
 
@@ -359,7 +416,7 @@ Maroon 5 - iTunes Festival London (2014) WEB-DL [1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485969.jpg" />
 </div>
 
 
@@ -388,7 +445,7 @@ Musicmatters Videomix - Pop House vol.2 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482242.jpg" />
 </div>
 
 
@@ -417,7 +474,7 @@ Musicmatters Videomix - Pop House vol.1 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482189.jpg" />
 </div>
 
 
@@ -446,7 +503,7 @@ Musicmatters Videomix -Pop House vol.3 (2014) WEBRip [H.264/720p-LQ]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482182.jpg" />
 </div>
 
 
@@ -467,6 +524,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546722   (478549) от 13.09.2012
+
+Millenium Застольная (2012) DVD5
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_478549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Золотое Кольцо - Я сама любовь
+02 В.Сердючка - Тук тук тук
+03 Н.Королёва и А.Цекало.Ти ж мене пiдманула
+04 Белый день - Дарья
+05 Золотое Кольцо - Напилася я пьяна
+06 А.Пугачёва - Миллион алых роз
+07 София Ротару - Одна калина
+08 В.Добрынин - Не сыпь мне соль на рану
+09 Ой снег, снежок (Караоке)
+10 Балаган Лимитед - Гори, гори ясно(   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C575DEE73B5925B4F8FBE645CCBC0283BA32F7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384773   (478545) от 08.09.2011
 
 U2 - Live at Glastonbury Festival (2011) [1080i] HDTV
@@ -475,7 +567,7 @@ U2 - Live at Glastonbury Festival (2011) [1080i] HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_478545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_478545.jpg" />
 </div>
 
 
@@ -510,7 +602,7 @@ DVJ Bazuka - Feelin (Uncensored) (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476059.jpg" />
 </div>
 
 
@@ -536,7 +628,7 @@ EVEL7N feat. J. Worthy - Dirty Nights (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472427.jpg" />
 </div>
 
 
@@ -562,7 +654,7 @@ Kalafina - To the beginning (2012) BDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472278.jpg" />
 </div>
 
 
@@ -588,7 +680,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469302.jpg" />
 </div>
 
 
@@ -617,7 +709,7 @@ Michael Mind Project feat. Dante Thomas - Nothing Lasts Forever (2012) [H.264/10
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467678.jpg" />
 </div>
 
 
@@ -628,87 +720,6 @@ Michael Mind Project feat. Dante Thomas - Nothing Lasts Forever (2012) [H.264/10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC86F17B2B75A5247F606E9342475ED122212F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547825   (467488) от 18.09.2012
-
-Kalafina - After Eden' Special Live 2011 at Tokyo Dome City Hall (2011) [H.264/720p] BDRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта группы Kalafina от 25 Ноября 2011-го года, который включает в себя более 20-и песен, включая песни из альбома After Eden'.
-Также включает в себя короткий обзор "Kalafina Week" в районе Shibuya, Tokyo.Жанр: JPopПеревод: ОтсутствуетПродолжительность: 02:26:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547322   (467221) от 18.09.2012
-
-Moonbeam - The Secret (Live Edition) (2012) DVD5
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467221.jpg" />
-</div>
-
-
-###  Подробнее
-
-У российского проекта Moonbeam сложилась устойчивая репутация одной из самых талантливых и креативных электронных команд страны – во всяком случае, вклад в развитие современной отечественной танцевальной музыки они сделали нешуточный.  Open Gate Records представляет весьма интересный релиз: «Moonbeam. The Secret. Live Edition» - это DVD c выступлениями проекта в поддержку альбома в Москве, Казани, Нижнем  Новгороде,  и Екатеринбурге, а также CD c ремиксами от разных музыкантов, многих из которых можно смело назвать протеже «Мунов».  Взяв под крыло несколько молодых и перспективных российских продюсеров, Moonbeam дают им тот самый шанс, который не без усилий ухватили сами несколько лет назад.
-
-Так или иначе, по уровню все ремиксы на треки из The Secret соответствуют той высокой профессиональной планке , которую установили сами для себя братья Хвалеевы. Отдельного упоминания заслуживает DVD-диск: известно, что после выхода The Secret коллектив ждали аншлаги в российских миллионниках. Эти выступления прошли несколько (   Читать дальше...   )Жанр: МузыкаПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548589   (467076) от 18.09.2012
-
-Icky Blossoms - "Cycle" (Uncensored) (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro-PopПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD44E1C36CEE09197B5E4D0B8426BDA371C16EFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

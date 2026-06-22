@@ -1,3 +1,56 @@
+###  Публикация: 1027844   (677978) от 28.06.2016
+
+В чем дело, Док? / What`s Up, Doc? (1972) Blu-ray [VC-1/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говард Баннистер со своей невестой Юнис приезжает в Сан-Франциско на конгресс американских музыковедов и останавливается в отеле "Бристоль". В клетчатой дорожной сумке Говарда коллекция уникальных "музыкальных камней", которой он намеривается поразить участников конгресса. Но оказывается, таких клетчатых сумок-близнецов в отеле целых четыре штуки. (   Читать дальше...   )Производство: США, Saticoy Productions, Warner Bros. PicturesЖанр: Комедия, мелодрама, музыкаРежиссер: Питер БогдановичАктеры: Барбра Стрейзанд, Райан О`Нил, Мэдлин Кан, Кеннет Марс, Остин Пендлтон, Майкл Мёрфи, Филип Рот, Соррел Бук, Стефан Гираш, Мэйбл Альбертсон, Джон Хиллерман, Джордж Морфоген, Грэм Джарвис, Рэнди Куэйд, М. Эммет Уолш, Элинор Зои, Джек Перкинс, Джил ПеркинсПеревод: Профессиональный многоголосыйЯзык субтитров: Английский, французский, немецкий, испанский, финский, греческий, норвежский, РусскийПродолжительность: 01:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025C907A3236EFA96BA309A43F4C61BFC8FE386C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797294   (677115) от 18.06.2014
+
+Красотка / Pretty Woman (1990) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финансовый магнат Эдвард Льюис, проезжая по ночному городу, останавливается около красивой женщины. Ее зовут Вивьен и она берет только наличными. Наутро он понимает, что не хочет расставаться с ней и предлагает девушке остаться в его номере в отеле еще на некоторое время — за дополнительный гонорар.
+ Вивьен оказывается в море блеска и лжи. Она терпит небрежное отношение (   Читать дальше...   )Жанр: Комедия, Мелодрама, ДрамаРежиссер: Гэрри МаршаллАктеры: Ричард Гир, Джулия Робертс, Ральф Беллами, Джейсон Александр, Лора Сан Джакомо, Алекс Хайд-Вайт, Эми Ясбек, Элинор Донахью, Гектор Элизондо, Джудит БолдуинПеревод: Дублированный x2, двухголосый x2, авторский x6Язык субтитров: Русский, английский x3Продолжительность: 01:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B567133C6EF549ED61A5A0A62AFEC1AC471D31BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897602   (676876) от 17.05.2015
 
 Укол зонтиком / Le coup du parapluie (1980) BDRip [H.264/720p]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676876.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676858.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_674930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674930.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674488.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_674278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674278.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673177.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_672760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672760.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_671129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_671129.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670217.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669330.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669074.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669059.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668509.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665882.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664074.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663994.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663988.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662955.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_662910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662910.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660850.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_659940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659940.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_658589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658589.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657720.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_657642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657642.jpg" />
 </div>
 
 
@@ -625,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11472832B9411CB930EDE1D5A7FDCD8C2A74B1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513875   (656722) от 25.06.2012
-
-Трамвай «Желание» / A Streetcar Named Desire (1951) [1080p] BDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_656722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеко не юная, но все еще привлекательная Бланш Дюбуа приезжает в Новый Орлеан к беременной сестре Стелле, живущей с мужем Стэнли в местных трущобах. Бланш сообщает сестре, что разорена, ушла с работы и жить ей негде и не на что.
-
-Стэнли, воплощение естественности и грубости, сразу невзлюбил её за пристрастие к алкоголю и неуместное кокетство. Вскоре у Бланш появляется (   Читать дальше...   )Жанр: драма, мелодрамаРежиссер: Элиа КазанАктеры: Вивьен Ли, Марлон Брандо, Ким Хантер, Карл Молден, Руди Бонд, Ник Дэннис, Пег Хиллиас, Райт Кинг, Ричард Гаррик, Энн ДирПеревод: Многоголосый закадровый, АвторскийСубтитры: Английские, Русские, Русские (antikillW)Продолжительность: 02:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0627F746C86BCB8A427FEA8374E6E2CB52A67F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515232   (655750) от 26.06.2012
-
-Елена и мужчины /  Elena et les hommes (1956) [720p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_655750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Париж, начало XX века. Очаровательная польская княгиня Елена Сокоровская держит в своих руках судьбы Европы. Один из наиболее влиятельных французских генералов влюблен в неё и прожженные политики надеются, что смогут с её помощью заставить генерала совершить государственный переворот...Жанр: драма, мелодрама, комедияРежиссер: Жан РенуарАктеры: Ингрид Бергман, Жан Маре, Мел Феррер, Жан Ришар, Жюльетт Греко, Пьер Бертен, Дора Долл, Фредерик Дюваллес, Рено Мэри, Жак МорельПеревод: Многоголосый закадровыйПродолжительность: 01:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0989FF650219E2E02B26C5ACDE315E1A3BDF0F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

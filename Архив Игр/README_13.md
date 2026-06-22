@@ -6,7 +6,7 @@ Moon Hunters (2016) [Ru/Multi] (1.0.2053/upd 1) Repack АRMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857077.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Battlestation: Harbinger (2016) [Ru/Multi] (1.4.9) Repack АRMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856953.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Torment: Tides of Numenera (2017) [Ru/Multi] (1.0.1) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856696.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855929.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Rocket League (2015) [Ru/En] (1.15/dlc) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855237.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ KUON [ENG/Multi 3] (2004) [PS2]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854454.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Lucha Libre AAA: Héroes del Ring [Wii] [NTSC] [ENG] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854224.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Flotsam (2019) [Ru/Multi] (0.4.1p4) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852429.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tennis Manager 2021 (2021) [Multi] (1.6.2129) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852426.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Slipways (2021) [Multi] (1.1.827) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852309.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ The Walking Dead: Michonne - Episode 1-2 (2016) [Ru/Multi] (1.0.0.0) License COD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851625.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Divinity: Original Sin - Enhanced Edition (2015) [Ru/Multi] (2.0.113.775) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851623.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850905.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Super Swing Golf: Season 2 [Wii] [NTSC] [English] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850878.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850800.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Them and Us (2021) [Ru/En] (1.0.0/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850676.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Forced Showdown (2016) [En] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850051.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ SLAIN! (2016) [En] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850047.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Epistory - Typing Chronicles (2016) [Ru/Multi] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850031.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Sol Survivor [En] (L) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_849619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_849619.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Shapik: The Moon Quest (2020) [Graphic] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849357.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846875.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Assetto Corsa (2014) [Ru/Multi] (1.5.2/dlc) Repack SpaceX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846426.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Astria Ascending (2021) [Multi] (1.0.101r/dlc) License GOG [Digital Collector's 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845615.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.9.2) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845609.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Baldur's Gate: Enhanced Edition (2012) [Ru/Multi] (2.0.62.2/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844343.jpg" />
 </div>
 
 

@@ -1,3 +1,135 @@
+###  Публикация: 1789599   (22353) от 05.04.2025
+
+Камеди Клаб / Комеди Клаб / Comedy Club (04.04.2025) WEBRip [H.264/1080p] (сезон 21, выпуск 06)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу, которое более чем за 15 лет своего существования изменило представление о юморе! Более 700 выпусков, тысячи номеров, миллионы шуток и зрителей по всему миру. Comedy Club — это всегда актуальные темы, эксперименты с юмором и топовые гости. Смотрите и смейтесь вместе с любимыми резидентами!
+В выпуске Comedy Club: Алексей Шальнов «Виктор Критовалютов», Марина Кравец (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Павел Воля, Гарик Харламов, Женя Синяков, Тимур Батрутдинов, Иван Половинкин, Демис Карибидис, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец, Андрей Бебуришвили и др.Субтитры: ОтсутствуютПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5372DF6B4D6569188CDE583F5278E45C5862A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790978   (21794) от 11.04.2025
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2025.04.11) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21794.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EDDFEF68B28B7C6F081F1CA9F11914A195AB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790962   (21698) от 12.04.2025
+
+Уральские пельмени. Лежачий патруль (2025.04.11) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3DAF77DBD968A34580A715A41CDD6B1B6977DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791070   (21647) от 12.04.2025
+
+Камеди Клаб / Комеди Клаб / Comedy Club (11.04.2025) WEBRip [H.264/1080p] (сезон 21, выпуск 07)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу, которое более чем за 15 лет своего существования изменило представление о юморе! Более 700 выпусков, тысячи номеров, миллионы шуток и зрителей по всему миру. Comedy Club — это всегда актуальные темы, эксперименты с юмором и топовые гости. Смотрите и смейтесь вместе с любимыми резидентами!
+В выпуске Comedy Club: Женя Синяков «Арсен Маркарян», Зураб Матуа, Андрей (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Павел Воля, Гарик Харламов, Женя Синяков, Тимур Батрутдинов, Иван Половинкин, Демис Карибидис, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец, Андрей Бебуришвили и др.Субтитры: ОтсутствуютПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0E5FA9E61E4E31B0F3D9D50F46E3BD2FADB85A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791487   (21439) от 14.04.2025
+
+Кстати (2025) WEBRip [H.264/1080p] (сезон 1, выпуск 67-70)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарик Харламов, Азамат Мусагалиев и Денис Дорохов каждый субботний вечер обсуждают актуальные события, шутят и общаются с гостями шоу.Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Ида Галич, Никита Кологривый, Slava Skripka, Антон Лапенко, актеры сериалов «Аутсорс» и «Телохранители», Betsy и Мария Янковская, Алексей Гуськов, Виктор Добронравов, Василий «Пельмень» Камоцкий, NЮ и АсияЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27808DB5CC44A8C32AB3A1C5745C79360FF619CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792331   (21066) от 18.04.2025
 
 Камеди Клаб / Комеди Клаб / Comedy Club (2025.04.18) SATRip
@@ -6,7 +138,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21066.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20960.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20915.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20798.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20331.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20203.jpg" />
 </div>
 
 
@@ -165,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20092.jpg" />
 </div>
 
 
@@ -191,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20023.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19940.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19939.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19938.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19937.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19936.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19935.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19931.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19535.jpg" />
 </div>
 
 
@@ -425,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19508.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19297.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18862.jpg" />
 </div>
 
 
@@ -504,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18655.jpg" />
 </div>
 
 
@@ -533,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18085.jpg" />
 </div>
 
 
@@ -544,142 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8139493D37DCB0DF4A817CB1D1F05F38972E571B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797642   (18014) от 17.05.2025
-
-КВН-2025. Высшая лига. 1/4 финала, игра 1 (2025.05.17) SATRip
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F17836A4FBE237947F602EBE38555D3B3D09BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797607   (18012) от 17.05.2025
-
-Женя Сидоров — Бабочка (2024) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый стендап концерт Жени Сидорова, собранный из лучших шуток написанных за 10 лет.
-
-Комментарий от артиста:
-Это лучший концерт на русском языкеПроизводство: РоссияЖанр: юмор, стендапЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7AC226C0B2DE95995C2F2186D04C1DDB69EDC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797599   (18006) от 17.05.2025
-
-Никита Шевчук — Бессовестный (2024) WEBRip [H.264/2160p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый концерт Никиты Шевчука, полгода был доступен эксклюзивно на specials.
-Теперь концерт появился в открытом доступе, его можно  смотреть платно или бесплатно по вашему усмотрению.
-
-Комментарий от артиста:(   Читать дальше...   )Производство: РоссияЖанр: юмор, стендапЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74EEDFB35D3DAF81314F92CA773A1CDCA547108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797656   (17987) от 17.05.2025
-
-Кстати (2025) WEBRip [H.264/1080p] (сезон 1, выпуск 75)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семьдесят пятый выпуск шоу «Кстати» с Азаматом Харламовым. Дорох сегодня принимал коллег-актёров, рассказывал как обычно бывает на съёмках, такой ведущий нам нужен. Гостями семьдесят пятого выпуска стали: самый крутой в плане футбола – Валерий Карпин; самая крутая в мире книг и нейросетей – Зоя Яровицына; самые крутые представители актёрских династий – Никита Ефремов (   Читать дальше...   )Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Валерий Карпин, Никита Ефремов и Владимир Любимцев, Зоя ЯровицынаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7231B962E0E7E6C75BCA2D574E8CA4E2D3000D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797725   (17944) от 18.05.2025
-
-КВН-2025. Высшая лига. 1/4 финала, игра 1 (2025.05.17) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500C2C0E59B294DC3EB55DAC023F5129BFCE3CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

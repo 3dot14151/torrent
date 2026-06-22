@@ -6,7 +6,7 @@ Paul van Dyk - Guiding Light (2020) [FLAC|Lossless|tracks] <Trance, UpliftingTra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485326.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|W
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483910.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Delerium feat Phildel - Ritual (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Dar
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483861.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Pure Trance Frequencies 2 (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481260.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Molar Hard Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476087.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Afterdark 001 - Buenos Aires (Mixed & Compiled by Sneijder) (2018) [FLAC|Lo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472008.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Beautiful Vocal Trance: Chapter 5 (2020) [FLAC|Lossless|tracks] <Trance, Vo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470563.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Paul van Dyk - My World (In The Mix) (2002) [FLAC|Lossless|image + .cue] <Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469962.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jean - Michel Jarre & Armin van Buuren - Stardust (2015) Single [FLAC|WEB-DL]<El
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466556.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Double N - Club Ghost (2000) Single [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465684.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Ultra SKM - Radioactivity (2019) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463383.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Andy Blueman - Beyond the World We Know (2018) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461476.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Female Vocal Trance Anthems (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance ,U
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457238.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Scooter - Instrumental: The Best Hits (2002) Compilation, Mixed [FLAC|Lossless|i
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456840.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Lowland - We've Been Here Before (2018) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454928.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Cosmic Gate - 20 Years [Forward Ever Backward Never] (2019) [FLAC|Lossless|WEB-D
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454594.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Digital Blonde - Neon (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451203.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Cosmic Gate - Materia Chapter.Two (2017) [FLAC|Lossless|tracks] <Trance, Progres
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450230.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Nicholson - Reverent (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449334.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Marian Closca - Downward Spiral (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447365.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Anjunabeats Vol.100 (Mixed By Above And Beyond) (2008)(2CD)[FLAC|Lossless|i
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446717.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Paul van Dyk - The Politics Of Dancing (2001)(2CD)[FLAC|Lossless|tracks + .cue] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446507.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Markus Schulz – World Tour Best Of (2012)(2CD)[FLAC|Lossless|image + .cue
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444669.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - Black Hole Trance Music 09-20 (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443016.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Trance Nation (Mixed By Simon Patterson) (2015) [FLAC|tracks+.cue]<Trance, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442943.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - Always Alive Recordings 100 (Mixed By Ferry Tayle & Dan Stone) (2015) [FLAC
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442662.jpg" />
 </div>
 
 

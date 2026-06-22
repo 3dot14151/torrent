@@ -1,3 +1,107 @@
+###  Публикация: 1106264   (766148) от 17.04.2017
+
+Nat Geo Wild: Потерянные миры Индии / India's Lost Worlds (2015) HDTVRip [H.264/720p] (сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини-сериал "Потерянные миры Индии" покажет нетронутые уголки дикой природы и невиданных созданий, о которых за пределами этой страны неизвестно почти никому. От богатых лесов до продуваемых ветрами равнин — мы отправимся в самое сердце Индии, чтобы найти удивительные сокровища этой современной, но до сих пор таинственной страны.Производство: США, Off the FenceЖанр: Документальный, природа, флора, фаунаРежиссер: Джессика КоннеллПеревод: Одноголосый закадровый, профессиональный, переведено и озвучено на студии Велес, текст читает Станислав ВойничПродолжительность: 3x~00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F115A64782D922CAA032C5BE25AC0DAFAF6D14D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393925   (766128) от 02.07.2020
+
+NG. Тайны истории: Джордж Вашингтон / The Real George Washington (2008) SATRip (сезон 25, эпизод 9)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из всех легендарных личностей американской истории Джордж Вашингтон выделяется особым образом. Основатель государства, командующий Континентальной армии и первый президент Соединенных Штатов – его лицо знакомо всем по изображению на долларовых купюрах. Многие считают или, по крайней мере, предполагают, что им известно все об этом великом человеке. На самом деле, (   Читать дальше...   )Производство: США, Winton Dupont Films, National GeographicЖанр: Документальнно-постановочный, биография, историяРежиссер: Таккер БоуэнПеревод: Одноголосый закадровый, профессиональный (Петербург - 5 канал)Субтитры: отсутствуютПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E324294A0528B4415DD8E01877AA6D9AA7937F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279381   (766108) от 29.01.2019
+
+NG: Откуда берутся диктаторы / Making a Dictator (2018) SATRip (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диктаторы бывают разные. Но как можно в одиночку захватить власть? Почему мы им подчиняемся? Диктаторы всегда оставляют за собой кровавый след, даже если сначала вели себя мирно. Но диктаторами не рождаются. Их создают. Исторический момент создает возможность. Но не каждый сумеет воспользоваться шансом, данным историей. В каждой группе найдется лчность, в которой (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, история, биографияПеревод: Двуголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDF2F23D60BAF1614C772C12E6D08728DC2EEC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276392   (765965) от 29.01.2019
+
+NG. Откуда берутся диктаторы (Корни диктатуры) / Making A Dictator (2018) HDTVRip (1-3 серия из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и когда рождается диктатура? Каковы симптомы грядущей тирании? Каковы характеристики диктаторов? В начале небольшой группы доверенных людей достаточно, чтобы поверить в силу личности. Диктатура может быть угрозой, которая повлияет на современный мир. Как показывает история, диктаторы часто побеждают во время экономических кризисов. Затем они слушают тех, кто (   Читать дальше...   )Производство: США, США, National GeographicЖанр: Документальный, история, биографияПеревод: Документальный дубляж студии «Велес» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 3 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578D6F999E4D37140CB837AF5B9CE33D0AFDCAE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276395   (765961) от 29.01.2019
 
 NG. Откуда берутся диктаторы (Корни диктатуры) / Making A Dictator (2018) HDTV [H.264/1080p-LQ] (1-3 серия из 3)
@@ -6,7 +110,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765961.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Рожденные в Африке. Уроки охоты / Born in Africa 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765398.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ NGW: Дикая Ботсвана / Wild Botswana (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765396.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765395.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765333.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765249.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765087.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765038.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG: Инстинкт выживания: Китай. Яростная река /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764301.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG: Инстинкт выживания: Пустыни / Primal survivor: Deser
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764300.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG. Грандиозные переезды - Перенос древнего Е
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761953.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Просто магия / General Magic (2018) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761878.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG: Взгляд изнутри. Крупнейший круизный лайн�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760785.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760336.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NGW: Дикие острова гигантов / Savage Island Giants (2016) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760328.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758615.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG: Крокодил против акулы / The Croc That Ate Jaws (2021) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758243.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG: Потоп / The Flood (2018) WEB-DL [H.264/1080p] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758239.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NG: Кремниевая долина / Valley of the Boom (2019) SATRip (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758189.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757855.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756834.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756833.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23028D124601F91E1E6845891F3621644F3ADCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280860   (756710) от 05.02.2019
-
-NGW: Смертельно опасные монстры Австралии / Australia's Deadly Monsters (2017) HDTVRip [H.264/1080i-LQ] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_756710.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой уникальной передаче вы услышите истории о столкновениях со смертельно опасными животными в Австралии.Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Мартин БекерПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB06F52950AF0AAC63095B0C6A2ACC4195729C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280858   (756705) от 05.02.2019
-
-NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kingdom (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об особенностях обитания наиболее примечательных животных континента Африка в их нескончаемой борьбе за выживание.Производство: Южная Африка, Lion Mountain Media, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D11D1CFAE4A38A3915499F66CA4DB1C87800162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522706   (756504) от 08.01.2022
-
-90-е: десятилетие, которое нас объединило / The 90s: The Decade That Connected Us (2014) HDTV [H.264/1080i] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девяностые были десятилетием иррационального изобилия, где, казалось, были найдены ответы на все вопросы, и всё представлялось возможным. Звёздный состав актёров, учёных и знаменитостей в своих интервью проиллюстрируют эту декаду.Производство: США, Nutopia LTD & National Geographic ChannelЖанр: документальный, познавательный, новейшая историяРежиссер: Петер Лавринг, Ян РутПеревод: одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212E6F78E876C5F5DCAE78476869B0003865E497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522788   (756488) от 08.01.2022
-
-NG. Индия с высоты птичьего полёта / India From Above (2020) WEB-DL [H.264/1080p] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индия... Здесь зародилась цивилизация, которой сейчас более 5000 лет. В этой стране древние традиции существуют бок о бок с современной динамичной культурой. Наше путешествие запечатлеет необычайные кадры с высоты птичьего полёта. Такое вы увидите впервые. Вы увидите, как древние празднования до сих пор диктуют ритм жизни общества. И как сегодня индийцы создают древние (   Читать дальше...   )Производство: США, Prime Focus Technologies, National GeographicЖанр: документальный, путешествия, природаРежиссер: Парамангсу Мукерджи, Эшвин Нил МаниПеревод: одноголосый профессиональный (Велес)Субтитры: английские, английские (forsed)Продолжительность: 2x ~00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191ED00519D522FA6BC837DE8F94E2B623C4850D
 ```
 
 https://mybot314.ru/tekegram_catalog/

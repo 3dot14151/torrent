@@ -1,3 +1,56 @@
+###  Публикация: 1033666   (430533) от 25.09.2018
+
+Rocket League (2015) [Ru/Multi] (1.53/dlc) Repack Other s [Game of the Year Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rocket League - это аркадный проект, который сочетает в себе элементы футбола и боевых гонок на мощных автомобилях. Приятная физика автомобилей, отличная картинка, ураганный геймплей, кооперативный локальный режим вплоть до четырех игроков, онлайн для 8 игроков, множество арен и автомобилей, возможность за просмотром повторов создавать свои неповторимые видеоролики. (   Читать дальше...   )Тип издания: RepackРазработчик: Psyonix, Inc.Жанр: Arcade, Racing (Cars, Soccer), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E895A8199F16D770467A0EAF784A88FAC529C372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165341   (429953) от 14.09.2017
+
+Bloody Zombies (2017) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон наводнили полчища нежити. Город кишит ордами мутировавших зомби.
+Bloody Zombies – это кооперативный экшен/файтинг, в который могут играть как игроки с VR, так и игроки с обычными плоскими экранами. Сражайтесь в руинах Лондона с устрашающими своим разнообразием зомби, используя изощренную систему сражений свободного формата, а также постоянно расширяющиеся (   Читать дальше...   )Тип издания: LicenseРазработчик: Paw Print Games Ltd.Жанр: Action (Fighting), Coop, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60C5FDA6ECED8E9C6164CF4F1949010A0D6E0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 145484   (428718) от 12.10.2009
 
 Naruto Shippuden Ultimate Ninja 4 [En/Ru] (P) 2009
@@ -6,7 +59,7 @@ Naruto Shippuden Ultimate Ninja 4 [En/Ru] (P) 2009
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_428718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428718.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.5) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425976.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ BloodRayne: Betrayal (2014) [Ru/Multi] (13.10.15) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424251.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Goggles - World of Vaporia (2015) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_424250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424250.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Flood of Light (2017) [En/Ch] (1.1.3) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423608.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Rochard [Ru/Multi12] (RePack/1.31) 2011 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423528.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 3 Full Burst HD (2017) [Ru/Multi] (1.0.0.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423457.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Ultimate Marvel vs Capcom 3 (2017) [En] (1.0/upd1) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_423455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423455.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ WWE 2K Battlegrounds (2020) [Multi] (1.0.3.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422291.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504.1.02) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420345.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ Unravel Two (2018) [En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417133.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ Starless (2022) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416073.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ Human Fall Flat (2016) [Ru/Multi] (1.1.2G) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413577.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ The Purring Quest (2015) [Ru/Multi] (1.8) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411079.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ Galak-Z: The Dimensional (2015) [Multi] (1.01.04/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410913.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409222.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ Dead Cells (2018) [Ru/Multi] (1.4.9/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408308.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406972.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ Audiosurf [Ru/En] (RePack/1.0u31) 2009 | NSIS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406257.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (Repack/1.0.0.0.u.1/2 DLC) 2012 | R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397745.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ Viktor (2014) [En] (1.06) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395519.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ Dream Of The Blood Moon [En] (L) 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_394631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394631.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390715.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390058.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AD43DC920FC5E6AD4EBA970BEB0018565593FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 403301   (387947) от 26.10.2011
-
-Zombie Driver: Summer of Slaughter / Смертельная гонка: Тропический драйв (L) [Ru] 2011 | R.G. Игроманы
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы всегда мечтали расслабиться на уютном песчаном пляже, в тени под пышными пальмами, где слышен лишь умиротворяющий шелест волн… и вопли жаждущих отведать ваших мозгов зомби! Заражение настигло и этот райский уголок, и лишь самые отчаянные водители, превратившие свои машины в настоящие "колесницы смерти", смогут выжить в битве против бесчисленных орд живых (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Exor StudiosЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47C0C8B7CE6369847FFB495825D3A7158AC4BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059936   (386336) от 29.10.2016
-
-Shu (2016) [Multi] (1.1.0/u1) License HI2U
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра в жанре экшен-приключения. Когда великий и ужасный шторм уничтожает деревню Шу, он отправляется в отчаянное путешествие, чтобы выжить. В своих странствиях герой будет сталкиваться с различными персонажами, которые нуждаются в его помощи. В обмен на помощь они будут предоставлять Шу уникальные специальные способности, которые он может использовать, чтобы пройти (   Читать дальше...   )Тип издания: LicenseРазработчик: Coatsink Software, Secret Lunch GamesЖанр: Action, AdventureЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDCA66771B8DDDF4B19A643D5ADF5B6390AF59CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14680.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11221.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft создала утилиту для быстрого переноса
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10329.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Open AI врет и изворачивается
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_375.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1396469   (1027267) от 08.03.2021
+
+Sword Art Online: Alicization Lycoris (2020) [Ru/En] (1.30/dlc) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sword Art Online: Alicization Lycoris – новейшая игра по мотивам невероятно популярного аниме, которая приглашает вас отправиться в скрупулезно воссозданный виртуальный мир Underworld, представленный в популярном сюжете Alicization.Тип издания: RepackРазработчик: AQURIA Co., Ltd.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7781CFA365A098537C4A6633D4C7E50540535765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454967   (1025870) от 17.03.2021
+
+Mundaun (2021) [Ru/Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнав о загадочной смерти дедушки, главный герой отправляется в долину Мундаун, где он не был с самого детства. Вскоре он понимает, что оставшихся жителей долины преследует что-то древнее и дьявольское. В поисках причины герой начинает восхождение на гору: через горные луга и каменистые поля — вверх, к заснеженной вершине. Mundaun — это жуткая история с карандашными (   Читать дальше...   )Тип издания: LicenseРазработчик: Hidden FieldsЖанр: Хоррор, Приключение, ЭкшенЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F542A05258F57F904ABA0799AE4AF473D8495E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418091   (1025866) от 17.03.2021
+
+Remothered: Broken Porcelain (2020) [Ru/Multi] (1.8.0.1Fix) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broken Porcelain вносит в серию много долгожданных изменений, добавит новую механику игры и сюжетные элементы, которые вдохнут новую жизнь в персонажей и позволят ещё глубже погрузиться в жуткое приключение. Дополнение понравится как новым игрокам, так и давним любителям серии. Сокрытые в «Эшмене» тайны так просто не разгадать.Тип издания: LicenseРазработчик: Stormind GamesЖанр: Экшн, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8020D8B312B7284BE6A406F48B2C2B2CC416FAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455817   (1025363) от 20.03.2021
 
 The Medium (2021) [Ru/Multi] (1.2) Repack SpaceX
@@ -6,7 +84,7 @@ The Medium (2021) [Ru/Multi] (1.2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025363.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Lust from Beyond (2021) [Ru/Multi] (1.0) License CODEX [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024967.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) Repack SpaceX [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024689.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Arkham Horror: Mother's Embrace (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024662.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Visage (2020) [Ru/Multi] (3.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024655.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.19351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024330.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Genesis Noir (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024118.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Clea 2 (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024116.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Presence (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024112.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Paradise Lost (2021) [Ru/Multi] (12490.1383cl.shipping) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023712.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ From The Darkness (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023355.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022685.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Uncertain: Light At The End (2020) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022658.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ ENCODYA (2021) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022353.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022169.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Creaks (2020) [Ru/Multi] (1.0.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021982.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (2.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021978.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Scarlet Hood and the Wicked Wood (2021) [Ru/Multi] (1.0.0c) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021845.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Children of Morta (2019) [Ru/Multi] (1.2.55/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021838.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Cozy Grove (2021) [Ru/Multi] (1.5.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021655.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Lost Words: Beyond the Page (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021491.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ ADD (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021476.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Mundaun (2021) [Ru/Multi] (1.0.207) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1021068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021068.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Mundaun (2021) [Ru/Multi] (1.0.207) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:904D3FCFB29CB8B3523ABCE43739EAE60EEBB4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463677   (1020230) от 19.04.2021
-
-Don't Be Afraid (2020) [Ru/Multi] (1.002) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас зовут Дэвид, вам 11 лет... и вашему безмятежному детству пришел конец. Вы очнулись в темной холодной комнате и безуспешно пытаетесь осмотреться. Место совершенно незнакомо. Отовсюду доносятся пугающие звуки, чувство беспомощности переполняет вас. Вы слишком напуганы, чтобы сделать шаг вперед... но иного выбора нет. А самое худшее заключается в том, что за вами (   Читать дальше...   )Тип издания: RepackРазработчик: Hydra Games S.A., Limo Games, Broken Arrow GamesЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10297881FACC2D15B9CD4DA1A75663CD8D0E7677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464446   (1019726) от 22.04.2021
-
-The Shattering (2020) [Ru/Multi] (1.1.8/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019726.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Shattering — психологический квест от первого лица, затрагивающий непосредственно тему психического здоровья, одиночества, детских травм и любви. Возьмите на себя роль писателя Джона Эванса (John Evans), которому предстоит пройти лечение, чтобы восстановить память. The Shattering помещает вас в сознание Джона Эванса, где вы изо всех сил пытаетесь собрать воедино (   Читать дальше...   )Тип издания: RepackРазработчик: Super Sexy SoftwareЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4F2F99F716D76D7F44A49DB2F4AA9A6962AC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377428   (1019358) от 24.04.2021
-
-Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2/2.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019358.jpg" />
-</div>
-
-
-###  Подробнее
-
-На заре Октябрьской Революции группе пассажиров, переживших крушение поезда на Транссибирской магистрали, предстоит бороться за существование в бескрайней сибирской тайге. Перед лицом множества угроз, собственных слабостей и, более всего, собственных предрассудков им предстоит научиться справляться с ледяным холодом, надеясь на скорое спасение. Выходцы из разных (   Читать дальше...   )Тип издания: LicenseРазработчик: Arclight CreationsЖанр: Adventure, Simulator, StrategyЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E8124D06C617BDD5B8913040B80137868C73E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

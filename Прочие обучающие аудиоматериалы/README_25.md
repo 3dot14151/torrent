@@ -1,3 +1,109 @@
+###  Публикация: 1630149   (245663) от 30.04.2023
+
+Кристофер Кенворти | Как снимают блокбастеры Тарантино (2021) [MP3, Юрий Белик]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не просто книга, это профессиональный курс по режиссуре, после которого вы сможете самостоятельно снять свой фильм! Визионеры, первооткрыватели и величайшие режиссеры в истории откроют вам свои секреты мастерства и детально разберут с вами некоторые свои кадры и сюжетные повороты. Автору удалось собрать в одной книге анализ приемов и техник режиссеров на основе (   Читать дальше...   )Жанр: Кинематограф / театрПродолжительность: 04:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76442B81FE70F1D27B0F6330999112D1350EC126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631423   (245035) от 05.05.2023
+
+Борис Абрамов | Грани Агни-Йоги 1960 (2020) [MP3, Вячеслав Герасимов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главным трудом всей жизни Б. Н. Абрамова стало составление нравственно-философских записей, развивающих темы Учения Живой Этики (Агни Йоги) и отражающих практический путь самосовершенствования, которому он неуклонно следовал до конца своих дней. Начало Записей относится к 1940 г., последней датой является 5 сентября 1972 г., день ухода Бориса Николаевича из жизни. (   Читать дальше...   )Жанр: МировоззрениеПродолжительность: 14:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D064795D67FE5A82DE095444988237840DF9BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624826   (244986) от 07.04.2023
+
+Борис Абрамов | Грани Агни-Йоги 1956 (2020) [MP3, Вячеслав Герасимов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244986.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокнигу вошли ранее не публиковавшиеся Записи Бориса Николаевича Абрамова.
+Б.Н. Абрамов (1897–1972), проживший многие годы (1917-1959) за рубежом, в Харбине, был ближайшим учеником Николая Константиновича Рериха. Источник Записей и книг Учения Живой Этики – Един. Это подтверждала Елена Ивановна Рерих, в 40-е годы познакомившаяся с первыми Записями. Позже Борис (   Читать дальше...   )Жанр: МировоззрениеПродолжительность: 30:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53E83D2A72F1B3D575E94E8B4402AF3D12F929A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625170   (244640) от 09.04.2023
+
+Татьяна Муравьева | Мифы Поволжья (2023) [MP3, Дарья Березовская]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему великий бог Кугу Юмо поднял небо высоко над землей? Кто является людям в образе разрушительного смерча? Какая из птиц олицетворяет женское начало? И что делать во время разгула нечистой силы?
+Мифы народов Поволжья стали объектом исследования в XIX веке. В то время мифологические представления марийцев, удмуртов, чувашей, мордвы, татар, башкир и калмыков как (   Читать дальше...   )Жанр: Эпос и фольклорПродолжительность: 10:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0D0581A99E460505B583C570AD85D4DB9929DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622274   (244389) от 28.03.2023
 
 Эми Джонсон | Токсичные мысли (2023) [MP3, Надежда Винокурова]
@@ -6,7 +112,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244389.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243902.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_243062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243062.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242878.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241585.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240869.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240804.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240697.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240492.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240043.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239739.jpg" />
 </div>
 
 
@@ -302,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238207.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237911.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237833.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237658.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237586.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_237440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237440.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237180.jpg" />
 </div>
 
 
@@ -487,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236929.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236672.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236629.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236460.jpg" />
 </div>
 
 
@@ -579,113 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80EEEB157BE2A90E68D81F4096C55480CC73668D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641288   (236418) от 22.06.2023
-
-Анатолий Рождественский | На поиски динозавров в Гоби (2021) [MP3, Владимир  Захаров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236418.jpg" />
-</div>
-
-
-###  Подробнее
-
-На примере палеонтологических экспедиций в пустыню Гоби, участником которых был автор, рассказывается об увлекательной работе «охотников за динозаврами», о романтике экспедиционной жизни — неизбежных приключениях в трудностях, предшествующих научным открытиям. Читатель узнает о наиболее интересных и загадочных обитателях нашей планеты, населявших ее десятки миллионов (   Читать дальше...   )Жанр: Познавательная литератураПродолжительность: 07:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF54C85D3083C922359644FFA51218227E14DD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631104   (236359) от 04.05.2023
-
-Татьяна Черниговская | Нейролингвистика, когнитивная наука (Аудиолекция) (2005) [MP3, Татьяна Черниговская]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Т. В. Черниговская работает в междисциплинарной области когнитивной науки – на пересечении лингвистики, психологии и нейронаук. Защитила докторскую диссертацию «Эволюция языковых и когнитивных функций: физиологические и нейролингвистические аспекты» по двум специальностям «Теория языкознания» и «Физиология». American Biographical Institute номинировал Т. В. Черниговскую (   Читать дальше...   )Жанр: НейролингвистикаПродолжительность: 13:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3790468507ADC5DD4398AC23B6EE9AB7B8A7B728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631498   (236358) от 06.05.2023
-
-Питер Скотт-Морган| В шаге от вечности (2022) [MP3, Стефан Барковский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая история от первого лица – ученого, который решил превратиться в киборга, чтобы победить неизлечимую болезнь, поразившую его ЦНС.
-• Реальный опыт использования самых последних достижений робототехники, ИИ и хирургии в создании получеловека-полуробота.
-• Описание эксперимента, который способен изменить будущее смертельно больных людей.
-В 2017 году американскому (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураЯзык озвучки: Альпина ДиджиталПродолжительность: 10:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0D36970F2B0873A1D4EC07971F009BA2DAAC62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635820   (235904) от 27.05.2023
-
-Борис Абрамов | Грани Агни-Йоги 1963 (2020) [MP3, Вячеслав Герасимов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_235904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главным трудом всей жизни Б. Н. Абрамова стало составление нравственно-философских Записей, развивающих темы Учения Живой Этики (Агни Йоги) и отражающих практический путь самосовершенствования, которому он неуклонно следовал до конца своих дней. Начало Записей относится к 1940 г., последней датой является 5 сентября 1972 г., день ухода Бориса Николаевича из жизни. (   Читать дальше...   )Жанр: МировоззрениеПродолжительность: 15:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F140C532E921E6692D22DF73F91C225A6BEE285
 ```
 
 https://mybot314.ru/tekegram_catalog/

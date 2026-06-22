@@ -1,3 +1,29 @@
+###  Публикация: 1051230   (532441) от 11.09.2016
+
+Остров Джованни | Giovanni's Island | Giovanni no Shima [2014, MV] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дзюмпэй и Канта - братья, живущие со своим отцом Тацуо на острове Шикотан. Когда 15 августа 1945 года Япония капитулирует, на один из её островов высаживаются советские солдаты. Остров становится территорией СССР - частью Сахалинской области. Для Тацуо и его детей начинается новая жизнь. Им предстоит пережить и культурный шок от чужого образа жизни, и очарование, (   Читать дальше...   )Производство: студия Production I.GЖанр: драма, историяРежиссер: Нисикубо МидзухоПеревод: TimecraftЯзык субтитров: РусскийПродолжительность: 100 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED9A2822EE9D31126953385BCC7768CD28CDFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051326   (532356) от 11.09.2016
 
 Sekai de Ichiban Tsuyoku Naritai! | SekaTsuyo | Wanna Be the Strongest in the World! | Хочу быть сильнейшей в мире! [2013, TV, 12 эп. + 6 SP] BDrip 720p Hi10P raw
@@ -6,7 +32,7 @@ Sekai de Ichiban Tsuyoku Naritai! | SekaTsuyo | Wanna Be the Strongest in the Wo
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532356.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Mahou no Stage Fancy Lala / Magical Stage Fancy Lala / Волшебная сце
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532336.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Souryuuden / Legend of the Dragon Kings / Легенда о Королях-Др�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532306.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530686.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Pani Poni Dash! OVA / Пани Пони Дэш! OVA [2009] DVDRip upconvert raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530007.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Tomodachi Game | Игра друзей [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529643.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Miss Monochrome The Animation 2 | Мисс Монохром 2 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528549.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Miss Monochrome The Animation 3 | Мисс Монохром 3 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528547.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Deaimon / Deaimon: Recipe for Happines / Дэаймон [2022, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528435.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528054.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Gunjou no Fanfare | Fanfare of Adolescence | Фанфары юности [2022, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524135.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Cue! / Реплика! [2022, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524100.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Yakusoku no Nanaya Matsuri | Starlight Promises | Звездное паломн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523663.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Gunjou no Magmell | Магмел синего моря [2019, TV, 13 эп.] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522724.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Kyoukai Senki | Amaim Warrior at the Borderline | Воины пограничь�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_522565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522565.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Sho
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521855.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Peace Maker Kurogane | Железный миротворец (фильм) [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_520212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520212.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые ведьмы OVA-2 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_518109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518109.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516586.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_514762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514762.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Saiki Kusuo no Sainan (2018) | Ох, уж этот экстрасенс Сайк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_513689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513689.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512569.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Drifters (2017) | Скитальцы [2017, OVA, 3 из 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_512353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512353.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Higashi no Eden Gekijoban II: Paradise Lost / Eden of The East the Movie II: Par
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511856.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Madan no Ou to Vanadis | Повелитель волшебных стрел и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507827.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Madan no Ou to Vanadis | Повелитель волшебных стрел и �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:869A19958E07109AE4901127FF3F3D0FA32DE7FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463298   (507800) от 10.07.2022
-
-Shadow's House | Дом теней [2021, TV, 13 из 13] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507800.jpg" />
-</div>
-
-
-###  Подробнее
-
-В огромном особняке живут безликие, похожие на тени дворяне, которых обслуживают живые куклы. Основная задача кукол — счищать копоть и сажу, постоянно выделяемые их таинственными хозяевами. История расскажет о повседневной жизни молодой дворянки Кейт Шэдоу и её помощницы Эмилико, которая только начинает свою работу в особняке.Производство: Япония / CloverWorksЖанр: Повседневность, Сверхъестественное, СейненРежиссер: Охаси Кадзутэру / Oohashi Kazuteru / 大橋一輝Перевод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ, 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5AE99F9F9031D76716F5F20CAF2CE0957DC255C
 ```
 
 https://mybot314.ru/tekegram_catalog/

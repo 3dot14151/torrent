@@ -1,3 +1,159 @@
+###  Публикация: 1574055   (407376) от 03.09.2022
+
+Detectives United 5: Deadly Debt / Лига детективов 5: Смертельный долг (2022) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение серии детективных историй Detectives United. Анна Грей, Дориан Браун, Джеймс Блекторн и агент Шейд снова в деле. Каждый из детективов почувствовал мощную мистическую энергию, и они начали расследование видений, в которых участвует зловещая женщина, пожилой мужчина и таинственная скрипка, наполненная могущественной силой. Кто жертва, а кто злодей? И что (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA9CD273B292636FC4FA2269783D7E74C2BC279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561125   (406373) от 16.10.2012
+
+Web of Deceit: Black Widow Collector's Edition [En] (P) 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы будете вовлечены в паутину обмана Чёрной Вдовы, во время остановки в Андвилле. Когда-то этот город процветал, но... Чёрная Вдова не спит. Она захватила всю власть, и даже вы не успеете спасти город! Сможете? Разыщите Черную Вдову вовремя, чтобы помешать ей!(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D42249F7B7E27DE9A5A4265E0F94FAD045E2436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563401   (404437) от 21.10.2012
+
+Shadow Wolf Mysteries 3: Cursed Wedding Collector's Edition / Призрачная Тень Волка: Проклятая Свадьба. Коллекционное издание [Ru] (P) 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404437.jpg" />
+</div>
+
+
+###  Подробнее
+
+В третьей части популярной серии игр жанра "я ищу" Shadow Wolf Mysteries от ERS Game Studios вам предстоит остановить мстительного оборотня. Будучи вызванными в Париж, чтобы помочь своей подруге Веронике, вы оказываетесь вовлеченными в мистические события. Древний оборотень Мефистус появился в городе, жаждая мести Веронике и ее жениху за несколько дней до их свадьбы. Исследуйте великолепные улицы Парижа и раскройте тайну древнего проклятия оборотня!(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA2AAB33D39EF211A4BB73BCEB9EFC342BE680A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169220   (403871) от 26.09.2017
+
+Dark Realm: Guardian of Flames / Темный мир 4: Хранитель пламени (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной фантастической серии игр Dark Realm. На этот раз игроку будет противостоять могущественный Император Тьмы, но в нашем арсенале тоже найдется пару магических приемчиков! Начавшееся затмение, ознаменовало возвращение одного из самых опасных злодеев всех времен! Королева Валери - одна из последних Властителей Огня и единственная, кто может (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B27DA2EEC7AB8E390CB959819C828CD4808F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169395   (403113) от 27.09.2017
+
+The Wisbey Mystery / Тайна Визби (2016) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгие годы жители городка старались держаться подальше от усадьбы на краю леса. Темные стены разрушенного дома хранили страшную тайну так и не раскрытого убийства шерифа и его жены. Продолжением этой истории стало исчезновение молодого журналиста, решившего написать статью о давнем происшествии. Возможно, это случилось из-за найденного дневника маньяка? Раскройте (   Читать дальше...   )Тип издания: UnofficialРазработчик: Argali EntertainmentЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75111490C6DA7A218DBA0A25E6EEAA56F3D81B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169383   (403067) от 27.09.2017
+
+Secret of Great Queens: Old Tower / Тайны Великих Королев: Старая Башня (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет прошло с тех пор, как мать королевы Елизаветы обвинили в ведьмовстве. Теперь неизвестный враг саму королеву назвал ведьмой. Кто-то хочет занять ее трон - и пойдет на все ради власти. Сможете ли вы расстроить злодейские планы и спасти королевство?Тип издания: UnofficialРазработчик: Vendel GameЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C31892A3D3FAE6D5331ECFBFF05AF7CCA63071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170456   (399425) от 01.10.2017
 
 Awakening 7: The Golden Age / Пробуждение 7: Золотой век (2014) [Ru] (1.0) Unofficial [Collector’s Edition / Коллекционное издание]
@@ -6,7 +162,7 @@ Awakening 7: The Golden Age / Пробуждение 7: Золотой век (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399425.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ PuppetShow 8: The Face of Humanity / Шоу марионеток 8: Быть ч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398514.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Weeping Skies / Плач Небес (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391953.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Runaway Express Mystery / Тайна Летящего Экспресса (2015) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391858.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Psycho Train / Поезд Психопата (2014) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391851.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390412.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Spirit of Revenge 6: Unrecognized Master / Месть духа 6: Непризн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_389638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389638.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Dark Parables 16: Portrait of the Stained Princess (2019) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387182.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Midnight Mysteries 6: Ghostwriting / Тайны прошлого 6: Литера
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386805.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Darkness and Flame 4: Enemy in Reflection (2019) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383220.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Legacy 3: Witch Island Origin / Наследие 3: Происхождение �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383078.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Halloween Stories: Invitation / Хэллоуин: Приглашение на в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382833.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Halloween Stories 4: Defying Death (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380892.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Grim Facade 12: The Black Cube / За гранью жестокости 12: Чё
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379302.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ The Sin (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378592.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_377781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377781.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Lost Lands 6: Mistakes of the Past / Затерянные земли 6: Ошиб
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377158.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ The Hunt for Red Panda / Охота за Красной Пандой (2015) [Ru/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377025.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Chimeras 8: Heavenfall Secrets / Химеры 8: Секреты Хэвенфол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376612.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ The Keeper of Antiques: The Revived Book / Антиквар: Книга кошм
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376601.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ The Keeper of Antiques: The Revived Book / Антиквар: Книга кошм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:898ED1A04FE446FDC9CEC8CAD4A5F94F9CC9FFFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949717   (374533) от 24.10.2015
-
-Surface 6: Game of Gods / За гранью: Игра богов (2014) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваши друзья приглашают вас принять участие в научном исследовании за неплохую оплату. Но по прибытии на место вы обнаруживаете, что все они пропали! На столе лежит странная игра, в которой каждый ход может оказаться смертельным. У вас нет другого выбора - вам приходится играть, чтобы спасти своих лучших друзей.Тип издания: Неофициальное изданиеРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2F569AEEDD5BFBB77D34C53E237F46AD010E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327454   (374366) от 25.09.2019
-
-Fatal Evidence: Cursed Island / Роковое доказательство. Проклятый остров (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убит Максвелл Макгрегор - главный судья города. Достоверно известно, что преступник будет присутствовать на оглашении завещания. Вам предстоит вычислить его, а потому, отправляйтесь в поместье Макгрегоров познакомиться с подозреваемыми. Но, для начала изучите их дела, и если понадобится, используйте старинные часы. С их помощью Вы сможете узнать о событиях прошлого (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05254E281140013979FCF43CC39FCE53004D808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176030   (373803) от 20.10.2017
-
-Modern Tales: Age of Invention / Сказки Нашего Времени: Эра изобретений (2017) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Париж, 1900 год. Во время Парижской выставки кто-то похищает приглашенных ученых при загадочных обстоятельствах. Дочь одной из жертв - Эмили Паттерсон подозревает известного филантропа в его причастности к заговору. Поиск ее отца станет началом необыкновенного приключения, которое приведет ее из Европы в холодную Сибирь. Эмили встретит блестящих людей той эпохи, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Orchid GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C158FAC137EED2C937FE51157EDF594B484B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254718   (372540) от 14.10.2018
-
-Halloween Stories 2: Black Book / Хэллоуин 2. Проклятие черной книги (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372540.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашем просвещенном 21-м веке, в коем смешались прежние нравы и традиции, многие старинные даты теперь празднуются с особой помпезностью, но уже почти никто не помнит и не ведает, что многие из этих древних праздников носили весьма мрачный и даже кровавый характер. Вот так и в западном мире Хэллоуин сейчас воспринимается как веселье с конфетами, гротескными костюмами (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant gamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D543F274B9DB0D5399E531E957E9288FA73B9234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327641   (372258) от 26.09.2019
-
-Paranormal Files 4: Hook Man's Legend (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новости о ваших паранормальных расследованиях распространяются! Молодая женщина звонит вам из Долины Ашен, города, который вы можете найти только на одной карте. Горожане страдают от призраков каждую ночь, и только вы можете помочь! Но в этой истории есть гораздо больше, чем простое преследование. Недавние исчезновения и легенды о маниакальном убийце с крючком терроризируют (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3DFDC71B27E44256511AAA510981498888291B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416212   (369429) от 15.10.2020
-
-Dark Romance 13: Vampire Origins / Мрачная история 13: Природа вампира (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много лет назад граф Дракула, ваш отец, изгнал из земель Трансильвании вампира Тамаша! Спустя десятилетия монстр вернулся с новыми силами и его главная цель - вы и ваша возлюбленная! Узнайте тайну своего рождения, противостойте Тамашу и спасите свою любовь!Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAED639E8B78DB1E209C34B4F07ACAA8B5B2951
 ```
 
 https://mybot314.ru/tekegram_catalog/

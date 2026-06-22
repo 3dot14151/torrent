@@ -6,7 +6,7 @@ Coloso, Hyoungtaek Nam | Realistic Character Design (2022) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219793.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ FreelStep | After Effects from FreelStep (2022) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219756.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui| Полное руководство по 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219614.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Skillbox, Михаил Розов | Cinema 4D для веб-дизайна (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_219470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219470.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217575.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ CGTarian, Вадим Беседин | CG Generalist (2015) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_217162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217162.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216242.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216201.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Bestblendercourse, Mad Rabbit | Самый лучший курс по Blender (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_216129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216129.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ The Gnomon Workshop, Madeleine Scott-Spencer | Введение в ZBrush 2020 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215444.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ The Gnomon Workshop, Kat Unsworth | Modeling a Stylized Character for Games (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215053.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214935.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Yiihuu, Xara Mahmoudi | The Dwarf Warrior II: from rigging to animation and engi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214423.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ designonline, Александр Шуняев | Постановка PRO осв�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213629.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213495.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213494.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213492.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213288.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213274.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Gumroad, Flycat | Blender 3.0 - JinX Modeling – Full process video and 3D mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213261.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Flycat | Blender 3.1 – Tracer Character Modeling – Full process videos and 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213258.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Amlab, Каюрова Наталия | Как рисовать в Photoshop (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213257.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Gumroad, Flycat | Create an MMORPG character style in Blender – Real-time proc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213199.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Gumroad, Flycat | Blender – Bunny Girl – Full process videos by Flycat (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213198.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Samouchka School, Алексей Меркулов, Максим Маркевич
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213179.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213131.jpg" />
 </div>
 
 

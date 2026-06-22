@@ -1,3 +1,55 @@
+###  Публикация: 609763   (991490) от 27.01.2013
+
+iBomber Attack [En] (RePack) 2012 | TiNYiSO
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришло время атаковать! Вскочите в свой танк, приготовьтесь взорвать всё на своём пути по Европе и победить врага в этом интуитивном туре разрушения! С 24 миссиями, полными взрывчатого действия, iBomber Attack предоставит вам дозу высоко-октанового развлечения. От разрушения верфей, аэродромов и секретных баз, к расстрелу легионов солдат в 24 уровнях безостановочного экшена. Заработайте очки Победы и соберите золото, чтобы укомплектовать свой танк Бомбами, Пулемётами, Огнеметами, Ракетами и другим оружием. Игра обладает отличной графикой и звуком, ее геймплей прост, но весьма интенсивен. (   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Top-downЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2DACD264C747C0D3C583FAFAC401ABA27E8C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610941   (988798) от 30.01.2013
+
+Dungeonland: Special Edition [En/Multi4] (Steam-Rip/3.5.6.44817) 2013 | R.G. GameWorks
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dungeonland – аркадный экшен, в котором группе игроков предстоит отправиться на поиски приключений в парк развлечений «Dungeonland», созданный злобным Dungeon Master'ом. Выбрав один из представленных классов, Разбойник, Воин или Маг, вы будете сражаться с толпами монстров и боссами, собирать лут, прокачивать своего персонажа и изменять его внешний вид. Чтобы добраться до башни главного злодея, игрокам предстоит преодолеть смертоносные джунгли, магические сады, логова драконов и другие локации, кишащие врагами.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade / Action / IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский / Немецкий / Французский / Итальянский / Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF93C4E352B92D1B42ED889D4D1270651E17EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 228021   (985670) от 24.01.2020
 
 Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) License
@@ -6,7 +58,7 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985670.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ We Need To Go Deeper: The Awakened (2019) [En] (1.1) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984604.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Retrovirus [En] (Steam-Rip/1.0.5251.0) 2013 | R.G. GameWorks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_983635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983635.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Cargo! The Quest For Gravity / Эврика! [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980954.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Poker Night at The Inventory [En] (P/1.0.0.1) 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980948.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Kung Fu Panda: Showdown of Legendary Legends (2016) [En/Multi] (1.0) License COD
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980574.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Evil Defenders (2015) [Ru/Multi] (1.0/upd1) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979788.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Psychonauts (2005) [Ru/Multi] (1.1.603.0/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978734.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Deadlight [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978301.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru/En] (1.07) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977571.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ Deadlight [Ru/En/Multi6] (Repack/1.0.9249.u.1) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975782.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975100.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) License PLAZA [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_973999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973999.jpg" />
 </div>
 
 
@@ -359,7 +411,7 @@ Assassin's Creed Chronicles: India / Assassin's Creed Chronicles: Индия (20
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972808.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972803.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ Sonic Lost World (2015) [En] (2.0.0/upd1/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_972800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972800.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Goat Simulator (2014) [Ru/Multi] (1.4.52198/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971582.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) Repack R.G. Мех
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971564.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Indivisible (2019) [Ru/Multi] (40093/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970450.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ The Wild Age (2020) [Ru/Multi] (1.02.001) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969294.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.3.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968334.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Guns n Zombies (2014) [Ru/Multi] (1.7/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965252.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ Darkout [En] (L/1.0.2) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964849.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.06.0109) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964281.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ The Binding of Isaac: Rebirth (2014) [En] (1.06.0109) SteamRip Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C5BEE2EF823FD49D1AC916A35CFA45EEE6B2E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359358   (963873) от 12.02.2020
-
-Generation Streets (2020) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что будет, если взять карту реального мира, превратить все здания в трёхмерные, натянуть на них текстуры и расставить вокруг деревья, линии электропередач и прочий визуальный мусор? А вот что: Попробуйте загрузить свой город и найти свой дом - казуальная игра сразу заиграет совсем другими красками. Хоть многие населенные пункты прорисованы достаточно детально, геоданных (   Читать дальше...   )Тип издания: RepackРазработчик: Roman ShuvalovЖанр: Arcade, Real Open World, Casual, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20022564E827AA256765BB53AEDB06A200896D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978657   (961825) от 24.01.2016
-
-Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (2016) [Ru/Multi] (1.0) Repack R.G. Механики
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_961825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы окажетесь в Амритсаре 1841 года, когда отношения между Сикхской империей и Ост-Индской компанией были накалены до предела. В город прибывает магистр тамплиеров, исполненный решимости завладеть легендарным алмазом ""Кохинур"", и романтические отношения между Арбаазом Миром и племянницей махараджи Пьярой Каур оказываются под угрозой.Тип издания: RepackРазработчик: Climax Group и Ubisoft MontréalЖанр: Arcade (Platform), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D236EDCD5E3ECCB14ACA8B5A1988B6E57A2FC293
 ```
 
 https://mybot314.ru/tekegram_catalog/

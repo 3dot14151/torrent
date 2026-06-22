@@ -1,3 +1,29 @@
+###  Публикация: 1410019   (420083) от 28.09.2020
+
+Титаны ХХ века / Titans of the 20th Century (2019) DVB [H.264] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420083.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе программы – истории самых влиятельных людей прошлого века. Франклин Рузвельт, Уинстон Черчилль, Адольф Гитлер, Иосиф Сталин. Эти могущественные личности сформировались в разных частях света, исповедовали совершенно разные политические доктрины и, казалось бы, не имели общих черт, но мы увидим, что за их различиями скрывается и много общего - стремление к (   Читать дальше...   )Телекомпания: Великобритания / WildBear EntertainmentЖанр: Документальный, История, ПолитикаРежиссер: Mike KenneallyПеревод: Двухголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:00 (серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEECFB4653681E274C4AECB8DA886616A4027BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065995   (416168) от 24.10.2016
 
 Янгель - отец "Сатаны" (2011) DVBRip
@@ -6,7 +32,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416168.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410831.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410216.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408246.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407858.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390299.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388800.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387621.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379213.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ History Channel. Президенты на войне / Presidents at War (2019)
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376597.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ History Channel. Президенты на войне / Presidents at War (2019)
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376593.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376375.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376326.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375215.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372589.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370686.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367328.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360848.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359860.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353427.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349831.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347663.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344499.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344393.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342214.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB969D54B122BD8C3038BDF7521B1B7477B4D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180427   (339750) от 04.11.2017
-
-Ева Браун: Жизнь и смерть с фюрером / Eva Braun: Life and Death with the Fuhrer (2015) HDTVRip (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339750.jpg" />
-</div>
-
-
-###  Подробнее
-
-По словам ее биографа, за преувеличенным оптимизмом Евы Браун стояла решительная женщина, которая до самой смерти шла к своей цели. Она свела счеты с жизнью в бункере под рейхсканцелярией в Берлине вместе с Адольфом Гитлером 30 апреля 1945 года. За день до этого Ева Браун, которая много лет была его любовницей, вышла за Гитлера замуж.Телекомпания: Германия, SPIEGEL TV GmbHЖанр: Документальный, война, история, биографияРежиссер: Михаэль КлофтПеревод: ДублированныйПродолжительность: 2 х ~ 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73050792A53E66E9FFCBEEA4324D46F6D06F4A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

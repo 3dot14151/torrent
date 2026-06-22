@@ -1,3 +1,90 @@
+###  Публикация: 1244584   (480045) от 02.09.2018
+
+VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dobie - Bambola (Radio Edit) 03:27
+02. DJ Sinestro - Sandglass 03:43
+03. Crossthy - Altogether 03:29
+04. DiskBastian - Wild 03:46(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C0465A21992149CE1126129690D0CDB554DE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938780   (480004) от 19.09.2015
+
+VA - Finest Selection Of Summer Anthems (2015) [MP3|320 кб/с]<Club, Progressive, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agent Juno - Sunstorm (Mykel Mars Trance Remix) 05:46
+02. At Luv - Baking Sun 05:09
+03. Kid Vibes & Mak Others - Sunday Without You (Extended Mix) 04:38
+04. Crew 7 feat. Raheema - Push It (Soft Cut Version) 02:52(   Читать дальше...   )Жанр: Club, Progressive, HouseПродолжительность: 04:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DB13F965861A5B71F9D61F23E6C857C9EF7C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159869   (478253) от 23.08.2017
+
+VA - Deep Dream (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sigmatau - Costa Brava
+02. Davudo - Way To The Top
+03. Benni Lusso - Telo
+04. Adrian Loyd - Unsurpassed(   Читать дальше...   )Жанр: HouseПродолжительность: 01:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42C2CD4EB31C3C1F36255F04C4CEE7783A89FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159887   (478200) от 23.08.2017
 
 VA - Balearic Deep-House Anthems Vol.1 (2017) [MP3|320 Kbps] <Deep House>
@@ -6,7 +93,7 @@ VA - Balearic Deep-House Anthems Vol.1 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478200.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Workout Motivation 2020 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477241.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474440.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ VA - Best Of Ibiza (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474146.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Maya Jane Coles - Take Flight (Deluxe Edition) (2017) [MP3|320 Kbps] <Tech House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474029.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ VA - Bikini Beach, Vol. 1 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473372.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ VA - Bikini Beach, Vol. 2 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473370.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ Bakradze - Restless (2016) LP [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473302.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473274.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ VA - Workout & Fitness 2020 Motivation Training Music [MP3|320 Kbps] <House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472763.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ VA - Kiss FM Dance Radio Chart 6 (4 Dance Years) (2006) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472288.jpg" />
 </div>
 
 
@@ -337,7 +424,7 @@ VA - Bikini Beach, Vol. 4 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471393.jpg" />
 </div>
 
 
@@ -366,7 +453,7 @@ Kaskade - Automatic (2015) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468970.jpg" />
 </div>
 
 
@@ -395,7 +482,7 @@ Robin Schulz - Sugar (2015) [MP3|320 кб/с]<Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468668.jpg" />
 </div>
 
 
@@ -424,7 +511,7 @@ VA - Ibiza Closing Parties (2016) [MP3|320 Kbps] <Club, Funky, Tech House, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466434.jpg" />
 </div>
 
 
@@ -453,7 +540,7 @@ VA - Workout Top Music Motivation (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466393.jpg" />
 </div>
 
 
@@ -482,7 +569,7 @@ VA - Ibiza 2016 Closing Party (2016) [MP3|320 Kbps] <Tech House, Deep, Soulful, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466318.jpg" />
 </div>
 
 
@@ -511,7 +598,7 @@ VA - Bikini Beach, Vol. 3 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465519.jpg" />
 </div>
 
 
@@ -540,7 +627,7 @@ VA - Bikini Beach, Vol. 5 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465510.jpg" />
 </div>
 
 
@@ -569,7 +656,7 @@ VA - Bikini Beach, Vol. 6 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465407.jpg" />
 </div>
 
 
@@ -598,7 +685,7 @@ VA - Endless Summer - Ibiza Closing 2012 (12/09/2012) [MP3|320 кб/с]<Progress
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465324.jpg" />
 </div>
 
 
@@ -631,7 +718,7 @@ Mobbing (Alle Benassi) - Rock the dog (2008) [MP3|320 кб/с]<Electro House, Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465318.jpg" />
 </div>
 
 
@@ -666,7 +753,7 @@ VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House /
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463331.jpg" />
 </div>
 
 
@@ -686,105 +773,6 @@ VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:879645B879D43D5DFC777C5E8C3E8D3AE09D6A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388171   (463248) от 15.09.2011
-
-DJ Грув - Я верю (2011) [MP3|320 kbps]<Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поздно (feat. Александр Маршал)
- 02. Я верю (feat. Иракли & Гарик DMC B)
- 03. Неминуема (feat. Loc Dog & Phil Shabin)
- 04. Все вместе (feat. Корни)
- 05. Так и знай! (feat. Audio Girls)
- 06. I Can' Take
- 07. Мир без любви 2010 (feat. DJ Sandra)
- 08. My love (feat. Audio Girls)
- 09. Rain
- 10. Sasha WTF?(   Читать дальше...   )2011Жанр: Progressive House, Electro HouseПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB32FEE49481390CC12CED9A290512E575938180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549170   (463190) от 20.09.2012
-
-VA - DJ Antoine - Stop (2008) [MP3|~190 кб/с (V2)]<Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Antoine - Stop! (Swiss Radio Mix)
- 02. DJ Antoine - Hello Again (Original Mix)
- 03. DJ Disciple feat. Dawn Tallman - Work It Out (Klaas Mix)
- 04. DJ Antoine - Apologize (Original Mix)
- 05. DJ Antoine vs Mad Mark feat. Jay Underground - These Games (Original Mix)
- 06. Alex Romano - Save A Prayer (DJ Antoine vs Yoko English Remix)
- 07. DJ Antoine vs Mad Mark - Set Me Free (Original Mix)
- 08. DJ Antoine - Funky Kitchen Club (I'll Remain) (Extended Mix)
- 09. Unconditional - Sole (Nari & Milani Mix)
- 10. DJ Antoine - Stop! (DJ Antoine vs Yoko English Big Room Remix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE35F1F095F73CC9A8484F1488AE93445E9FA2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059303   (462276) от 04.10.2016
-
-VA - Electro Housearrest Of ADE (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Meyers - Play House (Vocal Edit) (5:41)
-02. Brothers - My Battle (Trvpers Mix) (feat. Ranieri) (4:44)
-03. G-Pol, Saint Valentine & Strell - Klondike (4:40)
-04. Nathalie Vanessa - If You Really Want Me (Jay Outback Instrumental Mix) (5:46)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5461C6B9CEDCF1CCC465A5850BD88C9EC1BC270B
 ```
 
 https://mybot314.ru/tekegram_catalog/

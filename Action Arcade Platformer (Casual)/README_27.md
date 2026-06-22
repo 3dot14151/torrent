@@ -1,3 +1,55 @@
+###  Публикация: 1701042   (30506) от 19.01.2025
+
+Airhead (2024) [Ru/Multi] (0.569) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airhead отличается от прочих метроидваний тем, что тут надо играть сразу двумя существами. Сюжет подается с помощью немых катсцен. Тело падает в пропасть и оказывается в пещерах. Загадочный гуманоид при исследовании подземелья внезапно находит умирающую после нападения машины голову. И не простую, а воздушную и живущую отдельно. Он объединяется с ней и становится (   Читать дальше...   )Тип издания: LicenseРазработчик: Octato, Massive MiniteamЖанр: Приключение, Головоломка, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Датский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Датский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937AB1F4D69E539798654FA8CDBAF39E404563DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730053   (30473) от 19.01.2025
+
+Beat Hazard 2 (2019) [Ru/Multi] (1.317) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beat Hazard 2 – продолжение яркого представителя жанра Shoot 'em up. Вам предстоит окунуться в головокружительные перестрелки на летающих кораблях, и уничтожить орды недругов под драйвовую музыку. Последняя занимает большую часть в видеоигре, и помощью неё в каждой битве можно находить свой тон и ритм, от которых может зависеть даже исход сражения. Либо подключите (   Читать дальше...   )Тип издания: LicenseРазработчик: Cold Beam GamesЖанр: Экшн, Аркада, Shoot 'em UpЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: РРусский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85D327929C7BC70FAD33D248880CC1EB09155FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771357   (30371) от 20.01.2025
 
 Janosik 2 (2024) [Ru/Multi] (1.0.016) License GOG
@@ -6,7 +58,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.016) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_30371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30371.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Bartlow's Dread Machine (2020) [Ru/Multi] (Build 5929982) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30140.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Noreya: The Gold Project (2023) [Ru/Multi] (1.3.39) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_29872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29872.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Magenta Horizon: Neverending Harvest (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29821.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.0.2.21654) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29803.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Teslagrad Remastered (2023) [Ru/Multi] (Build 11359912) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29700.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Teslagrad 2 (2023) [Ru/Multi] (Build 12140719) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29625.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Somber Echoes (2025) [Multi] (21558) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29508.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Jet Kave Adventure (2021) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28070.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Jet Kave Adventure (2021) [Multi] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28048.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27578.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27572.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.3.105740/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27516.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Dr Livesey Rom And Death Edition (2023) [Ru/Multi] (Build 15093803) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27262.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0.28.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27217.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27206.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27026.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Dead of Darkness (2025) [Ru/Multi] (1.0 Update 4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26785.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26721.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Aground (2020) [Ru/Multi] (2.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26693.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Brutal Orchestra (2021) [Multi] (1.4.1f1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26445.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26393.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26378.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Ninja Five-O (2025) [Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26311.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Ninja Five-O позволит вам лично пережить грандио�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E050DD1034014B1D6FF86E3B1273A997E4187F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131600   (26224) от 28.02.2025
-
-World to the West (2017) [Multi] (1.6.0) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная девочка - Тесламансер, маленький аутсайдер-оптимист, закалëнная путешественница и самоуверенный силач-аристократ по стечению обстоятельств оказались в центре чужой авантюры. Теперь им предстоит задействовать свои уникальные способности чтобы выжить на континенте, хранящем древние секреты и опасности. Кто-то ищет славу, кто-то желает отомстить, а кто-то (   Читать дальше...   )Тип издания: LicenseРазработчик: Rain GamesЖанр: Action, Adventure, PlatformerЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF382403359D4DAC7ED6B951E12372F34792554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782318   (26171) от 28.02.2025
-
-60 Seconds! Reatomized (2019) [Ru/Multi] (1.1.5.32) Repack EXROW
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пост-апокалиптическая чёрная комедия возвращается — обновлённая и ещё более радиоактивная! Соберите запасы, спасите свою семью и приготовьтесь выживать в бункере. Принимайте трудные решения, воюйте с тараканами… и, может, вам удастся выжить. Долорес, Теду, Мэри Джейн и Тимми вновь предстоит пережить атомный апокалипсис в обновлённой версии классической игры 60 Seconds! (   Читать дальше...   )Тип издания: RepackРазработчик: Robot GentlemanЖанр: Приключенческие игры, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EE85BF182287B86A7741EA90CAFCBF572237B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

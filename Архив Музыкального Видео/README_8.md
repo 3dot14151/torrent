@@ -1,3 +1,137 @@
+###  Публикация: 583016   (315484) от 01.12.2012
+
+G-Dragon - Crayon (2012) WEBRip [1080p]
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клип на трек с сольного альбома "One Of A Kind".
+G-Dragon (GD, наст. имя Квон Чжи Ён) - лидер популярной южнокорейской поп-группы Big Bang.
+Из интервью GD для журнала K& Magazine:
+Расскажи о заглавной песне «Crayon».
+Это сочетание слов «сумасшедший» и «Чжи Ён». Это означает «просто сходи с ума от G-Dragon так же, как ты сходишь с ума от других вещей» и «давайте слетать с катушек». Когда я работал над этой песней вместе с Teddy, я написал на чистом листе бумаги фразу «Why So Serious?». Это знаменитая строчка из фильма «Тёмный рыцарь». Она мне безумно нравится. Я хочу обратиться ко многим людям: «Почему нужно быть настолько серьёзными?» И я также хочу, чтобы люди, видя моё выступление на сцене, думали: «этот парень действительно сошёл с ума». К счастью, мне удалось этого достичь.Жанр: K-Pop, Hip-HopПеревод: ОтсутствуетПродолжительность: 00:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A94754F069F3CF598110BE2A75962A79E857E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583414   (314738) от 01.12.2012
+
+Дискотека-80х - 2012 Rock &  Dance (DVD-9)
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314738.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 международный фестиваль Авторадио Дискотека 80-х «Rock&Dance» 2012. . В этом году «Дискотека 80-х» под слоганом «Rock&Dance» собрала вместе на одной сцене самых ярких звезд диско и главных героев рока 80-х: Zodiac, Gorky Park, Chris Norman, Вячеслав Бутусов и группа «Ю-Питер», Black, Константин Никольский.Жанр: МузыкаРежиссер: АвторадиоАктеры: Zodiac,Gorky Park,Silent Circle,Bad Boys Blue,Вячеслав Бутусов,C.C.Catch,Chris Norman,Boney MПеревод: ОтсутствуетПродолжительность: 03:48:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583892   (310034) от 03.12.2012
+
+Rihanna - Diamonds (Live at The X Factor Results 25.11.2012) (2012) HDTV 1080i
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_310034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рианна выступила на британском X Factor со своим последним синглом "Diamonds" 25 ноября 2012.Жанр: R'n'BПродолжительность: 00:05:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583666   (309886) от 03.12.2012
+
+Uncensored Music Videos Rock- Volume 1 (2003) DVDRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Громкие клипы, громкая музыка, немного эротики...(впечатлительным не смотреть! +18)Жанр: Музыка, RockПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EFFC4010CE55393F63030B3FF65E1C5BCCDE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585187   (305689) от 05.12.2012
+
+Кажэ Обойма ft. Баста - Ангел (2012) WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305689.jpg" />
+</div>
+
+
+###  Подробнее
+
+В клипе принял участие чемпион мира по боям R-1 Александр Липовой. Трек вышел на альбоме Кажэ "Катарсис" в 2012 году.Жанр: Rap, Hip-hopПродолжительность: 00:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B636FFA428833C280F0553FC815E7BEE4DA8285A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583908   (301318) от 07.12.2012
 
 KSENONA - Далеко-далеко (2012) [BDRip 720p]<POP>
@@ -6,7 +140,7 @@ KSENONA - Далеко-далеко (2012) [BDRip 720p]<POP>
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301318.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Blur - Livepark (2012) DVD9
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_301016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_301016.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300780.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278091.jpg" />
 </div>
 
 
@@ -115,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269614.jpg" />
 </div>
 
 
@@ -142,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268463.jpg" />
 </div>
 
 
@@ -168,7 +302,7 @@ Chickenfoot - Live At Rocklahoma Festival (2012) HDTVRip 720p [H.264]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260437.jpg" />
 </div>
 
 
@@ -204,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260407.jpg" />
 </div>
 
 
@@ -230,7 +364,7 @@ Larry Coryell Live From Bahia (1992) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259860.jpg" />
 </div>
 
 
@@ -258,7 +392,7 @@ Legalize feat.Zhao LeBlanc - E periculoasa (2011) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259309.jpg" />
 </div>
 
 
@@ -284,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259069.jpg" />
 </div>
 
 
@@ -310,7 +444,7 @@ Felix Leiter – Elektriqa (Uncensored) (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258544.jpg" />
 </div>
 
 
@@ -336,7 +470,7 @@ Vida Loca - La Chupadita (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258497.jpg" />
 </div>
 
 
@@ -362,7 +496,7 @@ Bluestone ft Adi ft Skibadee - Bass Addict (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258485.jpg" />
 </div>
 
 
@@ -388,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258075.jpg" />
 </div>
 
 
@@ -414,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257417.jpg" />
 </div>
 
 
@@ -441,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257267.jpg" />
 </div>
 
 
@@ -469,7 +603,7 @@ Dj Layla feat Sianna - I'M Your Angel (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256070.jpg" />
 </div>
 
 
@@ -495,7 +629,7 @@ Paco De Lucia / FRANCISCO SÁNCHEZ - PACO DE LUCIA (2 DVD) (2003) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255772.jpg" />
 </div>
 
 
@@ -521,7 +655,7 @@ Marduk - Souls For Belial (2012) HDTVRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254377.jpg" />
 </div>
 
 
@@ -547,7 +681,7 @@ Mono - Life In Mono (1996) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253936.jpg" />
 </div>
 
 
@@ -558,137 +692,6 @@ Mono — британский поп-дуэт, прославившийся в �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467D8C1853B729207FAE3867ED823717138A0936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498125   (253652) от 17.05.2012
-
-Die Atzen - Party (Ich Will Abgehn) (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, ElectroПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E72FA19B28BBCD87B19957F2D3467D472F1918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497026   (253253) от 15.05.2012
-
-Eagles - Hotel California (2005) HDRip [720p]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Кантри-рок, Хард-рокПродолжительность: 00:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF2BB0578A580AA506F66E19002A98C83D32AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496624   (252885) от 14.05.2012
-
-CJ Stone ft. Anna Turska & Sherlock - Believe Me (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_252885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Club, DanceПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC01D371FEE6C97947DB584DD2A0EF4207F57E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494919   (251534) от 12.05.2012
-
-Клубная музыка 1 / Club music 1 (2012) DVD5
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неофициальный сборник видеоклипов. Лидеры хит-парадов, выступления известных диджеев на популярных фестивалях танцевальной музыки.
-Диск оформлен в стиле сборников "Жажда скорости".Жанр: Trance, houseПеревод: ОтсутствуетПродолжительность: 03:00:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495325   (251447) от 12.05.2012
-
-Шпильки - Стерва (2006) HDRip [H.264/720p]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E0CC4E3BF382E6DACAF58D46BE2B55A5AC5277
 ```
 
 https://mybot314.ru/tekegram_catalog/

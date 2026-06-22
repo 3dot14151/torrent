@@ -1,3 +1,133 @@
+###  Публикация: 1744485   (45988) от 22.08.2024
+
+Nightmare Side: The Game (2023) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightmare Side: The Game – как вы смотрите на то, чтобы погрузится с головой в настоящий индонезийский хоррор? В таком случае приготовьтесь посетить радиостанцию, в Бандунге. И ни в коем случае не слушайте ее в одиночку, если, конечно, не хотите пригласить тьму! Еще с 1997 году на радиошоу возникла Nightmare Side и транслируется по сей день. Где рассказываются действительно (   Читать дальше...   )Тип издания: RepackРазработчик: Hige StudioЖанр: Приключенческие игрыЯзык озвучки: ИндонезийскийЯзык субтитров: Английский, ИндонезийскийЯзык интерфейса: Английский, Индонезийский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C7B96E7F6989635A7105CCBD2A90F30DAD7EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744730   (45905) от 23.08.2024
+
+Who is Abby (2023) [En] (1.0.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческая игра с повествовательным уклоном, сочетающая в себе элементы симуляторов ходьбы и классических приключений в стиле point-and-click. Разработанная CyberFlux Games и Gabro Media, игра рассказывает о напряженных поисках Тома, который пытается найти свою пропавшую сестру Эбби. Игроки исследуют тщательно проработанное окружение, взаимодействуя с сотнями (   Читать дальше...   )Тип издания: SceneРазработчик: CyberFlux Games, Gabro MediaЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE3912B6EC9D2CA335944C44AD4F014F9CE51D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744726   (45888) от 23.08.2024
+
+Escape From Warehouse / Побег со склада (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческая игра от первого лица, погружающая игроков в жуткий мир, казалось бы, обычного центра обработки заказов. В роли журналиста, проводящего расследование для документального фильма, вы быстро обнаружите, что этот склад таит в себе темные секреты и паранормальную активность. В игре сочетаются элементы экшена, приключений и стратегии: вам предстоит пробираться (   Читать дальше...   )Тип издания: SceneРазработчик: PaphnutiusЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79ED443C2FEA212CF45DA4EEA0F8972363BF7A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745026   (45832) от 24.08.2024
+
+Homeless (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homeless – в этом настоящем психологическом ужасе вам предстоит примерить роль охранника станции метрополитена и отправиться на свою ночную смену. Вот только во время проверок камер видеонаблюдения в закрытом участке обнаружилась странно высокая фигура? В самом начале может показаться это самый обычный бездомный, которые довольно часто заходят в метро.Тип издания: RepackРазработчик: DarkPhobia GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999DD55E1BAEE8E024E61F6E6104874BF286A6D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745236   (45747) от 25.08.2024
+
+Wild West Dynasty (2023) [Ru/Multi] (1.0.9064/dlc) Repack DjDI
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетание RPG и симулятора с открытым миром, действие которого происходит на Диком Западе. Ковбои, колонисты и стрелки. Приготовьтесь исследовать, выживать, строить на Диком Западе и написать свою собственную историю! Сумеете ли вы построить империю на Диком Западе или кончите свои дни на виселице?Тип издания: RepackРазработчик: Moon Punch StudioЖанр: Симулятор, Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C930476F4C92D68EF43583E500DC20ACB2EA90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638898   (45733) от 25.08.2024
 
 STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
@@ -6,7 +136,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45733.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45719.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45706.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Can't Revert (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45683.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Finding Mosey (2024) [Multi] (2.81) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45667.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45622.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45609.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45509.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45471.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Debtors' Club (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45386.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ The Dawning Clocks of Time Remake (2024) [En] (1.0.4.0820.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45327.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Lord of the Rings: Return to Moria (2024) [Multi] (1.3.2.157411) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45322.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45302.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Dark and Deep (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45297.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45256.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Crypt Custodian (2024) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45190.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Fireside (2024) [Ru/Multi] (1.0.3_rc1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45169.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Highwater (2024) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45165.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Alter Ego (2010) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45163.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45147.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый во�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44964.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Nancy Drew: The White Wolf of Icicle Creek - приключенческая иг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A14E4DE99D7F4D0C8CC169E03D5DE5D05F20F4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746638   (44956) от 01.09.2024
-
-Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последний поезд в Лунное ущелье (2005) [Ru] (1.0) License Новый Диск
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nancy Drew: Last Train to Blue Moon Canyon - детективная игра про молодую девушку-сыщика по имени Нэнси Дрю. Квест выступает 13-й частью в одноименной серии. Изменения коснулись геймплейных аспектов, а также поменялся интерфейс. Отныне экран разделен не на три, а на две части. Верхняя отведена под основной геймплей - обзор локации, диалоги с персонажами и т.д., а (   Читать дальше...   )Тип издания: LicenseРазработчик: HeR InteractiveЖанр: Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1610B7704BDEF3910C0AFDA1D7ACD26CD6A78C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746893   (44859) от 02.09.2024
-
-NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры разворачивается в неизведанной японской деревне, игроки раскрывают тайну деревни Нарибики, обнаруженной в 2000 году после того, как тайфун вскрыл скрытый туннель. Атмосфера игры навеяна заброшенными японскими зданиями и деревнями, что позволяет получить незабываемые впечатления. Игра рассчитана на 2-3 часа и сосредоточена на исследовании и сборе подсказок, (   Читать дальше...   )Тип издания: RepackРазработчик: DorsalFin StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6757824FA21496FDB24F7A79A23E47442AC1387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746945   (44851) от 02.09.2024
-
-No Return (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологический хоррор от первого лица, действие которого происходит в современном Китае, разработанный компанией BlameTech. Игроки берут на себя роль главного героя, который возвращается домой и обнаруживает, что он превратился в бесконечный, кошмарный лабиринт коридоров. Игра сочетает в себе элементы китайского фольклора и хоррора в стиле dreamcore, создавая глубокую (   Читать дальше...   )Тип издания: RepackРазработчик: BlameTechЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: КитайскийЯзык субтитров: Английский, Японский, Корейский и другиеЯзык интерфейса: Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651630BE8AAFB5667C1E9BD2EB01DA544EF8C1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746820   (44810) от 02.09.2024
-
-Bewitching Sinners (2024) [En] (1.9.8.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bewitching Sinners бросает вас в хаотичный фантастический мир. В один момент вы оказываетесь в своей квартире, а в другой - переноситесь в страну магии и хаоса. Здесь ведьмы жаждут вашей крови, а ваш двойник находится в бессознательном состоянии. Добро пожаловать в новую жизнь, Пальмира! Этот мрачный комедийный симулятор знакомств не стесняется высоких ставок. Ваш (   Читать дальше...   )Тип издания: RepackРазработчик: Miss XeroЖанр: Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83BD9FF67AD54BB37702BEE4E5EB07DC6041B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747004   (44801) от 03.09.2024
-
-Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочетание RPG и симулятора с открытым миром, действие которого происходит на Диком Западе. Ковбои, колонисты и стрелки. Приготовьтесь исследовать, выживать, строить на Диком Западе и написать свою собственную историю! Сумеете ли вы построить империю на Диком Западе или кончите свои дни на виселице?Тип издания: RepackРазработчик: Moon Punch StudioЖанр: Симулятор, Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F791E7B2FE33F523C07D4235F9E88F7CB8C206D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

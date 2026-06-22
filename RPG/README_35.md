@@ -1,3 +1,107 @@
+###  Публикация: 1082128   (279896) от 11.12.2016
+
+The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в промежуток времени после окончания гражданской войны. Но до лучших времен еще далеко, столица находится в руинах, и на ее обломках сразу же начинает появляться и процветать всевозможная гадость. Дело осложняют всевозможные фанатики, основывающие мутные секты, порождающие настоящих чудовищ и таинственных существ. Ну а раз так, то на сцену (   Читать дальше...   )Тип издания: LicenseРазработчик: NeocoreGamesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685F61A732A34B5CC4AAC0E0723D21C2AB465230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264850   (277508) от 25.11.2018
+
+SINNER: Sacrifice for Redemption (2018) [Ru/Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sinner: Sacrifice for Redemption (Грешник: Жертва во имя Искупления) – это ролевая игра с элементами экшен, относящаяся к жанру «битва с боссом». Вам встретятся восемь ужасных боссов, из которых первые семь олицетворяют семь смертных грехов.Тип издания: LicenseРазработчик: DARK STARЖанр: Action, RPG, 3rd Person, 3DЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4D139CF72578940B05414E11C7D4F981A30004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061873   (277396) от 25.11.2018
+
+Krater (2012) [Ru/Multi] (1.10.1/dlc) Repack R.G. Revenants
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра переносит вас в далекое будущее, в постапокалиптическую Швецию. Когда-то это была родина IKEA, викингов и Minecraft, но сегодня здесь остались только примитивные жители, рыскающие по развалинам в поисках технологических артефактов. На самых границах места происшествия, известном также как Кратер, три фракции борются за право владеть этой зияющей раной ЗемлиТип издания: RepackРазработчик: FatsharkЖанр: RPG (Rogue, Action), 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBF12CAC0DAAD2307CA155F3179D3DCF3BE09BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 217765   (277278) от 25.11.2018
+
+Beltion: Beyond Ritual / Бельтион: Свод равновесия (2009) [Ru] (1.0) RePack R.G. Spieler
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свод Равновесия – инквизиция, призванная охранять государство от запретной магии, жестокая организация с железной дисциплиной и многовековыми порядками. Служба в ней – это большая честь, тяжкое бремя и гора «грязной работы», которую могут выполнить только рыцари ордена. Тебе предстоит пройти долгий путь от амбициозного новобранца, который только что прибыл в столицу, (   Читать дальше...   )Тип издания: RePackРазработчик: Rostok-GamesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF5D5B0942550E2F6C7F529C0563E9950CB7792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187915   (276703) от 30.11.2017
 
 Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
@@ -6,7 +110,7 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276703.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275454.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275436.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ The Dwarves (2016) [Ru/Multi] (1.1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274228.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Dragon Age 2 / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272725.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Two Worlds II & Pirates of the Flying Fortress / Два Мира 2 & Пират�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272720.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Mount & Blade: With Fire & Sword / Mount & Blade: Огнём и мечом: Ве
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271615.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271109.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Rune II (2019) [Ru/Multi] (0.0.9L) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271108.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ The Elder Scrolls: Arena (1994) [Ru] (1.0) Repack pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270618.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270205.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Fallout: New Vegas [Ru/Multi4+] (L) 2010 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_269275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_269275.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ Gorky 17 / Горький-17: Запретная зона (1999) [Ru/Multi] (1.0
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268592.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ King of Dragon Pass (2015) [En] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268506.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ Fictorum (2017) [En] (2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267664.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Kenshi (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266284.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265252.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.3/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264331.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (275/dlc) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264323.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Fictorum (2017) [En] (2.0.4) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263184.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262963.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262369.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ Vaporum — однопользовательская ролевая игра о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6672A8722F57839CEE9F7B004DC64FBB57FB23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170613   (262365) от 19.12.2017
-
-Vaporum (2017) [Ru/Multi] (Build 236) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vaporum — однопользовательская ролевая игра от независимой студии Fatbot Games. Главный герой оказывается в загадочной механической башне застрявшей посреди океана. Вы не помните, что связывает вас с этим странным местом, но башня кажется вам знакомой. Герою необходимо добраться до вершины башни и попутно раскрыть тайны её происхождения и вашей связи с ней. В ролевом (   Читать дальше...   )Тип издания: RepackРазработчик: Fatbot Games, s. r. o.Жанр: RPG, Adventure, Puzzles, 3D, 1st-PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A682E1A85121328CBCEBC19DFD79B246A61A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193616   (261896) от 22.12.2017
-
-Hand of Fate 2 (2017) [Ru/Multi] (1.1.0) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hand of Fate 2 — это «ползание по подземельям» в стилистике темного фэнтези, живая настольная игра, каждый уровень которой составляется из карт встреч, подобранных вами! Выбирайте с умом: ваш соперник, загадочный Дилер, не собирается нежничать, превращая вас в инструмент отмщения. Расклады на столе изменились, но ставка та же: жизнь или смерть!Тип издания: RepackРазработчик: Defiant DevelopmentЖанр: Action, RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E01B25B01596043E8FA1C93013C3278B9A3101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839080   (261709) от 26.11.2025
-
-Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели первого сиквела в истории Supergiant Games взяли только лучшее из оригинальной игры в жанре rogue-like, чтобы представить вам совершенно новое динамичное приключение, которое можно проходить снова и снова. Окажитесь в подземном мире из греческих мифов и узнайте, как зародилось колдовство.Тип издания: RepackРазработчик: Supergiant GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25ECD2309C90B9F358DEB4A0B6A6963D244411B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839089   (261704) от 27.11.2025
-
-Hades (2020) [Ru/Multi] (1.38290) Repack Necros
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бросьте вызов богу мёртвых и прорубите себе путь из Подземного мира в игре в жанрах «рогалик» и «данжен-кроулер» от создателей Bastion, Transistor и Pyre. В Hades переплетаются особенности «данжен-кроулера» и «рогалика». Эта игра обладает лучшими чертами игр Supergiant, высоко оценённых критиками: динамичным игровым процессом Bastion, богатой атмосферой и глубиной (   Читать дальше...   )Тип издания: RepackРазработчик: Supergiant GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E93E6DA60510EFED5A1AD5C720F87CC636BF45
 ```
 
 https://mybot314.ru/tekegram_catalog/

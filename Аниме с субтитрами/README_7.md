@@ -1,3 +1,29 @@
+###  Публикация: 1612841   (1039797) от 17.02.2023
+
+Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Эвергарден (фильм) [2020, Movie] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Её работа — писать письма. Её имя — Виолетта Эвергарден. Прошло несколько лет, с тех пор как закончилась война, которая нанесла многим глубокие раны. Мир постепенно обретает покой, люди возвращаются к привычной жизни. Виолетта пытается научиться жить без самого важного для нее человека и не обращать внимания на свои чувства. Но однажды она получает письмо, и в её (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, мелодрамаРежиссер: Исидатэ ТайтиПеревод: 1) nnm-club^anime; 2) NetflixЯзык озвучки: ЯпонскийСубтитры: 1) Русские; 2) Английские; 3) Японские; #) Multi-SubПродолжительность: 140 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB281F012EA53B9DC1B69381FD96183B18D1B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424667   (1039755) от 13.01.2021
 
 Kusoge-tte Iuna! | Don`t Call Us a Junk Game! | Это вам не трешовая игра! [2020, Web, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Kusoge-tte Iuna! | Don`t Call Us a Junk Game! | Это вам не трешов�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039755.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039335.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Project A-ko 3: Cinderella Rhapsody | Проект А-ко III: Рапсодия
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039318.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Fairy Gone 2 | Пропавшие феи 2 [2019, TV, 12 из 12] BDRip 1080p 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039301.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Fairy Gone | Пропавшие феи [2019, TV, 12 из 12] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039291.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Saiyuuki Reload Blast | Саюки: Новый взрыв [2017, TV, 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038765.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Galaxy Angel 4 | Galaxy Angel X | Галактический ангел Икс [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038348.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Galaxy Angel Rune | Галактический ангел: Руна [2006, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038337.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Burn the Witch | Сжечь ведьму [2020, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037126.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Kunoichi Tsubaki no Mune no Uchi | In the Heart of Kunoichi Tsubaki | Тайна
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036977.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Cuckoo no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036975.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036652.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036308.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036298.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Bannou Bunka Nekomusume Dash! | All Purpose Cultural Cat Girl Nuku-Nuku Dash | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036282.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Elf o Karu Mono-tachi II | Those Who Hunt Elves II | Те, кто охотятс
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035981.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Mushikago no Cagaster | Cagaster of an Insect Cage | Убийца насеком
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035979.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Elf o Karu Mono-tachi | Those Who Hunt Elves | Те, кто охотятся н�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035972.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Maesetsu! Opening Act | Разогрев! [2020, TV, 12 из 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035937.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Show by Rock!! Mashumairesh!! | Рок-шоу! (2020) [2020, TV, 12] BDRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035716.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Sangatsu no Lion (2017) | March Comes In Like a Lion (2017) | Мартовски
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035458.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035448.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Sangatsu no Lion | March Comes in like a Lion | Мартовский лев [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035446.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Kanojo ga Flag o Oraretara | If Her Flag Breaks | Если бы я сломал 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034885.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Xanadu Dragonslayer Densetsu | Ксанаду: Легенда об истреб�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034629.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Xanadu Dragonslayer Densetsu | Ксанаду: Легенда об истреб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC118019CE82DEA01B5719B209D03DD903D4EC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445817   (1033542) от 06.02.2021
-
-Rail Romanesque | Романтика рельсов [ТВ-1] [2020, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Октябрь 1988 года, город Охитоё. Он находится на острове Кюсю, префектура Кумамото страны Хиномото, где после Великого списания почти не осталось железных дорог. Успешная рекламная кампания во главе с локомотивом 8620 и его рельсоидом Хатироку смогла оживить экономику города и вернуть к ним интерес. Сейчас в нём проходит Первый ежегодный фестиваль Майтэцу, на который (   Читать дальше...   )Производство: студия Saetta / サエッタЖанр: приключенияРежиссер: Хирасава ХисаёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A08639FE0F9D4E70877269725ECC9FC8931895
 ```
 
 https://mybot314.ru/tekegram_catalog/

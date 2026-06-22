@@ -1,3 +1,107 @@
+###  Публикация: 789538   (722052) от 27.05.2014
+
+Реальная белка / The Nut Job (2014) BDRemux 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаясь выжить в городе, неразлучные друзья — белка Злюк и крысёнок Бадди натыкаются на магазин, до краёв набитый их любимым лакомством — орехами. Чувствуя, что «мечты сбываются», приятели планируют величайшее ограбление в истории грызунов. Но тут совсем некстати нарисовались бедные родственники из парка — прямо 13 друзей арахиса! Однако им всем невдомёк, что магазин (   Читать дальше...   )Производство: Канада, Корея Южная, США / Gulfstream PicturesЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Питер Лепениотис / Peter LepeniotisАктеры: Уилл Арнетт, Брендан Фрейзер, Лиам Нисон, Кэтрин Хайгл, Стивен Лэнг, Майя Рудольф, Джефф Данэм, Гэбриел Иглесиас, Сара Гадон, Джеймс РанкинПеревод: Дублированный, Многоголосый закадровый (любительский)Язык субтитров: Русский, английский (SDH)Продолжительность: 01:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3248724E7E1D8F0D4D257602260C9D7282D9D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023976   (721829) от 06.06.2016
+
+Крякнутые каникулы (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перелётные кряквы из России, решившие провести свой отдых на Гавайях, сбиваются с пути и приземляются на китайский остров, на котором живут утки-мандаринки. Между двумя стаями возникает много смешных и курьёзных ситуаций. Пока отцы дерутся и спорят, Ник, сын императора мандаринок и Ариша, дочь командира русских крякв, знакомятся и становятся друзьями. Дети должны (   Читать дальше...   )Производство: Россия, Animation Studio RIM, Asymmetric VFXЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Виктор ЛакисовАктеры: Никита Пресняков, Владимир Пресняков мл., Эвелина Блёданс, Полина Максимова, Александр Головин, Всеволод Кузнецов, Борис Токарев, Станислав Стрелков, Елена Шульман, Михаил ЛукашовПеревод: Не требуется (русский)Продолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A59B0733438B10762A4F6E0A1F7E0424EB7BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024166   (717361) от 08.06.2016
+
+Зверополис / Zootopia (2016) BDRemux [H.264/1080p] [3D/2D] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Зверополис — современный город, населенный самыми разными животными, от огромных слонов до крошечных мышек. Зверополис разделен на районы, полностью повторяющие естественную среду обитания разных жителей — здесь есть и элитный район Площадь Сахары и неприветливый Тундратаун. В этом городе появляется новый офицер полиции, жизнерадостная зайчиха (   Читать дальше...   )Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, боевик, комедия, криминал, приключения, семейныйРежиссер: Байрон Ховард, Рич Мур, Джаред БушПерсонажи: Джиннифер Гудвин, Джейсон Бейтмен, Идрис Эльба, Дженни Слейт, Нейт Торренс, Бонни Хант, Дон Лейк, Томми Чонг, Дж.К. Симмонс, Октавия Спенсер, Алан Тьюдик, Шакира, Рэймонд С. Перси, Делла Саба, Морис ЛаМарш, Фуския, Джон Ди Маджио, Кэти Лоус, Джесси Корти, Том ’Тайни’ Листер мл.Перевод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B5616B1F45C2B06AE4F85491A89DB2D7C9CF2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790946   (715648) от 30.05.2014
+
+Война миров: Голиаф / War of the Worlds: Goliath (2012) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло 15 лет со времен первой атаки марсиан. Опасаясь повторения катастрофы, человечество создает боевые треножники под управлением человека. Как выясняется, марсиане тоже не бездействовали...Жанр: Мультфильм, Фантастика, Боевик, ПриключенияРежиссер: Джо ПирсонПерсонажи: Биу Биллингсли,  Джим Бёрнс,  Tony Eusoff,  Элизабет Грэйсен,  Эдриан Пол,  Джеймс Арнольд Тейлор,  Питер УингфилдПеревод: Одноголосый закадровый (любительский)Язык субтитров: Русский (Notabenoid)Продолжительность: 01:28:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B68E21C326C23933E674F94335E348F66D3B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 670067   (714579) от 19.06.2013
 
 Ледниковый период 3: Эра динозавров / Ice Age: Dawn of the Dinosaurs (2009) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
@@ -6,7 +110,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714579.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697571.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694502.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687601.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687284.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687151.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685653.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683502.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683259.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683164.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_683154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683154.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679946.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677993.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676486.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673833.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673805.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_671074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671074.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669191.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667741.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667680.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_666970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666970.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_665170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665170.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD6920275D62116D0D8B88618C41F0E2F510D93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340134   (664462) от 22.05.2011
-
-Ледниковый период 3: Эра динозавров / Ice Age: Dawn of the Dinosaurs  (2009) [1080p] Blu-ray 3D
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664462.jpg" />
-</div>
-
-
-###  Подробнее
-
-К событиям «Ледникового периода 3» жизнь главных героев мультфильма потерпела некоторые изменения. Мамонты Манфред и Элли ожидают появление на свет своего детёныша; саблезубый тигр Диего впал в раздумье о том, не стал ли он слишком «мягкотелым» в компании своих друзей; ленивец Сид, бредя желанием создать собственное племя, решился украсть несколько яиц динозавра. (   Читать дальше...   )Жанр: комедия, приключения, семейныйРежиссер: Карлос СалданаАктеры: Джон Легуизамо, Куин Латифа, Денис Лири, Саймон Пегг, Джош Пек, Рэй Романо, Шонн Уильям Скотт, Карен Дишер, Крис Уэдж, Юнис ЧоПеревод: Русский дубляжСубтитры: (PGS): English, Chinese, Danish, Finnish, French, Japanese, Norwegian, Portuguese, Russian, Spanish, SwedishПродолжительность: 1:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9D406E89707E5DAD02B0CD676D2302DBB8C361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139044   (661923) от 31.05.2017
-
-Балерина / Ballerina (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661923.jpg" />
-</div>
-
-
-###  Подробнее
-
-События развернутся вокруг маленькой сиротки, которая, следуя за мечтой стать балериной, приезжает в Париж в 1879 году.Производство: Канада, ФранцияЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Эрик Саммер, Эрик УоринАктеры: Эль Фаннинг, Дэйн ДеХаан, Карли Рэй Джепсен, Мэдди Зиглер, Терренс Скаммелл, Тамир Капелян, Джули Ханер, Джо Шеридан, Элана Дункельман, Шошана СпелингПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF97A87025BBAE4C9AF9E66E28ACB290F4B2B5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138786   (661850) от 31.05.2017
-
-Эволюция / Pourquoi jai pas mange mon pere (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_661850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история приключилась 2 миллиона лет назад с первобытным человеком по имени Эдуард. Упав с дерева после сытного обеда, он ломает переднюю лапу и ему приходится встать на ноги и научиться передвигаться на своих двоих, чтобы выжить в полной опасностей Саванне.Производство: Франция, Италия, Бельгия, КитайЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Жамель ДеббузАктеры: Жамель Деббуз,  Мелисса Тёрьо,  Арие Эльмале,  Патрис Тибо,  Кристиан Эк,  Diouc Koma,  Эдриан Антуан,  Жоржетт Кала-Лобе,  Натали Хомс,  Юсеф ХадждиПеревод: Многоголосый закадровый, любительский (Студия Пиратского Дубляжа)Субтитры: ОтсутствуютПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCD20C21DEF59B6A163E85BF68A0DC592049692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139036   (660986) от 01.06.2017
-
-Балерина / Ballerina (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_660986.jpg" />
-</div>
-
-
-###  Подробнее
-
-События развернутся вокруг маленькой сиротки, которая, следуя за мечтой стать балериной, приезжает в Париж в 1879 году.Производство: Канада, ФранцияЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Эрик Саммер, Эрик УоринАктеры: Эль Фаннинг,  Дэйн ДеХаан,  Карли Рэй Джепсен,  Мэдди Зиглер,  Терренс Скаммелл,  Тамир Капелян,  Джули Ханер,  Джо Шеридан,  Элана Дункельман,  Шошана СпелингПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B253C0C7F1B28A2B4098A1A96CEF1E0C64DBFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

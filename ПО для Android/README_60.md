@@ -1,237 +1,3 @@
-###  Публикация: 1239530   (408903) от 05.10.2018
-
-TV Online v1.0 (16) Ad-Free [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Online TV – это возможность смотреть ТВ на экранах мобильных устройств.  Смотрите более 130 ТВ каналов в любой точке планеты совершенно бесплатно. С мобильным приложением Online TV вы сами решаете что и когда смотреть. Online TV работает в мобильных сетях 3G и LTE, по Wi-Fi. Просмотр каналов возможен как на смартфоне и планшете, так и на большом ТВ экране.Тип издания: Пиратка (удалена реклама)Релиз состоялся: 05.10.2018Разработчик: Anatoly KuchinПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DEBE0ABF700DB1ED2E668A7AE0A579A8F0ED77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573839   (408574) от 02.09.2022
-
-Кроссворды и Сканворды из слов v2022.03.10 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник кроссвордов без интернета, головоломки на каждый день. Проведи время с пользой для ума и проверь эрудицию. Мы открыли заново скучный классический кроссворд, добавили щепотку магии и сделали абсолютно новую игру в слова! Оптимизировано для Android и Google Play. Работает офлайн.Тип издания: ModРелиз состоялся: 10.03.2022Разработчик: Google Commerce LtdПоддерживаемая ОС: Android 4.4+Жанр: Головоломки, кроссвордыЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476A9E3359398BD6F3AEAE242004333A9911ADDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413514   (407982) от 04.10.2020
-
-DailyRoads Voyager v7.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407982.jpg" />
-</div>
-
-
-###  Подробнее
-
-DailyRoads Voyager - приложение для устройств под управлением операционной системы Android, позволяющее делать видеозапись из автомобиля. Приложение работает как "чёрный ящик" или видеорегистратор, записывая всё, но сохраняя только то, в чём действительно заинтересован пользователь. Программа будет полезна водителям, позволяя быстро и безопасно сохранять (   Читать дальше...   )Тип издания: Пиратка (AdFree: удалена реклама и аналитика)Релиз состоялся: 01.06.2020Разработчик: DailyRoadsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CA11A7DF77D7F55EAC5F7DBE4CC090956A139B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399852   (407751) от 04.10.2020
-
-Android Hidden Settings (Professional) v1.7.3 [En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрытые настройки Android позволяют открывать некоторые настройки Android, которые некоторые продавцы телефонов скрывают для пользователя. Это приложение позволяет получить доступ к скрытым настройкам на вашем Android-устройстве без рута, без прав доступа. Это приложение показывает вам только доступные параметры для вашего устройства.Тип издания: Пиратка (открыт Pro)Релиз состоялся: 25.08.2020Разработчик: Common toolsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8BF84DD89644A23D95E0B7D21F8E0807F30A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903504   (406977) от 05.10.2020
-
-Marine Aquarium v3.3.21 PRO [Ru\En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406977.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Морской аквариум", в мире самым продаваемым тропических аквариумных рыб на Macintosh и Windows, теперь портирована на Android устройств для столь реалистичным живым опытом обои! С момента своей 1 версии, выпуск с функцией заставки, невероятно красивый морской аквариум был рассмотрен практически как стандартный скринсейвер для всех пользователей персональных (   Читать дальше...   )Тип издания: Пиратка (Pro, русифицирована)Релиз состоялся: 21.07.2020Разработчик: ACRODEA, INC.Поддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BED0D3FC5597C21830D8D17D8A13389A8B02FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050812   (403672) от 26.09.2017
-
-ABBYY FineScanner Pro v1.13.1157 [Ru/Multi] - сканер для любых документов
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403672.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY FineScanner – ваш карманный сканер для любых документов от лидера OCR – рынка! Забудьте о настольном сканере навсегда. FineScanner - реальная альтернатива - создает электронные копии документов в форматах PDF и JPEG и распознает печатный текст на сканах (OCR) с сохранением форматирования и выгрузкой результатов в 12 популярных форматов, включая docx, xls, pdf. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 18.09.2017Разработчик: ABBYYПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10FEF38007DC70BA89591964EFF84A7B4BCA395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964588   (396351) от 04.10.2017
-
-Sound & Voice Recorder - ASR Premium v83 [Ru/Multi] - Мультиформатный диктофон
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_396351.jpg" />
-</div>
-
-
-###  Подробнее
-
-ASR - это одно из лучших приложений-диктофонов на Play Маркет. Бесплатный и без каких-либо ограничений на время записи!Тип издания: Пиратка (PREMIUM features Unlocked | Drive works)Релиз состоялся: 01.10.2017Разработчик: NLLПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2263B8595B44B0D0F06E410072CF0DE6F3F4670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171828   (393761) от 07.10.2017
-
-Facetune 1.1.4 [RU]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_393761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждое фото можно улучшить. Поэтому глянцевые журналы используют дорогие инструменты типа Фотошопа, чтобы селебрити выглядели идеально. Но теперь появился FaceTune! Facetune обладает простыми в работе и мощными инструментами (ранее доступными только профессионалам) ретуширования и улучшения каждого фото или селфи, которые получат качество глянцевых журналов. Теперь (   Читать дальше...   )Релиз состоялся: 28/03/2017Разработчик: LightricksПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA179300017AC9377CE97E1F4E8603F1F924823D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410486   (387042) от 04.09.2022
-
-Прогноз клева v7.32 [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387042.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прогноз клева» — это программа, которая будет держать Вас в курсе прогноза погоды и оптимальных погодных условий для рыбной ловли.Тип издания: AdFree + ModРелиз состоялся: 17.07.2022Разработчик: ddi.devПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD83C69CC11B6BF5C65108761FC241D12C8234D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928858   (386810) от 07.10.2020
 
 Diabetes:M v8.0.8 Premium [Ru/Multi]
@@ -240,7 +6,7 @@ Diabetes:M v8.0.8 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386810.jpg" />
 </div>
 
 
@@ -266,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385478.jpg" />
 </div>
 
 
@@ -292,7 +58,7 @@ Ebook Reader 5.1.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383537.jpg" />
 </div>
 
 
@@ -318,7 +84,7 @@ NetGuard Pro - no-root firewall v2.302 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_383142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383142.jpg" />
 </div>
 
 
@@ -347,7 +113,7 @@ Volume Styles 4.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381310.jpg" />
 </div>
 
 
@@ -376,7 +142,7 @@ No Smoking 2.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_381300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381300.jpg" />
 </div>
 
 
@@ -404,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380960.jpg" />
 </div>
 
 
@@ -430,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380925.jpg" />
 </div>
 
 
@@ -456,7 +222,7 @@ GPS HUD Speedometer Plus v3.27 [En/Rus] - спидометр с навигаци
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379716.jpg" />
 </div>
 
 
@@ -482,7 +248,7 @@ Tides app & widget - eTide HDF 1.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379339.jpg" />
 </div>
 
 
@@ -510,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378574.jpg" />
 </div>
 
 
@@ -536,7 +302,7 @@ Quick Video Recorder - Background Video Recorder v1.3.3.9 Mod by Balatan, >root<
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378129.jpg" />
 </div>
 
 
@@ -562,7 +328,7 @@ Music Writer - Music Composer 1.2.275 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377089.jpg" />
 </div>
 
 
@@ -588,7 +354,7 @@ Universal AC Air conditioner Remote Control 8.8.7.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376995.jpg" />
 </div>
 
 
@@ -615,7 +381,7 @@ Guitar Effects, Amps, Deplike 5.9.3.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376991.jpg" />
 </div>
 
 
@@ -643,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375902.jpg" />
 </div>
 
 
@@ -669,7 +435,7 @@ Boom v2.7.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374683.jpg" />
 </div>
 
 
@@ -683,6 +449,243 @@ Boom — это многофункциональный музыкальный п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BDFFBC85A97629808B9B2F30ADDAD225C82DCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415728   (373899) от 13.10.2020
+
+Прерывистое Голодание - Трекер Голодания Zero-Cal v1.1.3 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трекер голодания поможет начать вести здоровый образ жизни. Вы сможете эффективно сбросить вес и станете более активны! Никаких диет, без эффекта йо-йо.Тип издания: Пиратка (открыт Premium)Релиз состоялся: 11.10.2020Разработчик: Leap Fitness GroupПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB48F947D32056001BD0FD1024EF8E7BBAE6864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907136   (372111) от 14.10.2018
+
+Наши мультфильмы v2.5.9 Mod by Edik1k [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая большая коллекция мультфильмов на вашем планшете или смартфоне. В приложении собраны все лучшие советские и современные российские мультфильмы для детей. Мы подготовили действительно самую полную коллекцию, в которую включили только лучшие мультфильмы нашего детства и популярные современные мультфильмы.Тип издания: Ad-Free (вырезана вся реклама и аналитика)Релиз состоялся: 13.07.2018Разработчик: GrigerlabПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77A9A26E2B941B5566E511CC32EAE4D071DB2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940631   (372107) от 14.10.2018
+
+EveryCircuit v2.19 [En/Rus] - Проектирование и моделирование электронных схем
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение является одним из лучших для экспериментов с электронными схемами. Анимация напряжений и токов позволит легко понять работу схемы.
+Особенности:
+1. Автоматическое соединение элементов
+2. Анимация сигналов(   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 22.08.2017Разработчик: MuseMazeПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904002   (371965) от 25.10.2015
+
+Helium 1.1.4.1 [Ru] - Альтернатива Titanium Backup
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helium - это уникальное решение для резервного копирования и синхронизации приложений на Android. Helium не требует рут. Каждый пользователь Android может использовать Helium для резервного копирования и синхронизации Android приложений. Helium позволяет создавать резервные копии приложений и их данных на карту памяти или в облачное хранилище. С Helium вы можете (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 7 июля 2015 г.Разработчик: ClockworkModПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3C2D9952DB9EBAEACC4A9190845C03727D4931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069847   (370877) от 05.11.2016
+
+Full Scientific Calculator v1.76 Pro [En] - мощный многофункциональный калькулятор
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот суперкалькулятор содержит в себе полный функционал сегодняшних высококачественных калькуляторов. Никакая особенность не была оставлена позади во время его создания. Его уникальный дизайн позволяет Вам удобно писать сложные уравнения, также позволяя Вам составить быстро короткие и простые вычисления. У Вас может быть банк результатов до 1000 вычислений, к которым (   Читать дальше...   )Тип издания: Пиратка (pro features unlocked)Релиз состоялся: 03.11.2016Разработчик: J.J. SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661558A2DC1434F785DF6A0E9A0D3D98DABD0D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070077   (370874) от 05.11.2016
+
+Твой Календарь v1.4.4/0930_8r [Ru] - многофункциональный календарь с виджетом
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как мы отдыхаем в этом году или на этих праздничных выходных? Какие сегодня праздники? У кого дни рождения в этом месяце? Приложение "Твой Календарь" даст ответы на эти вопросы, а также поможет рассчитать количество рабочих часов в произвольный период для сорока, тридцати шести или двадцати четырех часовой рабочей неделе (или для произвольного числа часов (   Читать дальше...   )Тип издания: Пиратка (Patched - всё куплено в приложении)Релиз состоялся: 03.10.2016Разработчик: AtomARSoftПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DBFE5061755E0133F6F0BDFB3F737071B97B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886138   (370035) от 12.09.2022
+
+Periodic Table / Таблица Менделеева HD 7.7.0 [Ru/En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая таблица Менделеева на Google Play. Узнай химию по-новому. Химия — это наука о веществах, их свойствах, строении и превращениях, происходящих в результате химических реакций, а также о законах, которым эти превращения подчиняются. Все вещества состоят из атомов, которые, благодаря химическим связям, способны формировать молекулы. Химия, прежде всего, занимается (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.10.2021Разработчик: JQ SoftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E2D73F50B4FC29B5F10B47568E379BA8DD61E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102191   (367590) от 16.10.2018
+
+Terrarium TV-Premium v1.9.10 Mod v8 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terrarium TV это Android-приложение, которое позволяет просматривать поток и скачать бесплатно HD ТВ-шоу и фильмы на ваше Android устройство. Она обеспечивает практически любые телепередачи и фильмы. Абсолютно бесплатно. Вы можете загрузить их на вашем Android устройстве или смотреть онлайн. Фильмы и ТВ-шоу на оригинальном языке. К некоторым есть субтитры на русском (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked | Analytics disabled) + ModРелиз состоялся: 16.10.2018Разработчик: Terrarium TVПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395C1F161975F58BF1194FDD4BAA92B6AE5242F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091730   (365625) от 14.09.2022
+
+Таблица Менделеева 2022 PRO v0.2.120 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Химия - самая ценная наука, наука о веществах, их составе и строении, она является одним из главных школьных предметов. Знакомство с Химией начинается с Периодической Системы химических элементов – Таблицы Менделеева. Современный доступ к учебному материалу имеет лучший результат в сравнении с обычным. Потому как в нем применяются технологии, которые стали родными (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 18 февр. 2022 г.Разработчик: www.chernykh.techПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571253D4A320F0582F450A364762056499DB2D3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

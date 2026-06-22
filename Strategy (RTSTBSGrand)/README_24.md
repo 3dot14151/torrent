@@ -1,107 +1,3 @@
-###  Публикация: 1814979   (5576) от 28.08.2025
-
-Frozenheim (2022) [Ru/Multi] (1.4.10.3) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frozenheim – скандинавский градостроительный симулятор с проработанной механикой управления и несколькими деревьями развития, которые балансируют жизнь и рост поселения. Приготовьтесь к жестоким боям в реальном времени, продемонстрируйте тактические навыки. Отправляйте сухопутные и морские экспедиции. Так вы можете не только найти полезные ресурсы, но и привлечь (   Читать дальше...   )Тип издания: RepackРазработчик: Paranoid InteractiveЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA81190B8D797595177713214830F8A9C560C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759613   (5462) от 29.08.2025
-
-ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество медленно, но верно идёт к своей гибели. От известного нам мира не осталось почти ничего. Города, леса, моря, горы — всё стало незнакомым. Стаи до неузнаваемости мутировавших тварей охотятся среди искажённых деревьев. Ветхие военные роботы с давно перегоревшими сенсорами и логическими узлами бездумно бродят среди развалин. Солдаты-пришельцы, ранее неимоверно (   Читать дальше...   )Тип издания: RepackРазработчик: Proxy StudiosЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9A001BCC34F628632D0AF71BAC318550908660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532654   (5302) от 30.08.2025
-
-Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.73r) License GOG
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5302.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стратегии в реальном времени «Diplomacy is Not an Option» вы станете средневековым феодалом, переживающим кризис среднего возраста. На своей должности управленца вы постоянно принимаете по сотне решений в день по управлению городом и развитию экономики. Вы устали от монотонного и, кажется, бессмысленного интеллектуального труда. Наконец, судьба улыбнулась вам: (   Читать дальше...   )Тип издания: LicenseРазработчик: Door 407Жанр: Стратегия, В реальном времени, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2C296007F7918A0BD45DE67FEE766FE6777F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701970   (5100) от 31.08.2025
-
-Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1151/dlc) License GOG
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terminator: Dark Fate – Defiance позволяет окунуться в суровый мир боевых действий, что происходит на территории разрушенных городов. Игра выполнена в сеттинге постапокалипсиса, где между человечеством и сетью интеллектуальных машин Legion происходит конфликт. Люди вынуждены сопротивляться восставшим роботизированным киборгам, чтобы положить конец наступлению противника (   Читать дальше...   )Тип издания: LicenseРазработчик: Slitherine Ltd.Жанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083D63BDF98875B054183AD89664DF8DF8CD32F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815614   (5024) от 31.08.2025
 
 Lords of Magic (1998) [En] (1.0) License Sierra
@@ -110,7 +6,7 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5024.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ Mechabellum (2023) [Ru/Multi] (1.7.1.0.1780/dlc) Repack Let'sРlay [Premium Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4874.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ Emperor of the Fading Suns / Император Угасающих Звезд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4731.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4267.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4187.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ Terraforming Mars (2018) [Multi] (2.10.1.2779/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3987.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3664.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3532.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack FitGirl [Collection
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3511.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack seleZen [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3490.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3092.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ Steel Division 2 (2019) [Ru/Multi] (166508/dlc) License GOG [Total Conflict Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3089.jpg" />
 </div>
 
 
@@ -422,7 +318,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2881.jpg" />
 </div>
 
 
@@ -448,7 +344,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0.1/dlc) Repack Wanterlude [Royal
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2565.jpg" />
 </div>
 
 
@@ -474,7 +370,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.1/dlc) Repack Pioneer [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2432.jpg" />
 </div>
 
 
@@ -500,7 +396,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack FitGirl [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2389.jpg" />
 </div>
 
 
@@ -526,7 +422,7 @@ Songs of Silence (2024) [Ru/Multi] (1.4.5-d.8740/dlc) Repack Let'sРlay [Support
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2277.jpg" />
 </div>
 
 
@@ -552,7 +448,7 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2118.jpg" />
 </div>
 
 
@@ -578,7 +474,7 @@ Wingspan  / Крылья (2020) [Ru/Multi] (283/dlc) License GOG [Special Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1932.jpg" />
 </div>
 
 
@@ -604,7 +500,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack seleZen [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1893.jpg" />
 </div>
 
 
@@ -630,7 +526,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1405.jpg" />
 </div>
 
 
@@ -656,7 +552,7 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_908.jpg" />
 </div>
 
 
@@ -667,6 +563,110 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2330DC8A708F1A43ABB2261F485B2810EFC120B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755350   (887) от 26.09.2025
+
+9-Bit Armies: A Bit Too Far (2024) [Ru/Multi] (864064/864396/dlc) Repack FitGirl
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветераны стратегий в реальном времени Petroglyph представляют 9-Bit Armies: A Bit Too Far продолжение их триумфальной 8-битной серии игр. В 9-Bit Armies объединяйте свои военные силы на различных полях сражений и реализуйте свою стратегию на суше, на море и в воздухе. Размещайте своих воздушно-десантных солдат, разрушайте мосты и цельтесь из супероружия в новом виде (   Читать дальше...   )Тип издания: RepackРазработчик: PetroglyphЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807F26909559CFD247EFCD5EC95944F330149696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760651   (734) от 27.09.2025
+
+Ara: History Untold (2024) [Ru/Multi] (2.0.0.523/dlc) Repack Let'sРlay [Anniversary Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ara: History Untold - это эволюция жанра глобальной исторической стратегии, сочетающая любимую классику ПК-стратегий с инновационными элементами: национальное ремесленное производство, настоящие одновременные ходы, нелинейное дерево технологий и синхронный/асинхронный мультиплеер с поддержкой облака.Тип издания: RepackРазработчик: Oxide GamesЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25017218BBDF6ADF8A69D17FD936C312527B438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820382   (523) от 27.09.2025
+
+Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA707B903BEDCC2DCF2D793AF88D36A59AD3F21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796317   (151) от 29.09.2025
+
+Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная стратегия галактического масштаба Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий. Stellaris – это вдумчивый стратегический геймплей, впечатляющее разнообразие (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Simulation, StrategyЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F62672111E6BDB4EB9723EF53A90F89120529A
 ```
 
 https://mybot314.ru/tekegram_catalog/

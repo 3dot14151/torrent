@@ -1,3 +1,55 @@
+###  Публикация: 1272862   (138902) от 30.12.2018
+
+Кристофер Робин / Christopher Robin (2018) DVD9
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138902.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни повзрослевшего Кристофера Робина царит повседневная рутина. Однажды он встречает друга детства — медвежонка Винни. Вместе им предстоит вернуться в Стоакровый лес, чтобы не только отыскать потерявшихся друзей, но и вновь обрести счастье.Производство: США / Walt Disney PicturesЖанр: Мультфильм, фэнтези, драма, комедия, приключения, семейныйРежиссер: Марк ФорстерАктеры: Юэн МакГрегор, Хейли Этвелл, Бронте Кармайкл, Марк Гейтисс, Оливер Форд Дейвис, Ронки Адеколуэхо, Эдриан Скарборо, Роджер Эштон-Гриффитс, Кен Нвосу, Джон ДаглишПеревод: Дублированный (лицензия)Субтитры: Русские, английские, финские, шведскиеПродолжительность: 01:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20ED39411329FED053829ABE51E4BE4290EAE4BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436083   (138779) от 30.12.2020
+
+Гарфилд / Garfield (2004) BDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хозяин кота Гарфилда, Джон, приносит в дом милого щенка Оди, и с этого момента жизнь Гарфилда идёт наперекосяк. Он хочет только одного - чтобы пёс навсегда исчез из его жизни и из его дома! Но когда внезапно щенка похищают, Гарфилд, возможно, впервые в жизни чувствует лежащую на нём ответственность. И начинает действовать.Производство: США /  Twentieth Century Fox, Davis Entertainment, Twentieth Century Fox AnimationЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Питер ХьюитАктеры: Брекин Мейер, Дженнифер Лав Хьюитт, Стивен Тоболовски, Билл Мюррей, Ивэн Арнольд, Марк Кристофер Лоуренс, Ванесса Кристель, Даамен Дж. Кралл, Руфус Гиффорд, Рэнди РейхерПеревод: Дублированный, двухголосый профессиональный, авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: русские, английскиеПродолжительность: 01:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B4517EE8D4926483E121F033B059E4355186FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677502   (137844) от 25.11.2023
 
 Хищник / Das Raubtier (1978) DVD5 [AVO]
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137844.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137749.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136402.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136051.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133331.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132663.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131694.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131212.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131066.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126631.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125053.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124717.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124054.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123663.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_121904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121904.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114204.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113508.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106072.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_100763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100763.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89700.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87418.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83722.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83460.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82869.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:811DB85DF3771C4366A9402EFFBC88CA9246B679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467144   (81939) от 13.03.2012
-
-Элвин и бурундуки 3 / Alvin and the Chipmunks: Chipwrecked (2011) [H.264] BDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения троицы непоседливых братьев-бурундуков продолжаются! Элвин, Саймон и Теодор, а также их подруги бурундушки, просто не могут оставаться в стороне от различного рода неприятностей, сулящих им новые увлекательные приключения. Что на этот раз уготовила судьба нашим героям, и как они выпутаются из очередной передряги — вот в чём вопрос.Жанр: Мультфильм, фэнтези, комедия, семейный, музыкаРежиссер: Майк МитчелАктеры: Джейсон Ли, Дэвид Кросс, Дженни Слейт, Джастин Лонг, Мэттью Грей Гублер, Джесси МакКартни, Эми Полер, Анна Фэрис, Кристина Эпплгейт, Алан ТьюдикПеревод: ДублированныйЯзык субтитров: Русский (форс. + полные), английскийПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A62B8245220DC319AC1B43E4D1B775FA1E9201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467004   (81924) от 13.03.2012
-
-Элвин и бурундуки 3 / Alvin and the Chipmunks: Chipwrecked (2011) HDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения троицы непоседливых братьев-бурундуков продолжаются! Элвин, Саймон и Теодор, а также их подруги бурундушки, просто не могут оставаться в стороне от различного рода неприятностей, сулящих им новые увлекательные приключения. Что на этот раз уготовила судьба нашим героям, и как они выпутаются из очередной передряги — вот в чём вопрос.Жанр: Мультфильм, Фэнтези, Комедия, Семейный, МузыкаРежиссер: Майк МитчелПродюсер: Росс Багдасарян мл., Дженис Карман, Нил А. Мачлиз, ...Актеры: Джейсон Ли, Дэвид Кросс, Дженни Слейт, Джастин Лонг, Мэттью Грей Гублер, Джесси МакКартни, Эми Полер, Анна Фэрис, Кристина Эпплгейт, Алан ТьюдикПеревод: Профессиональный (полное дублирование)Продолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D19DBFDD74FA55E379CA0F027CD25DE39EC391E
 ```
 
 https://mybot314.ru/tekegram_catalog/

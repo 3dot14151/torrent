@@ -1,3 +1,107 @@
+###  Публикация: 1217095   (744757) от 03.04.2018
+
+П. А. Бадмаев | За кулисами царизма [Архив тибетского врача Бадмаева] (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744757.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании представлены документы и письма из архива П. А. Бадмаева, тибетского врача и политика начала XX века, как нельзя более красноречиво иллюстрирующие атмосферу придворных интриг, замешанных на мистике и суевериях и развивающихся по сценарию заинтересованных лиц. Книга содержит интересные оригинальные документы, письма, памятные записки и проекты (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504BD525877218B61C6885DDB1DBE53A59F87A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217298   (743471) от 04.04.2018
+
+В. В. Адоратский (ред.) | Базельский конгресс Первого Интернационала [6-11 сентября 1869 г.] (1934) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743471.jpg" />
+</div>
+
+
+###  Подробнее
+
+1869 год был годом поворота во всей истории Международ­ного товарищества рабочих. Победы, одержанные марксизмом в Интернационале, и в частности разгром прудонизма, поднимали Товарищество на новую, более высокую ступень. Со времени Базельского конгресса в центре борьбы внутри Интернационала стоит уже не вопрос о собственности, не вопрос о социализме как цели рабочего (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D982AB590EA5A225124C65CA95862708433CCC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020862   (743211) от 27.05.2016
+
+Е.А. Мельникова, В.Я. Петрухин (ред.) | Древняя Русь в средневековом мире: энциклопедия (2014) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое в международной практике междисциплинарное справочное издание освещает всю совокупность социально-политической, экономической, культурной и религиозной жизни Древнерусского государства от времени его зарождения (IX в.) вплоть до монгольского нашествия середины XIII в. Около 3000 статей, написанных ведущими специалистами России, Украины и Беларуси, отражают (   Читать дальше...   )Жанр: История Древней Руси. СредневековьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65598200291ADCA5CCB08833FD752CB3EE505CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397057   (742600) от 18.07.2020
+
+Андрей Дмитриевич Сахаров | Собрание сочинений [8 книг] (2006) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742600.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первое собрание сочинений академика Андрея Дмитриевича Сахарова (1921-1989) входят сборник статей, писем, выступлений и интервью «Тревога и надежда» (в двух томах), «Воспоминания» (в трёх томах), а также впервые публикующийся роман-документ «Дневники» Андрея Сахарова и Елены Боннэр (в трёх томах).Жанр: Публицистика, ВоспоминанияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CE5BB0854677D91882F5C3060717D54F85D57B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021256   (740977) от 29.05.2016
 
 Р. Пуанкаре | Происхождение мировой войны (1924) [DJVU]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740977.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740878.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740315.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740182.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739784.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739734.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739719.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739667.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739657.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738335.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737589.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735665.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735657.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_734092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734092.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733876.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733875.jpg" />
 </div>
 
 
@@ -436,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732080.jpg" />
 </div>
 
 
@@ -462,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731907.jpg" />
 </div>
 
 
@@ -488,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728958.jpg" />
 </div>
 
 
@@ -514,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727674.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727667.jpg" />
 </div>
 
 
@@ -568,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727445.jpg" />
 </div>
 
 
@@ -582,112 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24C1EACD8271117E57215F5D5942453108D33478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128507   (727434) от 25.04.2017
-
-С. Г. Шаумян | Избранные произведения [2 тома] (1978) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В "Избранные произведения" включены статьи, речи, доклады, письма, раскрывающие революционную, пропагандистскую и публицистическую деятельность С. Г. Шаумяна. В них отражена сложнейшая политическая обстановка, в которой большевики вели борьбу против царизма, врагов партии и рабочего класса, за победу и укрепление Советской власти в Закавказье.
-
-Материалы (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706D7952D5A9AC272218BEAA8724062E446D3141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023134   (726732) от 04.06.2016
-
-Николай Шмелев | В лучах прожекторов (1962) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «В лучах прожекторов» — живой рассказ о боевых друзьях автора — смелых, мужественных людях, о крепкой солдатской дружбе, которая помогала им громить врага.Жанр: Биографии и Мемуары, О войнеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8D66F3B8EF6EC58CDE0B767EA4CA6B2EDE34ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128562   (726564) от 26.04.2017
-
-А. И. Матюшенский | От воровства к анархизму (1908) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нас побуждает взяться за эту работу назревшее новое течение в тех общественных слоях, к которым публика привыкла прикладывать шаблоны, построенные тысячи лет назад, и которые теперь явно разрушаются и становятся непригодными для определения действительно существующих отношений между так называемыми лояльными группами с одной стороны и профессиональными ворами и грабителями (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31560C2E0E6D75BE81A6C7C495AF16BF979963A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284785   (726534) от 23.02.2019
-
-Библиотека революционных мемуаров [8 книг] (1982-1987) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726534.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1982 году Лениздат начал выпуск «Библиотеки революционных мемуаров» «Из искры возгорится пламя», составленной из воспоминаний участников революционного движения в Петербурге — Петрограде. Цель этого издания — рассказать о славных революционных традициях нашего народа и их преемственности, дать читателям возможность увидеть революционное движение в России глазами (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37241156EE00BFCF131F0B522DFFDED9BB1A8446
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1506108   (236378) от 29.10.2021
+
+Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: © 2021 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C78438017CA5436B7E6226C55FD6A38B98A26B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457372   (236377) от 25.03.2021
+
+Exposure X6 v6.0.5.196 ARM  [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактор фотографий для творческих людей, который обрабатывает каждый шаг вашего процесса. От передачи  к организации и редактированию,  упрощает выполнение повседневных задач и предоставляет богатый набор инструментов для разработки красивых фотографий. Exposure  вписывается в любой рабочий процесс. Exposure легко интегрируется с Photoshop и Lightroom, а со своей новой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2021Разработчик: Exposure Software, LLCПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E67AA1E7F6AEC8633863AC348BB7AF30880FF5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457123   (236370) от 25.03.2021
 
 Battery Charging Alert 3.15 [En]
@@ -6,7 +59,7 @@ Battery Charging Alert 3.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236370.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Acorn 7 v7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236369.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ SSH Config Editor Pro 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236363.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ RapidWeaver 8 v8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236354.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Acon Digital Acoustica Premium Edition 7.3.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236348.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Allavsoft Video Downloader Converter 3.23.4.7754 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236334.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ BetterZip 5 v5.1.1 b2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236326.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ PullTube 1.8.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236322.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ iReal Pro 2020.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236309.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ EditReady 23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236287.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ SiteSucker Pro 5.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236280.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ FastScripts 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236272.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Scrutiny 10 v10.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236264.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ Viper FTP 5.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236263.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ VueScan Pro 9.8.08 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236249.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Live Wallpaper & Themes 4K Pro 17.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236246.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ Better Trash 1.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236238.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ NanoBrowser 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236237.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ Fix My iPhone 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236235.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ Fork 2.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236232.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ Yate 6.6.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236227.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ iShowU Studio 2 v2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236225.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ Movist 2.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236216.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ Lasso 1.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236213.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ Lasso — оконный менеджер для macOS. Перемещайте �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4ED8085B26587721DFA4E8EC07305215ACDA2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457417   (236206) от 26.03.2021
-
-System Toolkit 3.3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236206.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 24.03.2021Разработчик: Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5009F9A8AE13230300956CD5AB7A67542D9AFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457671   (236200) от 26.03.2021
-
-ImageRanger Pro Edition 1.8.0.1723 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236200.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7709863855E96BB96B1FC8EE2BB1F1F0C60D53
 ```
 
 https://mybot314.ru/tekegram_catalog/

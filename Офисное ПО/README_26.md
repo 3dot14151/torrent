@@ -1,3 +1,265 @@
+###  Публикация: 1745613   (45524) от 27.08.2024
+
+Adobe Acrobat Pro 2024.003.20054 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1189A4F6A22E9510D96BF553D464F4A1E2394FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746157   (45270) от 29.08.2024
+
+Jutoh 3.19.3 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anthemion Jutoh - программа для создания электронных книг буквально за несколько секунд из уже имеющихся файлов, используя New Project Wizard, а также создание e-book книг, используя встроенный стилизованный текстовый редактор. Обложки книг можно выбрать из шаблонов Jutoh's или создать свои при помощи встроенного кавер-редактора. Созданные проекты электронных книг (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6EDDC25B2A1EE8308CAF96E269E6843503AEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746598   (44938) от 01.09.2024
+
+Icecream PDF Editor Pro 3.26 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6759FB0487956D45176A94A843AC776E517BBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746982   (44764) от 03.09.2024
+
+EssentialPIM Pro 12.0.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и функциональный почтовый клиент и органайзер, который предлагает интеграцию со всеми основными онлайн-сервисами.
+EssentialPIM - это отмеченное различными наградами решение для всех ваших потребностей в производительности. Поддерживаемая большим сообществом пользователей, приложение получило широкое признание как самый мощный, интуитивно понятный и персонализируемый (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F98D49327E77CE8068A26D013BFA7D4DC4F1384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747382   (44522) от 05.09.2024
+
+Wondershare PDFelement 11.0.7.3119 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CA96F0F2CDF432FA0194F3AF38F1DB93AAAD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747711   (44395) от 06.09.2024
+
+EssentialPIM Pro 12.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и функциональный почтовый клиент и органайзер, который предлагает интеграцию со всеми основными онлайн-сервисами.
+EssentialPIM - это отмеченное различными наградами решение для всех ваших потребностей в производительности. Поддерживаемая большим сообществом пользователей, приложение получило широкое признание как самый мощный, интуитивно понятный и персонализируемый (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1103EED0C8C9C59319C0372307F8CDA70DB078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749849   (43362) от 16.09.2024
+
+PDF Shaper Ultimate 14.5 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с PDF-документами, которая предоставляет коллекцию инструментов и утилит для модификации и оптимизации PDF-файлов и их содержимого. Благодаря этой программе вы сможете легко разделять и объединять PDF-документы, извлекать тексты и графику из PDF-файлов, шифровать/расшифровывать документ при помощи пароля, изменять права пользователя, конвертировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01AC724D9D53B4CA2ACCCE57C9E51DA96C564FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750000   (43295) от 17.09.2024
+
+Noi AI Browser Multitool 0.4.0 Portable by Sitego [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Noi — это уникальный браузер, который совмещает возможности работы с нейросетями и классического веб-серфинга. Он создан для повышения продуктивности и упрощения взаимодействия с AI. Благодаря поддержке различных AI-моделей, управлению подсказками и возможности работы с несколькими аккаунтами на одном сайте, Noi предоставляет пользователям инструменты для эффективной (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB2E881A284EE6B209A9C82D843BFE281CA51EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821215   (41005) от 01.10.2025
+
+Adobe Acrobat Pro 2025.001.20756 (x86/x64) Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39392E661603D7F299300898C85C3544EB1207DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755634   (40126) от 17.10.2024
+
+AkelPad 4.9.9 + Portable + All Plugins
+
+>>След.
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40126.jpg" />
+</div>
+
+
+###  Подробнее
+
+AkelPad - компактный, но при этом удобный и быстрый текстовый редактор. AkelPad может работать с текстовыми документами в одно- или многооконном режиме, полностью поддерживает строки Unicode в системах Windows NT/2000/XP/2003, а также кодовые страницы Unicode. Можно редактировать даже файлы, имеющие атрибут "Только для чтения", а также просматривать их (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9CD8D217300C8AD8FDA022033DE63B2E507ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759871   (37025) от 17.11.2024
 
 WinDjView Extended 4.0.1 Portable [Ru/En]
@@ -6,7 +268,7 @@ WinDjView Extended 4.0.1 Portable [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37025.jpg" />
 </div>
 
 
@@ -33,7 +295,7 @@ Simple Sticky Notes 6.7.0 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36067.jpg" />
 </div>
 
 
@@ -59,7 +321,7 @@ RJ TextEd 16.35 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35948.jpg" />
 </div>
 
 
@@ -77,32 +339,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763300   (35683) от 30.11.2024
-
-Office Tab Enterprise 16.00 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_35683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Tab Enterprise новая версия небольшой, но очень полезной утилиты. Принцип работы Office Tab относительно прост, но от этого не менее эффективен – окна открытых документов отображаются в интерфейсе офисных приложений, как вкладки открытых страниц в современных браузерах. Утилита Office Tab устраняет один из немногих недостатков пакета Microsoft Office – отсутствие (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DA489907E1873189A52B86C4AA165781EDFDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765870   (34116) от 15.12.2024
 
 FontExpert 2025 20.0 Release 2 RePack (& Portable) by TryRooM [Ru/En]
@@ -111,7 +347,7 @@ FontExpert 2025 20.0 Release 2 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34116.jpg" />
 </div>
 
 
@@ -137,7 +373,7 @@ FontExpert 2025 20.0 Release 2 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34078.jpg" />
 </div>
 
 
@@ -163,7 +399,7 @@ Notepad3 6.24.1221.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33381.jpg" />
 </div>
 
 
@@ -189,7 +425,7 @@ Icecream PDF Editor Pro 3.28 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30870.jpg" />
 </div>
 
 
@@ -215,7 +451,7 @@ VueScan Pro 9.8.44 + OCR Portable by FC Portables [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29523.jpg" />
 </div>
 
 
@@ -241,7 +477,7 @@ Foxit PDF Editor Pro Subscription 2025.2.1.33197 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29195.jpg" />
 </div>
 
 
@@ -269,7 +505,7 @@ SoftMaker Office Professional 2024 rev. S1222.1129 Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28908.jpg" />
 </div>
 
 
@@ -295,7 +531,7 @@ EssentialPIM Pro 12.1.3.1030 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28788.jpg" />
 </div>
 
 
@@ -322,7 +558,7 @@ CoolUtils Total CSV Converter 4.1.1.60 RePack (& Portable) by elchupacabra [Mult
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28458.jpg" />
 </div>
 
 
@@ -349,7 +585,7 @@ PDF-XChange Editor Plus 10.5.2.395 (x64) Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27464.jpg" />
 </div>
 
 
@@ -375,7 +611,7 @@ Simple Sticky Notes 6.7.5 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26552.jpg" />
 </div>
 
 
@@ -401,7 +637,7 @@ Nitro PDF Pro 14.36.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26214.jpg" />
 </div>
 
 
@@ -427,7 +663,7 @@ Qalculate! 5.5.2 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25922.jpg" />
 </div>
 
 
@@ -438,241 +674,6 @@ Qalculate! - это многоцелевой кросс-платформенны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4DB108A078E9FB28CBA57BDCDD41F433D751294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783247   (25678) от 05.03.2025
-
-Koodo Reader 1.7.4 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный менеджер электронных книг и программа для чтения. Он поддерживает форматы .epub, .pdf, .azw3, azw, .mobi, .txt, .fb2, .cbr, .cbz, .cbt, .cb7, .md, .docx, .html, .xm. Позволяет выбрать подходящий макет пользовательского интерфейса (один столбец, два столбца, непрерывная прокрутка). Он также предлагает инструменты для преобразования текста в речь или перевода (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E7ED9223DF60493D0763D01B7F8D71D17E107F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783567   (25574) от 06.03.2025
-
-Vovsoft Speech to Text Converter 5.5 [En]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vovsoft Speech to Text Converter — это автоматическое программное обеспечение для преобразования речи в текст, поддерживающее более 50 языков. Эта утилита преобразования аудио в текст может сэкономить вам часы при транскрибировании интервью, встреч, подкастов или любых длинных аудиофайлов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193E90BF2571F8BA03EC10BF071E3862EA3256BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783752   (25449) от 07.03.2025
-
-IceCream Ebook Reader Pro 6.52 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читалка для ПК, которая превратит Ваш экран в первоклассную программу для чтения книг. Читайте книги в ePub, MOBI, FB2, CBR и других популярных форматах. С легкостью управляйте цифровой библиотекой на компьютере с Icecream Ebook Reader. Добавляйте заметки, переводите текст, используйте закладки и многое другое.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2957F0135AF1F4E3D003B7616188A99126876414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784313   (25122) от 10.03.2025
-
-FocusWriter 1.8.11 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный текстовый редактор, построенный на принципах минимализма. Среди основных возможностей: проверка правописания на русском и других языках, подсчет слов, подсветка текста, наличие таймеров, открытие нескольких документов. Можно задавать ежедневные цели: планировать сколько текста нужно написать за день или отведенное время.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911B92DB02B4C0A9CCDC1E985A16BB473F847BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784625   (24915) от 12.03.2025
-
-CoolUtils Total PDF Printer 4.1.0.59 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24915.jpg" />
-</div>
-
-
-###  Подробнее
-
-CoolUtils Total PDF Printer - будет полезен для печати нескольких PDF файлов в пакетном режиме.
-Представьте, что у вас имеется папка с PDF файлами, каждый из которых нужно распечатать. Без PDF Printer вам придется открывать каждый файл и нажимать кнопку Печать. Это довольно скучный и длительный процесс. Вместо этого можно запустить Total PDF Printer, выбрать папку (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9087FFC0D4216A109949EC322768945EC7340A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786704   (23953) от 21.03.2025
-
-AntiPlagiarism.NET 4.142.0.0 [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23953.jpg" />
-</div>
-
-
-###  Подробнее
-
-AntiPlagiarism.NET - инструмент, позволяющий исследовать оригинальность текстов и определять наличие заимствованных фраз и отрывков, иными словами, проверять статьи на уникальность. Мысли могут быть оригинальными и не очень, но их словесное облачение должно принадлежать лишь тому, в чьей голове они зародились. Если автор соблюдает это неписаное правило, из-под его (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B14E14A4BF57969AC24A39B12DA0B99DF1964A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787530   (23441) от 26.03.2025
-
-RedNotebook 2.39.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23441.jpg" />
-</div>
-
-
-###  Подробнее
-
-RedNotebook - это простое GTK+ / Gnome приложение написанное на Python и представляющее собой электронный дневник или записную книжку. RedNotebook позволит сохранить все мысли, события, действия в личном дневнике. А написанную заметку будет очень просто найти с помощью облака тегов (которые создаются автоматически) или календаря. RedNotebook удобен для упорядочивания (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E214EE04C10F220B0C8CF2B3D9D12369CC1D223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792388   (21016) от 18.04.2025
-
-PDFsam Basic 5.3.1 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21016.jpg" />
-</div>
-
-
-###  Подробнее
-
-PdfSAM - бесплатная и простая в использовании утилита, с помощью которой можно делить и объединять PDF-файлы, а также производить множество других полезных операций с PDF документами.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0EB4C6BECDD0CA39E822834369C88BFD89BAF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793372   (20415) от 24.04.2025
-
-CoolUtils Total Excel Converter 7.1.0.91 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Total Excel Converter несомненно пригодится тем, кто часто конвертирует файлы Excel и Excel 2007 в Word (Doc и DocX), PDF, HTML, Access, TXT, ODT, ODS, XML, SQL, CSV, Lotus, DBF, TEX, DIFF, SYLK, LaTeX и другие. Она поддерживает практически любые таблицы, включая документы OpenOffice (.odt, .ods). Total Excel Converter преобразовывает как единичные файлы, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A62F0BA9633E2C1FEBFD987BFA9491B7C3298DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

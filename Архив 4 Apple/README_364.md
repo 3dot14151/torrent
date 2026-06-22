@@ -1,3 +1,30 @@
+###  Публикация: 1244499   (479931) от 02.09.2018
+
+Scrivener 3.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrivener — это текстовый процессор и инструмент управления проектами, предназначенный для людей, которым приходится работать с большими объемами текста.
+Scrivener сочетает в себе возможности текстового редактора с функциями органайзера и средствами для управления проектом. Все ваши записи в виде отдельного текста, фотографий и идей будут удобно организованы и всегда (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Literature & Latte LtdПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376FAC8AEB47F1FA1C1C185B9B768166999D880A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244536   (479928) от 02.09.2018
 
 iMazing 2.6.4 (9302) [Multi/Ru]
@@ -6,7 +33,7 @@ iMazing 2.6.4 (9302) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479928.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Magnet Pro 2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479926.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ HD Video Converter Movavi 5.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479813.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Network Radar 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479628.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Amadeus Pro 2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479614.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Wolfram Mathematica 10.0.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479418.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Amadeus Pro 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479406.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ A Better Finder Rename 11 v11.21 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479387.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ LaunchBar 6.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479378.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479374.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ Lyn 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479298.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ Micromat Drive Scope 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479280.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ Alfred 4 Powerpack 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479263.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ TotalFinder 1.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479172.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ Adguard 2.5.0 (849) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479140.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ Sketch 40.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479043.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ TextMan 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478653.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ BusyContacts 2022.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478651.jpg" />
 </div>
 
 
@@ -490,7 +517,7 @@ BarLinks: Menu Bar Bookmarks 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478650.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ rcmd • App Switcher 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478646.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ FontLab 8 v8.0.1.8238 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478640.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ CleanMyMac 3.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478596.jpg" />
 </div>
 
 
@@ -598,7 +625,7 @@ macOS Server 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478595.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ Prism 9 v9.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478485.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ Wondershare PDFelement Pro OCR 9.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478421.jpg" />
 </div>
 
 
@@ -662,32 +689,6 @@ PDFelement Pro - профессиональный инструмент, кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DEECB66301E9B2347A7072718A1230616ECF033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566886   (478338) от 31.07.2022
-
-The Unarchiver - Unzip RAR ZIP 3.3.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unarchiver - Unzip RAR ZIP - простое в использовании приложение, которое позволяет распаковывать десятки форматов архивов, такие как: Rar, Zip, 7z, Tar, Xz, Iso, Lha, bz2, Lzh, cab, cpio, jar, exe, pkg, dms, tbz, swf, Gzip, Bzip2. Также может сжимать и шифровать любые типы файлов, чтобы сделать личные данные более безопасными.Тип издания: macOS SoftwareРелиз состоялся: 31.07.2022Разработчик: © 2022 qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB253C7BEC06EFB3797362A21AA0027A1F62EE2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

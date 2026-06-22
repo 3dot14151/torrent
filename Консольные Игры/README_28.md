@@ -1,3 +1,107 @@
+###  Публикация: 1147987   (605396) от 04.07.2017
+
+Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0301-0450)
+
+>>Консольные Игры
+>>Ромы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник расшифрованных игр для Nintendo 3DS. Может использоваться для эмуляторов или CFW.Тип издания: UnofficialРазработчик: Nintendo и другиеЖанр: разныеЯзык озвучки: Английский, Японский и др. (зависит от игры)Язык субтитров: Английский, Японский и др. (зависит от игры)Язык интерфейса: Английский, Японский и др. (зависит от игры)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BD5A84F87F60C8A1FF119FAB2D1A4D20EFD9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911550   (604706) от 29.06.2015
+
+Turbo: Super Stunt Squad (2013) [PS3] [USA] 4.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604706.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Турбо: Суперкоманда Каскадеров» - скоростной экшен по мотивам знаменитого мультфильма «Турбо». К вашим услугам «заряженная» команда звезд киноэкрана. Каждый из них обладает уникальным стилем и владеет фирменными финтами, которые пригодятся, когда придет время показать себя - прыгать, скользить, кувыркаться и выполнять невообразимые трюки. Освоив необходимые умения, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Monkey Bar GamesЖанр: Action / Arcade / Racing / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CBF1160AC78A9BBB7FE608CAD4CD774D8FA8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913318   (604621) от 29.06.2015
+
+Blood Drive (2010) [PS3] [PAL/NTSC] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blood Drive - гоночный экшен от компании Sidhe Interactive, в котором главным оружием будет Ваш собственный автомобиль. Садитесь за руль бронированного "железного коня" и приготовьтесь давить, таранить, сбивать толпы зомби, атакующих Вас. Также в игре имеется большой выбор оружия - от всевозможных пулеметов до ракетниц, что превращает игровой процесс в (   Читать дальше...   )Тип издания: UnofficialРазработчик: SidheI nteractiveЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7ADCEEA1913AAB375DA679FEE068ED1E0524E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911492   (604598) от 29.06.2015
+
+Tekken Hybrid (2012) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En] [3D]
+
+>>Консольные Игры
+>>PS3
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tekken Tag Tournament — четвёртая игра в серии файтинговых компьютерных игр Tekken. Tag Tournament представляет собой не самостоятельную игру, а дополнение к Tekken 3, и не имеет собственного сюжета. Изначально Tag Tournament вышла на аркадных автоматах, однако затем была портирована на PlayStation 2, став первой игрой в своей серии, выпущенной для этой консоли. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Namco BandaiЖанр: FightingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534D259604665C63D3EE68E3F7E7801889E98811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148750   (602811) от 08.07.2017
 
 Cars 3: Driven to Win (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Multi]
@@ -6,7 +110,7 @@ Cars 3: Driven to Win (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602811.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Skylanders: Spyro's Adventure (2013) [WiiU] [JAP] 5.5.1 [WUP Installer] [License
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602346.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Organ Trail: Complete Edition (2016) [PS4] [USA] 5.05 [HEN] [License / 1.04] [En
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601974.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Arcana Heart 3: LOVE MAX!!!!! (2014) [PS3] [USA] 4.60 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600923.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Beowulf: The Game (2007) [PS3] [EUR] 1.94 [Cobra ODE / E3 ODE PRO ISO] [Unoffici
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599074.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598791.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ Brave [Wii] [PAL] [Multi 5] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598723.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598716.jpg" />
 </div>
 
 
@@ -228,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598709.jpg" />
 </div>
 
 
@@ -263,7 +367,7 @@ Ben 10 Omniverse 2 (2013) [PS3] [USA] 4.46 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597539.jpg" />
 </div>
 
 
@@ -289,7 +393,7 @@ Earth Defense Force 2025 (2013) [PS3] [USA] 4.50 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597439.jpg" />
 </div>
 
 
@@ -315,7 +419,7 @@ Prototype (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597329.jpg" />
 </div>
 
 
@@ -341,7 +445,7 @@ Ride (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595761.jpg" />
 </div>
 
 
@@ -369,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595349.jpg" />
 </div>
 
 
@@ -395,7 +499,7 @@ Just Dance 2019 Mod (2019) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594605.jpg" />
 </div>
 
 
@@ -421,7 +525,7 @@ The Club (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594250.jpg" />
 </div>
 
 
@@ -447,7 +551,7 @@ Sushi Striker: The Way of Sushido (2018) [3DS] [EUR] 11.7 [CIA] [Unofficial] [En
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593596.jpg" />
 </div>
 
 
@@ -473,7 +577,7 @@ Tomb Raider: Underworld (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592185.jpg" />
 </div>
 
 
@@ -499,7 +603,7 @@ Mafia III: Definitive Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.12 / DL
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591948.jpg" />
 </div>
 
 
@@ -525,7 +629,7 @@ Anarchy Reigns (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591726.jpg" />
 </div>
 
 
@@ -551,7 +655,7 @@ Cabela's Adventure Camp (2011) [PS3][PS MOVE][EUR] 3.72 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591723.jpg" />
 </div>
 
 
@@ -577,7 +681,7 @@ Quantum Theory (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591273.jpg" />
 </div>
 
 
@@ -590,112 +694,6 @@ Quantum Theory (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:962665DB5AA03D405FCC187166EC43382F617562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916452   (590264) от 09.07.2015
-
-The Chronicles of Riddick: Assault on Dark Athena (2009) [PS3] [USA] 2.60 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный сборник содержит как оригинальную «The Chronicles of Riddick: Escape From Butcher Bay», так и продолжение этого потрясающего стелс-экшена «Chronicles of Riddick: Assault on Dark Athena»!
-В «Escape From Butcher Bay» вы оказываетесь в тюрьме максимально строго режима «Бухта Мясника» (Butcher Bay), расположенной на удаленной внеземной уголовной колонии. Ни одному (   Читать дальше...   )Тип издания: UnofficialРазработчик: Starbreeze Studios / Tigon StudiosЖанр: Action/Shooter/Stealth/1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9413D43D8E15B9758C4A97C1E2A1B4ECC1D9124C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916260   (589813) от 10.07.2015
-
-Steins;Gate (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En/Jp]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589813.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается 28 июля 2010 года в Акихабаре, когда студент Токийского университета Ринтаро Окабэ находит в здании Radio Kaikan, где проходила конференция по вопросам путешествия во времени, тело Курису Макисэ, одной из участниц, в луже крови. В панике он отсылает своему другу электронное письмо о произошедшем. Однако уже через несколько часов он сталкивается (   Читать дальше...   )Тип издания: UnofficialРазработчик: 5PBЖанр: Adventure, Visual Novel, Interactive AdventureЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046567CC6B124EE161F22E9A5C72F455F10B25BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917081   (589442) от 11.07.2015
-
-[PSP] Kuroko no Basuke: Kiseki no Shiai [Repack] [Jp] (2012)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_589442.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Kuroko no Basuke: Kiseki no Shiai» - игра для PSP, основанная на серии «Kuroko no Basuke» и сфокусированная на развитии баскетбольной команды.
-«Kuroko no Basuke: Kiseki no Shiai» - традиционный симулятор баскетбольной игры. Во время матчей игроки представлены в виде чиби-версий. Создается такое впечатление, что игра имитирует каждый матч до финала отборочных соревнований (   Читать дальше...   )Тип издания: RepackРазработчик: Bandai Namco GamesЖанр: Sport Game, Simulation GamesЯзык озвучки: ЯпонскийЯзык субтитров: ЯпонскийЯзык интерфейса: Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1CBFDF609662F2E9F2E959D80FC16F685DBD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551835   (588884) от 18.05.2022
-
-Car Mechanic Simulator (2019) [PS4] [USA] 5.05 [HEN] [License / 1.07 / DLC] [Ru/Multi]
-
->>Консольные Игры
->>PS4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Car Mechanic Simulator предлагает игрокам ремонтировать, красить, настраивать и водить машины. В новых модулях Barn Find и Junkyard вы найдете поистине уникальные классические модели. Стройте и развивайте собственную империю автосервисов в невероятно подробном и реалистичном симуляторе, раскрывающем устройство автомобиля во всех подробностях. В Car Mechanic Simulator (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Dot GamesЖанр: Simulator (Cars), RacingЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE4C73D1B3361A4B3C79DA7DE4E12736608294B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134433.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134402.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_134167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134167.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133772.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132914.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132641.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132286.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132152.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_131228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131228.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129830.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128196.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127193.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I`m in Love with the Villainess | Я пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127169.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126845.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126828.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Arknights: Reimei Zensou | Arknights: Prelude to Dawn | Аркнайтс: Пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126806.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126800.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126713.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126711.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126490.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126387.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126366.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126295.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126253.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125721.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125613.jpg" />
 </div>
 
 

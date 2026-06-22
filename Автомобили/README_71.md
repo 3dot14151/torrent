@@ -1,29 +1,3 @@
-###  Публикация: 1780902   (26397) от 26.02.2025
-
-ELSA 6.0 AUDI - 03.2017 6.0 [Multi/Ru]
-
->>Автомобили
->>Автомобильные программы и навигаторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационная база (руководство) по ремонту автомобилей концерна VW AG. Содержит описания технологии ремонта и обслуживания автомобиля, электрические схемы, кузовные работы, нормы времени на выполняемые работы и прочее.Язык интерфейса: Русский, английский, немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6563A6A76BEF1AA89AE23D037799F02D74E36CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784930   (24846) от 13.03.2025
 
 Mers Academy, Владислав Казмирук | Мастер-класс по диагностике и чип-тюнингу (2024) WEB-DL [AD] [RU]
@@ -32,7 +6,7 @@ Mers Academy, Владислав Казмирук | Мастер-класс по
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24846.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Mers Academy, Владислав Казмирук | Работа с осцилл
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24844.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ DSSGroup, Даниил Попов | Школа автоподбора (2024) WEB
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24213.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24174.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22783.jpg" />
 </div>
 
 
@@ -171,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_20773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20773.jpg" />
 </div>
 
 
@@ -198,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19661.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19017.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17645.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16717.jpg" />
 </div>
 
 
@@ -305,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15932.jpg" />
 </div>
 
 
@@ -331,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15574.jpg" />
 </div>
 
 
@@ -357,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12853.jpg" />
 </div>
 
 
@@ -383,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12133.jpg" />
 </div>
 
 
@@ -401,35 +375,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813803   (6680) от 21.08.2025
-
-Павел Старцев | Экстремальное вождение (2024) [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — для тех, кто уже водит, но хочет управлять автомобилем уверенно, безопасно и осознанно. Без "воды", без штампов — только то, что действительно работает в реальных дорожных условиях.
-В пособии:
-Типовые ошибки водителей и причины аварийных ситуаций;
-Грамотные действия в повседневных и сложных дорожных условиях;(   Читать дальше...   )Жанр: Учебное пособие, вождение автомобиляИздательство: Автор (Литрес)Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B326BDD2E1040ED373ECEB3DC80AAAA086E4D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815281   (5351) от 29.08.2025
 
 Журнал | За рулём (Россия) №9 (1131) (сентябрь 2025) [PDF]
@@ -438,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5351.jpg" />
 </div>
 
 
@@ -464,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4078.jpg" />
 </div>
 
 

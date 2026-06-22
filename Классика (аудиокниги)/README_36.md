@@ -1,3 +1,56 @@
+###  Публикация: 1078111   (300290) от 01.12.2016
+
+Федор Достоевский | Петербургская летопись. Петербургские сновидения в стихах и прозе (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300290.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Петербургская летопись» (1847)
+Тема Петербурга была одной из самых актуальных для молодого автора и не покидала его рассказов до последних дней. В своих фельетонах автор поднимал эту тему не менее остро, чем в своих прозаических сюжетах. Написание рассказов происходит именно в тот период, когда в Достоевском усиливается критическое восприятие действительности. Он (   Читать дальше...   )Жанр: КлассикаПродолжительность: 02:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D1244A774D1503771AD6FB169B1F124DF1E258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077975   (299690) от 01.12.2016
+
+Александр Пушкин | Евгений Онегин (2015) [MP3, Жорж Октавио]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299690.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сей труд забава зимних дней найдёт приют в душе унылой..." Работа завершена, выключен микрофон. Непривычная тишина возвращает в реальность. Окончилось маленькое увлекательное путешествие в мир пушкинских героев 19-го века. Проживая вместе с ними строфу за строфой как будто оставляешь часть себя там. И они всем хором уникальных голосов непременно остаются (   Читать дальше...   )Жанр: Классика, роман в стихахИздательство: Аудиокнига своими рукамиПродолжительность: 04:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E014B8AF9AFF5C9DE547BED756E340B9AB3BD955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077475   (299573) от 01.12.2016
 
 Николай Гоголь | Мертвые души (2013) [MP3]
@@ -6,7 +59,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299573.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297754.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296124.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295594.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_295235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295235.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294258.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288018.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287873.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287556.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284026.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280752.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280338.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279197.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279005.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278926.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278902.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278074.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277989.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276973.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274672.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273733.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273666.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273654.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273366.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E4BA17EB57E55533992A5D9601C4A38C5525579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274584   (272610) от 24.12.2010
-
-Александр Дюма (отец) | Соратники Иегу (1995) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272610.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе «Соратники Иегу», написанным Александром Дюма в 1857 году, изображаются события на рубеже XVIII- XIX веков, последовавшие после Великой Французской революции и по своему содержанию и существу, являются продолжением романа «Белые и синие» написанным в 1867 году.
-Захватывающая интрига «Соратников Иегу» разворачивается на фоне борьбы тайного общества роялистов (   Читать дальше...   )Жанр: Исторический, классика, приключенияПродолжительность: 22:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E041F96475CA9D4B37A001155E995ABC4C6604A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274619   (272602) от 24.12.2010
-
-Александр Дюма | Изабелла Баварская (1994) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272602.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1835 опубликовал первый исторический роман Александра Дюма «Изабелла Баварская» - исторический роман, действие которого разворачивается в переломную для Франции эпоху. Как всегда убедительно и достоверно Дюма описывает драматичные эпизоды Столетней войны и кровавые распри высшей французской знати в конце XIV — начале XV века (под Столетней войной, понимают серию (   Читать дальше...   )Жанр: Исторический, классика, приключенияПродолжительность: 20:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51EB2385B74399D09051C6D581B7980C0EE7344
 ```
 
 https://mybot314.ru/tekegram_catalog/

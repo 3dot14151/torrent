@@ -1,3 +1,29 @@
+###  Публикация: 89864   (247779) от 05.06.2023
+
+Вечный зов (1973 - 1983) DVDRip (сезоны 1-2, серии 1-19 из 19)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247779.jpg" />
+</div>
+
+
+###  Подробнее
+
+История семьи Савельевых, выходцев из далекого сибирского села, разворачивается на фоне исторических событий в России, охватывающих период с 1902 по 1960 годы. На их долю выпали три войны, революция, становление нового строя и все драматические события, которые принес двадцатый век. Жизнь постоянно требует от героев «Вечного зова» выбора между любовью и ненавистью.Производство: СССР / МосфильмЖанр: драмаРежиссер: Владимир Краснопольский, Валерий УсковАктеры: Пётр Вельяминов, Ада Роговцева, Вадим Спиридонов, Тамара Сёмина, Николай Иванов, Иван Лапиков, Владлен Бирюков, Валерий Хлевинский, Ефим Копелян, Андрей МартыновСубтитры: ОтсутствуютПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C090C71BA7E91031D2185CF4416E022F19E618E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562023   (247701) от 08.06.2023
 
 Вечный зов (1973-1983) SATRip [H.264] (сезон 1-2, серии 1-19 из 19)
@@ -6,7 +32,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247701.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247635.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247625.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247366.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247071.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245436.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243576.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243518.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243398.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241959.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237579.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234867.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221485.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218768.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_215839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215839.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215607.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212443.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212291.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210431.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208815.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208659.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208160.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208027.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207800.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207791.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3BC303F8A9353263A928A9A7FB27696EFD94347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562912   (207780) от 18.09.2022
-
-Коломбо / Columbo (7 сезон, полный) (1977-1978) [1080i] 3*Blu-ray
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лейтенант Коломбо — антипод классического детектива: он рассеян и несовременен, со своим одним глазом явно не тянет на красавца, курит дешевые сигары, все время ходит в одном и том же мятом плаще, ездит на разваливающемся «Пежо» и за женщинами не ухлестывает, потому как давно и беспросветно женат.Жанр: драма, криминал, детективРежиссер: Джеймс Фроули, Джонатан Демме, Лео ПеннАктеры: Питер Фальк и др.Перевод: Двухголосый закадровыйСубтитры: Английские, ЯпонскиеПродолжительность: 5х ~ 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EE80950E802F3BC8C61C412E80EE6D76A8B7CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1624042   (255548) от 04.04.2023
+
+Master of Typing 3 - Practice 15.13.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Master of Typing создан для тех, кто хочет научиться печатать вслепую. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 17.03.2023Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB90D7E12676BD6910D170A548F87ECE70D011EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624235   (255509) от 05.04.2023
+
+System Dashboard Pro 1.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255509.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Dashboard Pro — это современная интерпретация системной панели, предлагающая больше информации, чем когда-либо. Приложение было полностью переработано и оптимизировано для новейших операционных систем.Тип издания: macOS SoftwareРелиз состоялся: 04.04.2023Разработчик: Sascha SimonПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D9ADB65E699B50B0AD4CCBA141655A78AE70DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628241   (254920) от 22.04.2023
 
 PDF Expert 3.0.38 [Multi/Ru]
@@ -6,7 +58,7 @@ PDF Expert 3.0.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254920.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Infuse PRO 7.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254912.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ uDock 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254847.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Sketch 96.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254814.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Unclutter 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254812.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Aiseesoft Mac Data Recovery  1.6.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254808.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ SketchUp Pro 2023 v23.0.418 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254733.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ CleanMyMac X 4.13.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254441.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ VMware Fusion Pro 12 v12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250270.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250099.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Nik Complete 5 Collection by DxO v5.0.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250016.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Commander One PRO Pack 3 v3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249998.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ ON1 Portrait AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249945.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ iTubeGo YouTube Downloader Pro 5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249878.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Adobe Substance 3D Painter 8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249728.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ zCommander - File Manager for Mac 6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249656.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Movavi Picverse Photo Editor 1.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249590.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ TotalFinder 1.3.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_249315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249315.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ ForkLift 2.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_248484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248484.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ iA Writer 6.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246030.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Luminar Neo 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246019.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ Affinity Publisher 2 v.2.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245997.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Project Office X Pro 1.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245991.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ EdgeView 2 v2.915 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245982.jpg" />
 </div>
 
 
@@ -627,61 +679,6 @@ EdgeView 2 - это новейший просмотрщик изображени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E2FCAC4B27BC43C8427036C92988EF32E6C035E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607918   (245978) от 28.01.2023
-
-Bootstrap Studio 6.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2023Разработчик: © 2022 Zine EOODПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9420C06052D7DB094CE337F4B0010CBD9A1150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448357   (245972) от 17.02.2021
-
-TwistedWave 24.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простота в использовании, скорость и мощность – отличительные свойства TwistedWave, аудиоредактора для Мас, который отлично подходит для работы в различных областях. Запись, мастеринг, конвертирование файлов и пакетная обработка – основные функции этого инструмента.
-Идеален для записи аудиоклипов с повторным редактированием. С TwistedWave вы сможете с легкостью записывать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: MalavidaПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1043209FBDA337DC9140530792E0F718E78C40
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1498785   (854415) от 28.09.2021
+
+Attila - Outlawed (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Outlawed (2:02)
+ 02/10. Light Me Up (3:04)
+ 03/10. Nothing Left To Say (3:02)
+ 04/10. Another Round (2:38)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C752A3D65689F932C7441798F75F68A5514963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001602   (852197) от 29.03.2016
 
 Jorck - BLACK SUN (2016) [FLAC|Lossless|tracks] <Alternative Rock>
@@ -6,7 +35,7 @@ Jorck - BLACK SUN (2016) [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852197.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ No Doubt - Tragic Kingdom (1995) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851917.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Other Lives - For Their Love (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851837.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jane's Addiction - Nothing's Shocking (1988) remastered, 2012, Audio Fidelity [F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851764.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ U2 - Staring at the Sun (1997) Single, Japanes Edition [FLAC|Lossless|tracks] <E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850471.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Linkin Park - Minutes to Midnight (2007) [FLAC]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849049.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Paloma Faith ‎ - Fall To Grace (2012) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848350.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Paloma Faith - The Architect (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848044.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Asking Alexandria - Stand Up And Scream (2009) [FLAC|Lossless|image + .cue] <Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847675.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Paloma Faith ‎ - A Perfect Contradiction (2014) Deluxe Edition [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846605.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Bootleg Rascal - Asleep In The Machine (2016) [FLAC|Lossless|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841868.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ The Shins - Heartworms (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841535.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Bush - Black And White Rainbows (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839875.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Asking Alexandria - See What's On The Inside (2021) [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839702.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838935.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Awolnation - Run (2015) [FLAC|Lossless] <Alternative Rock, Indie, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838825.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ David Fonseca - Bowie 70 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838421.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Regina Spektor - Soviet Kitsch (2004) [FLAC|Lossless|image + .cue] <Art Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838407.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838083.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Deftones - Gore (2016) [FLAC|tracks|WEB-DL]<Alternative Metal, Post-Metal, Exper
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836770.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836523.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Car Seat Headrest - Making a Door Less Open (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836393.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Temples - Volcano (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835169.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - NOW Alternative Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833177.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Black Rivers - Black Rivers (2015) [FLAC|Lossless]<Pop-Rock, Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831860.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Black Rivers - Black Rivers (2015) [FLAC|Lossless]<Pop-Rock, Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91F389886B06E9F3BE39598910FC616699510F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501810   (830013) от 13.10.2021
-
-Eyes of Eli - Eyes of Eli (2012) [FLAC|Lossless|WEB-DL|tracks] <Metal, Metalcore, Hardcore-Punk, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (2:08)
-2. Fallout (6:12)
-3. Open Up (5:09)
-4. Chruch of the Harlot (5:54)(   Читать дальше...   )Жанр: Metal, Metalcore, Hardcore-Punk, Nu-MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628AF923C332728F9DE4E38AF2BD35AEDE62461E
 ```
 
 https://mybot314.ru/tekegram_catalog/

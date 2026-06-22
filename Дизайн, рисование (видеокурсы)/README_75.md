@@ -6,7 +6,7 @@ Udemy, Aniket Rawat | Creating a Traditional Chinese Room Environment in UE5 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187930.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Domestika, Calder Moore | 3D Toon-Style Environment Art with Arnold (2023) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187926.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5 - Product Animation - Visualization (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187897.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Udemy, Raffi Bedross | Real-time VFX in EmberGen and Unreal Engine 5 (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187882.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187879.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Udemy, Hossein mashayekhi | Complete Unreal Engine 5 Mastery (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187877.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187772.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187765.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187759.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187754.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Designlectures, Ольга Косырева | Коллекционный диз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187721.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187712.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187687.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Domestika, Ruth Wilshaw | Fantasy Landscapes with Watercolor & Gouache (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187680.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Skillbox, Роберт Кубус | 3D-моделирование в ZBrush с �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187611.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Wingfox, Milad Kambari | Hard Surface Modeling Foundation Tutorial (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187586.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187502.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187500.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_187499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187499.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187472.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187467.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187461.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Skillshare, Daniel Kim | Spaceship Concept Art with Affinity Photo and Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187378.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Skillshare, Daniel Kim | Space Marine Helmet - 3D Game Art with Blender and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187369.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187363.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Skillshare, Daniel Kim | Sci-Fi Character Armor with Blender and Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187358.jpg" />
 </div>
 
 

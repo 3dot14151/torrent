@@ -1,3 +1,133 @@
+###  Публикация: 1103153   (886715) от 11.02.2017
+
+Bloody Boobs (2017) [Ru/En] (1.0) License PLAZA
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, вы - молодая девушка с аппетитными формами; а это может означать лишь одно – вы идеальны для… принесения в жертву древнему божеству! Попробуйте выбраться из лабиринта с помощью ваших товарищей, избегайте ловушек и изгоните дьявольское отродье туда, откуда оно пришло.Тип издания: LicenseРазработчик: Eduard BulashovЖанр: Adventure (Horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEAC0FC10E0E734E1D632FBAF7EB940FECE177E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995555   (883811) от 11.03.2016
+
+Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/upd3/dlc) Repack xatab
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883811.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ryse: Son of Rome» рассказывает историю Мариуса Тита, молодого римского солдата, на глазах которого, от рук варваров, погибает вся его семья. После этого, мечтая о мести, он направляется с римской армии к Британии. Быстро добиваясь успехов, Мариус должен стать лидером войска и защитником Империи. Но вскоре он обнаруживает, что его планы по отомщению могут быть реализованы (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: Action (Slasher), 3D, 3d PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A036300DE815BFEECBC7F38BCFAFADF537F0CC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996764   (878512) от 14.03.2016
+
+Global Ops: Commando Libya / Приказано уничтожить: Операция в Ливии (2011) [Ru] (1.1.0.0) Rip =nemos=
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878512.jpg" />
+</div>
+
+
+###  Подробнее
+
+История в игре начинается 21 января 1968 года, когда бомбардировщик B-52G с четырьмя термоядерными бомбами на борту терпит крушение в Арктике, недалеко от авиабазы Thule. Поисковой группе удается обнаружить три бомбы, но четвертая попадает в руки русской мафии. ЦРУ узнает, что босс русской мафии со странной для нашего уха фамилией Yebievdenko намерен продать атомную (   Читать дальше...   )Тип издания: RipРазработчик: Spectral GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91B74C60D9550D557A75C1B0015C2F6D02A18D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373823   (877972) от 07.04.2020
+
+Daemon X Machina (2020) [Multi] (1.0.1/dlc) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Луна обрушилась с небес на землю, человечество попыталось восстановить уничтоженный мир с помощью искусственного интеллекта. Но эта катастрофа оказалась лишь предвестником еще более ужасных событий: Бессмертные, разумные машины зла, перехватили управление ИИ и направили его против бывших хозяев. Надежда на светлое будущее сменилась жестокой битвой за выживание. (   Читать дальше...   )Тип издания: LicenseРазработчик: Marvelous Inc.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78900899E4290E742CF307BE51E15B05732C85EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871928   (876869) от 23.02.2015
+
+Call of Duty World at War (2008) [Ru/En] (1.7.1263) SteamRip Let'sРlay (only 64-bit)
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876869.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1944 году победа союзников уже не вызывает сомнений. Исход войны предрешен, но гитлеровцы и японские солдаты по-прежнему стоят насмерть. Последняя стадия великого противостояния приближается, и игрок окажется в эпицентре событий. Две напряженные и безумно затягивающие кампании пройдут на островах Тихого океана и на растерзанных артиллерией улицах Берлина. На атоллах (   Читать дальше...   )Тип издания: SteamRipРазработчик: TreyarchЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CE6BA1609CEA2264ED415E61E9B876D2B05A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997143   (876567) от 15.03.2016
 
 Mercenaries 2: World in Flames (2008) [Ru] (1.1.0.0) RePack =nemos=
@@ -6,7 +136,7 @@ Mercenaries 2: World in Flames (2008) [Ru] (1.1.0.0) RePack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_876567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876567.jpg" />
 </div>
 
 
@@ -34,7 +164,7 @@ Shadowgrounds (2005) [Ru/En] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875590.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ Sniper Elite V2 (2012) [Ru] (1.13/dlc) Repack Other s [Complete Pack]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_870699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870699.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869504.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869216.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867401.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.00/dlc) Repack Other s [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865913.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ DreadOut (2014) [Ru/Multi] (2.2.11/dlc) Repack R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865538.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ Fear the Dark Unknown (2019) [Ru/Multi] (1.36) Repack Other s [Survival Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865067.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ Hyperdimension Neptunia U: Action Unleashed (2016) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863834.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ X-COM: Enforcer (2001) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863792.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863789.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863672.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ Way of the Samurai 3 (2016) [En/Multi] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860294.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ Phoning Home (2017) [Ru/Multi] (1.0/upd6) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860114.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ Phoning Home (2017) [Ru/Multi] (1.0/upd6) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860097.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ Grand Theft Auto IV (2010) [Ru/Multi] (1.2.0.32/dlc) Repack Other s [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859737.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ Hitman - Game of the Year Edition (2016) [Ru/Multi] (1.16.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859239.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/upd3/dlc) Repack =nemo
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858610.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858115.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ Tomb Raider: Underworld [Ru/En] (RePack / 1.1) 2008 | R.G. REVOLUTiON
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857720.jpg" />
 </div>
 
 
@@ -541,138 +671,6 @@ Tomb Raider: Underworld [Ru/En] (RePack / 1.1) 2008 | R.G. REVOLUTiON
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:517FA3DAE89922127E5D928C9B472DFD1341D667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000663   (856963) от 26.03.2016
-
-DreadOut: Keepers of The Dark (2016) [En] (1.0.1) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы будете помогать Линде, сталкивающейся лицом к лицу с проблемами в мире DreadOut, где стало еще больше опасностей.
-
-Следуйте за событиями, в которых Линда была перенесена в царство зеркал дамой в красном. Портал миров, который подключается к 8 привидениям доминионов, где 13 ужасных призраков готовы приветствовать ее самым ужасным образом. Их ничего не остановит (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital HappinessЖанр: Adventure, Third-person, 3D, HorrorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046A2B131ED202059E1C7EDC0552CD9773D67F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000834   (856817) от 26.03.2016
-
-Tom Clancy's Splinter Cell: Conviction (2010) [Ru] (1.0.4) Repack =nemos=
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты в бегах. За тобой безжалостно охотится правительство, которому ты когда-то служил. Ключ к твоему выживанию – импровизация и адаптация. Удовольствие, которые ты получишь от этой игры, соткано из элементов серии Splinter Cell и новой особенности: полное взаимодействие с окружающей средой.Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: Русский (озвучка любительская от Siberian GRemlin)Язык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBDD83664263A2D411E222106E27A22BAA1D713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376843   (856213) от 19.04.2020
-
-The Evil Within (2014) [Ru/Multi] (1.0/dlc) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от создателя легендарной серии Resident Evil Синдзи Миками и талантливой команды разработчиков Tango Gameworks, The Evil Within - настоящее воплощение жанра Survival Horror. Мир перевернется с ног на голову, увлекая вас в коварное хитросплетение интриг и непрекращающуюся череду кошмаров. Сможете ли вы разорвать порочный круг? Новейшие технологии освещения (   Читать дальше...   )Тип издания: LicenseРазработчик: Tango GameworksЖанр: Экшн, Survival, ХоррорЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E797DFE96143D68B7E09EE04102CFF1CD431FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498721   (853988) от 28.09.2021
-
-Mafia: Definitive Edition (2020) [Ru/En] (Build 7368608/dlc) Repack Other s
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть криминальной саги Mafia — 30-е годы, Лост-Хэвен, Иллинойс. Ремейк культовой игры, воссозданной с нуля. Постройте карьеру мафиози во времена сухого закона. После случайной встречи с мафией таксист Томми Анджело попадает в мир организованной преступности. Сначала он настороженно относится к семье Сальери, но большие деньги меняют его отношение…Тип издания: RepackРазработчик: Hangar 13Жанр: Action (Remake), Adventure, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57E2AE03A2B288ADE3DDBEA05F2BD38C8772717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499459   (847358) от 02.10.2021
-
-Legacy of Kain: Blood Omen 2 (2002) [Multi] (1.0.2hf) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847358.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий оригинальной игры Blood Omen прошло 400 лет. Тогда вампир Каин обрек мир на гибель, решив, что править на его развалинах лучше, чем умирать ради его спасения. И вот теперь Каин, некогда державший весь мир своей стальной хваткой, видит, что все его собратья мертвы, а сам он лишился всех темных сил. Чтобы вернуть себе трон и свершить возмездие, он должен (   Читать дальше...   )Тип издания: LicenseРазработчик: Crystal DynamicsЖанр: Экшн, От третьего лица, ПлатформерЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB908066AA61BCA24FA61E99EF0E3029D67224FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

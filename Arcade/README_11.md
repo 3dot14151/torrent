@@ -1,3 +1,56 @@
+###  Публикация: 1508352   (797387) от 08.11.2021
+
+Garden Paws (2018) [En] (1.5.2e/dlc) License PLAZA [Human Characters]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garden Paws - красивая приключенческая RPG-песочница с видом от третьего лица, где вам предстоит играть за милых, на первый взгляд, зверюшек! Ваши дедушка и бабушка отправились путешествовать по миру и оставили вам в наследство свою ферму, и теперь вам предстоит ухаживать за ней, выращивать фрукты и овощи, а также исследовать темные подземелья в поисках сокровищ!Тип издания: LicenseРазработчик: Bitten Toast Games Inc.Жанр: Песочница, Ролевая, Приключения, Аркада, СимуляторЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E37E9B6DDD5B814433C38EF69434B02816FDF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011010   (797351) от 26.04.2016
+
+My Night Job (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не просто работа, это MY NIGHT JOB!
+Глубокая ночь, заброшенное здание и куча монстров. Звучит недурно. Игрокам придется освоить множество разных видов оружия, чтобы спасти свою шкуру и вывести выживших в безопасное место, попутно обороняя здание от захватчиков. В твоем арсенале более 60 видов оружия – от простой вазы и торшера до цепной пилы, дробовика и громадного (   Читать дальше...   )Тип издания: RepackРазработчик: Webcore GamesЖанр: Arcade, Action, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3442E77FF89854AF7E8073E24B70D614402F6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508335   (797329) от 08.11.2021
 
 Curved Space (2021) [Ru/Multi] (1.0.10.11/dlc) License GOG
@@ -6,7 +59,7 @@ Curved Space (2021) [Ru/Multi] (1.0.10.11/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797329.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Demons with Shotguns (2016) [En] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797292.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Street Fighter V (2016) [Ru/Multi] (3.002/dlc) Repack =nemos= [Arcade Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797252.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Full Metal Furies (2018) [Ru/Multi] (1.0.0-22R) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796786.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Lumini (2015) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796718.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Kill to Collect (2016) [En/Multi] (1.1.0.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796673.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Jet Lancer (2020) [Ru/Multi] (1.0.23) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796489.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Dead or Alive 5: Last Round (2015) [Ru/Multi] (1.10c/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796082.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ Trial by Viking (2016) [En] (1.0.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795895.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ The Collider 2 (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795858.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ LEGO The Hobbit (2014) [Ru/En] (1.0.0.21750) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795761.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ Abyss Odyssey (2014) [Ru/En] (1.14) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795463.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ Human: Fall Flat (2016) [Ru/Multi] (107976214) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795421.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04/dlc) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795401.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ Zombies on a Plane (2016) [Ru/Multi] (1.0 u5/dlc) License 0x0007
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795161.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ LEGO Pirates of the Caribbean / LEGO Пираты Карибского моря 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794774.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ Treasures of the Aegean (2021) [Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794745.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ Hidden Dragon: Legend (2018) [En/Ja/Ch] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794596.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79.d2f5cadd/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794542.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ Apocalypse Hotel (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794419.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Origami [Definitive
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_794343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794343.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ The Lightbringer (2021) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793848.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ My Singing Monsters Playground (2021) [Ru/Multi] (2020.3.20.4310246) License TiN
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793737.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ OK K.O.! Let's Play Heroes (2017) [Ru/Multi] (1.0.0.157) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793700.jpg" />
 </div>
 
 
@@ -616,58 +669,6 @@ OK K.O.! Let's Play Heroes (2017) [Ru/Multi] (1.0.0.157) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFA7F3F21F5BAAE337FC18F311BA043224A0C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509572   (793676) от 13.11.2021
-
-Blightbound (2021) [Ru/Multi] (1.1-128893/dlc) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мира, который мы знали, больше нет. Десятилетие назад великие воины сразили Теневого Колосса после долгой и яростной битвы, но радость их была недолгой. Даже смерть была всего лишь частью его плана: из останков Колосса на окрестные земли хлынула Чума - ужасный туман, обращающий ко злу все, чего он касался.Тип издания: LicenseРазработчик: Ronimo GamesЖанр: RPG, Action, Adventure, PlatformerЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130CDD7EB9EE2B5EB7B1D813F06F6FB676751B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509579   (793675) от 13.11.2021
-
-Orcs Must Die! 3 (2021) [Ru/Multi] (1.1.0.0/dlc) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_793675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Режьте, поджигайте, расплющивайте, испепеляйте, перемалывайте и потрошите огромные орды отвратительных орков в Orcs Must Die! 3. Опробуйте огромный арсенал оружия и ловушек. Режьте, сжигайте, швыряйте и бейте током полчища гнусных орков. Orcs Must Die! 3 - продолжение полюбившейся серии! Игроки будут сражаться с самыми большими орочьими армиями, какие только видел (   Читать дальше...   )Тип издания: LicenseРазработчик: Robot EntertainmentЖанр: Arcade/ActionЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602CCAF7C59BB8B89F009D05C567094D4610BEB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

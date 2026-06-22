@@ -6,7 +6,7 @@ VA - Bravo Hits Vol. 120 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239756.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Bravo Hits 80's (2021) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Di
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239412.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Bravo Hits 80’s Vol.2 (2022) 2CD, Compilation [MP3|320 Kbps] <Synthpop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239374.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239355.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Select Mix Essentials Vol. 193 (2023) [MP3|320 Kbps] <Disco, Synthpop, Rap,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239041.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Acoustic Delight (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238995.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Certified Love Songs (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238795.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Chill Vibes 2023 (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238770.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Mega Hits 2011 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238626.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Mega Hits 2012 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238576.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Disco Modern (2023) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238566.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - 1977 - Best of (2023) [MP3|320 Kbps] <Pop, Dance, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_238505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238505.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Bravo Hits 106 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238324.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238301.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - New Disco House Lights (2023) [MP3|320 Kbps] <Nu Disco, Soulful, Dance, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238293.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - soft pop 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_237787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237787.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lara Fabian - 9 (2005) [OGG Vorbis|540 Kbps] <Pop, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237222.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Soft Rock Sunset Easy Classics (2023) [MP3|320 Kbps] <Pop, Soft Rock, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236862.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ DAKOOKA - СКРЯБІН by Dakooka (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236588.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Spooky & Sue - Spooky & Sue (1974) LP [MP3|320 Kbps] <Funk Soul, Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236416.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Joy Winter [ex. Lime] - Frantic Romantic (1990) [MP3|320 Kbps] <Electronic, Free
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236357.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Celine Dion - The Colour Of My Love (1993) Reissue, 1995, Epic [OGG Vorbis|480 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236324.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Annette Humpe - Solo (серия "Другие восьмидесятые") (199
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235913.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Chicasss - 2 Albums (1989, 1990) Collection [MP3|320 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_235905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235905.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Meri D. - Follow Me (1985) CD [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235697.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Happy Vibes 2023 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235144.jpg" />
 </div>
 
 

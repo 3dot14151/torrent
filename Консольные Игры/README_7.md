@@ -6,7 +6,7 @@ Trilogy Resident Evil 1-3 / Resident Evil 1-3 Best Collection (1997-1999) [PS1] 
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941357.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Metro Redux (2020) [Switch] [USA] 9.1.0 [NSZ] [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940435.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939994.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Prince of Persia: Rival Swords [Wii] [PAL] [Multi 5] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939993.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tennis in the Face (2015) [PS3] [EUR] 4.60+ [OFW] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939849.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Dilogy Dino Crisis 1-2 / Dino Crisis 1-2 Best Collection (1999-2000) [PS1] [NTSC
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939541.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Formula One Championship Edition (2007) [PS3] [EUR] 1.50 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939146.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Despicable Me: The Game (2010) [PS2] [NTSC] PS2 [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_938197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938197.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Soul Calibur IV [XBOX360] [En] [FreeBoot] (2008) | R.G. X360Club
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937985.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Killzone 3 [PS3] [EUR] [RUSSOUND] [3.55] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937822.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Need for Speed Undercover [Wii] [PAL] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937607.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ FIFA Street (2012) [PS3] [EUR] 4.01 [Unofficial] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936798.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Darksiders II (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936753.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Terminator Salvation (2009) [PS3] EUR (3.55) [Unofficial] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936600.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Tom Clancy's Splinter Cell: Double Agent [Wii] [PAL] [Multi 5] (2006)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935798.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Super Monkey Ball Step and Roll [Wii] [PAL] [Multi 5] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935755.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Castle of Illusion: Starring Mickey Mouse HD (2013) [PS3] [USA] 3.41-3.55-4.21+ 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934684.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Gran Turismo 4 Prologue [PS2] [RUS, PAL] (2004)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934262.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Red Faction: Armageddon (2011) [Xbox360] [RegionFree] 12625 [FreeBoot] [License 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933672.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Spider-Man: Web of Shadows (2008) [Xbox360] [RegionFree] 6717 [FreeBoot] [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933531.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ The Raven: Legacy of a Master Thief (2014) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933396.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Family Party: 30 Great Games Outdoor Fun [Wii] [PAL] [Multi 5] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933290.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Let`s Tap [Wii] [PAL] [Multi 3] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933156.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Goat Simulator (2015) [PS3] [USA] 4.21 [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933132.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Darkwatch [PS2] [Full RUS NTSC] (2005)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932761.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Blood Drive (2010) [Xbox360] [PAL / NTSC-U] 8955 [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931871.jpg" />
 </div>
 
 

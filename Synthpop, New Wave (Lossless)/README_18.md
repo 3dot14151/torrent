@@ -1,3 +1,90 @@
+###  Публикация: 959026   (319266) от 23.11.2015
+
+The Cars - Just What I Needed (1995) [FLAC|tracks+.cue]<New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Just What I Needed (3:46)
+02.My Best Friend's Girl (3:46)
+03.Good Times Roll (3:48)
+04.You're All I've Got Tonight (4:16)(   Читать дальше...   )Жанр: New WaveПродолжительность: 02:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC122FCA94398F855AC0B8E0B38699267FE29FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182222   (317061) от 10.11.2017
+
+VA - Sunlover Records Compilation Vol.2 - Maximum Workout (2015) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Space Love Adventure - Power Rush (2:59)
+02. Flash Arnold - The Pump (3:32)
+03. Sellorekt/L.A. Dreams - Feel The Burn (4:56)
+04. Roburai - High Nike Socks (4:13)(   Читать дальше...   )Жанр: Dreamwave, Synthwave, OutrunПродолжительность: 01:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED06719717B1B46DC56BCF697033F0200734338A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259788   (316778) от 05.11.2018
+
+Martini Ranch - Holy Cow (1988) Sire Records [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Pop-Rock, 80s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Deal (4:51)
+ 02. Reach (4:39)
+ 03. World Without Walls (5:14)
+ 04. Fat-Burning Formula (4:11)(   Читать дальше...   )Жанр: Electronic, Synthpop, Pop-Rock, 80sПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C0183B98F22DC5698AC2306B2699172633F9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259839   (316415) от 05.11.2018
 
 Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Pop>
@@ -6,7 +93,7 @@ Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316415.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Space - Magic Fly (1977) 1983, Compilation [FLAC|Lossless|image + .cue] <Electro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316134.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Parralox - Aeronaut (2015) Limited Edition [FLAC|Lossless|image + .cue]<Electrop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314831.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ St. Lucia - Utopia (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314507.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ OFF - Organisation For Fun (1988) [FLAC|tracks+.cue]<EBM, Electro, New Beat, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314385.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Stardance - Stars Challenge (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313651.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Empire Of The Sun - 3 альбома (2008 - 2016) [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309450.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Falco - Nachtflug (1997) [FLAC|tracks+.cue]<Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307811.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Future Waves Vol. I (2017) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307653.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Trevor Something - Ultraparanoia (2018) In Your Brain LLC [FLAC|Lossless|WEB-DL|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307612.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Future City Records Compilation Vol. II (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305520.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Future Waves Vol. II (2017) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305518.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Future City Records Compilation Vol. III (2013) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305517.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Future City Records Compilation Vol. V (2014) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305516.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Future City Records Compilation Vol. VII (2015) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305512.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Future City Records Compilation Vol. VIII (2015) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305510.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Future City Records Compilation Vol. VI (2014) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305405.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Future City Records Compilation Vol. IV (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305404.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Future City Records Compilation Vol. IX (2015) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305402.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Future City Records Compilation Vol. X (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305401.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Future City Records Compilation Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304948.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Silicon Dream - Time Machine (1988) [FLAC|tracks+.cue]<Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301121.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Yuri Sosnin - Space Travel (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301090.jpg" />
 </div>
 
 
@@ -658,90 +745,6 @@ Yuri Sosnin - Space Travel (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0942956DCBEF2C3A4B6FB4854CF114AF4A6EC24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960961   (300926) от 01.12.2015
-
-C.C. Catch - Super 20 (1989) [FLAC|tracks+.cue]<Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Kisses (3:51)
-02. Soul Survivor (3:25)
-03. Cause You Are Young (3:30)
-04. Heaven And Hell (3:43)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:66:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8350A9E78320C331D998607F091FBD5AA3E779A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420758   (297848) от 09.12.2011
-
-Talk Talk - The Very Best Of Talk Talk (Natural History) (1990) [FLAC|Lossless]<Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Synthpop, New WaveПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184983   (296946) от 19.11.2017
-
-Tears For Fears - Rule The World: The Greatest Hits (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Wants to Rule the World (4:12)
- 02. Shout (7" Edit) (4:47)
- 03. I Love You But I'm Lost (4:21)
- 04. Mad World (3:34)(   Читать дальше...   )Жанр: New Wave, Synthpop, Pop RockПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D491E2141CA92894B449DA8454E8325675FDC03B
 ```
 
 https://mybot314.ru/tekegram_catalog/

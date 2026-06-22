@@ -6,7 +6,7 @@ Nommo Ogo - Discography 12 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309804.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ DROELOE - A Matter Of Perspective (2020) Deluxe Anthology [FLAC|Lossless|WEB-DL|
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297741.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ IDK (Daniel Myer) - IDK ONE (2019) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_296817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_296817.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Wychdoktor - Hexen (2015) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Dark Ambien
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273023.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Front Line Assembly - 47 albums (1987-2012) [FLAC|Lossless] <Industrial, Electro
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256223.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Haujobb - 17 albums (1993-2011) [FLAC|Lossless] <Electro-Industrial, Techno, EBM
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_253022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253022.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Diary of Dreams - Dead End Dreams (Chapter 1) (2025) [FLAC 24/44.1|Lossless|WEB-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250425.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Intent:Outtake - Der Stille Tod (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250272.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_249935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249935.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Hocico - HyperViolent (2022) 2xCD [FLAC|Lossless|image + .cue] <EBM, Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245667.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ghosthost - Testament of a Wretched Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243978.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Diary Of Dreams - Melancholin (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Darkwave,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_242733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242733.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ King Satan - Occult Spiritual Anarchy (2022) [FLAC|Lossless|WEB-DL|tracks] <Indu
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242239.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Vosh - Vessel (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Darksynth, Synthpo
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241894.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Cattac - Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241455.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Toxxic Project - Secrets of Planet Helios (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241334.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Smouldering Embers of Aggression - Ghosted (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240651.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Menschdefekt - Empty World (2020) [FLAC|Lossless|image + .cue] <EBM, Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238987.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Degenerated Sequences - Schism (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236837.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Stahlnebel & Black Selket - The Darkest Hour (2021) [FLAC|Lossless|image + .cue]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236689.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Wumpscut (:wumpscut:) - Giftkeks (2023) EP [FLAC|Lossless|image + .cue] <EBM, In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_236611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236611.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Carpenter Brut - Leather Terror (2022) [FLAC|24/44.1|WEB-DL|tracks] <Darksynth, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233872.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Blutengel - Un:Sterblich: Our Souls Will Never Die (2023) [FLAC|Lossless|WEB-DL|
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232922.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ The Body - I Shall Die Here / Earth Triumphant (2023) [FLAC|Lossless|WEB-DL|trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232751.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Any Second - Sünde : Mensch (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231685.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Recite The Cynic - Recite The Cynic (2023) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231101.jpg" />
 </div>
 
 

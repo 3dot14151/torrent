@@ -1,3 +1,89 @@
+###  Публикация: 1440773   (1038017) от 20.01.2021
+
+Марина Кистяева | Девочка для генерала (2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я сбила человека, и теперь мне грозит срок за непреднамеренное убийство.
+
+Но что-то пошло не так… В следственном изоляторе меня едва не изнасиловали. Спасло чудо. Или то, что я до сих пор была невинной? И почему всплыло имя некого Генерала?
+(   Читать дальше...   )Жанр: остросюжетные любовные романы, эротические романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F1E030BF56CA81C8F7F241AE6230DBE62CA8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440779   (1038012) от 20.01.2021
+
+Марина Кистяева | Девочка для генерала 2 (2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильные мира сего…
+
+Кто они?
+(   Читать дальше...   )Жанр: остросюжетные любовные романы, эротические романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8115452CE3FBE48697830B8A3B3506AC1320443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441197   (1037988) от 20.01.2021
+
+Сергей Баранников | Рыжехвост. Помощник мага (2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая книга из цикла "Странствия Рыжехвоста"
+
+Согласившись на участие в рискованном эксперименте ради шанса вернуть себе возможность ходить, студент третьего курса Александр Смородинов становится заложником чудовищной ошибки. Эксперимент с перемещением в параллельный мир проходит не так, как планировалось. Теперь его судьба полностью зависит от чудаковатого (   Читать дальше...   )Жанр: Фэнтези, Приключения, ПопаданствоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04180DA43A109B88E94406640C91F157B22E50FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441171   (1037986) от 20.01.2021
 
 Андрей Иванов | Цикл "Мир Перекрестка" [2 книги] (2019-2020) [FB2]
@@ -6,7 +92,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037986.jpg" />
 </div>
 
 
@@ -34,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037984.jpg" />
 </div>
 
 
@@ -60,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037983.jpg" />
 </div>
 
 
@@ -86,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037979.jpg" />
 </div>
 
 
@@ -112,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037913.jpg" />
 </div>
 
 
@@ -138,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037891.jpg" />
 </div>
 
 
@@ -164,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037726.jpg" />
 </div>
 
 
@@ -190,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037469.jpg" />
 </div>
 
 
@@ -218,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037457.jpg" />
 </div>
 
 
@@ -244,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037456.jpg" />
 </div>
 
 
@@ -272,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037378.jpg" />
 </div>
 
 
@@ -300,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037217.jpg" />
 </div>
 
 
@@ -326,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037209.jpg" />
 </div>
 
 
@@ -352,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037174.jpg" />
 </div>
 
 
@@ -381,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037159.jpg" />
 </div>
 
 
@@ -409,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037086.jpg" />
 </div>
 
 
@@ -435,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036468.jpg" />
 </div>
 
 
@@ -463,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036465.jpg" />
 </div>
 
 
@@ -491,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036459.jpg" />
 </div>
 
 
@@ -520,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036312.jpg" />
 </div>
 
 
@@ -546,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036291.jpg" />
 </div>
 
 
@@ -573,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036263.jpg" />
 </div>
 
 
@@ -601,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036250.jpg" />
 </div>
 
 
@@ -612,86 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:444FFA896EB4446F313DD8D068583297E227A5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441191   (1036018) от 27.01.2021
-
-Агата Грин | Сердце Аксара, или Измена по-королевски (2018-2019) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неделя у меня не задалась: изменил парень, вылетела с работы, наткнулась на ненормального… Однако затейливый тип попался: дал мне пощечину и обвинил в измене. Это я-то изменщица? И про какой-такой другой мир он толкует? Словом, сумасшедший! Или… сумасшедшая я? Иначе как объяснить, что я вдруг перенеслась в роскошный дворец, моя внешность изменилась, а «ненормальный» (   Читать дальше...   )Жанр: любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5047A5EC11D703A26DB1FED73FBAF35B67F9BD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415400   (1035892) от 27.01.2021
-
-Алексей Губарев | «Дорогой Ищущих» [5 книг] (2020-2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: «Дорогой Ищущих». книги 1-5.
-
-Что делать, если в твой мир пришла Игра? Обрадоваться и начинать усилено прокачивать своего персонажа? Создавать кланы? А что, если твой мир- это средневековье, где магия- это норма? И Система, что пришла с Игрой имеет свои планы на твой Дом?Жанр: Боевое фэнтези, ЛитРПГ, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503D148FCD3C254B868ABB756C0A007FE9347B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443156   (1035717) от 28.01.2021
-
-Лена Сокол | Обаятельное чудовище (2020) [EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тим Левицкий – настоящий негодяй, далекий от романтики и привыкший использовать девушек для своих целей. Марта из богатой семьи. Она не нуждается в ухаживаниях, не ведётся на дорогие подарки и терпеть не может подобных ему. Неприязнь с первого взгляда, ненависть с первого поцелуя. Из этой встречи не должно было выйти ничего хорошего, ведь строптивая красотка для (   Читать дальше...   )Жанр: Современные любовные романыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768F353108D7CE24F7AED7B7D9136206170AA17A
 ```
 
 https://mybot314.ru/tekegram_catalog/

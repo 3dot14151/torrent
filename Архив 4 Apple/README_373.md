@@ -1,3 +1,29 @@
+###  Публикация: 1060397   (454822) от 07.10.2016
+
+TG Pro (Temperature Gauge Pro) 2.18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454822.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro (ранее Temperature Gauge Pro) - не просто очередной монитор температуры, а приложение для полного контроля системы охлаждения вашего Macbook (или любого другого Mac), c возможностью тестирования всех встроенных температурных датчиков и автоматическим управлением вентиляторами при превышении установленного предела температуры для компонентов системы. Приложение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE406AA140FB2958BFE3593D2039060A8F3EBBED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060515   (454612) от 07.10.2016
 
 Movist 1.4.1 [Multi/Ru]
@@ -6,7 +32,7 @@ Movist 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454612.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Wondershare Recoverit 9.0.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453774.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Network Radar 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453710.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Jettison 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453708.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ MindNode 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453550.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ DayLite 6.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453539.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ Airmail 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453413.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ DaisyDisk 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453402.jpg" />
 </div>
 
 
@@ -230,7 +256,7 @@ One Chat - All In One Messenger 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453230.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ Tuxera NTFS 2015 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452829.jpg" />
 </div>
 
 
@@ -287,7 +313,7 @@ OS X El Capitan 10.11 (15A284) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452819.jpg" />
 </div>
 
 
@@ -314,7 +340,7 @@ Aurora HDR 2017 v1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452776.jpg" />
 </div>
 
 
@@ -340,7 +366,7 @@ PullTube 0.10.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452716.jpg" />
 </div>
 
 
@@ -369,7 +395,7 @@ Cocktail Sierra Edition 10.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452710.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ Serial Box 09-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452408.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ GrandTotal 6 v6.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451837.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ DoYourData AppUninser Pro 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451834.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ MiniNote Pro 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451833.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Multitouch 1.18.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451832.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Slidepad 1.0.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451825.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Dropzone 4 Pro v4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451705.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Armikrog v. 2.0.0.1 (2015) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451617.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ CleanMyMac 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451354.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Keka 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451212.jpg" />
 </div>
 
 
@@ -671,7 +697,7 @@ Templates for Pages 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451147.jpg" />
 </div>
 
 
@@ -685,35 +711,6 @@ Templates for Pages - красивые и полезные шаблоны для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD5BD06303F92FFC367066D62FE15E348AA38FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163511   (450350) от 05.09.2017
-
-Viscosity 1.7.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viscosity – клиент OpenVPN для Mac
-Viscosity является VPN клиентом для Mac, обеспечивая графический интерфейс пользователя для создания, редактирования и управления VPN соединениями. Viscosity обеспечивает полное решение OpenVPN для Mac OS X и не требует никакого дополнительного программного обеспечения.
-
-Viscosity может подключаться к любому серверу VPN работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 сентября 2017Разработчик: SparkLabsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8C33A4090FCD3554C4D5DC0D20BD434B0062CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

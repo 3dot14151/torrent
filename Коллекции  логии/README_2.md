@@ -1,3 +1,58 @@
+###  Публикация: 168680   (968122) от 22.01.2010
+
+Бэтмен / Batman (1989-2008) BDRip, HDRip [Коллекция]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Триллер Детектив БоевикРежиссер: Кристофер Нолан /Christopher Nolan/В ролях: Кристиан Бэйл /Christian Bale/, Хит Леджер /Heath Ledger/, Аарон Экхарт /Aaron Eckhart/, Майкл Кейн /Michael Caine/, Мэгги Джилленхол /Maggie Gyllenhaal/, Гари Олдман /Gary Oldman/, Морган Фриман /Morgan Freeman/Перевод: Профессиональный (полное дублирование) + Оригинальная звуковая дорожка (отдельным файлом АС3 / 384 Кбит/сек)
+
+ФайлСубтитры: русские, английскиеФормат: AVIПродолжительность: 02:32:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358815   (967015) от 09.02.2020
+
+Халк / Hulk (2003, 2008) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения доктора Роберта Брюса Бэннера, человека, проклятого собственным злом.
+Халк является главным героем телесериала с и телефильмов, где Брюса Бэннера сыграл Билл Биксби, а Халка Луи Ферриньо; мультсериалов 1982, 1996 и 2013 годов, и двух кинофильмов: в первом, 2003 года, роль Брюса Бэннера исполнил Эрик Бана, а в вышедшем в июне 2008 года ремейке его сыграл (   Читать дальше...   )Производство: США / Good Machine, Marvel Enterprises, Universal Pictures, Valhalla Motion PicturesЖанр: Фантастика, Боевик, ТриллерРежиссер: Энг Ли, Луи ЛетерьеАктеры: Эрик Бана, Эдвард Нортон, Дженнифер Коннелли, Сэм Эллиотт, Джош Лукас, Лив Тайлер, Тим Рот, Тим Блейк Нельсон, Ти Баррелл, Уильям ХертПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийСубтитры: русские, английскиеПродолжительность: 02:18:14 / 01:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7683D445550E762FAF85DDDA34D17AC51F36F455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 248310   (966921) от 09.02.2020
 
 Основной инстинкт / Basic Instinct (1992, 2006) BDRip [H.264/720p-LQ] [Дилогия]
@@ -6,7 +61,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966921.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965887.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_960906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960906.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959437.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_957066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957066.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_954248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954248.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953127.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_950678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950678.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_948144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948144.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945500.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943844.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942581.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936738.jpg" />
 </div>
 
 
@@ -346,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935719.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932877.jpg" />
 </div>
 
 
@@ -398,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931168.jpg" />
 </div>
 
 
@@ -424,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931166.jpg" />
 </div>
 
 
@@ -450,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930140.jpg" />
 </div>
 
 
@@ -476,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926676.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926621.jpg" />
 </div>
 
 
@@ -530,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926615.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926611.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923223.jpg" />
 </div>
 
 
@@ -608,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920823.jpg" />
 </div>
 
 
@@ -622,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6BDFDF362A9ECB99F30B0824DE8A17597AC94F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367382   (916813) от 15.03.2020
-
-Убить Билла / Kill Bill: Volume 1 & 2 (2003, 2004) BDRip [H.265/1080p] [10-bit] [Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916813.jpg" />
-</div>
-
-
-###  Подробнее
-
-В беременную наемную убийцу по кличке Черная Мамба во время бракосочетания стреляет человек по имени Билл. Пуля в голове жертвы, кровь на подвенечном платье, темнота… Но голова у Черной Мамбы оказалась крепкой.Производство: США, Япония / Miramax, A Band Apart, Super Cool ManChuЖанр: боевик, триллер, криминалРежиссер: Квентин ТарантиноАктеры: Ума Турман, Люси Лью, Вивика А. Фокс, Джули Дрейфус, Тиаки Курияма, Сонни Тиба, Майкл Боуэн, Дэрил Ханна, Дэвид Кэрредин, Майкл Мэдсен, Майкл Паркс, Амброзия Келли, Джеймс ПарксПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 01:50:43 / 02:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B789C9FC88A4F4CB98475C290CA305E0956EB86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490666   (916726) от 21.08.2021
-
-План побега: Трилогия / Escape Plan: Trilogy (2013-2019) BDRip [H.264/1080p-LQ]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непревзойденный взломщик тюрем Рэй Бреслин опять ввязался в смертельно опасную авантюру: вместе со своей командой он берётся разыскать похищенную дочь своего друга — бизнесмена из Гонконга. Нити расследования приводят к одной из самых секретных тюрем Америки, которая называется «Пункт Дьявола».Производство: Китай, США / Emmett/Furla/Oasis Films (EFO Films), Grindstone Entertainment Group, Leomus PicturesЖанр: Боевик, ТриллерРежиссер: Джеймс Ван, Ли Уоннелл, Адам РобителАктеры: Сильвестр Сталлоне, Дэйв Батиста, 50 Cent, Джейми Кинг, Макс Чжан, Девон Сава, Гарри Шам мл., Расселл Вонг, Дэниэл Бернхард, Лидия ХаллВ ролях: Сильвестр Сталлоне, Арнольд Шварценеггер, Джеймс Кэвизел, Фаран Таир, Сэм Нил, Винни Джонс, Винсент Д’Онофрио, Эми Райан, Мэтт Джералд. Байли Каррен, Джейми Кинг, Уэс Чэтэм, Титус Уэлливер, Джесси Меткалф, 50 Cent, Винсент Янг, Лидия Халл. Макс Чжан, Гарри Шам мл., Девон Сава, Джейми Кинг, Малез Джоу, Расселл ВонгПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:55:35 | 01:33:37 | 01:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFC083206C06C69434DFBE977C843ADD377BF68
 ```
 
 https://mybot314.ru/tekegram_catalog/

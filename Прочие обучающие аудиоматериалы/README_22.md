@@ -1,3 +1,116 @@
+###  Публикация: 580139   (339618) от 26.11.2012
+
+Язык Наш - Поводырь Наш В Рай или Ад [2003] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cобраны труды:
+* Патриарха русской словесности — адмирала Шишкова. Президента Российской академии наук, госсекретаря и министра просвещения, ревнителя церковнославянского языка. Два века назад он открыл важнейшие законы языка, подтверждённые современной наукой. И поныне филологи пользуются его открытиями.
+* Избранные мысли великого педагога — Рачинского, святой жизни мирянина, истинного учёного, всю жизнь посвятившего воспитанию детей простого народа.
+* Победоносцева, обер-прокурора Священного Синода, ангела-хранителя, спасшего Россию от неминуемой гибели прозападного пути развития.
+
+ Время раздачи: по возможностиЖанр: Филология, Лингвистика, Философия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17B64041FE1966777BD2AC2D4970B6239BD9696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579173   (338884) от 26.09.2022
+
+Нил Деграсс Тайсон | Астрофизика с космической скоростью (2021) [MP3, Олег Лобанов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темное вещество, гравитация, возможность межгалактических полетов и Теория Большого взрыва… Изучение тайн Вселенной подобно чтению захватывающего романа. Но только если вы хорошо понимаете физику, знаете, что скрывается за всеми сложными терминами и определениями. В самых головоломных вопросах науки вам поможет разобраться Нил Деграсс Тайсон — один из самых авторитетных (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5270C9C0A30251961B485D693329A2C87EE64E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066986   (337607) от 19.11.2016
+
+Серов Игорь | Супер Интеллект (Действуй быстрее других) (2014) [MP3, PDF, DOCX, JPG]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это комплексный тренинг на развитие памяти и интуиции. Мы будем учиться мыслить образно, задействуя правое полушарие мозга. И как следствие – запоминать всё, что нам нужно помнить и принимать интуитивные решения в повседневной жизни.
+
+В программе 3 блока:
+- Специальными упражнениями запускаем правое полушарие, обретая способность мыслить образами.(   Читать дальше...   )Жанр: Мнемотехники, ИнтуицияФормат: MP3, PDF, DOCX, JPGПродолжительность: 17:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AD8131E0B0EB8CEB7653AE02386DAA9DF5F168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955083   (333340) от 11.11.2015
+
+Иван Чурсин | Скорочтение + Суперпамять (2013) [MP3, DOC, DOCX, JPG]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн-коучинг "Скорочтение" разработан для нескольких категорий людей:
+тех, кто хочет повышение, и нужно прочитать 50-100 книг, несколько сотен статей, и кучу других материалов; тех, кто читает более 1го часа в день, чтобы сэкономить от 10 000 до 60 000 часов в течении жизни, и освободить себе от 1 часа в день дополнительно свободного времени; тех, кто (   Читать дальше...   )Жанр: Скорочтение, МнемотехникиФормат: MP3, DOC, DOCX, JPGПродолжительность: 08:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4E98F227D4F7C83B5EEB0FEC0D3FFDFEF79E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580390   (330799) от 01.10.2022
 
 Маша Ворслав, Адэль Мифтахова | Нормально о косметике. Как разобраться в уходе и макияже и не сойти с ума (2019) [MP3, Маша Ворслав, Адэль Мифтахова, Екатерина Бабаева]
@@ -6,7 +119,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330799.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330410.jpg" />
 </div>
 
 
@@ -58,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_330276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330276.jpg" />
 </div>
 
 
@@ -85,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_328982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328982.jpg" />
 </div>
 
 
@@ -111,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327594.jpg" />
 </div>
 
 
@@ -137,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327363.jpg" />
 </div>
 
 
@@ -164,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_327141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327141.jpg" />
 </div>
 
 
@@ -190,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325580.jpg" />
 </div>
 
 
@@ -216,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323566.jpg" />
 </div>
 
 
@@ -243,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323157.jpg" />
 </div>
 
 
@@ -272,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322180.jpg" />
 </div>
 
 
@@ -303,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321742.jpg" />
 </div>
 
 
@@ -329,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321162.jpg" />
 </div>
 
 
@@ -357,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318647.jpg" />
 </div>
 
 
@@ -384,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314529.jpg" />
 </div>
 
 
@@ -410,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314528.jpg" />
 </div>
 
 
@@ -437,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314356.jpg" />
 </div>
 
 
@@ -463,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313863.jpg" />
 </div>
 
 
@@ -490,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310082.jpg" />
 </div>
 
 
@@ -516,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309675.jpg" />
 </div>
 
 
@@ -542,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308340.jpg" />
 </div>
 
 
@@ -568,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_306737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306737.jpg" />
 </div>
 
 
@@ -579,114 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF248EDD8715CC1113E7891CD9C974FCB3F19762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584526   (305472) от 05.12.2012
-
-Подборка | Самостоятельное изготовление некоторых изделий [2012] [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз содержит материалы о изделиях доступных самостоятельному изготовлению. В их числе:
-- изделия для сада, огорода и дома - мотоблок, мотопила, миникультиватор, мопед, садовые контейнеры, мебель, светильники и т. п.;
-- изделия для любителей вязания и рисования (касательно народной орнаментальной специфики);
-- поделки из бисераЖанр: хобби, позновательное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCFD6D4C9CBD383FF17221F005E54988355D416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077156   (304314) от 29.11.2016
-
-Игнатий Журавлев | Лекции (2014-2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл лекций Игнатия Владимировича Журавлева, большая часть прочитана на факультете психологии МГУ им. Ломоносова.Жанр: Психология, ПсихиатрияПродолжительность: 28:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF4B97CA8182A347B4F0530128A45E9C48057EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077214   (304312) от 29.11.2016
-
-Максим Маршал | Думай животом! Практическая бизнес-интуиция для лидера (2009) [MP3, DOC, PDF, JPG]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте гением интуиции.
-Дорогой друг, мы с вами начинаем практическую работу по пробуждению и развитию врождённой интуиции. Начнём последовательно открывать закрытые дверцы подсознания, чтобы наладить контакт с собой. Если вы будете серьёзно выполнять все упражнения, то гарантирую – интуиция станет вашим верным, незаменимым другом, безошибочно выводящим вас на единственно (   Читать дальше...   )Жанр: Личностный рост, Лидерство, ИнтуицияФормат: MP3, DOC, PDF, JPGПродолжительность: 14:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AA4B90C54609D2A5037FF3FA21AB00A4B08689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077280   (299837) от 01.12.2016
-
-Татьяна Овчаренко и др. | Школа активного горожанина (лекции) (2014-2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс лекций прочитанный Татьяны Иосифовны Овчаренко направленный на ликвидацию безграмотности в сфере жилищной-коммунального хозяйства и информированию о состоянии жилищного фонда. В раздаче присутствуют вебинары.Жанр: лекцияПродолжительность: 49:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC32EDE2921F769DE887B9FA0BEC50D0483EF8D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

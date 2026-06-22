@@ -1,3 +1,29 @@
+###  Публикация: 1396953   (742728) от 18.07.2020
+
+Circlet Princess | Диадема принцессы [2019, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742728.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ближайшем будущем передовая технология AR, известная как система смешанной реальности, получила широкое распространение и представила миру новый вид спорта - Битву Диадем. Битва Диадем особенно популярна среди учениц старших классов, где успешные игроки достигают общенациональной славы. Сасаки Юка только что перешла в Академию Святого Союза, но сможет ли она возродить (   Читать дальше...   )Производство: Silver LinkЖанр: повседневность, боевые искусстваРежиссер: Татибана ХидэкиПеревод: Just_Adik, Zuten, MeLarie, OsEncantos, Jelly_IceЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6B0914CB1760241392F8CFF5EB63EFEBBDBD83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396961   (742702) от 18.07.2020
 
 Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Дух леса [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
@@ -6,7 +32,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742702.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Centaur no Nayami | A Centaur's Life | Хлопоты кентавра | Бес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742691.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Onihei: Sono Otoko, Hasegawa Heizou | Онихэй: Этот человек, Х�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742644.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Akiba's Trip The Animation | Падение Акибы [2017, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742637.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Keppeki Danshi! Aoyama-kun | Clean Freak! Aoyama-kun | Чистюля Аояма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741360.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Rizelmine | Rizerumain | Моя Ризельмина [2002, TV, 24 из 24] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741334.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Onihei | Онихей: Криминальные истории периода Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741301.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Relife | Повторная жизнь [2016, TV, 17 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740633.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Pop Team Epic | Эпическая поп-команда [2018, TV, 12] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740539.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740418.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_740301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740301.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739923.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Mayoi Neko Overrun! / Stray Cats Overrun! / Нашествие бродячих 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739574.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Free! / Free! Iwatobi Swim Club / Вольный! [2013, TV, 12 + 3sp] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739548.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки Буранки [2016, TV, 12 из 12] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739359.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Courtesy of Zettai Karen Children: The Unlimited - Hyoubu Kyousuke | The Unlimit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739221.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739073.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Shinreigari | Shinrei Kari | Ghost Hound | Охота на призраков [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738934.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Kyoukai no Rinne | Rin-ne | Риннэ: Меж двух миров [2015, TV, 75
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738702.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ World Trigger 3rd Season | Импульс мира [ТВ-3] [2021, TV, 14 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738630.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Bubuki Buranki: Hoshi no Kyojin | BBK/BRNK: The Gentle Giants of the Galaxy | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737604.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Sakurada Reset | Sagrada Reset | Переустановка Сакурады [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737594.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Seisen Cerberus: Ryuukoku no Fatalite | Святой воин Цербер: Бе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737587.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Maiko-san Chi no Makanai-san | Kiyo in Kyoto: From the Maiko House | Повар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736764.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ World Trigger | Импульс мира [2014, TV, 73 из 73] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736568.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ World Trigger | Импульс мира [2014, TV, 73 из 73] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F1CE735211D20302809251BE120ADEA50C9B291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398384   (736112) от 25.07.2020
-
-Action Heroine Cheer Fruits | Фруктовые героини [2017, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736112.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из городов Японии стали популярны бои между героинями и злодеями. Отважные девушки яростно сражаются с негодяями, раз за разом одерживая над ними блестящую победу. В какой-то момент популярность подобных битв вышла за пределы этого города и распространилась по всей стране. Сражения со злодеями начали показывать даже на телевизионных шоу. На волне всеобщей (   Читать дальше...   )Производство: Diomedea / ディオメディアЖанр: комедия, повседневностьРежиссер: Кусакава КэйдзоПеревод: OmnikusЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F5BA730A11800E2B987BB228E0A91E819BEF40
 ```
 
 https://mybot314.ru/tekegram_catalog/

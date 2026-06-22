@@ -1,3 +1,29 @@
+###  Публикация: 966996   (214617) от 19.12.2015
+
+Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество нашло дорогу в глубины космоса. Первые смельчаки отправились на поиски неизведанного. Оно нашло их раньше. Романтизм первопроходцев разбился о холодную плоть космоса. И теперь важно только одно: на что ты готов ради спасения? «Dispatcher» – это игра в жанре РПГ-хоррора от первого лица.Тип издания: RepackРазработчик: CivilSavagesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA401A69AAA6C0DBC95A613283913116ACCC75A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653095   (213527) от 19.08.2023
 
 Turbo Overkill (2023) [Ru/Multi] (1.00) Repack Other s
@@ -6,7 +32,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.00) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_213527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213527.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212529.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Heretic + Hexen (2025) [Ru/Multi] (Update 1) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212166.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Relicta (2020) [Ru/Multi] (1.10/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_212143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212143.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Soldier of Fortune II (2): Double Helix (2003) [Multi] (1.03hf) License GOG [Gol
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211299.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ The Hotel (2022) [Ru/Multi] (1.1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211142.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Nightmare Reaper (2019) [En] (2.30) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211081.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ CyClones (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210041.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Exorcism Ritual (2023) [En] (1.0) Scene DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_206601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206601.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ TV189 (2018) [En] (1.0) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_205469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205469.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_205010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205010.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204741.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Skater XL - The Ultimate Skateboarding Game (2020) [En] (1.2.2.5) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204412.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202453.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Hordelord (2025) [Ru/Multi] (16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202394.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Survival & Horror: Hangman's Rope (2023) [Ru/En] (Build 11602258) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202222.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Paint the Town Red (2021) [Ru/Multi] (1.3.4 r5682) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202025.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Gunfire Reborn (2021) [Ru/Multi] (Build 20537927/dlc) Repack Let'sРlay [Bundles
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202009.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_201860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201860.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Battle: Los Angeles – The Videogame (2011) [Ru] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201831.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_199940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199940.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197624.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196917.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Impaler (2022) [Ru/Multi] (1.0.475) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196792.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196740.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F703E21FDEB002476329D36EC0A3CD36BBDB9D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648183   (195301) от 22.07.2023
-
-Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит играть за молодую девушку по имени Сейда, у которой монстры похищают ребенка. Ситуация на планете ужасает: мир умирает из-за неизвестной чумы, люди в панике и полностью пали духом. Живёт только одно поселение на всей Земле. Название говорящее – Последний город (Last City). И в таком депрессивном окружении ещё и дочку утащили адские существа.Тип издания: SceneРазработчик: Duality GamesЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E804F2C4C1D98A78651DC991B314F51D2E060D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

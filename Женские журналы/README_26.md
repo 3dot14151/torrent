@@ -1,3 +1,211 @@
+###  Публикация: 1694977   (120672) от 27.01.2024
+
+Журнал | Лиза №5 (2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120672.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лиза» — самый популярный еженедельный журнал для женщин. Фитнес со звездой и звездный макияж, уроки стиля и самые горячие новости из жизни кумиров. А еще — модный шопинг, актуальная мода, новинки косметики и великолепные идеи для дома. Романтические истории о настоящей любви и рассказы читательниц о разных жизненных ситуациях. Аспекты психологии, секреты успешных (   Читать дальше...   )Жанр: Женский журналИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC94752FF540682B4F2DB0F5E585199817B9479D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694938   (120650) от 27.01.2024
+
+Журнал | Лиза №3 (2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120650.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лиза» — самый популярный еженедельный журнал для женщин. Фитнес со звездой и звездный макияж, уроки стиля и самые горячие новости из жизни кумиров. А еще — модный шопинг, актуальная мода, новинки косметики и великолепные идеи для дома. Романтические истории о настоящей любви и рассказы читательниц о разных жизненных ситуациях. Аспекты психологии, секреты успешных (   Читать дальше...   )Жанр: Женский журналИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19F1B3FD0BDD625BBCE8B7C904A464315DA6A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694973   (120649) от 27.01.2024
+
+Журнал | Лиза №4 (2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120649.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лиза» — самый популярный еженедельный журнал для женщин. Фитнес со звездой и звездный макияж, уроки стиля и самые горячие новости из жизни кумиров. А еще — модный шопинг, актуальная мода, новинки косметики и великолепные идеи для дома. Романтические истории о настоящей любви и рассказы читательниц о разных жизненных ситуациях. Аспекты психологии, секреты успешных (   Читать дальше...   )Жанр: Женский журналИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB04D65AAE7FA594E2267262201974C833C6FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695744   (120141) от 30.01.2024
+
+Журнал | Караван историй №2 (февраль 2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120141.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Караван историй» – ежемесячный журнал, в котором публикуются материалы о ярких личностях, любовных историях знаменитостей, захватывающих приключениях и самых неординарных событиях века. Издание иллюстрируется эксклюзивными фотографиями, часто из личных архивов героев. «Караван историй» – это легкое, интересное и познавательное чтение.Жанр: Женский журналИздательство: АО " Издательство семь дней "Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1398D9266B02E11AC0111636CC7C792E5460F873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702332   (115896) от 24.02.2024
+
+Журнал | burdа style №3 (март 2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. На страницах журнала burda style — самые последние тенденции мировой моды, новости с европейских подиумов, советы по стилю и модные торговые марки. Журнал burda style — это европейская мода высокого класса. Каждый месяц — новая коллекция одежды (   Читать дальше...   )Жанр: Женский журнал, модаИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1A0DE578DE86B2D9597A5F5669D45F12BD2F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703090   (115350) от 27.02.2024
+
+Журнал | Коллекция. Караван историй №2 (февраль 2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Коллекция Караван историй» – это уникальный продукт, открывший принципиально новое медийное направление. Благодаря уникальным автобиографическим романам, принадлежащих перу самых известных и востребованных представителей российского шоу-бизнеса, издание в считанные месяцы завоевало популярность, продемонстрировав беспрецедентные данные по динамике охвата (   Читать дальше...   )Жанр: Женский журналИздательство: АО " Издательство семь дней "Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75A99D06203B55B833337D48B379DDB8712A0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703159   (115192) от 28.02.2024
+
+Журнал | Караван историй №3 (март 2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115192.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Караван историй» – ежемесячный журнал, в котором публикуются материалы о ярких личностях, любовных историях знаменитостей, захватывающих приключениях и самых неординарных событиях века. Издание иллюстрируется эксклюзивными фотографиями, часто из личных архивов героев. «Караван историй» – это легкое, интересное и познавательное чтение.Жанр: Женский журналИздательство: АО " Издательство семь дней "Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1273377E97AEBB60EE6DB0640D2268D766BB85D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706748   (113525) от 14.03.2024
+
+Журнал | Коллекция. Караван историй №3 (март 2024) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Коллекция Караван историй» – это уникальный продукт, открывший принципиально новое медийное направление. Благодаря уникальным автобиографическим романам, принадлежащих перу самых известных и востребованных представителей российского шоу-бизнеса, издание в считанные месяцы завоевало популярность, продемонстрировав беспрецедентные данные по динамике охвата (   Читать дальше...   )Жанр: Женский журналИздательство: АО " Издательство семь дней "Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE813404824F8B1FF221A1D6B09D340E8CB9F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710487   (112685) от 27.03.2024
 
 Журнал | Караван историй №4 (апрель 2024) [PDF]
@@ -6,7 +214,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112685.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87790.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83253.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77714.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76267.jpg" />
 </div>
 
 
@@ -136,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62027.jpg" />
 </div>
 
 
@@ -162,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59494.jpg" />
 </div>
 
 
@@ -188,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57195.jpg" />
 </div>
 
 
@@ -214,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55406.jpg" />
 </div>
 
 
@@ -240,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55402.jpg" />
 </div>
 
 
@@ -266,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_52236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52236.jpg" />
 </div>
 
 
@@ -292,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37947.jpg" />
 </div>
 
 
@@ -318,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37946.jpg" />
 </div>
 
 
@@ -344,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32823.jpg" />
 </div>
 
 
@@ -370,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32814.jpg" />
 </div>
 
 
@@ -396,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29791.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1763011   (27555) от 15.02.2025
+
+Приключения Паддингтона 3 / Paddington in Peru (2024) WEB-DLRip [H.264] [звук с TS]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паддингтон, ставший полноправным членом семьи Браунов и гражданином Великобритании, отправляется в гости к тетушке Люси на свою далекую родину - в Перу.Производство: Великобритания, Франция, Япония, США / Amazon Prime Video, Anton, Canal+ (fr), CinéЖанр: комедия, детектив, приключения, семейныйРежиссер: Дагал УилсонАктеры: Бен Уишоу, Имелда Стонтон, Оливер Молтман, Джоэль Фрай, Робби Ги, Санджив Бхаскар, Бен Миллер, Джессика Хайнс, Мадлен Харрис, Эмили Мортимер, Антонио БандерасПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083D75EFDC46FF124CC7498D55DEF0D4DCDB0A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632545   (27108) от 19.02.2025
+
+Румпельштильцхен / Rumpelstilzchen (2009) SATRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация сказки братьев Гримм.
+ Однажды король услышал от мельника, что его дочь Лиза способна прясть золото из соломы. Государь потребовал девушку во дворец, чтобы убедиться в ее сказочных способностях, но бедная Лиза не могла превратить солому в золото. На помощь ей пришел загадочный карлик, который пообещал раздобыть золотую пряжу, но взамен девушка должна будет (   Читать дальше...   )Производство: Германия / Askania Media Filmproduktion GmbH, Westdeutscher Rundfunk (WDR)Жанр: детектив, семейный, фэнтези, экранизацияРежиссер: Ульрих КёнигАктеры: Готфрид Йон, Юли Энгельбрехт, Кристиан Килинг, Роберт Штадлобер, Алекса Мария Зурхольт, Томас Рудник, Макс Цидек, Вернер Трицшлер, Маркус Шерер, Михаэль БиттингерПеревод: Дублированный (Селена Интернэшнл)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282D353D8D3F38A495C41FDBB8A871CE12862924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781294   (24464) от 16.03.2025
 
 Кольцо фараона / Pertsa & Kilu - Faaraon sormus (2023) WEB-DLRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24464.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23512.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18383.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18297.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14102.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11649.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11153.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11150.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9466.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8282.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7363.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_5714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5714.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2358.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1618.jpg" />
 </div>
 
 

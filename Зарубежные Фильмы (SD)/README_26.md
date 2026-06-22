@@ -1,3 +1,133 @@
+###  Публикация: 1446992   (1032189) от 11.02.2021
+
+Юный детектив (Малыш-детектив) / The Kid Detective (2020) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйбу, известному когда-то ребенку-детективу, теперь 32 года. В перерывах между похмельем и приступами жалости к себе он продолжает браться за примитивные загадки, пока однажды клиентка не просит его расследовать убийство ее парня.Производство: Канада / Woods Entertainment, JoBro Productions & Film FinanceЖанр: Драма, комедия, детективРежиссер: Ивэн МорганАктеры: Адам Броди, Софи Нелисс, Сара Сазерленд, Джесси Ной Груман, Венди Крюсон, Джонатан Уитэйкер, Питер Макнил, Софиа Уэбстер, Даллас ЭдвардсПеревод: Многоголосый профессиональный (Google Play)Язык озвучки: Русский, английскийСубтитры: Русские (Full), украинские (Full), английские (Full)Продолжительность: 01:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD13343B5D0931309FA4FEB10390BD06D65AFF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439106   (1032179) от 11.02.2021
+
+Вирус Андромеда (Штамм Андромеда) / The Andromeda Strain (2008) HDTVRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский спутник падает неподалеку от одного городка в штате Юта, выпуская на свободу смертельный вирус, который убивает всех горожан за исключением двоих - ребенка и старика. Пока военные пытаются изолировать зону бедствия, команда лучших ученых в подземной лаборатории пытается раскрыть загадку смертельного инопланетного вируса, которому присвоено кодовое имя (   Читать дальше...   )Производство: США, Scott Free ProductionsЖанр: Фантастика, Триллер, Драма, ДетективРежиссер: Микаэл СаломонАктеры: Бенджамин Брэтт, Эрик МакКормак, Криста Миллер, Дэниэл Дэ Ким, Виола Дэвис, Луис Феррейра, Бэрри Флэтмэн, Тед Уиттэлл, Тед Атертон, Том МакБетПеревод: Дублированный, многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D024B055ECCE6669B2784AA9D589A0DA0E0254EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446976   (1032173) от 11.02.2021
+
+Пункт назначения. Аквапарк / Aquaslash (2019) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпускники 2018 года собираются оторваться в аквапарке. Кто-то в большой шумной компании употребялет всё, до чего дотягивается, кто-то нарывается на неприятности, у кого-то намечаются романтические отношения, у кого-то расстраиваются, а коварный злоумышленник уже начал кровавую охоту на ничего неподозревающую молодёжь.Производство: Канада / Productions Guérilla (Aquaslash), Blackpills, RockzelineЖанр: УжасыРежиссер: Рено ГотьеАктеры: Николас Фонтейн, Бриттани Дрисделл, Ник Уокер, Мадлен Харви, Пол Зинно, Чип Чуипка, Ховард Розенштейн, Райан Али, Камерон Геллер, Ланиса ДоунПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A355DA0D919A212147C4C7CDFE36927AE4C50400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447124   (1032049) от 12.02.2021
+
+Цветок зла / La fleur du mal / The Flower of Evil (2003) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Члены старинного рода Шапан-Вассер скрывают тайны, способные нанести непоправимый вред их репутации, особенно в преддверии выборов в местные органы власти. Достоянием гласности становится тот факт, что мужчины, принадлежащие этому семейству из поколения в поколение, часто гибли при весьма загадочных обстоятельствах... Может ли вина передаваться, как некоторые болезни, (   Читать дальше...   )Производство: Франция, Canal+ (fr), Conseil Régional d'Aquitaine, France 3 CinémaЖанр: ДрамаРежиссер: Клод ШаброльАктеры: Натали Бай, Бенуа Мажимель, Сюзанн Флон, Бернар Ле Кок, Мелани Дотей, Тома Шаброль, Анри Атталь, Кевин Эхай, Франсуаз Бертен, Жером БертенПеревод: Двуголосый профессиональныйСубтитры: Русские, английские, немецкие - отдельными файламиПродолжительность: 01:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C6B84B6B99EBB69A3225D038F715FDFEF938FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439413   (1032011) от 12.02.2021
+
+Наркокурьер / The Mule (2018) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрл Стоун — одинокий старик. Его частный бизнес находится на грани разорения, отношения с женой не ладятся, а дети, кажется, давно забыли о его существовании. Неожиданно ему предлагают непыльную, но прибыльную работенку — просто водить машину. Стоун соглашается и вскоре обнаруживает, что стал наркокурьером мексиканского картеля.Производство: США, Канада / Warner Bros. Pictures, Bron Creative, Imperative EntertainmentЖанр: Триллер, Драма, КриминалРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Брэдли Купер, Таисса Фармига, Элисон Иствуд, Майкл Пенья, Энди Гарсиа, Лоуренс Фишборн, Дайэнн Уист, Игнасио Серричио, Джилл ФлинтПеревод: Дублированный (BD CEE)Субтитры: ОтсутствуютПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8CAA4EAC1452936FF5F1EC1168C2470F4CB003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620566   (1032000) от 20.03.2023
 
 Бостонский душитель / Boston Strangler (2022) WEBRip [MVO]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032000.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031997.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031990.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031989.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031981.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031976.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031972.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031786.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031759.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031751.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031710.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031537.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031498.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031482.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031474.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031473.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031472.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031468.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031456.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031316.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031118.jpg" />
 </div>
 
 
@@ -538,137 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8D9C10381D85261F5EE5948453BECB8A0437E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448064   (1031103) от 16.02.2021
-
-Тамми и динозавр / Tammy and the T-Rex (1994) BDRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой ученый пересаживает мозг недавно убитого студента колледжа Майкла в тело анимированного динозавра. Чудовище убегает из лаборатории, мстит своим убийцам - студентам и встречается со своей бывшей подружкой Тамми.Производство: США, Greenline Productions, Platinic Films Inc.Жанр: Фантастика, комедияРежиссер: Стюарт РэффилАктеры: Дениз Ричардс, Тео Форсетт, Пол Уокер, Эллен Дубин, Терри Кайзер, Джордж «Бак» Флауэр, Кен Карпентер, Джордж Пилгрим, Шон Уэйлен, Дж. Джей СаундерсПеревод: Авторский (Леонид Володарский)Субтитры: Английские - отдельным файломПродолжительность: 01:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B280E288C734D6C231506D2B30A0FEFA930D523B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440743   (1031090) от 16.02.2021
-
-Дело о пеликанах / The Pelican Brief (1993) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарби Шоу учится на юридическом факультете и параллельно интересуется событиями, происходящими в политической жизни города. Когда ей становится известно об убийстве двух членов Верховного Суда, она приступает к своему собственному расследованию. Помогать ей берутся её друг и журналист местной газеты. Только вот очень быстро все они понимают, что это расследование (   Читать дальше...   )Производство: США / Warner Bros. Pictures Co.Жанр: Триллер, Драма, Криминал, ДетективРежиссер: Алан Дж. ПакулаАктеры: Джулия Робертс, Дензел Вашингтон, Сэм Шепард, Джон Хёрд, Хьюм Кронин, Джеймс Сиккинг, Роберт Калп, Тони Голдуин, Уильям Этертон, Стэнли ТуччиПеревод: Дублированный (Мост-Видео (Лицензия))Субтитры: ОтсутствуютПродолжительность: 02:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015132111080B673B67E4A6DDEB306002D6CC536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440823   (1031086) от 16.02.2021
-
-Перед рассветом / Before Sunrise (1995) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой американец Джесси знакомится в поезде с красивой француженкой Селин. Они сразу находят много общих тем для разговоров, и Джесси уговаривает Селин сойти вместе с ним в Вене, чтобы провести вместе вечер и ночь, так как наутро он должен улететь домой в Штаты.Производство: США, Австрия, Швейцария / Castle Rock Entertainment, Detour Filmproduction, Filmhaus Wien Universa FilmproduktionsЖанр: Мелодрама, ДрамаРежиссер: Ричард ЛинклейтерАктеры: Итан Хоук, Жюли Дельпи, Андреа Экерт, Ханно Пёшль, Карл Брукшвайгер, Текс Рубиновиц, Эрни Мангольд, Доминик Кастелль, Хаймон Мария Буттингер, Харольд ВайглайнПеревод: Многоголосый профессиональный (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3BA5D5915ADC3F2F7785328AB0A43AF062EF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621285   (1031081) от 24.03.2023
-
-Пинбол: Человек, который спас игру / Pinball: The Man Who Saved the Game (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанный на реальных событиях фильм рассказывает о журналисте Роджере Шарпе, большом любителе пинбола. Когда в 1970-х годах игра была запрещена в штате, а полиция уничтожила все пинбол-машины, Шарп объединился с Ассоциацией музыки и развлечений, чтобы добиться отмены запрета. На этом пути он знакомится с художницей Эллен, в которую влюбляется.Производство: США / Choice Films, MPI Original FilmsЖанр: драма, комедияРежиссер: Остин Брагг, Meredith BraggАктеры: Майк Фейст, Кристал Рид, Деннис Буцикарис, Кристофер Конвери, Коннор Рэтлифф, Майк Дойл, Carlos Lopez, Брайан Бэтт, Оливия Кукол, Тодд ЗусманПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EEB9879AAA69C6F1CB352316443705DE34DF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448010   (1031054) от 16.02.2021
-
-Звёздные войны: Последние джедаи / Star Wars: Episode VIII - The Last Jedi (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая история о противостоянии света и тьмы, добра и зла начинается после гибели Хана Соло. В Галактике, где Первый Орден и Сопротивление яростно сражаются друг с другом в войне, героиня Рей пробудила в себе Силу. Но что произойдет, когда она встретится с единственным оставшимся в живых рыцарем-джедаем — Люком Скайуокером?
-Кайло Рен перешел на Темную сторону Силы (   Читать дальше...   )Производство: США / Walt Disney Pictures, Lucasfilm, Bad Robot, Ram Bergman ProductionsЖанр: Фантастика, Боевик, ПриключенияРежиссер: Райан ДжонсонАктеры: Марк Хэмилл, Кэрри Фишер, Адам Драйвер, Дэйзи Ридли, Джон Бойега, Оскар Айзек, Энди Серкис, Лупита Нионго, Донал Глисон, Энтони ДэниелсПеревод: Дублированный (BD EUR)Субтитры: ОтсутствуютПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E87E433F36008CF99577EB2A5BEBBDA5CFB608F
 ```
 
 https://mybot314.ru/tekegram_catalog/

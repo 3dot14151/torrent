@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072051.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052154.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044470.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036415.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028423.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008291.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006361.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005421.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003056.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000778.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996847.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996845.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995455.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995072.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_995029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995029.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994757.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993366.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993311.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987460.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987401.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_986931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986931.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985915.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984277.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982417.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980213.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980162.jpg" />
 </div>
 
 

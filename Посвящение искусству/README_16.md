@@ -1,3 +1,81 @@
+###  Публикация: 1511365   (789308) от 20.11.2021
+
+Мир глазами группы Radiohead / Le monde selon Radiohead (The World According to Radiohead) (2019) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка Radiohead — это 25 лет смешения границ и жанров. Представленный на суд зрителей фильм рассказывает о том, как британские рокеры умеют переосмысливать себя, постоянно оставаясь «на плаву», и как они смогли сохранить творческую оригинальность и независимость. С ранних поп-гранж-релизов Drill и Pablo Honey, через электронику Kid A и струнные аранжировки A Moon (   Читать дальше...   )Производство: Франция, ARTE FRANCE, BridgesЖанр: документальный, биография, музыкаРежиссер: Бенджамин КлавельПеревод: двуголосый профессиональный (Эй Би Видео)Субтитры: отсутствуютПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F90B0FA6198E078E2555F86F2728BA5EC253F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511245   (789233) от 20.11.2021
+
+Вечер с Адель / Adele One Night Only (2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальное мероприятие посвященное выходу нового альбома Адель. В проект вошли интервью певицы, записанное Опрой Уинфри, а также презентация новых песен.Производство: США / CBS Television Network, Fulwell 73, Harpo Productions, Onwards ProductionsЖанр: Документальный, музыкаРежиссер: Пол ДагдейлПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDBC4278C74D3696E54869C79D711579666DA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511408   (788947) от 21.11.2021
+
+Женский гений живописи / The Story of Women and Art (2018) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посетите любой музей. Сливки общества, лучшие художники, пантеон великих мастеров... Однако, нельзя не заметить, как среди них мало женщин. 1700 автопортретов художников и всего 7% из них - женщины! Одно и тоже во всех знаменитых музеях и галереях мира. Женщины - натурщицы, музы, но не художницы!... Почему? Неужели у них меньше таланта? Или дело может быть в старинных (   Читать дальше...   )Производство: Великобритания, Matchlight ProductionsЖанр: документальный, история, искусствоРежиссер: Джон ХоджсонПеревод: одноголосый профессиональный (SDI Media)Субтитры: английскиеПродолжительность: 3x ~00:60:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D891203B25CD701BA36E8A85B7E4465A45499B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511739   (788368) от 22.11.2021
 
 Азнавур глазами Шарля / Le regard de Charles (Aznavour by Charles) (2019) WEB-DLRip
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788368.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787055.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Rolling Stones Ole, Ole, Ole: Турне Rolling Stones по Латинск�
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786334.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786165.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_785597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785597.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_784946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784946.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784880.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783881.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_783762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783762.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783503.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783436.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782939.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782934.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782892.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ U2 at the BBC (U2: Live in London) (2017) HDTV [H.264/1080i]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_782657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782657.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_782122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782122.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_781841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781841.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780772.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780396.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Gimme Danger. История Игги и The Stooges / Gimme Danger (2016) HDTV 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779799.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_779640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779640.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778535.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778497.jpg" />
 </div>
 
 
@@ -591,87 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90F320029EFA63EBB346B2F93BC41F4B210E7202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013193   (777313) от 05.05.2016
-
-По законам своей мечты (1968) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм снят в 1968 году на Ленинградском телевидении.
-Фильм рассказывает о ленинградском композиторе Станиславе Пожлакове.
-В нём звучат песни в исполнении автора, а также Эдуарда Хиля, Марии Кодряну,
-Нины Коста, Анатолия Королёва.Телекомпания: Ленинградское ТВЖанр: ДокументальныйПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8637A799712E30863E8D03AA843619A240730D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013725   (777255) от 05.05.2016
-
-Хичкок (Трюффо) / Hitchcock (Truffaut) (2015) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777255.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1962 году состоялась встреча, определившая судьбу кинематографа. Молодой критик и режиссер французской новой волны Франсуа Трюффо взял серию интервью у своего кумира Альфреда Хичкока. Трюффо был одержим идеей доказать, что Хичкок, многими считавшийся ремесленником, штампующим фильмы «низкого жанра», на самом деле — один из величайших творцов и новаторов, чье филигранное (   Читать дальше...   )Производство: Франция, США, Arte France, Artline Films, Cohen Media GroupЖанр: ДокументальныйРежиссер: Кент ДжонсАктеры: Матьё Амальрик, Уэс Андерсон, Оливье Ассайас, Питер Богданович, Арно Деплешен, Дэвид Финчер, Джеймс Грэй, Киёси Куросава, Ричард Линклейтер, Пол Шредер и др.Перевод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D56FABBD3D906BC6DC2D320075ACBBF5EB96F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013736   (777211) от 05.05.2016
-
-Хичкок (Трюффо) / Hitchcock (Truffaut) (2015) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777211.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1962 году состоялась встреча, определившая судьбу кинематографа. Молодой критик и режиссер французской новой волны Франсуа Трюффо взял серию интервью у своего кумира Альфреда Хичкока. Трюффо был одержим идеей доказать, что Хичкок, многими считавшийся ремесленником, штампующим фильмы «низкого жанра», на самом деле — один из величайших творцов и новаторов, чье филигранное (   Читать дальше...   )Производство: Франция, США, Arte France, Artline Films, Cohen Media GroupЖанр: ДокументальныйРежиссер: Кент ДжонсАктеры: Матьё Амальрик, Уэс Андерсон, Оливье Ассайас, Питер Богданович, Арно Деплешен, Дэвид Финчер, Джеймс Грэй, Киёси Куросава, Ричард Линклейтер, Пол Шредер и др.Перевод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769947D3C652415CCE55489AB8405F83A6FDD72A
 ```
 
 https://mybot314.ru/tekegram_catalog/

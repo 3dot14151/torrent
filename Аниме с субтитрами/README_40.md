@@ -1,3 +1,29 @@
+###  Публикация: 1202423   (790531) от 28.01.2018
+
+Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганвольт [2017, ONA, 1 ep.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790531.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ближайшем будущем появились люди со спецспособностями, называемые Семёрки. Япония благополучно живёт под контролем корпорации Сумераги, которая втайне занимается поиском и отловом Семёрок, для проведения над ними различных экспериментов. Злобной корпорации противостоит небольшая группа, называющаяся Перья. К этой группе и примыкает главный герой овашки Ганвольт.Производство: студия LandQ Studios / ランドック・スタジオЖанр: приключенияРежиссер: Одака ЁсинориПеревод: extvolЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E300F67D7362295A65C24313E8A0B6D184AB841A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202363   (790499) от 28.01.2018
 
 Anime-Gataris | Истории об аниме [2017, TV, 12 из 12] BDRip 1080p raw
@@ -6,7 +32,7 @@ Anime-Gataris | Истории об аниме [2017, TV, 12 из 12] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790499.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tales of Zestiria The Cross | Tales of Zestiria The X | Сказания Зес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790425.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Lostorage Incited WIXOSS | Беспамятство: Побуждение WIXOSS
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789876.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Spirit of Wonder: China-san Tanpenshuu | Spirit of Wonder: China-san Short Stori
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789468.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Iriya no Sora, UFO no Natsu / Sky of Iriya, Summer of UFO / Небо Ирии, �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789142.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788995.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Peter Pan no Bouken | Adventures of Peter Pan | Приключения Пите�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788969.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788462.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787556.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Hitori Kurashi no Shougakusei | Одиноко живущая младшекла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787532.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_787306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787306.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786723.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786664.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786656.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786542.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Garo: Guren no Tsuki | Garo: Crimson Moon | Гаро: Кровавая луна 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786459.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Gabriel DropOut / Габриэль бросает школу [2017, TV, 12 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786420.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ World Trigger | Импульс мира [2014, TV, 73] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786419.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Yami Shibai / Театр тьмы [ТВ-4] [2017, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786297.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Garo: Divine Flame | Гаро: Священное пламя [2016, MV] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786294.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Yami Shibai / Театр тьмы [ТВ-3] [2016, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786107.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Yami Shibai / Театр тьмы [ТВ-2] [2014, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786090.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786088.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Accel World: Infinite Burst | Ускоренный мир: Бесконечно�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786080.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Dream Hunter Rem / New Dream Hunter Rem / Рэм, ловец снов [1985-1992
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786079.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Dream Hunter Rem / New Dream Hunter Rem / Рэм, ловец снов [1985-1992
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBEE47230D8EBBEF7257949DD857A1D37CB074B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796295   (786060) от 09.04.2017
-
-Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BDrip 720p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_786060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протагонист прибывает на остров Тацуми, где поступает в новую школу и поселяется в общежитие. И тут же начинаются всякие странности: свет по пути от станции метро до общежития отключается, Луна начинает источать странный зелёный свет, улицы заливаются кровью, а все окружающие его люди принимают вид гробов. Спустя некоторое время герой узнаёт про так называемый «Тёмный (   Читать дальше...   )Жанр: боевикРежиссер: Акитая Нориаки (1), Тагути Томохиса (2 и 4), Мотонага Кэйтаро (3)Перевод: 1) I.D.A., 2) DameDesuYoЯзык озвучки: ЯпонскийЯзык субтитров: 1) Русский, 2) АнглийскийПродолжительность: 4 фильма по ~100 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F226046CA731EBB21C8EBFAB669337BDE2835F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

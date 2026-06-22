@@ -1,3 +1,90 @@
+###  Публикация: 1034775   (632514) от 14.07.2016
+
+VA - Deep Space Night Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aashya - Deep Space Night Sofa Session
+02. Tim Engelhardt - Watching Swans
+03. Riccicomoto - La Nuit
+04. Nadja Lind - Ignore & Block (Terry Lee Brown Jr. dub)(   Читать дальше...   )Жанр: Deep House, Chill House, MinimalПродолжительность: 04:38.05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC16C72966FB22D85A6748A370B34713CE274F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035013   (632501) от 14.07.2016
+
+Ryan Elliott - Fabric 88 (2016) [FLAC|Lossless|tracks] <Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Cheetah - Water Maze
+02. Borrowed Identity - LFI
+03. Wincent Kunth - Unknown Deep
+04. Black Boxx - Black Boxx EP2 (B1)(   Читать дальше...   )Жанр: Progressive House TechnoПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75AD85F7D21D48712B7587F18A18EF0EFDD05CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034931   (632358) от 14.07.2016
+
+Moby - Music From Porcelain (2016) [FLAC|Lossless|tracks+.cue] <Techno, Trance, Acid House, Ambient, D&B, etc.>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raze – Break 4 Luv (05:24)
+02. 808 State – Pacific State (05:46)
+03. A Tribe Called Quest – Scenario (04:10)
+04. Precious – Definition Of A Track (05:21)(   Читать дальше...   )Тип издания: CD, Compilation •Жанр: Techno, Trance, Acid House, Ambient, D&B, etc. •Продолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BADFCE240C7DD88F3755632FCCCA7632930D519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228842   (631498) от 03.06.2018
 
 Tawbaq - Discography 21 Releases (2012-2017) Hypnotic Landscapes [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Ambient>
@@ -6,7 +93,7 @@ Tawbaq - Discography 21 Releases (2012-2017) Hypnotic Landscapes [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631498.jpg" />
 </div>
 
 
@@ -34,7 +121,7 @@ VA - Deep Vibes - Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630424.jpg" />
 </div>
 
 
@@ -63,7 +150,7 @@ VA - Solee - 10 Years Parquet Recordings (2016) Parquet Recordings [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629994.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629985.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Flava D - Fabriclive 88 (2016) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628614.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ VA - Mollono.Bass Remix Collection 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628608.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ VA - Project STS-31 - Spiralgalaxie (Hubble Telescope Series Vol. III) (2016) So
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628489.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ VA - Solomun Pres: Selected Remixes (2009-2015) - 2016 [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628175.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Irazu & Regis - Shtamm (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627760.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627754.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627748.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627744.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627742.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627613.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Imperfect - Flow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro, Breaks, IDM, Syn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627320.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ WillowMan - Away (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626717.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Oliver Schories - Relatively Definitely (2016) [FLAC|Lossless|WEB-DL|tracks] <De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626703.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Benny Benassi - Danceaholic (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626519.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Oud!n13 - Cosmic Light (2014) [FLAC|Lossless|WEB-DL]<Dub Techno, Drum & Bass, Br
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626283.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ VA - THEOTHERSIDE | THƎOTHƎRSIDƎ (2018) Metempsychosis Records [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626268.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ VA - Ostentatious Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625937.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ VA - Sonar 2017/Take Your Way 01 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625930.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623685.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:482AC2E464B8CECFA15547436BDA8BF2DB88F902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035975   (622819) от 19.07.2016
-
-VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Budakid - No Human Is Illegal (Original Mix)
-02-D-Nox, Santiago Franch - Skyfall (Original Mix)
-03-Happy Gutenberg, Elektromekanik - Atlantis (Original Mix)
-04-Artsever - Calm (Original Mix)(   Читать дальше...   )Жанр: Deep House, Tech House, ElectronicaПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66864478C35D2C8809CFA3D36AAE96F8E70E5F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295199   (622486) от 11.04.2019
-
-Above & Beyond - Common Ground Companion (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying By Candlelight (5:48)
- 02. Distorted Truth (4:13)
- 03. Flying By Candlelight (Above & Beyond Club Mix) (4:03)
- 04. There's Only You (Above & Beyond Club Mix) (4:08)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1856575909CD0FEE5FD5E11B60A3787033DE3292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229747   (622264) от 08.06.2018
-
-GROUND a.k.a Gr◯un土 - WAKUSEI -惑星- (2018) Chill Mountain Rec [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Abstract>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WAKUSEI -α- (07:39)
- 02. WAKUSEI -β- (07:50)
- 03. WAKUSEI -γ- (09:25)
- 04. WAKUSEI -2095- (15:39)(   Читать дальше...   )Жанр: Experimental, Techno, AbstractПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C69728E8F9F59EEEA99EB832F63F061C6C3298
 ```
 
 https://mybot314.ru/tekegram_catalog/

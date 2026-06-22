@@ -1,3 +1,29 @@
+###  Публикация: 246197   (590810) от 08.07.2015
+
+Angel Beats! / Ангельские ритмы! [2010, TV, 13ep + 3sp] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не зря говорят, что японская школьная система – самая тяжелая и суровая. Ибо очнулся парень по фамилии Отонаси (имя он забыл) на том свете – а там снова школа! Вот только, несмотря на красивую обертку, школа эта больше походит на исправительную колонию для тех, кто слишком рано покинул бренный мир и не успел (или не захотел) познать правила и законы «реального общества». (   Читать дальше...   )Жанр: приключения, мистика, комедия, драмаРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9F9A459C20A7921A2D898DEAD30EB40F4E6A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551148   (590669) от 14.05.2022
 
 Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Магия святой всемогуща [ТВ-1] [2021, TV, 12 из 12] BDRip 1080p raw
@@ -6,7 +32,7 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Маг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590669.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 эп. + 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590285.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Gekijouban Fate/Kaleid Liner Prisma Illya Licht: Namae no Nai Shoujo | Судь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588967.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu Omega | How Not to Summon a Demon
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588914.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Higurashi no Naku Koro ni: Sotsu | Higurashi: When They Cry - Sotsu | Когда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588845.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588839.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Memories Off 3.5 | Omoide no Kanata e | Inori no Todoku Toki | Забыть пр
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588638.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Chivas 1-2-3 | Sorcerer on the Rocks | Чародей на мели [1999, OVA, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_588628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588628.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi | Ателье Эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587722.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Shouwa Genroku Rakugo Shinjuu / Сквозь эпохи: Узы рокуго / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587053.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Angel Beats! / Ангельские ритмы! (2010, 13 +2 sp) BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586873.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Danna ga Nani o Itteiruka Wakaranai Ken 2 Sureme / Я своего мужа со
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586634.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585097.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Xenosaga The Animation | Ксеносага [2005, TV, 12 эп.] DVDRip 480p Hi1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584722.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Saint Seiya: Legend of Sanctuary | Рыцари Зодиака (фильм ше�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584662.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ NieA_7 | NieA Under 7 / Ния под_семёркой [2000, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584417.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Sarusuberi: Miss Hokusai / Дочь Хокусая [2015, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584329.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Appleseed XIII | Яблочное зернышко OVA-2 [2011, OVA, 13 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584302.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Selector Infected WIXOSS | Селектор: Заражение WIXOSS [ТВ-1][
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584210.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Kaginado | Key и всякое | Кагинадо [ТВ-1] [2021, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583758.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Mahouka Koukou no Rettousei / Mahouka / The Irregular at Magic High School / Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583627.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Tenkuu no Shiro Laputa / Laputa: The Castle in the Sky / Небесный зам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582520.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_581130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581130.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580266.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580207.jpg" />
 </div>
 
 
@@ -653,35 +679,6 @@ Koyomimonogatari — очередная часть цикла «Легенд» �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD225EDE9808201FEBE3C470C3D9C048ECD5FEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551059   (579949) от 28.05.2022
-
-Slow Loop | Медленная петля [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелюдимая и замкнувшаяся в себе после смерти отца Хиёри и жизнерадостная и общительная Кохару встретились у моря. Казалось, ничто не должно объединять девушек, однако выясняется, что они скоро станут сводными сёстрами.
-И это станет началом заветных воспоминаний, которые они обе будут переживать, укрепляя свои сестринские отношения и ловя рыбу.
-
-Очень милый сёдзё-сериал, (   Читать дальше...   )Производство: Студия ConnectЖанр: повседневностьРежиссер: Акитая НориакиПеревод: 1-9 Wakanim (оформление, лирика  - мои), 10-12 пришлось самостоятельно делать с ансаба.Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC5583D8F9F362D90D783C5900C2B833500FF95
 ```
 
 https://mybot314.ru/tekegram_catalog/

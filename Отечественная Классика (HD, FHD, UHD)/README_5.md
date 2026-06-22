@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854102.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852126.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849812.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848325.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843915.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842451.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842369.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841071.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833781.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_830261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830261.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828104.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_827067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827067.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826429.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_822095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822095.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818581.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816938.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814810.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809594.jpg" />
 </div>
 
 
@@ -474,6 +474,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658350   (804886) от 20.05.2013
+
+Операция «Ы» и другие приключения Шурика (1965) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_804886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм состоит из трех новелл, объединенных фигурой главного героя Шурика, попадающего в самые невероятные ситуации. В «Напарнике» Шурик сражается с хулиганом Верзилой; в «Наваждении» весьма оригинальным способом готовится к экзамену; в «Операции «Ы» предотвращает «ограбление века», на которое идет знаменитая тройка - Балбес, Трус и Бывалый.Производство: СССР / МосфильмЖанр: комедия, мелодрама, криминалРежиссер: Леонид ГайдайАктеры: Александр Демьяненко, Наталья Селезнёва, Алексей Смирнов, Юрий Никулин, Евгений Моргунов, Георгий Вицин, Михаил Пуговкин, Виктор Павлов, Владимир Басов, Рина ЗелёнаяСубтитры: ОтсутствуютПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3120DA6A786295E0A2FED437C6F054CABF196B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197544   (801498) от 15.01.2018
 
 Служили два товарища (1968) WEB-DLRip [H.264/720p]
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801498.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799816.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_798584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798584.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797898.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_797182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797182.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792800.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789456.jpg" />
 </div>
 
 
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54FAE9462FF2E836C4BDAA4DB77B24C3CCDEBEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203335   (788009) от 02.02.2018
-
-Звезда пленительного счастья (1975) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_788009.jpg" />
-</div>
-
-
-###  Подробнее
-
-В большей своей части фильм посвящён подвигу жён декабристов, последовавших в ссылку за своими мужьями. В качестве названия взята строка из стихотворения Александра Пушкина «К Чаадаеву».
-В 1823 году император Александр I составил секретный манифест, согласно которому Великий князь Константин Павлович, брат императора, который должен был наследовать трон в случае (   Читать дальше...   )Производство: СССР, киностудия: «Ленфильм».Жанр: Исторический, ДрамаРежиссер: Владимир МотыльАктеры: Ирина Купченко, Алексей Баталов, Наталья Бондарчук, Олег Стриженов, Эва Шикульска, Игорь Костолевский, Раиса Куркина, Татьяна Панкова, Олег Янковский, Татьяна ФедороваПродолжительность: 02:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0F0C486716F268E847405F03FC0E6F0CE7C81F
 ```
 
 https://mybot314.ru/tekegram_catalog/

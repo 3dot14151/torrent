@@ -1,3 +1,31 @@
+###  Публикация: 1439349   (1014749) от 22.05.2021
+
+Photographer's companion v1.9.0 Pro [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение поможет вам отказаться от автоматического режима работы ваших камер, который не все делает и все контролирует. Для более опытных фотографов он может упростить настройки, выполнив расчеты за вас.
+
+В любом случае, это не волшебное приложение для создания красивых фотографий каждый раз, но оно позволит вам найти базовую настройку, которую нужно улучшить, (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 20 мая 2021 г.Разработчик: Stef SoftwareПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB1D977B9232333AF509A7064FB1CC49560182B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200686   (1014723) от 22.05.2021
 
 Geometryx: Геометрия - Расчёты и формулы v3.1 [Ru/Multi] (обновляемая)
@@ -6,7 +34,7 @@ Geometryx: Геометрия - Расчёты и формулы v3.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014723.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Hotspot Shield Free VPN v8.7.0 Elite [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014712.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Audiomack v6.4.0 [Ru/Multi] - скачайте музыку для оффлай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014499.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Launcher 10 - Лаунчер стилизованный под Windows 2.7.31 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014419.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014313.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ txtpad+ 3.1.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014208.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ TonalEnergy Tuner and Metronome v1.9.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014197.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ chomp SMS 8.39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014191.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ Material Status Bar 10.23 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014177.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ Amber Weather (Янтарная погода) 4.7.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014172.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013981.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013966.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013808.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013456.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012985.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012689.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ BirdNerd v1.0.9b [Ru/En] - Определение птицы по голосу (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012545.jpg" />
 </div>
 
 
@@ -460,7 +488,7 @@ Launcher iOS 14 3.9.3 Mod by vovamen24 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012207.jpg" />
 </div>
 
 
@@ -486,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012112.jpg" />
 </div>
 
 
@@ -512,7 +540,7 @@ Total Launcher 2.8.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012087.jpg" />
 </div>
 
 
@@ -538,7 +566,7 @@ neXt Launcher 3D 3.7.3.2 Mod by Balatan, chathu_ac, Сіtrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012054.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ Ratio - The Productivity Launcher 4.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011965.jpg" />
 </div>
 
 
@@ -590,7 +618,7 @@ Wide Launcher - 3X Wider Home Screen 1.6.41 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011951.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ Leanback on Fire 1.48 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011934.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ My Android Tools 1.6.8 Free / 1.6.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011919.jpg" />
 </div>
 
 
@@ -654,35 +682,6 @@ My Android Tools. Приложение от разработчика небез�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C447C24DBCDC7CFBC59BBC6835C87B1C6A543AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162001   (1011733) от 10.06.2021
-
-Доктор Комаровский v3.0 (61) [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Комаровский - приложение для мобильных устройств на базе Android, которое представляет собой сборник из шести замечательных книг известного детского врача Евгения Олеговича Комаровского:
-- Здоровье ребенка
-- ОРЗ
-- Справочник(   Читать дальше...   )Тип издания: Пиратка (куплен платный контент)Релиз состоялся: 03.06.2021Разработчик: LLC KLINIKOMПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB00061F4941F725AD3B0B81A6A504078E5650E
 ```
 
 https://mybot314.ru/tekegram_catalog/

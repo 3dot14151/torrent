@@ -1,3 +1,29 @@
+###  Публикация: 1010373   (803417) от 24.04.2016
+
+Uchuu Senkan Yamato 2199: Hoshi-Meguru Hakobune | Odyssey of the Celestial Ark | Космический линкор Ямато 2199: Одиссея небесного ковчега [2014, Movie] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803417.jpg" />
+</div>
+
+
+###  Подробнее
+
+2199 год. Космический линкор Ямато покидает планету Искандер выкрав на ней устройство необходимое для спасения Земли. Но на половине пути их перехватывает боевой линкор Гатлантиса, под командованием Горана Дагума. Свирепый командующий требует немедленной сдачи экипажа. Обременённые возложенной на них миссией земляне, вынуждены искать выход из столь опасной ситуации. (   Читать дальше...   )Производство: студия XebecЖанр: приключения, фантастикаРежиссер: Bessho Makoto, Izubuchi YutakaПеревод: TargonЯзык субтитров: #1: Английский; #2: Японский; #3: РусскийПродолжительность: 1 эп. по 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1802631D54E99A01232724C065F30208DB50C12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095111   (803080) от 30.03.2017
 
 Касающиеся руками | Hand Shakers [2017, TV, 12 эп.] WEBrip 720p raw
@@ -6,7 +32,7 @@
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803080.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Piace: Watashi no Italian / Пьячэволе: Моя итальянская к
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803078.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ One Room / Одна комната [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803014.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Heroman | Хиромен [2010, TV, 26 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802735.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, ТВ, 25] HDTV 720p 10bit r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802361.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Charlotte | Шарлотта [2015, TV, 14 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801926.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801805.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Gintama. / Гинтама [ТВ-5] [2017, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801791.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801624.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Hi Score Girl | High Score Girl | Девчонка не промах [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801601.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801537.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Onigiri | Онигири [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801234.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Koukaku no Pandora: Ghost Urn | Pandora in the Crimson Shell: Ghost Urn | Дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801168.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Monster Strike / Монстр Страйк [2015, TV, 51 + 2 SP] WEBRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801132.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Marginal #4 Kiss kara Tsukuru Big Bang / Маргинал №4 [2017, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801121.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801048.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800919.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Kitsune no Koe | Voice of Fox | Голос лисицы [2018, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800566.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Golden Kamuy | Золотой Камуй | Золотое божество [TB-1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800535.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Yuyushiki: Komarasetari, Komarasaretari / Формула жизни OVA [2017, O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800507.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800336.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Ai Mai Mii: Surgical Friends / Ай Май Ми - 3 [2017, TV, 12] WEB-DLRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800317.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Ichigo Marshmallow | Strawberry Marshmallow | Клубничный зефир [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800285.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Kanamemo | Записки Каны [2009, TV, 13 эп.] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800277.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Itsudatte My Santa! | Навсегда мой Санта [2005, OVA, 2 эп.] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800210.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Itsudatte My Santa! | Навсегда мой Санта [2005, OVA, 2 эп.] DV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769F3A88F317E12783EB812F1B6F88280CA8E44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092754   (800151) от 02.04.2017
-
-ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Департамент инспекции 13 районов [2017, TV, 12 из 12] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_800151.jpg" />
-</div>
-
-
-###  Подробнее
-
-События происходят в королевстве Дова, монарх которого недавно отпраздновал своё 99-летие. Мы оказываемся в мире, разделённом на 13 регионов. АККА – это крупная и могущественная организация, контролирующая все основные государственные структуры, включая такие как полиция, пожарная служба и медицинские учреждения. АККА отслеживает правильность работы всех структур (   Читать дальше...   )Производство: Япония / Madhouse Studios / マッドハウスЖанр: приключения, повседневность, сэйнэнРежиссер: Нацумэ Синго / Natsume Shingo / 夏目真悟Язык субтитров: Русский (отключаемый)Продолжительность: ТВ, 12 серий, по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016147B0BCD324793B08D0A45D6A17C4F21F4867
 ```
 
 https://mybot314.ru/tekegram_catalog/

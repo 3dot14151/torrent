@@ -6,7 +6,7 @@ Grant Warwick | Hard Surface Modeling Lessons 1 - 14 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751456.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747760.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Gumroad, Josh Gambrell and Ponte Ryuurui | The ULTIMATE Guide to Hard Ops and Bo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747633.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Udemy, Scott Harris | Character Art School: Complete Coloring and Painting Cours
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746153.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745940.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745073.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Patreon, YanSculpts| Character Sculpt in Blender [Packages 22-25] (2019-2020) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_744782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744782.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Pluralsight, Chidi Mbadugha | 3ds Max Graphite Modeling Tools Fundamentals (2017
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743427.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Knower school, Дмитрий Смирнов | Создание 3D график�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741892.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Allan McKay | FX Technical Director Transformation Module 16 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_741261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741261.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ CtrlPaint.com | 3D for illustrators. 3D Paintover Starter Kit (2016) PCRec [H.26
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739956.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Skillshare, Nexttut | Blender 3.0 Modelling for Beginners (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738665.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Wingfox Studio, Changming Wang | Ultimate Illustration Course Coloring and Light
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738660.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Wingfox Studio, Wingfox | Character Painting in Photoshop (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738651.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Scott Eaton | Digital Figure Sculpture (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738348.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ ART School, Marc Brunet | ART School for digital artists (2021) WEB-DL [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738301.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ FlippedNormals, Emiel Sleegers | Hero Prop Creation in Blender & Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738003.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Wingfox, Fish man ( Yu Ing ) | Level Up Your Digital Painting Skills: Beginner t
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737969.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Udemy, Austin Batchelor | The Digital Painting MEGA Course Beginner to Advanced 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737767.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Cubebrush, Marc Brunet | Faster Illustration Techniques (2017) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737729.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Udemy, Austin Batchelor, Stephen Sorensen | The Digital Painting Mega Course: Be
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737722.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Digital Tutors, Tanya Wiesner | Automating Tasks Using MAXScript in 3ds Max (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737297.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Digital Tutors, Eddie Russell | Map Baking Techniques for Games in Maya (2015) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737287.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Udemy, Nikolay Naydenov | Making a Cartoon Character in Zbrush (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736772.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736325.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Udemy, Nikolay Naydenov | Super Human Anatomy for Artists Course (2021) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736287.jpg" />
 </div>
 
 

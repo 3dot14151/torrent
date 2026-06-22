@@ -6,7 +6,7 @@ Tony Paul - Smoke In My Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33128.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Imagine If - Great Expectations (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33123.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Derek Caruso & the Blues Fuse - To Memphis & Back (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_32298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32298.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ KAT Blue & The True Believers - START BELIEVIN' (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31702.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Luxury Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31005.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Taj Mahal - 39 Albums, 2 Box Set (1968 - 2024) 62 CD [FLAC|Lossless|tracks + .cu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27803.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Shemekia Copeland - 11 Albums (1998 - 2024) [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27562.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Muddy Waters - 63 Albums, 3 Box Set (1955 - 2021) 91 CD [FLAC|Lossless|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27487.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Trautner & Becker - The Tunes & Blues Art Band (Dark Is the Night) (2025) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27311.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dr. John - 42 Albums, 2 Box Set (1968 - 2024) 64 CD [FLAC|Lossless|image + .cue|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26541.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Johnny Winter - 55 Albums, 2 Box Set (1968 - 2016) 74 CD [FLAC|Lossless|image + 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25806.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Livin' Blues - 14 Albums, 1 Box Set (1969 - 2019) 25 CD [FLAC|Lossless|image + .
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25800.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Luther Allison - 22 Albums (1969 - 2009) 23 CD [FLAC|Lossless|image + .cue|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25792.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dean Zucchero - Song For The Sinners (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25105.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Greatest Blues Songs Of All Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23548.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Joe Bonamassa - Santiago (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22894.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Koko Taylor - 14 Albums (1969 - 2007) 16 CD [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22853.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Juicy Lucy - Collection, 9 Albums (1969 - 2002) 11 CD [FLAC|Lossless|tracks + .c
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22834.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Dudley Taft - 10 альбомов (2011 - 2025) [FLAC|Lossless|image + .cue, tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22455.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Eric Clapton, John Mayall & The Bluesbreakers - Blues Anthology, Vol. 3 (REMASTE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21762.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Joe Bonamassa - Santiago - The South American Broadcast (2024) 2 x CD [FLAC|Loss
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21226.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Anthony Gomes - Praise The Loud (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20596.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Emanuel Casablanca - Hollywood Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18619.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Aretha Franklin - Who’s Zoomin’ Who? (1985) [FLAC|Lossless|tracks + .cue] <E
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17671.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Norah Jones - Come Away With Me (2002) [FLAC|Lossless|tracks + .cue] <Contempora
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17524.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Alex Henley - Slow Burning (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16713.jpg" />
 </div>
 
 

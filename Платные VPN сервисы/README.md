@@ -1,30 +1,4 @@
 https://t.me/izofen
-###  Публикация: 1875250   (1072447) от 08.06.2026
-
-Впринципе VPN | Отдельный сервер под торренты | Обход белых списков | Работает когда другие падают
-
->>Обход блокировок
->>Платные VPN сервисы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впринципе — VPN-сервис для тех, кому надоело каждые две недели искать новый.Не будем расписывать «самые быстрые серверы в мире» и «гарантию 99,99%». Расскажем что есть на самом деле, и почему за полгода мы выросли до ~1500 пользователей и ~450 платных подписок без единой рекламной кампании — на одних рекомендациях.Выделенный сервер под торренты в Хельсинки. Без shaping, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574836   (376474) от 09.09.2022
 
 Доступ к заблокированным сайтам за 5 шагов: СОБСТВЕННЫЙ сервер Outline VPN за 270 рублей в месяц
@@ -33,7 +7,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Платные VPN сервисы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_376474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_376474.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Платные VPN сервисы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_270112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270112.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ NoBorderVPN — анонимный и стабильный VPN. 3 дня бес�
 >>Платные VPN сервисы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_675.jpg" />
 </div>
 
 

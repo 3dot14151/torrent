@@ -1,3 +1,55 @@
+###  Публикация: 1474611   (1012797) от 03.06.2021
+
+Wing of Darkness (2021) [Multi] (1.0) License DOGE
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Войны народов перестали быть конфликтами между людьми и переросли в борьбу за выживание, ведь теперь человечество сражается с новым врагом. Откуда ни возьмись, появились неопознанные летающие объекты, "Подавители" и единственное оружие, способное им противостоять – это система "Хельд". Управлять системами "Хельд" умеют лишь так называемые (   Читать дальше...   )Тип издания: LicenseРазработчик: Production ExabilitiesЖанр: Action, Anime, Mech, Shoot'em upЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Корейский, Французский и другиеЯзык интерфейса: Английский, Японский, Корейский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E39039BF3871DFA75A5B2D36E3FD60BA1B4575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474999   (1012477) от 05.06.2021
+
+Last Kids on Earth and the Staff of Doom (2021) [Multi] (1.0) License Fairlight
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сражайтесь с ордами зомби и монстров в ролевой игре с полуоткрытым миром The Last Kids on Earth and the Staff of Doom, которая рассказывает новую историю в постапокалиптическом городке Уэйкфилд. Играя за выживших подростков Джека, Квинта, Джун или Дирка, Вы исследуете кишащие зомби улицы, чтобы помешать Малондре, могущественному противнику, получить Посох Судьбы. (   Читать дальше...   )Тип издания: LicenseРазработчик: Stage Clear StudiosЖанр: Action, Beat'em up, RPG, ZombieЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499ECEF1F22C313A221D619F429EBB49E5A39BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476632   (1011382) от 12.06.2021
 
 Guilty Gear -Strive- (2021) [Multi] (Build 6841150/dlc) License Fairlight
@@ -6,7 +58,7 @@ Guilty Gear -Strive- (2021) [Multi] (Build 6841150/dlc) License Fairlight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011382.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Alekon (2021) [En] (1.0) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009769.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Police Stories (2019) [Ru/Multi] (1.3.2) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007208.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005139.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Intravenous (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004917.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004828.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.0.3) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004822.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Harry Potter and the Philosopher's Stone / Гарри Поттер и Филос
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004785.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Mortal Kombat XL (2015) [Ru/En] (0.308.05.126703.1/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003276.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Street Fighter V (2016) [Ru/Multi] (07.011/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003270.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Dodgeball Academia (2021) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003030.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Luxar (2020) [Ru/Multi] (1.0) Repack Mr_Weegley
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002344.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.23.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002193.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ BDSM: Big Drunk Satanic Massacre (2019) [Ru/Multi] (1.0.33) Repack Mr_Weegley [1
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001211.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Shank: Dilogy [En/Ru] (Repack) 201 - 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000573.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Pure [Ru/En] (RePack) 2008 l R.G. Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999499.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Karateka [Ru/En/Multi5] (L) 2012 | TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998484.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ MediEvil: Dilogy [Ru] (PC/Emul) 1998-2000 | Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997632.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Soldier vs. Aliens [Ru/En] (RePack) 2013 | F4CG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994963.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Dawnstar [En] (L) 2013 | *SKIDROW*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994340.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ Wasteland Angel [Ru/En/Multi4] (L) 2011 | *PROPHET*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993875.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ Miner Wars 2081 [En] (P) 2012 | *FLT*
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993179.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Wizard of Legend (2018) [Ru/Multi] (1.21) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991576.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991508.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ Forgotten Passages (2020) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0636FAEA3C3A131AA19A8E6374EF6A848736ADA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609763   (991490) от 27.01.2013
-
-iBomber Attack [En] (RePack) 2012 | TiNYiSO
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_991490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришло время атаковать! Вскочите в свой танк, приготовьтесь взорвать всё на своём пути по Европе и победить врага в этом интуитивном туре разрушения! С 24 миссиями, полными взрывчатого действия, iBomber Attack предоставит вам дозу высоко-октанового развлечения. От разрушения верфей, аэродромов и секретных баз, к расстрелу легионов солдат в 24 уровнях безостановочного экшена. Заработайте очки Победы и соберите золото, чтобы укомплектовать свой танк Бомбами, Пулемётами, Огнеметами, Ракетами и другим оружием. Игра обладает отличной графикой и звуком, ее геймплей прост, но весьма интенсивен. (   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Top-downЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2DACD264C747C0D3C583FAFAC401ABA27E8C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610941   (988798) от 30.01.2013
-
-Dungeonland: Special Edition [En/Multi4] (Steam-Rip/3.5.6.44817) 2013 | R.G. GameWorks
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dungeonland – аркадный экшен, в котором группе игроков предстоит отправиться на поиски приключений в парк развлечений «Dungeonland», созданный злобным Dungeon Master'ом. Выбрав один из представленных классов, Разбойник, Воин или Маг, вы будете сражаться с толпами монстров и боссами, собирать лут, прокачивать своего персонажа и изменять его внешний вид. Чтобы добраться до башни главного злодея, игрокам предстоит преодолеть смертоносные джунгли, магические сады, логова драконов и другие локации, кишащие врагами.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade / Action / IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский / Немецкий / Французский / Итальянский / Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF93C4E352B92D1B42ED889D4D1270651E17EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

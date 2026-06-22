@@ -1,3 +1,29 @@
+###  Публикация: 380640   (498701) от 28.08.2011
+
+Microsoft Word for Mac 2011 x86 VL [Английский]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_498701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft word 2011for Mac несомненно является лидером среди текстовых редакторов. Он может сделать с текстом без преувеличения ВСЕ. Форматирование любой сложности. При этом освоить word сможет любой новичок, только недавно познакомившийся с компьютером – настолько прост и понятен интерфейс программы.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564836   (498579) от 20.07.2022
 
 MDB ACCDB Viewer 2.2.7 [En]
@@ -6,7 +32,7 @@ MDB ACCDB Viewer 2.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498579.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ PCalc 4.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497782.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ eMail Address Extractor 3.5.9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497655.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Wondershare PDFelement Pro 9.0.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497647.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ DrawOutX 2.3 U2B  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_496805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496805.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ FileMaker Pro 17 Advanced 7.0.2.205 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495890.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ Complete Anatomy Full Version (3D4Medical) 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495855.jpg" />
 </div>
 
 
@@ -193,6 +219,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381445   (494805) от 31.08.2011
+
+Microsoft Excel  2011 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_494805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Excel - это отличная программа для работы с различными электронными таблицами. Excel является одной из основных составных программ компании Microsoft и является одним из самых известных приложений Microsoft Office.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243372   (494227) от 26.08.2018
 
 Cisdem PDFConverterOCR 6.0.0 [En]
@@ -201,7 +253,7 @@ Cisdem PDFConverterOCR 6.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494227.jpg" />
 </div>
 
 
@@ -229,7 +281,7 @@ Money (with sync) 6.6.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_494115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494115.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ OmniOutliner Pro 5.3.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490121.jpg" />
 </div>
 
 
@@ -284,7 +336,7 @@ BusyContacts 2022.3.1 U2B  [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488457.jpg" />
 </div>
 
 
@@ -311,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488409.jpg" />
 </div>
 
 
@@ -338,7 +390,7 @@ OmniPlan Pro 3.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_488160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488160.jpg" />
 </div>
 
 
@@ -364,7 +416,7 @@ Sparkle 1.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487778.jpg" />
 </div>
 
 
@@ -392,7 +444,7 @@ MarsEdit 4 v4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482338.jpg" />
 </div>
 
 
@@ -418,7 +470,7 @@ Document Writer Pro 1.6.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482083.jpg" />
 </div>
 
 
@@ -444,7 +496,7 @@ Network Kit X 7.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481480.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ CodeKit 2.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481392.jpg" />
 </div>
 
 
@@ -497,7 +549,7 @@ Rumpus PRO 8.1.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480174.jpg" />
 </div>
 
 
@@ -524,7 +576,7 @@ Chronicle 8 8.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480160.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Social Media Lab - Templates 1.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480043.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ SimpleMind 1.20.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479819.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Current for Facebook 1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479497.jpg" />
 </div>
 
 
@@ -633,7 +685,7 @@ Textbundle Editor 1.2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476635.jpg" />
 </div>
 
 
@@ -644,58 +696,6 @@ Textbundle Editor 1.2.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0874B14964952DD20F698EDA6B71A20E197C199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245020   (475543) от 04.09.2018
-
-SEO Checker 2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475543.jpg" />
-</div>
-
-
-###  Подробнее
-
-SEO Checker - эффективное приложение, которое предлагает инструменты SEO, которые помогут вам проанализировать ваши веб-сайты, все что вам нужно для повышения рейтинга и ускорения ваших веб-сайтов.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Global Web SRLПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80B4BCCC164F29E44A183F6ADBA83C69AB25D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057362   (475332) от 28.09.2016
-
-Diagrammix 2.13 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент для для построения любых видов диаграмм с минимальными услилиями с вашей стороны. Если вы студент, менеджер или руководитель, то с этим инструментом вы можете составить диаграмму любой сложности легко и просто. Такой инструмент пригодится для иллюстрирования отчетов и при подготовке презентаций. Он поможет вам схематично выразить свои мысли, обнаружить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2016Разработчик: Deep IT ProПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8FE4804359B3AD0CF99D5B65298E70376393DAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

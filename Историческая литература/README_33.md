@@ -1,3 +1,110 @@
+###  Публикация: 1214156   (764923) от 21.03.2018
+
+Московские святыни и памятники. Краткие исторические сведения о московских соборах, монастырях, древних церквах, памятниках и замечательных зданиях (1903) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание представляет собой сборник кратких исторических сведений о древних церквах и старинных зданиях Москвы. Книга состоит из пяти отделов. В первом из них помещены исторические сведения о Кремлевских и других московских соборах. Второй отдел содержит сведения о старинных монастырях, находящихся в Москве. В третьем отделе сгруппированы хронологические даты и другие (   Читать дальше...   )Жанр: История Отечества, история Москвы, альбом видовФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDF8B714D42B3EE4D12978BE3765D3D8B5A478E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214309   (764919) от 21.03.2018
+
+Н.Н. Глебова-Путиловского (ред.) | Октябрь. Фото-очерк по истории Великой октябрьской революции (1917-1920) (1920) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий октябрьский переворот, вручивший власть рабочим и крестьянам, мог придти только после решительного выступления против буржуазии и мещанской умеренности. Он воплощает классовую и глубоко действенную теорию марксизма.
+Робкие шаги первых дней быстро переходят в настоящий революционный бег, и, несмотря на индустриальную и культурную нищету, истощение и раззор (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BDC10DB7211BB1B46BDEDCFCA2F198123B43E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214325   (764910) от 21.03.2018
+
+И.Н. Божерянов (изд.) | Портреты с автографами и краткими биографиями министров учрежденных в 1802 г. министерств императором Александром I (1901) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом портретов министров, учрежденных в 1802 г. министерств с краткими биографиями оных и их автографами.Жанр: История Отечества, альбом портретов, биографииФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A3572C89F77A44DB6E7C2CFC7A224F1868F6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214154   (764909) от 21.03.2018
+
+Н.К. Михайловский | Революционные статьи (1906) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник статей Михайловского Николая Константиновича.
+
+Михайловский (псевдонимы - Гроньяр, Посторонний, Профан и др.) Николай Константинович [15(27).11. 1842, Мещовск, ныне Калужской обл., - 28.1(10.2).1904, Петербург], русский публицист, социолог, один из теоретиков народничества, литературный критик. Из дворян. Учился в Петербургском институте горных инженеров. (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B9EF178A917A8DDB3F17E42869E36C70846E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214299   (764908) от 21.03.2018
 
 Г.И. Нарбут | Гербы гетманов Малороссии (1915) [DJVU]
@@ -6,7 +113,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764908.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764895.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764870.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764868.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764864.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764566.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764062.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763239.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762139.jpg" />
 </div>
 
 
@@ -247,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761924.jpg" />
 </div>
 
 
@@ -273,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761923.jpg" />
 </div>
 
 
@@ -299,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761921.jpg" />
 </div>
 
 
@@ -325,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761818.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761817.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761815.jpg" />
 </div>
 
 
@@ -409,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761814.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761813.jpg" />
 </div>
 
 
@@ -463,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761809.jpg" />
 </div>
 
 
@@ -489,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761808.jpg" />
 </div>
 
 
@@ -515,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761805.jpg" />
 </div>
 
 
@@ -543,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761801.jpg" />
 </div>
 
 
@@ -571,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761689.jpg" />
 </div>
 
 
@@ -582,114 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85BDCA5E8E50EB89FEE20BADBC1227A2BD09ADF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214966   (761671) от 24.03.2018
-
-Собрание уполномоченных губернских земств в Москве 7-9 сентября 1915 г. Журналы заседания (1916) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съезды Земского и городского союзов в Москве 7—9 сентября 1915 выступили за введение в состав правительства буржуазных деятелей и направили к царю делегацию, которая должна была заявить о необходимости «обновления» состава правительства. Но царь не принял её. Царское правительство, недовольное вмешательством З. и г. с. в политику, подозревая их в стремлении захватить (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8456B45595286D4CE95762C3C5218ADDAE227CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214961   (761669) от 24.03.2018
-
-Россия для русских! Православие, самодержавие, народность (1906) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агитационно-пропагандистская брошюра времён Первой Русской революции от "Общества русских патриотов" - политической организации c монархическим уклоном.
-
-Для общего развития:
-Лозунг "Россия для русских" появился вовсе не в 1990-е годы. И не в 1905-м. Он существовал ещё, как минимум, со времён царя Александра III.(   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554640754E1F5CACE10F02137EDFE167885A39A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214974   (761540) от 24.03.2018
-
-В.В. Функе (ред.) | Царствующий дом Романовых (1913) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761540.jpg" />
-</div>
-
-
-###  Подробнее
-
-К юбилею трехсотлетия дома Романовых было издано большое количество красивых альбомов, среди которых «Царствующий дом Романовых» вышедший под главной редакцией Василия Викторовича Функе выделяется информативностью и красочностью оформления. Издание, со вступительной статьей Е.В. Барсова, содержит исторические очерки, посвященные царственному дому, биографии и портреты (   Читать дальше...   )Жанр: История ОтечестваФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA1C6F0707A67DF1DE55A61E963FB555E4F07F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214953   (761536) от 24.03.2018
-
-В.М. Чернов | Очередной вопрос революционного дела [1-е и 4-е издания] (1900,1903) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образовавшаяся в самом конце XIX в. заграницей "Аграрно-социалистическая лига" ставила своей целью "расширить русло общего революционного движения путем привлечения к нему трудовых масс деревни".
-В брошюре: "Очередной вопрос революционного дела", изданной Лигой в 1900 году, В. Чернов доказывал настоятельную необходимость революционной (   Читать дальше...   )Жанр: История Отечества, история революционного движенияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF757EF8FE56ABE11D9E086F0611750A5B018DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

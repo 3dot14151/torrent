@@ -1,3 +1,30 @@
+###  Публикация: 941039   (849693) от 04.03.2017
+
+To-Do Calendar Planner / Задачи, Календарь, Органайзер v9.5.52.4.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многофункциональный персональный органайзер, позволяющий Вам стать более эффективным тайм-менеджером!
+Сделать больше за меньшее время! Как? Концентрируясь только на тех задачах, которые соответствуют Вашим целям. To-Do Calendar Planner  – это многофункциональный персональный органайзер, позволяющий Вам стать более эффективным тайм-менеджером!Тип издания: Пиратка (PLUS features Unlocked)Релиз состоялся: 21.02.2017Разработчик: TimlegПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F643674D0131E1192388ECA32435CE5FC6FF3005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378325   (848040) от 24.04.2020
 
 AdClear 9.14.2.798 [Ru/Multi]
@@ -6,7 +33,7 @@ AdClear 9.14.2.798 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848040.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847930.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ QR Code Pro 1.15 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847788.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ AZ Screen Recorder Premium 5.7.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847780.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Fake GPS v5.3.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_847459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847459.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846839.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ ROEHSOFT PARTITION TOOL SD-USB 1.37 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846582.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Garmin: City Navigator Southern Africa NT 2017.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846402.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Dino Puzzle v2.7.3 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846391.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Om Nom Run / Ам Ням Погоня v1.07 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846383.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Pose Tool 3D 6.8.79 [En] - Инструмент постановки поз дл
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846341.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Ultimate Mortal Kombat 3 1.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846329.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845100.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844903.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Guitar Tuna v3.5.4 [Ru/Multi] - универсальный тюнер для н�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844652.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ APK Permission Remover Pro v1.3.8 [Ru/Multi] - Удаление разрешен
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844355.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ QuickPic 4.7.2.2404 [Ru] - Просмотрщик изображений с му
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_844349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844349.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842992.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842944.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842924.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ Garmin: City Navigator South America NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842728.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ Garmin: City Navigator North Africa NT 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841505.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ Sonic 3D Blast, Sonic And Knuckles, Sonic The Hedgehog, Sonic The Hedgehog 2, So
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840409.jpg" />
 </div>
 
 
@@ -618,7 +645,7 @@ Odin 3.10.6 - Прошивальщик устройств Samsung [En]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840249.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ ROEHSOFT DRIVE-EXPERT 1.21 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839632.jpg" />
 </div>
 
 
@@ -656,32 +683,6 @@ ROEHSOFT DRIVE-EXPERT 1.21 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C337D1EF43F25E405927468A1EC349620DB424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003981   (837614) от 06.04.2016
-
-Contra - Hard Corps 1.0.0 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название этой игры говорит само за себя! Перед вами Contra - Hard Corps, та самая любимая и известная всем контра, получившая своё продолжение на платформе Sega. События игры развиваются в далёком 2641 году, на выбор вам даётся четыре персонажа, каждый из которых обладает своими уникальными способностями. В игре множество врагов, так что скучать вам не придется. (   Читать дальше...   )Релиз состоялся: 3 апреля 2016г.Поддерживаемая ОС: Android 2.3+Жанр: Беги и стреляйЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C65609B1AA0EB21B53F8414689A7B642DF5AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

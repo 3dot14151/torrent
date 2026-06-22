@@ -6,7 +6,7 @@ Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226142.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ VA - Hot Parade Winter 2016 (2015) [MP3|320 кб/с] <Dance, House, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225640.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ Groove Armada - Twenty One (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225339.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ VA - I Saw You Dancing (2001) Приложение к журналу Stereo & Vi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225154.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Deep Strips (2018) [MP3|320 Kbps] <Funky, Dance, Nu Disco, Deep House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225146.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Sarah Connor - Bounce (2004) [OGG Vorbis|480 Kbps] <Europop, Hip Hop, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224717.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Belinda Carlisle - A Place On Earth · The Greatest Hits (1999) 2 CD [OGG Vorbis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224535.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Selena Gomez - Revival (2015) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224514.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - 90's Running Songs (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223263.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Driven By The 70s (2018) 5CD [MP3|320 Kbps] <Pop, New Wave, Indie, Hard Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223210.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - NOW That's What I Call Music! Vol. 86 (2023) CD, Compilation [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223104.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Anastacia - Anastacia (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222832.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Belinda Carlisle - Wilder Shores (2017) [OGG Vorbis|480 Kbps] <Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222780.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Car Booster Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Electro Pop, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222674.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Laura Branigan - The Best Of Branigan (1995) [OGG Vorbis|480 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222667.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - 50 Chart Hits of 2020 The Winter Workout Album [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222633.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - 100 Greatest Running Tracks (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222467.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Bravo The Hits (2022) 2CD, Compilation [MP3|320 Kbps] <Electro Pop, Dance, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222270.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Mylene Farmer - Desir Amoureux - Greatest Hits (2008) 2 CD [OGG Vorbis|480 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222226.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221764.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - The Party Album (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221357.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Mylene Farmer - Greatest Hits (2013) 2 CD, Unofficial Release [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221281.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221144.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221137.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220983.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Dan Lacksman - Electric Dreams (2013) CD [MP3|320 Kbps] <Electronic, Synth-pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220934.jpg" />
 </div>
 
 

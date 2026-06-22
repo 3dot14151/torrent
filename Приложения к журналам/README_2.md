@@ -6,7 +6,7 @@ DVD приложение к журналу "Хакер" №01 (168), 2013 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132476.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DVD приложение к специальному выпуску журнал
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87236.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DVD-приложение к журналу Upgrade Special №3-4 [март-ап
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85501.jpg" />
 </div>
 
 

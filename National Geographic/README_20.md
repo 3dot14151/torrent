@@ -1,3 +1,81 @@
+###  Публикация: 1294637   (609930) от 18.04.2019
+
+NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609930.jpg" />
+</div>
+
+
+###  Подробнее
+
+В период после 6 июня союзники начали проникать в Европу через пляжи Нормандии. Нацисты тщательно охраняли свои морские военные базы в оккупированной Европе. Это истории отчаянных боев, которые велись за освобождение Европы от нацистского ярма.Производство: Канада, Parallax Film Productions, National GeographicЖанр: Документальный, война, история, исследованияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AAE5E22933D9B365AD9FDEA652EAC26EAE7B35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296920   (608274) от 19.04.2019
+
+NG: Египет с высоты птичьего полета / Egypt from Above (2019) HDTVRip (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет - древняя страна, знаменитая своими пирамидами, храмами и гробницами. В свое время, на месте современного Египта располагалась одна из самых мощных и передовых империй в мире. Сериал расскажет вам во время восхитительного воздушного путешествия по этой стране историю развития современного динамичного Египта из его столь драматичного прошлого.Производство: Великобритания, Windfall Films LTD, National GeographicЖанр: Документальный, путешествия, историяРежиссер: Мэтт КеррингтонПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 2 x ~00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B4D000444CDD9D68F92112D47EBB26F158013C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 805401   (607640) от 16.07.2014
+
+Космос: Пространство и время / Cosmos: A SpaceTime Odyssey (2014) BDRemux [H.264/1080p] (сезон 1, серии 1-13 из 13)
+
+>>След.
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал рассказывает о последних научных открытиях, которые были сделаны в области астронавтики, астрофизики и других наук. Сериал «Космос: Путешествие во времени» является продолжением научно-популярной серии фильмов «Космос: Персональное путешествие с Карлом Саганом» и отражает события последних трех десятилетий. Астрофизик Нил Деграсс Тайсон с соавторами (   Читать дальше...   )Производство: США / Cosmos Studios, Fuzzy Door Productions, National Geographic Channel, Six Point Harness, Syon MediaЖанр: Документальный, наука, космосРежиссер: Брэннон Брага, Энн Драйэн, Билл ПоупПеревод: Профессиональный одноголосый (студия Арк-ТВ)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12620574694346A72DA66B2A801AEEDDD27845F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147614   (607420) от 03.07.2017
 
 NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.264/1080i-LQ] (Сезон 42, эпизод 13)
@@ -6,7 +84,7 @@ NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607420.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ NG: Растения - монстры ( Секс, наркотики и раст
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607337.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607164.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606889.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ NGW: Невероятная Африка. Закума / Extraordinary Africa. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605169.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ NGW: Невероятная Африка. Разноцветный контин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605162.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ NGW: Удивительные селфи животных / Amazing Animal Selfi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604129.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ NG: Амазония: наизловещий ритуал / Search for the Amazo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603152.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603071.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602637.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602142.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601858.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601216.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599930.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599925.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ NG: Прекрасная Америка: Величественный Север
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598226.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598067.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596254.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595965.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ NGW: Гризли Аляски бросают вызов. Короли остр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595005.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594602.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ NGW: В поисках таинственного зверя / Search for the Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593547.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593271.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EE7CFD36A12864C575CFD4AE24FCFB1DF982E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300376   (593114) от 06.05.2019
-
-NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014) HDTV [H.264/1080i-LQ] [hand made 60fps]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний Египет - родина Великих пирамид, поразительного искусства, властных фараонов и мощных империй... Египет выделяется среди других античных цивилизаций, поражая нас потрясающей иконографией и культурной харизмой. Но даже когда древние египтяне явили миру свою силу, они скрыли шокирующий секрет своей власти. Они стерли историю о крупном подчиненном королевстве, (   Читать дальше...   )Производство: США, National Geographic, Public Broadcasting Service (PBS)Жанр: Документальный, история, исследованияРежиссер: Джеймс БарратПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B15AC668C420FCF9EE544DFC241D82B1A77591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233553   (592989) от 30.06.2018
-
-NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592989.jpg" />
-</div>
-
-
-###  Подробнее
-
-От трехметрового комодского варана до карликового варана длиной в 20 см, эти ящерицы - не типичные рептилии. Вараны отличаются от всех остальных ящериц. Они свирепы, сильны и очень умны. Некоторые из них гиганты другие пигмеи, но столь разными этим древних хищников делает именно их характер. Вараны ящерицы понимающие свой статус, они знают что находятся на вершине (   Читать дальше...   )Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Гизела КауфманнПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B79D11B3FEB8AA80057A27F3E73F95B02C34706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233460   (592969) от 30.06.2018
-
-NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марс, обладая своеобразными условиями и атмосферой, является весьма трудной планетой для изучения. Однако его расположенность дает возможности человеческой цивилизации отправлять не только спутники, но и марсоходы, собирающие информацию и посылающие ее на Землю. Именно по этой причине эта планета вызывает искренний интерес у ученых, исследователей и тех, кому не (   Читать дальше...   )Производство: США, National Geographic ChannelsЖанр: Документальный, научно-познавательный, космосРежиссер: Марк ДэвисПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393EA29E20538C180412CA8DB3844ABE666339D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

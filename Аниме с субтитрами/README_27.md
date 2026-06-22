@@ -1,3 +1,29 @@
+###  Публикация: 1351581   (894682) от 28.03.2020
+
+Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каcю Миназуки — отпрыск древнего и уважаемого рода японских кондитеров — решил переехать, чтобы открыть свою собственную кондитерскую «Ла Солей». Во время отъезда среди своего багажа он обнаружил двух спрятавшихся кошкодевочек Чоколу и Ваниллу, которых вырастили в семье Кащю. Он попытался отправить их обратно, но после долгих уговоров сдался, и в итоге они открыли (   Читать дальше...   )Производство: студия Felix FilmЖанр: комедияРежиссер: Ямамото ЯсутакаПеревод: Funimation; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B976D4B7C451B2A72B074F17ADFF7573D05A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638559   (894607) от 03.04.2013
 
 Soukou Kihei Votoms: Pailsen Files / Soukou Kihei Votoms Pailsen Files / Бронированные Воины Вотомы: Файлы Пэйлсэна (OVA-5) [2007, OVA, 12] DVDrip 480p raw
@@ -6,7 +32,7 @@ Soukou Kihei Votoms: Pailsen Files / Soukou Kihei Votoms Pailsen Files / Бро�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894607.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894599.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu. | A Destructive God Sits Next to Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894596.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894580.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ High Score | Лучший счет [2011, TV, 8 + 2 SP] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893639.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Wasteful Days of High School Girl | Бездельные дни старшекл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893554.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 эп.] DVDRip 540p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893378.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Steins;Gate: Soumei Eichi no Cognitive Computing | Врата Штейна: Ве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893363.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Koi Suru Asteroid / Asteroid in Love / Влюблённый астероид [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893008.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Kyokou Suiri / In/Spectre / В/Спектре / Ложные выводы [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_893002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893002.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Shiranpuri / Minding My Own Business [2012, TV-special] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892971.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892036.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_892016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892016.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Musekinin Kanchou Tylor | The Irresponsible Captain Tylor | Безответст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891911.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891769.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891535.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Housekishou Richard-shi no Nazo Kantei | The Case Files of Jeweler Richard | З�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891526.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ ID:Invaded | ID: Вторжение [2020, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_891325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891325.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Aria The OVA: Arietta | Ария OVA-1 [2007, OVA] BDRip 716p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890845.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Aria The Natural | Ария (второй сезон) [TV-2][2006, TV, 26 эп. 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890830.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Aria The Origination | Ария (третий сезон) [TV-3][2008, TV, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890753.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Golden Time / Золотая пора [2013, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890752.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Aria The Animation | Ария (первый сезон) [TV-1][2005, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890719.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890536.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Denpa Onna to Seishun Otoko | Радиосигнал от чудачки, Юно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_890514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890514.jpg" />
 </div>
 
 
@@ -649,34 +675,6 @@ Denpa Onna to Seishun Otoko | Радиосигнал от чудачки, Юно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93DDAE20E67304D9DA190689DB6D3BD1AC64B44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494159   (890419) от 06.09.2021
-
-Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Train | Истребитель демонов: Поезд «Бесконечный» [2020, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_890419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сериала.
-
-Завершив оздоровительные тренировки в Доме бабочки, Тандзиро и его друзья отправляются выполнять новое задание. На поезде «Бесконечный» творится что-то неладное: в одночасье там исчезает более 40 человек! А значит, Тандзиро, Нэдзуко, Иносукэ и Дзэницу предстоит сразиться с могущественным демоном. Присоединившись к одному из сильнейших мечников, (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: 1) Naiko Subs; 2) suffa; 3) YakuSub StudioЯзык озвучки: #1: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738CDA3E7F2EFD180422EC080ECA01F5C6040C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1654096   (194065) от 19.08.2023
+
+Наёмный убийца / Salsu (The Assassin) (2023) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194065.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нескольких войн Чосон находится в хаосе, законы перестали служить людям, а амбиции правителей зашкаливают. Они нанимают убийц, которые уничтожали тех, кто впал в немилость. Ли Нан был лучшим наёмным убийцей Чосона. Откуда он и на кого работает - никто не знает, но он всегда выполняет работу безукоризненно. Однажды Ли Нан вынужден обратиться к лекарю: его мучают (   Читать дальше...   )Производство: Корея Южная / JNC Media GroupJoy n CinemaЖанр: Боевик, приключения, историяРежиссер: Квак Чон-докАктеры: Щин Хён-джун, Ли Мун-щик, Ким Мин-гён, Хон Ын-ги, Ли Джон-мин, Пак Чэ-хун, Ли Ро-ун, Ким Бён-чхун, Чон Бом-джун, Ли Хён-гольПеревод: Дублированный (Akimbo Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D99CDCB60E99A70DB2888FB6BA6FDBEC4CB442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656760   (193440) от 31.08.2023
+
+Криминальный город: Разборки в Пусане / Beomjoe dosi 3 / The Roundup: No Way Out (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193440.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 год. Детектив Ма Сок-то перевёлся в инчхонский следственный отдел, работает с новой командой, и покой ему только снится. Втайне от главы клана ушлые якудза поставляют в город новый синтетический наркотик, который становится дико популярным в увеселительных заведениях. Используя собственное неотразимое обаяние, а также сокрушительные удары правой и левой, через (   Читать дальше...   )Производство: Южная Корея / ABO Entertainment, B.A. Entertainment, Big Punch PicturesЖанр: Криминал, боевик, триллер, детективРежиссер: Ли Сан-ёнАктеры: Ма Дон-сок, Ли Джун-хёк, Мунэтака Аоки, Ким Мин-джэ, Ли Джи-хун, Ко Гю-пхиль, Ан Сэ-хо, Чон Сок-хо, Ли Бом-су, Дзюн КунимураПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946159DA43FDF95FF98F3AF252B833278B9A35B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828580   (193417) от 24.10.2025
+
+Второй пропущенный звонок / Chakushin ari 2 (2005) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие в фильме разворачивается через год после событий первой части. Юми Накамура пропадает без вести, а убийства, связанные с загадочными звонками, не прекращаются. Но если раньше у убитых при странных обстоятельствах людей находили во рту красные конфетки, то теперь опознавательным знаком являются частички угля в желудках жертв. Один за другим погибают знакомые (   Читать дальше...   )Производство: Япония / Chakushin Ari 2 Seisaku Iinkai, Hakuhodo DY Media Partners, Japan Film Fund, Kadokawa PicturesЖанр: ужасыРежиссер: Ренпей ЦукамотоАктеры: Мимура, Ю Ёсидзава, Рэндзи Исибаси, Харуко Ванибути, Питер Хо, Асака Сето, Тисун, Нанна Койдзюми, Юджиро КомураПеревод: дублированный, профессиональный многоголосый (Первый канал)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7323B61A41E7A1248EA9373519A07CF735546509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587377   (192914) от 30.10.2022
 
 Дорога домой / Мои отец и мать / Wo de fu qin mu qin / The Road Home (1999) BDRip [H.264] [VO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192914.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192423.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191369.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190864.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_190857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190857.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190824.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190761.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189698.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189643.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189587.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189148.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189145.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189103.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188920.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188848.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188816.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188492.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188441.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187632.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187497.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187439.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187422.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187346.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26F40C5B9FB5331D93A162AD833FC92622E809A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591455   (187125) от 18.11.2022
-
-Астральное кунг-фу / Quan jing / Spiritual Kung Fu (1978) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеки - молодой, озорной хулиган, стоящий на страже замка Шаолиня. Во время его поста крадут очень ценную, обладающую огромной силой, книгу «Шестикулачное кунг-фу». Как выясняется позже, её украл зловещий воин, который хочет подчинить себе все кланы. В библиотеке, где он часто бывает, Джеки знакомится с пятью странными призраками, которые обучают его животным стилям (   Читать дальше...   )Производство: Гонконг, Тайвань, Lo Wei Motion Picture Co.Жанр: боевик, комедияРежиссер: Вэй ЛоАктеры: Джеки Чан, Чи-пинг Чанг, Сиу-йи Фэн, Хонг Хсю, Чинг Фу Ли, Хай Ланг Ли, Танг Чун Ли, Вэнь Таи Ли, Кенг Пенг, Ли Рун ЧенПеревод: профессиональный многоголосый (ДТВ), авторский (Сергей Визгунов; Андрей Дольский)Субтитры: русские, английскиеПродолжительность: 01:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D110BA72A1D5BCC63C6FB33BF62CC92D4663E11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663082   (186948) от 20.09.2023
-
-Импостер / #Manhole (2023) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюнсукэ Кавамура — молодой успешный карьерист, у ног которого весь мир. Возвращаясь домой с мальчишника накануне собственной свадьбы, он падает в люк. Охваченный ужасом парень пытается спастись, используя социальные сети. Несколько постов Сюнсукэ за считанные минуты становятся невероятно популярными, а реакция пользователей заставляет задуматься: действительно ли (   Читать дальше...   )Производство: Япония / J StormЖанр: драма, триллерРежиссер: Кадзуёси КумакириАктеры: Юто Накадзима, Нао, Кэнто Нагаяма, Хару КурокиПеревод: Многоголосый профессиональный (ОККО)Язык озвучки: русский, японскийСубтитры: русские (forced, full)Продолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22F3AD065A411F2C1B76C10ECD5747E55DEE8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663519   (186523) от 22.09.2023
-
-Битва у острова Хансан / Hansan: yongui chulhyeon  / Hansan: Rising Dragon (2022) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186523.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 августа 1592 года, Имджинская война. Флот Чосона во главе с адмиралом Ли Сунсином даёт бой захватническим военно-морским силам Японии у острова Хансан. Когда корейские войска попадают в кризис, адмирал прибегает к секретному оружию — боевым кораблям с головой дракона, известным как боккайсен (морские чудовища).Производство: Южная Корея / Big Stone PicturesЖанр: Военный, биография, боевик, историяРежиссер: Ким Хан-минАктеры: Пак Хэ-иль, Пён Ё-хан, Ан Сон-ги, Сон Хён-джу, Ким Сон-гю, Ким Сон-гюн, Ким Хян-ги, Тхэгён, Кон Мён, Пак Чи-хванПеревод: Дублированный (Кипарис)Язык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: 02:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AF8E483B59B9C09CADAE4A173181C31D2A7A5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

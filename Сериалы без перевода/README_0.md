@@ -1,3 +1,29 @@
+###  Публикация: 1091606   (939764) от 11.01.2017
+
+Отец Браун / Father Brown (2016) HDTVRip [H.264/720p-LQ] (сезон 5, серии 1-7 из 15) [EN / EN Sub] (обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой телесериала, отец Браун, пастор в небольшой английской деревне. Священник увлекается раскрытием преступлений, однако делает это не только с помощью наблюдательности и логики, он также пытается понять преступника и по возможности помочь ему. В раскрытии преступлений пастору помогают миссис Маккарти приходской секретарь, леди Фелисия Монтегю и Сид Картер.Производство: ВеликобританияЖанр: драма, криминал, детективРежиссер: Пол Гибсон, Мэтт Картер, Йен БарберАктеры: Марк Уильямс, Сорча Кьюсак, Нэнси Кэрролл, Алекс Прайс, Джон Бертон, Том Чэмберс и др.Перевод: отсутствуетЯзык озвучки: английскийЯзык субтитров: английскийПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1C4D15FEE6C5634A3FEA5D928C00A84A83D7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 627017   (939735) от 08.03.2013
 
 Дни Славы / Блеск Славы / Glory Daze (Сезон 1 (10)) (2010) HDTVRip [EN/RU SUB]
@@ -6,7 +32,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939735.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939261.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936757.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936186.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926236.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921282.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918709.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914860.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_914434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914434.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909753.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_899111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899111.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_896854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896854.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_894990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894990.jpg" />
 </div>
 
 
@@ -351,6 +377,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762346   (891699) от 02.03.2014
+
+Ганнибал / Hannibal (2014) WEB-DL [720p] [Сезон 2, Серии 1 из 13] [Eng\Rus Subs] (обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891699.jpg" />
+</div>
+
+
+###  Подробнее
+
+До событий фильмов «Молчание ягнят» и «Красный Дракон» Доктор Ганнибал Лектер был блестящим психиатром, работающим на ФБР. Уилл Грэм — одаренный профайлер, который вместе с ФБР разыскивает серийного убийцу. Уникальный способ мышления Грэма дает ему удивительную способность глубоко проникаться чувствами другого человека, даже психопата. Он может понять, что ими движет. (   Читать дальше...   )Жанр: Криминал, Детектив, ДрамаРежиссер: Гильермо Наварро, Майкл Раймер, Дэвид СлэйдАктеры: Мадс Миккельсен, Хью Дэнси, Каролин Давернас, Лара Жан Чоростецки, Аарон Абрамс, Лоренс Фишбёрн, Эттьенн Парк, Скотт Томпсон, Торианна Ли, Демор БарнсПеревод: ОтсутствуетЯзык субтитров: Русские (Формат: MKVПродолжительность: ~ 43 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BB213DBE9F17BEEF8D25E7F105C082CC457B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762411   (889899) от 03.03.2014
 
 Игра престолов / Game of Thrones (2013) BDRip [H.264/720p] [Сезон 3, Серии 1-10 из 10] [EN / RU, EN, Sub]
@@ -359,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_889899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889899.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_875292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875292.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_868860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868860.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867733.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2014-
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862370.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857958.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854066.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_843234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843234.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Cпираль / Helix (2014) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_841576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841576.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840701.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ Visitors / Визитеры / V / (2011) [Season 2 FULL] HDTVRip [EN]
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840507.jpg" />
 </div>
 
 
@@ -634,60 +686,6 @@ Visitors / Визитеры / V / (2011) [Season 2 FULL] HDTVRip [EN]
 
 
 (   Читать дальше...   )Жанр: ФантастикаПеревод: AGENT_S & CoФормат: MKVПродолжительность: ~ 00:41:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503006   (822814) от 17.10.2021
-
-Старые Деньги / Altes Geld (2015) WEBRip [H.264] (сезон 1, серии 1-8 из 8) [GER / RU, GER, EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный сериал, кондовый, культовый и музыкальный, энциклопедия австрийской жизни, свежо и отлично снятая вечная античная классика на новый лад, поэтому не советовал бы вникать в описание сюжета, не в нём дело, но если без этого никак, то со следующего абзаца в очень общих чертах!
-Семья, наделенная богатством и властью, отчаянно ищет печень для своего отца, который (   Читать дальше...   )Производство: Австрия / Superfilm, Österreichischer Rundfunk (ORF)Жанр: комедияРежиссер: Давид ШалькоАктеры: Удо Кир, Сунньи Меллес, Николас Офчарек, Эдита Маловчич, Мануэль Руби, Нора фон Вальдштеттен, Yohanna Schwertfeger, Флориан Тайхтмайстер, Томас Штипсиц, Урсула Штраусс и др.Перевод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: Русские (вшитые + отдельно), английские, немецкие (вшитые full + hardsub на не немецкую речь)Продолжительность: серии по ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F186F396DCA7637C0CD4AAC19247C4060D25C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312092   (822542) от 26.03.2011
-
-[EN] Тюдоры - первый сезон диск 4 из 4 / The Tudors - The Complete First Season (2007) disk 4 of 4 (2007) DVD9
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публичная и тайная жизнь представителей нескольких поколений династии Тюдоров – противоречивого периода в жизни Англии. Процветание и разорение, мудрость королей и деспотия тиранов, скрытые аспекты жизни величайших деятелей того времени – Генриха VII, Генриха VIII, Марии I, Елизаветы I и многих других.
-......Генрих в исполнении Джонатана Рис-Майерса - это ярость (   Читать дальше...   )Жанр: Драма, Приключения, ЭротикаРежиссер: Чарльз МакДугалл, Стив Шилл, Киаран Доннелли, Брайан КиркАктеры: Джонатан Риз Майерс, Сэм Нил, Генри Кавилл, Натали Дормер, Ник Даннинг, Мария Дойл Кеннеди,Джеймс Фрейн, Padraic Delaney, Джереми Нортэм, Джэми Кинг, Энтони БрофиПеревод: ОтсутствуетПродолжительность: 00:54:00 минуты серия
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832943.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ L'escolania De Montserrat - Chante La Vierge Marie (2010) [FLAC|Lossless|tracks 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_822482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822482.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ensemble Organum (Marcel Pеrеs) - Дискография (1984-2012) [APE/FLAC
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807741.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ La Grande Ecurie et la Chambre du Roy, Jean-Claude Malgoire - Jean-Philippe Rame
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_805130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805130.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Handel - Carmelite Vespers 1707 (1989) 2CD, 1999, Virgin Veritas [APE|Lossless|i
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_799150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799150.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Cla
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796935.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Giuseppe Verdi - Aroldo (1980) [APE|Lossless|image + .cue] <Opera,Classical>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784286.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Rossini - L'inganno felice (2008) 2CD [APE|Lossless|image + .cue] <Opera, Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784278.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Paul Van Nevel & Huelgas Ensemble - Дискография (1990-2017) 53 аль
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_779749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779749.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Katherine Jenkins - Celebration (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775674.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ London Symphony Orchestra and London Pop Choir - Plays The Best Of The Beatles (
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771672.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ N. Rimsky-Korsakov / Н.Римский-Корсаков - The Snow Maiden / Сн
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770156.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Camille Saint-Saens - Samson et Dalila (1990) [APE|Lossless|image + .cue] <Opera
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757367.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734814.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Mario Lanza (Марио Ланца) - Welterfolge/Mein Herz Singt Nur Für Dich!
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728586.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - 20 Classic Christmas Carols (2004) Promo, Cardsleeve [FLAC|Lossless|image +
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718802.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Lise Davidsen, Leif Ove Andsnes, Edvard Grieg - Edvard Grieg (2022) [FLAC|Lossle
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_676573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676573.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mozart - Le nozze di Figaro (Herbert von Karajan & Vienna Philharmonic Orchestra
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_675343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675343.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Grieg - Peer Gynt(Sir Neville Marriner & Academy of St. Martin In The Fields Orc
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673100.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - (Hermann Max, Sir Neville Marriner) - J.S. Bach - Magnificat, A. Vivaldi - 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669532.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ George Frideric Handel - La Maga Abbandonata (Simone Kermes & Maite Beaumont / I
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_664150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664150.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Emma Shapplin - 2 Альбома (2002-2003) [FLAC|Lossless]<Modern Classical>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_663446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663446.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Tenorissimi Mondeale '90 (1990) [APE|Lossless|image + .cue] <Classical>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647638.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647280.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Johann Sebastian Bach–Messe h-moll Mass B Minor BWV 232: VA La Petite Bande Co
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626751.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Johann Sebastian Bach - The 6 Motets: Nikolaus Harnoncourt (1989) [FLAC|Lossless
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622861.jpg" />
 </div>
 
 

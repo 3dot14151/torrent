@@ -1,3 +1,109 @@
+###  Публикация: 1458893   (204871) от 23.10.2022
+
+Foxford, Елена Горская | Подготовка к олимпиадам по программированию для среднего уровня, 7-9 классы (2017) PCRec
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс дает необходимые знания для уверенного выступления на олимпиаде по программированию: алгоритмы поиска и сортировки, арифметические алгоритмы и прочие темы. На занятиях обсуждаются теоретические вопросы, разбираются решения задач по программированию и основы языка Python.Производство: FoxfordЖанр: ПрограммированиеПродолжительность: 45:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6515EB8275D16FF07E3C12F8F1DEE91E3B67052F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612744   (202625) от 17.02.2023
+
+Физика. Курс видео-уроков. 7–11 классы (2023) WEBRip [H.265/720p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподаватели доступным языком объясняют самые сложные темы учебной программы. Полученные знания тут же закрепляются с помощью тренажеров.
+Конспекты уроков помогают вспомнить материал для решения домашних заданий и подготовки к контрольным.
+Любое изменение в природе — явление. На основе наблюдаемых явлений мы выдвигаем гипотезы. Для проверки гипотезы мы ставим эксперимент. (   Читать дальше...   )Производство: Россия, Ростелеком ЛицейЖанр: видеоуроки, обучающий, детский, школьная программаЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~40:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720C433F9ED74927D8F1B2E173DF1B7A310F0DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626904   (199798) от 16.04.2023
+
+БЕРГ САУНД, Саакянц | Английский язык для самых маленьких (2006) WEB-DL [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все думают, что рыбы не умеют говорить! Как же удивился наш друг Зайчик, когда узнал о том, что рыбы не только могут говорить, но даже хотят выучить английский язык. И пришлось нашему Зайчику одевать скафандр и спускаться на дно морское, чтобы обучит семью Налима английскому языку. Ребята! А чем мы хуже рыб? Может быть и мы вместе с нашими героями выучим английские (   Читать дальше...   )Производство: Россия / Студия Берг СаундЖанр: мультфильм, детскийРежиссер: Роберт СаакянцУчастники: Анна ЭкекянЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41026ACD175918891335E5973A8538861FB72720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626929   (199775) от 16.04.2023
+
+Английский язык для малышей (2008) WEB-DL [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши герои Компьютер и Файл в легкой и познавательной форме помогут тебе изучить английский язык. И привьют тебе любовь к получению знаний!Производство: Россия / Студия Берг СаундЖанр: мультфильм, детскийРежиссер: Роберт СаакянцЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490D4B3EE20C241F708141991C513E52AAF320EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940572   (195636) от 15.07.2023
 
 Улица полна неожиданностей. ПДД для Детей (1998) DVDRip
@@ -6,7 +112,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195636.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192397.jpg" />
 </div>
 
 
@@ -64,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177844.jpg" />
 </div>
 
 
@@ -91,7 +197,7 @@ Udemy, Денис Фадеев | Программирование игр для 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175477.jpg" />
 </div>
 
 
@@ -118,7 +224,7 @@ Codim.online, Денис Голиков | Программирование Minec
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175453.jpg" />
 </div>
 
 
@@ -144,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172897.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172896.jpg" />
 </div>
 
 
@@ -196,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172889.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172887.jpg" />
 </div>
 
 
@@ -251,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172698.jpg" />
 </div>
 
 
@@ -278,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172174.jpg" />
 </div>
 
 
@@ -305,7 +411,7 @@ InternetUrok | Английский язык. 2-11 класс (2010-2020) WEBRip
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165674.jpg" />
 </div>
 
 
@@ -332,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152393.jpg" />
 </div>
 
 
@@ -358,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150057.jpg" />
 </div>
 
 
@@ -384,7 +490,7 @@ Skillberry | Все включено. Безлимитный доступ к 35 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146131.jpg" />
 </div>
 
 
@@ -410,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133775.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133629.jpg" />
 </div>
 
 
@@ -462,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133557.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133297.jpg" />
 </div>
 
 
@@ -516,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88318.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86615.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_72921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72921.jpg" />
 </div>
 
 
@@ -579,110 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 53485   (63038) от 14.03.2024
-
-Когда девочка взрослеет (2003) [DVDRip]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный, учебный фильм, по заказу Минздрава РФ, о развитии репродуктивной системы девочек, в четырех частях, сдобренный изрядным количеством отменного юмора! Фильм для учащихся средних и старших классов. Фильм участвовал в конкурсной программе фестиваля Суздаль-2003. Если у вас подрастает дочь, и вы не знаете, как лучше ответить на задаваемые ею вопросы (   Читать дальше...   )Жанр: детский, обучающийРежиссер: Дмитрий Высоцкий, Андрей СикорскийСубтитры: ОтсутствуютПродолжительность: 4 х ~00:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4932382E590124D5BF939E610303AFB5CF55BE80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720965   (57511) от 05.05.2024
-
-Внутренний мир (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полезный, веселый и увлекательный урок биологии для детей. Образовательный мультфильм расскажет о строении человеческого организма – об удивительном мире внутри нас. Какие в нем протекают процессы, и что меняется с приходом болезни? За что отвечают различные органы, и почему так важно соблюдать правила гигиены? Об этом и многом другом юные зрители узнают из красочной (   Читать дальше...   )Производство: Россия / Санкт-Петербургская студия документальных фильмовЖанр: детский, развивающий, короткометражный, минисериалРежиссер: Дмитрий Синов, Владимир ТкачУчастники: Михаил Черняк, Елена Шульман, Софья Юрко, Юрий РомановЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7120D56FE91F017155E5916E15D52C18DA2D0BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205812   (45001) от 01.09.2024
-
-Спокойной ночи, малыши. вып. 51-100 (1964-2011) TVRip
-
->>След.
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Передача "Спокойной ночи, малыши!" - уникальное явление на телевидении. Программа существует с сентября 1964 года. Она никогда не переставала выходить в эфир. И всегда была популярной. Практически все население страны, в возрасте до семи лет (а вместе с ним мамы, папы, дедушки и бабушки) в 20ч.45мин. усаживается перед экраном. Когда-то передача задумывалась (   Читать дальше...   )Жанр: ДетскийРежиссер: Н.В.СОКОЛ, Л.И.КРЮКОВА, Т.П.ПАРШИНА и др.Язык: РусскийПродолжительность: 00:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1770C0A8BA5ADB50C682DC2F969D847ADCCDED7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205527   (44892) от 02.09.2024
-
-Спокойной ночи, малыши. вып. 1-50 (С 1964 по настоящее время) TVRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Передача "Спокойной ночи, малыши" - уникальное явление на телевидении. Программа существует с сентября 1964 года. Она никогда не переставала выходить в эфир. И всегда была популярной. Практически все население страны, в возрасте до семи лет (а вместе с ним мамы, папы, дедушки и бабушки) в 20ч.45мин. усаживается перед экраном. Когда-то передача задумывалась (   Читать дальше...   )Жанр: ДетскийРежиссер: Н.В.СОКОЛ, Л.И.КРЮКОВА, Т.П.ПАРШИНА и др.Перевод: ОригинальныйЯзык: РусскийПродолжительность: 00:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B45158B1452B2BBCB6672501D9EA67F7B81C07
 ```
 
 https://mybot314.ru/tekegram_catalog/

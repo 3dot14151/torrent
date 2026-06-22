@@ -1,3 +1,55 @@
+###  Публикация: 749718   (936275) от 05.02.2014
+
+Мертвый сезон (1968) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аэропорту одной из европейских стран убит связной между доктором Хаасом и западногерманской разведкой. В кармане убитого обнаружена шифровка о закупке сырья для массового производства газа Эр-Эйч. Необходимо пояснить следующее: в одном из западных курортных городков под вывеской фармацевтического центра немецкий военный преступник доктор Хаас заканчивает работу (   Читать дальше...   )Производство: СССРЖанр: драма, криминал, приключенияРежиссер: Савва КулишАктеры: Донатас Банионис, Ролан Быков, Сергей Курилов, Геннадий Юхтин, Бруно Фрейндлих, Светлана Коркошко, Юри Ярвет, Антс Эскола, Леонхард Мерзин, Эйнари КоппельПродолжительность: 02:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFD9797A5D003A1F5E17BBB3BD2CB29B73B9236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933357   (934858) от 14.01.2017
+
+Чародеи (1982) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодняя сказка о том, что настоящая любовь может творить чудеса. В институте «НУИНУ» (научный универсальный институт необыкновенных услуг) кипит бурная работа по изготовлению волшебной палочки. Презентация изобретения намечена на 31 декабря, в Новогодний вечер. Но тут в дело вступают противники директора института, преследующие свои цели…Производство: Гостелерадио, Одесская киностудияЖанр: Комедия, Мелодрама, МьюзиклРежиссер: Константин БромбергАктеры: Александра Яковлева, Александр Абдулов, Валентин Гафт, Екатерина Васильева, Валерий Золотухин, Эммануил Виторган, Михаил Светин, Роман Филиппов, Анна Ашимова, Семен Фарада, Евгения Абрамова, Ирина Бельгер, Вера Смоляницкая, Лилия Макеева, Леонид Харитонов, Николай Парфенов, Евгений Весник, Павел Винник, Николай Горлов, Дмитрий Зотов, Ольга Красикова (II), Александр (   Читать дальше...   )Продолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF24E1314293740058E57658E06C2AE52D7F0543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 53103   (934695) от 14.01.2017
 
 Дайте жалобную книгу (1964) DVDRip
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934695.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934603.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934597.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_933677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933677.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931888.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930853.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928798.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928544.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927861.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927595.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927543.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926627.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925915.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925593.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923445.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_922356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922356.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921944.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921371.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_921202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921202.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920886.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920816.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920807.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920806.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920416.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58828DA39FDC7B227CC7328605AD80E77B265C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863022   (919845) от 29.01.2015
-
-Государственный преступник (1964) SATRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919845.jpg" />
-</div>
-
-
-###  Подробнее
-
-1960-е годы.... По стране прокатилась волна процессов над военными преступниками, которым удалось скрыться от правосудия после окончания войны. Молодой сотрудник КГБ Андрей Поликанов (А.Демьяненко) расследует дело о массовых казнях советских людей, в которых участвовал некто Юрий Золотицкий, перешедший на сторону врага. След предателя обрывается в 1944 году в госпитале (   Читать дальше...   )Производство: Ленфильм (Первое творческое объединение)Жанр: Детектив, Драма, КриминалРежиссер: Николай РозанцевАктеры: Александр Демьяненко, Алина Покровская, Сергей Лукьянов, Павел Кадочников, Клара Лучко, Олег Жаков, Валерий Никитенко, Бруно Фрейндлих, Александр Момбели, Нелли Корнева, Оксана Лукьянова, Степан КрыловПродолжительность: 01:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F9131DE10EBB61C48732435886483A58C86B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988860   (918912) от 21.02.2016
-
-Полковник в отставке (1978) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киноповесть по мотивам романа В. Дягилева "Вечное дерево". Корней Корнеевич Полунин - кадровый военный, полковник в отставке. Жена умерла, когда сыну было полтора года, Алексей уже вырос, стал самостоятельным, и они редко видятся. Не в силах сидеть дома, Полунин идет на завод слесарем - по своей старой специальности. Друзья воспринимают это как чудачество, (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: ДрамаРежиссер: Игорь ШешуковАктеры: Николай Гринько, Лилия Гриценко, Татьяна Канаева, Жанна Прохоренко, Олег Янковский, Владимир Зельдин, Валентин Никулин, Зинаида Шарко, Юрий Гончаров, Анатолий Лобода, Александр Соколов, Иван Соловьёв, Владимир Заманский, Юрий Соловьёв, Александр Богданов, Александр Никитин (III)Продолжительность: 01:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2430542676322036247DDA2C34B07AA7F79301F
 ```
 
 https://mybot314.ru/tekegram_catalog/

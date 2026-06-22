@@ -1,3 +1,60 @@
+###  Публикация: 687550   (576659) от 11.08.2013
+
+Через тернии к звёздам (1980/2001) DVDRip [H.264] [Реставрация, Новая версия]
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ФантастикаРежиссер: Ричард Викторов, Николай ВикторовАктеры: Елена Метелкина (Нийя), Вадим Ледогоров (кадет Степан Лебедев), Улдис Лиелдидж (Сергей Лебедев), Елена Фадеева (Мария Павловна), Вацлав Дворжецкий (Петр Петрович Лебедев), Надежда Семенцова (профессор Надежда Иванова), Александр Лазарев (профессор Виктор Климов), Александр Михайлов (Олег Дрейер), Борис Щербаков (Эдуард Колотун), Игорь Ледогоров (посол Ракан), Игорь (   Читать дальше...   )Продолжительность: 01:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5151397E8DA87DEB741A43C219D93B1D2CDF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811761   (576189) от 11.08.2014
+
+Свадьба (1944) / Медведь (1938) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свадьба
+По одноименному водевилю А. П. Чехова. Мещане Жигаловы, у которых на выданье дочь Даша, к ужасу своему узнают, что чиновник Апломбов, все лето ухаживавший за Дашей, ежедневно обедавший у них и зарекомендовавший себя женихом, жениться вовсе не собирается.
+
+Медведь(   Читать дальше...   )Жанр: КомедияРежиссер: И. АнненскийАктеры: Алексей Грибов, Фаина Раневская, Зоя Фёдорова, Эраст Гарин, Николай Коновалов, Михаил Яншин, Сергей Мартинсон, Вера Марецкая, Осип Абдулов, Николай Плотников.
+
+Ольга Андровская, Михаил Жаров, Иван Пельтцер, Константин СорокинПродолжительность: 01:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13DAFD63241A81EC5A1D03C6C6A53FDEB548146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 687017   (575295) от 12.08.2013
 
 Рано утром (1965) H264 TVRip
@@ -6,7 +63,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575295.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575278.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571979.jpg" />
 </div>
 
 
@@ -85,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570952.jpg" />
 </div>
 
 
@@ -112,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568336.jpg" />
 </div>
 
 
@@ -138,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567035.jpg" />
 </div>
 
 
@@ -164,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566795.jpg" />
 </div>
 
 
@@ -190,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566562.jpg" />
 </div>
 
 
@@ -216,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564390.jpg" />
 </div>
 
 
@@ -243,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563754.jpg" />
 </div>
 
 
@@ -270,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563255.jpg" />
 </div>
 
 
@@ -297,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_563196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_563196.jpg" />
 </div>
 
 
@@ -323,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561201.jpg" />
 </div>
 
 
@@ -350,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561082.jpg" />
 </div>
 
 
@@ -376,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_559484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_559484.jpg" />
 </div>
 
 
@@ -402,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558989.jpg" />
 </div>
 
 
@@ -428,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558974.jpg" />
 </div>
 
 
@@ -454,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558822.jpg" />
 </div>
 
 
@@ -482,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558621.jpg" />
 </div>
 
 
@@ -508,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556011.jpg" />
 </div>
 
 
@@ -534,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553431.jpg" />
 </div>
 
 
@@ -560,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553040.jpg" />
 </div>
 
 
@@ -587,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548955.jpg" />
 </div>
 
 
@@ -614,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548211.jpg" />
 </div>
 
 
@@ -625,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251A73409C9207D2346C320343489E1275AAF9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224176   (547572) от 23.06.2019
-
-Дачная поездка сержанта Цыбули (1979) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547572.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести П. Автомонова «Автограф сержанта Цыбули».
-Бойца-разведчика сержанта Цыбулю (Сергей Иванов) отправляют на «дачную поездку» — провести инструктаж в партизанском отряде. Но ночной прыжок из самолёта на парашюте оказался неудачным — «три костра в линию», служащие ориентиром, оказались кострами, на которых полицаи обрабатывали реквизированных у населения (   Читать дальше...   )Производство: СССР, киностудия: "им. А.Довженко"Жанр: Комедия, Военный, ПриключенияРежиссер: Николай Литус, Виталий ШунькоАктеры: Сергей Иванов, Владимир Алексеенко, Михаил Кокшенов, Надежда Смирнова (I), Володя Чубарев, Михаил Львов, Нина Реус, Степан Олексенко, Сергей Свечников, Маргарита КриницынаСубтитры: ОтсутствуютПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78689BE49F8DFBE88EC6B4FA199E0A65B94CDBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815634   (547465) от 28.08.2014
-
-На киевском направлении (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героическая драма раскрывает одну из самых трагичных страниц летописи Великой Отечественной войны - ее первые месяцы, период обороны Киева до захвата города немецкими оккупантами...Производство: СССР, киностудия им. А. ДовженкоЖанр: ВоенныйРежиссер: Владимир ДенисенкоАктеры: Анатолий Барчук, Виталий Розстальный, Степан Олексенко, Виктор Мизиненко, Полина Куманченко, Наталья Наум, Валентина Гришокина, Виктор Мирошниченко, Нила Крюкова, Николай Яковченко, Яков Козлов, Светлана Кузьмина, Фёдор Панасенко, Валерий Бессараб, Виктор Баенко, Константин Степанков, Михаил Державин, Лесь Сердюк, Армен Джигарханян, Виктор ЧерняковПродолжительность: 01:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9ECEA11DE0E3F9F7C0311C6DAB5493F311A7C48
 ```
 
 https://mybot314.ru/tekegram_catalog/

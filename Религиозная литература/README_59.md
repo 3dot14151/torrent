@@ -1,3 +1,57 @@
+###  Публикация: 1040183   (587514) от 04.08.2016
+
+Александр Кырлежев (сост.) | Сокровище в сосудах глиняных. Руководство по экуменической герменевтике (2000) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный текст был выработан в ходе трех специальных консультаций, в число участников которых входили члены комиссии ВСЦ «Вера и церковное устройство», а также специалисты в области герменевтики, представляющие разные церковные традиции.
+
+Книга рассчитана на использование ее в процессе выработки герменевтических руководств и других учебных материалов применительно (   Читать дальше...   )Жанр: Герменевтика, экуменизмФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAFD42D38599EF65CC09D4E56E90D7FCEABBD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918692   (586038) от 16.07.2015
+
+В. К. Зайцев | Богомильское движение и общественная жизнь Северной Италии эпохи дученто (1967) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586038.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге (одном из немногих изданий на русском языке) рассказывается о средневековом болгарском еретическом учении - богомильстве, оказавшем большое влияние на западноевропейскую религиозную мысль (секты катаров, альбигойцев и др.), а также, вероятно, - и на идеологию русских средневековых религиозных сект.Жанр: История, религиоведение, искусство, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCD2AC5688E24690F5BC70724FF52CE06ACDC1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918691   (586037) от 16.07.2015
 
 Л. И. Емелях | Антиклерикальное движение крестьян в период первой русской революции (1965) [DJVU]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586037.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586035.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585872.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_585870.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585863.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585776.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_585773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_585773.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585752.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585719.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585535.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585362.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584934.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584772.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583449.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583447.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_583016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583016.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582344.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_582210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_582210.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581949.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581866.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581477.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580374.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580321.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580019.jpg" />
 </div>
 
 
@@ -632,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:598296CBF99B330F00D35E763C9CE33F601AF729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042458   (579604) от 12.08.2016
-
-отец Даниэль-Анж | Раненый пастушок (1998) [DJVU, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_579604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта удивительная книга французского монаха и священника отца Даниэль-Анжа повествует о боли нашего мира, раненного злом, и о надежде, о чуде, о свободе и о любви. Она о простом парнишке, не находящем себе место в жизни, о людях, окружающих его, о каждом из нас. И о Боге, чье сердце ранено любовью, приходящем к человеку. Эта книга, написанная легко и искренне, касается (   Читать дальше...   )Жанр: Духовная литература, повестьФормат: DJVU, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52707B20C00000F765D5B7A7FD5E8014840C7F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042466   (579598) от 12.08.2016
-
-Марина Роднянская | Весенние сумерки (2009) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воспоминания духовной дочери отца Александра Меня, прихожанки храма Космы и Дамиана в Шубине, музыканта-педагога Марины Роднянской о христианах конца ХХ века.Жанр: МемуарыФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E1664E91481EDFEF9ADF452F842F5BD1B763DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

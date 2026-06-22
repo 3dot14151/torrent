@@ -1,29 +1,3 @@
-###  Публикация: 1508899   (794649) от 12.11.2021
-
-Осталcя всего 1 день! Получите Windows 10 по самой низкой цене за $7,29 на распродаже Keysfan 11.11.
-
->>Интернет и Разное
->>Для открывших Интернет
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_794649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осталcя всего 1 день! Получите Windows 10 по самой низкой цене за $7,29 на распродаже Keysfan 11.11.В ходе распродажи в День холостяков - также известной как «Распродажа 11.11» - в 2016 году покупатели потратили $17,8 млрд на онлайн-платформе Alibaba всего за 24 часа. Скидки на 11.11 не ограничиваются указанными ценами. Некоторые магазины также предлагают дополнительные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389524   (783579) от 13.06.2020
 
 Сумасшедшая летняя распродажа: Все продукты Microsoft за полцены, а Windows 10 Home всего за $9.49!!!
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_783579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783579.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_768860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768860.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ COVID-19: Специальное предложение для Windows и Office
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_765850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765850.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_746141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_746141.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_738621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_738621.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735784.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_735511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735511.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Microsoft Windows 10 Professional до 14 долларов США!
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_720392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720392.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_702902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702902.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_604083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_604083.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_587504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587504.jpg" />
 </div>
 
 
@@ -300,6 +274,32 @@ https://mybot314.ru/tekegram_catalog/
 
 Получаем 59€ от проекта CoinlnnCoinInn — раздаёт всем новым пользователям 58€ за регистрацию для торговли. Вложения не нужны!
 Верификацию можем пройти сразу или когда будем выводить.Вывести мы сможем только прибыль с этих 58€, пример: купили на 58€ Luna, через неделю Luna сделала х2, значит вы выводите +58€ (для вывода нужна верификация), а ваши бонусные 58€ списываются.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312197   (530224) от 05.07.2019
+
+Как купить Windows 10 Pro за $13 и другие продукты по минимальным ценам
+
+>>Интернет и Разное
+>>Для открывших Интернет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_530224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая совершенная в мире операционная система для вашего ПК!Microsoft сделала отличную операционную систему Windows 10 Pro. Лучшая из когда-либо созданных, она продолжает обновляться и мы получаем еще лучше результаты стабильности и оптимизации,  она получила долгожданное обновление в мае 2019 года. Если вы планируете купить ее для своего нового ПК или хотите обновить (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_470145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_470145.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_424789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_424789.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_355209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355209.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_312386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_312386.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207427.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_202795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202795.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_182714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182714.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161286.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156342.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150271.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142857.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20538.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15808.jpg" />
 </div>
 
 

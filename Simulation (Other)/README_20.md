@@ -1,55 +1,3 @@
-###  Публикация: 1704476   (114426) от 04.03.2024
-
-Run Pizza Run (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как долго вы ждали доставщика сочной и вкусной пиццы? Добро пожаловать в мир скорости, адреналина и вкуснейшей пиццы! В "Run Pizza Run" вы окажетесь в роли отважного доставщика, который отправляется в опасное приключение, чтобы доставить свежую пиццу по указанным точкам. Однако, на вашем пути стоят не только голодные клиенты, но и беспощадные дорожные монстры (   Читать дальше...   )Тип издания: LicenseРазработчик: IZI GamesЖанр: Экшены, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7799F70B75A87031543E1BF1B161802FE01F6FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711641   (112424) от 31.03.2024
-
-MUSYNX (2018) [Multi] (1.0/dlc) Scene PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_112424.jpg" />
-</div>
-
-
-###  Подробнее
-
-MUSYNX пришла на компьютеры с мобильных устройств. Продукт является ритм-игрой, выполненной в стилистике аниме. В тайтле есть 2 режима графики: трехмерная и двухмерная. Между ними можно постоянно переключаться. В первом случае камера будет расположена сзади под углом, а во втором – чётко сверху. Геймплей в MUSYNX выглядит следующим образом. В сторону юзера сверху (   Читать дальше...   )Тип издания: SceneРазработчик: I-InfernoЖанр: Инди, СимуляторыЯзык субтитров: Английский, Японский, Китайский, КорейскийЯзык интерфейса: Английский, Японский, Китайский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7C7828A09338AB7B84D98170361FDF077C65B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739260   (106145) от 27.07.2024
 
 Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Scene Rune
@@ -58,7 +6,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_106145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106145.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105653.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_104004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104004.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101379.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_88918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88918.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87675.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Agrar Simulator 2012 Deluxe (L) [Ge/En] 2011
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86271.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84193.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81742.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70313.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ The Magical Mixture Mill (2024) [Multi] (1.1.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68254.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Delivery INC (2023) [Ru/Multi] (1.8.3/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66739.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66449.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Repack seleZen [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65759.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Teardown (2022) [Ru/Multi] (1.7.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65755.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Sun Haven (2023) [Ru/Multi] (2.5.1E/dlc) Repack FitGirl [Ultra Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65587.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Russian Soul Simulator / Симулятор Русской Души (2024) [Ru/E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63562.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (13655355/dlc) Repack Othe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63136.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0/dlc) Repack Other s [Suprem
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63125.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ House Flipper 2 (2023) [Ru/Multi] (13653866/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63007.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ Monuments Renovator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62898.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.21) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62889.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ Trans-Siberian Legends (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62419.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Manic Mechanics (2024) [Ru/Multi] (2.1.7.0_88821) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61983.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Manic Mechanics - восхитительный кооперативный гей
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3ABD52E51CA18ADD498964F2E02B0627E759207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710361   (61773) от 26.03.2024
+
+REAL ESTATE Simulator - FROM BUM TO MILLIONAIRE (2024) [Ru/Multi] (3815219) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Real Estate Simulator ставит вас на место начинающего предпринимателя, готового превратить свою жизнь из лохмотьев в богатство. В этой игре-симуляторе бизнеса вы начинаете с малого, но с большими мечтами. Вы пройдете путь от простой палатки до огромной империи недвижимости. Путь к успеху усыпан трудностями и триумфами. Ориентируйтесь на постоянно меняющемся рынке, (   Читать дальше...   )Тип издания: RepackРазработчик: GeekonЖанр: Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8ED00A3929D94CDA7710202B2DB1A9050A9F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710307   (61757) от 26.03.2024
+
+WW2 Rebuilder (2023) [Ru/Multi] (20240217) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61757.jpg" />
+</div>
+
+
+###  Подробнее
+
+WW2 Rebuilder - симулятор от первого лица, дающий оценить разрушительные масштабы Второй мировой войны. Предстоит взять на себя роль того, кто пытается привести европейский город в порядок после того, как боевые действия закончились. Улицы находятся в руинах. Даже сложно сказать, что когда-то здесь царила красота и величие.Тип издания: SceneРазработчик: Madnetic GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B024F6B18D4F2A4B25937981C8C4552B1EFC0168
 ```
 
 https://mybot314.ru/tekegram_catalog/

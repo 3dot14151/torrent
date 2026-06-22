@@ -6,7 +6,7 @@ Hossam Ramzy - Zeina (1996) [MP3|320 kbps]<egypt ethnic music>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_559889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_559889.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559644.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558036.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551930.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551850.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551481.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Dolly Parton - Pure & Simple (2016) UK Edition [MP3|320 Kbps] <Country, New Wave
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550941.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Casey Barnes - Live As One (2016) [MP3|320 Kbps] <Country Rock, Pop Rock, Blues>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547352.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Artur Mena - Sabia Medicina (2013) [MP3|192 Kbps] <World: South American>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545735.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <L
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543810.jpg" />
 </div>
 
 
@@ -291,6 +291,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365669   (543119) от 20.07.2011
+
+Poemas De La Alhambra (2000) [MP3|320 kbps]<arabo-andalusian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543119.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:51] 01.  !Oh mi sostn, mi norte, t!
+[03:16] 02.  Soy corona en la frente de mi puerta
+[02:54] 03.  Oh la mansin del trono real
+[01:49] 04.  Fuente de los leones, flujo de nube
+[01:02] 05.  Leones de la guerra
+[04:59] 06.  Bendito aquel que dio al imn Mohammed
+[02:03] 07.  No aqu hay prodigios mil?
+[02:57] 08.  Jardn del paraiso
+[01:33] 09.  Todo arte me ha brindado su hermosura
+[01:56] 10.  Difano tazn, tallada perla(   Читать дальше...)Жанр: arabo-andalusian ethnic musicПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10597434896E41639865BBAB0E7561C84AF54515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365652   (543044) от 20.07.2011
+
+Ensemble Morkos - Cedre (1999) [MP3|~200 kbps]<arabo-andalusian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543044.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:54] 01.  Bashraf "Bulbul al-Afrah"
+[01:38] 02.  Jalla Manqad Sagha Badran
+[01:40] 03.  Tarraza R-Rayhanu Hullata L-Wardi
+[02:14] 04.  Taqsim Sur Le Ud
+[02:48] 05.  Qatili Bi-Ghunji L-Kahali
+[02:48] 06.  Sama I Iskandar Shalfun
+[05:09] 07.  Ya Maliha L-Lama Wa-Hula T-Tathanni
+[01:54] 08.  Rashiqa Lqaddi
+[02:59] 09.  Taqsim Sur Le Violon
+[02:38] 10.  Li Habibun Maqamuhu Fawqa Ra'si(   Читать дальше...)Жанр: arabo-andalusian ethnic musicПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E995769479E50490BE372E779B993FC12A787F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365676   (543042) от 20.07.2011
+
+Khan El Khalil - Oriental Music (2002) [MP3|320 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543042.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:36] 01.  Rakset El Gazia
+[06:47] 02.  Rakset El Topa
+[06:11] 03.  Rakset El Mambatia
+[04:19] 04.  Aale Men Eniy
+[02:29] 05.  Khan El Khalily
+[06:06] 06.  Kasr El Showk
+[09:00] 07.  Slamat Ya Eniya
+[05:34] 08.  Plad El MahpopЖанр: arabian ethnic musicПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A49835F9E2D67ECBFB7BDD550222051C47F801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365559   (543038) от 20.07.2011
+
+Shankar -  Sitar Concertos & other works (2005) [MP3|320 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_543038.jpg" />
+</div>
+
+
+###  Подробнее
+
+[12:12] 01.  Morning Love
+[14:40] 02.  Raga Piloo
+[04:11] 03.  Prabhati
+[14:20] 04.  Concerto for Sitar & Orchestra, Part 1: Raga Khamaj
+[06:11] 05.  Concerto for Sitar & Orchestra, Part 2: Raga Sindhi Bhairavi
+[03:30] 06.  Concerto for Sitar & Orchestra, Part 3: Raga Adana
+[15:33] 07.  Concerto for Sitar & Orchestra, Part 4: Raga Manj Khamaj
+[11:46] 08.  Raga: Purlya Kalyan
+[08:47] 09.  Swara-Kakali
+[16:34] 10.  Raga Mala - A Garland of Ragas (I. Lalit (Presto))(   Читать дальше...)Жанр: arabian ethnic musicПродолжительность: 02:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E97DF22E699AC4DF94FBAF305E58A4BE263EC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154063   (542653) от 29.07.2017
 
 Артель Роса - Ляпота (2017) EP [MP3|320 Kbps] <Russian Urban Folk>
@@ -299,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542653.jpg" />
 </div>
 
 
@@ -320,6 +458,170 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366070   (541196) от 21.07.2011
+
+H. Seraj & R. Kakavand - Gheseye Gisou (2000) [WMA|64 kbps]<arabic ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_541196.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:38] 01.  Gheseye Gisou
+[05:53] 02.  Daghe Jonoun
+[03:30] 03.  Taknavazi Tar
+[06:32] 04.  Sarv Khosh Bala
+[05:47] 05.  Saghi Golrokh
+[08:32] 06.  Aghlo Eshgh
+[05:56] 07.  MahЖанр: arabic ethnic musicПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98EA2619868856AF7AE90079BF3C4D71CB231A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365658   (541186) от 21.07.2011
+
+Mohamed Naiem - El-Fagr (Master of the Arabian Flute) (2004) [MP3|320 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_541186.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:17] 01.  Hams
+[07:01] 02.  El-Fagr
+[06:05] 03.  Dam-A-Men Oyoun Sood
+[05:31] 04.  Monagah
+[06:56] 05.  Raqs el Khayyalah
+[06:41] 06.  Farah
+[06:19] 07.  Fantasia
+[06:16] 08.  Al-Reda wal noorЖанр: arabian ethnic musicПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C16F24867235AFB325F88153A57E038C41E480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365712   (540973) от 21.07.2011
+
+Shantel - Bucovina club (2003) [MP3|256 kbps]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_540973.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:22] 01. Banda Ionica - Intro Espinita
+[04:02] 02. Banda Ionica - Espinita
+[05:04] 03. Taraf De Haidouks - Pelin Bau, Pelin Manic
+[03:32] 04. Dimineata
+[04:15] 05. The Rootsman - Ta Travudia
+[03:36] 06. Fanfare Ciocarlia - Tu Romnie
+[03:33] 07. Goran Bregovic - Wedding - Cocek
+[03:49] 08. Gogol Bordello - Baro Foro
+[04:12] 09. Kocani Orkestar - Siki, Siki Baba
+[03:21] 10. Bucovina(   Читать дальше...)Жанр: FolkПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F660BDA039A6570FAA6966AA99362A4311ED27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366073   (539355) от 22.07.2011
+
+S. Ta`rif & M. Derakhshani - Khialangiz (2007) [MP3|128 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539355.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:33] 01.  Heyran
+[06:20] 02.  Sare Kouhe Boland
+[05:49] 03.  Khaste Bal
+[07:08] 04.  Godazan
+[04:39] 05.  Khialangiz
+[06:20] 06.  Toranj
+[06:28] 07.  Derakht Roshanaii
+[05:32] 08.  Soukhte DelЖанр: arabian ethnic  musicПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EDCDF0C78BAF1C50245D996332336B88E6BFE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366077   (539354) от 22.07.2011
+
+Jalaleddin Mohammadian & Mohammad Mousavi - Asheghe Divaneh (2008) [MP3|128 kbps]<arabian ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539354.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:53] 01.  Tasnif Asheghe Divaneh
+[13:54] 02.  Avaz Bayat Esfehan
+[04:14] 03.  Tasnif Asheghe Divaneh
+[05:39] 04.  Tasnif Boti Daram
+[14:04] 05.  Avaz Faeze Dashtestani
+[06:02] 06.  Tasnif Boti DaramЖанр: arabian ethnic musicПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89ADC6CC011B3E85D0690B390D3B4ACC0815B44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532252   (538244) от 07.08.2012
 
 Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/с (V2)]<Folk,Барабаны,Шоу,Япония>
@@ -328,7 +630,7 @@ Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538244.jpg" />
 </div>
 
 
@@ -353,6 +655,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365220   (535411) от 24.07.2011
+
+Dhikr y Sama - Musica Sufi Andalusi (1999) [MP3|128 kbps]<world ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_535411.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:49] 01.  I. Iftitahiyya (preludio)
+[06:33] 02.  I. Iftitahiyya (preludio)
+[02:15] 03.  I. Iftitahiyya (preludio)
+[04:51] 04.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
+[01:37] 05.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
+[09:05] 06.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
+[03:50] 07.  II. Tubu (Modos) Gribt I-Hsin /Griba Muharrara /Sika
+[07:33] 08.  III: al-Imara, Danza Sufн o Hadra (Extasis o Trance)
+[02:37] 09.  Tubu al-Hiyaz al-Mashriqi, Raml I-Maya y Hamdan
+[26:45] 10.  Tubu al-Hiyaz al-Mashriqi, Raml I-Maya y HamdanЖанр: world ethnic musicПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90095AC8E47FBC0622DC79432D2E8A2A0E850318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367329   (535408) от 24.07.2011
+
+VA - France: Accordeonistes en Aubrac (1999) [MP3|320 kbps]<Folk, France accordeon>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_535408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Perrier & Didier Pauvert - Los pastres
+02. Cyprien Dominge - Lo moridon cotet
+03. Didier Pauvert - L'echo des montagnes
+04. Cyprien Dominge - Lo Valentinou
+05. Jean Vaissade & M. Bernard - Ma petite bouree
+06. Louis Pruniere - Mazurka des familles
+07. Cyprien Dominge - Le rossignol
+08. Jean Perrier - Lo crosado
+09. Jean Perrier - Amount sus la montanha
+10. Marcel Pelat - Lа-bas le long de la riviere(   Читать дальше...)Жанр: Folk, France accordeonПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B03B6216B72B07E1FCE64DECD7B377960987EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367405   (533366) от 25.07.2011
+
+VA - Music Rough Guide - Arabesque (2002) [MP3|~226 kbps]<ethnic music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_533366.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:13] 01. Aisha Kandisha's Jarring Effects - A Muey A Muey
+[05:07] 02. Oojami - Fantasy
+[03:43] 03. Clotaire K - Beyrouth Ecoeurée
+[05:34] 04. Nickodemus ft. Andrea Montiero - Desert Dancer
+[06:24] 05. MoMo - Dourbiha
+[08:03] 06. Ali Slimani - S'Habi (Stereomovers remix)
+[05:41] 07. DuOuD (Mehdi Haddab-Smadj) - Zanzibar
+[04:36] 08. Mafia Maghrebine - Frère Faut Que Tu Saches
+[05:41] 09. Bled Runner ft. Dida Brother - Sidi Mansour (remix)
+[04:09] 10. Soap Kills - Tango(   Читать дальше...)2002Жанр: ethnic musicПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE86FBF253FE819264DF8E3333506932F26798BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051554   (532694) от 11.09.2016
 
 VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
@@ -361,7 +768,7 @@ VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532694.jpg" />
 </div>
 
 
@@ -382,385 +789,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 927249   (528636) от 13.08.2015
+###  Публикация: 367734   (531541) от 26.07.2011
 
-Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenco>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verdadero
-02. Problema
-03. Se Dejaba Llevar Por Ti
-04. Ketama & Khaled – El Oasis De Los Dioses(   Читать дальше...   )Жанр: Spanish, Nuevo Flamenco |Продолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E429E89B2F2F3DF5F75F23C74BE80AC882F1982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156140   (527653) от 07.08.2017
-
-Hard Working Americans - We're All In This Together (2017) [MP3|320 Kbps] <Country Rock, Blues Rock>
+VA - Baghdad Blues (2006) [MP3|320 kbps]<arabian ethnic music>
 
 >>Other Styles
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_531541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mission Accomplished  (06:14)
-02. I Dont Have a Gun (09:15)
-03. Stomp and Holler  (05:47)
-04. Roman Candles  (06:07)(   Читать дальше...   )Жанр: Country Rock, Blues RockПродолжительность: 01:20:00
+[05:20] 01. Mesopotamix Vs Omar Bashi
+[09:13] 02. Cradle (Omar Bashir)
+[05:23] 03. Baghdad (Kazem Al saher)
+[05:07] 04. Main Mix
+[05:53] 05. Mohamed Bouya Mohamed (Ilham Al Madfai)
+[05:26] 06. Il Milih Wil Zad (Ridha Al Abdallah)
+[04:53] 07. Khaleeha Ala Allah (Sadoun Jaber)
+[06:31] 08. Ghahwitak Azawi (Sons of Mesopotamia)
+[08:05] 09. Poetic Justice (Kareem Al Iraqi)
+[09:09] 10. Baghdad (Fairuz)2006Жанр: arabian ethnic musicПродолжительность: 01:05:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F951BCDA714DEF5C9C61F2D203D8292C7B896FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156546   (527004) от 08.08.2017
-
-Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi Negrita   [4:23]
-02. Night Bird    [3:51]
-03. Rain Dance  [3:59]
-04. Wayrapa - Muspuynin [6:26](   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDA46DE663BBE9A08A0BE4E0D8A61C45F9CEA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369633   (526804) от 30.07.2011
-
-Munir Bashir - Discorgaphy (12 albums, 1987-2007) [MP3|128-320 kbps]<arabian traditional music, flamenco, oud>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1987-2007Жанр: arabian traditional music, flamenco, oudПродолжительность: 12:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E914E4EFF1A85B63A80239C323680BBCA3BF7B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369569   (526326) от 31.07.2011
-
-VA Gnawa - Mali - Ceremonies rituelles des Dogon (1994) [MP3|320 kbps]<gnawa, african music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526326.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:09] 01. Gomboy - Tambours de lutte
-[06:07] 02. Sendi ni - Chant de circoncision
-[13:29] 03. Na ba - Chants de mariage
-[10:17] 04. Badiu ni - Chants de funerailles des musiciens
-[12:46] 05. Ya go - Chants de finerailles des musiciens
-[09:22] 06. Bulu - Fete des samailles
-[10:44] 07. Pelu nu - Chants satyriques des jeunes filles1994Жанр: gnawa, african musicПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E0F2B102B52434F64A0FB901DB6E06D6488407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369564   (526324) от 31.07.2011
-
-VA Gnawa - Night Spirit Masters (1990) [MP3|128 kbps]<gnawa, african music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526324.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01.  Baba L'Rouami
-[05:14] 02.  Mimoun Mamrba
-[02:59] 03.  Tramin
-[06:28] 04.  Chabako
-[04:13] 05.  Moulay Brahim
-[04:09] 06.  Toura Toura Tour Kelilah
-[06:01] 07.  Baniya
-[04:50] 08.  Jillala
-[02:15] 09.  Said Fafy Drum Solo
-[03:14] 10.  Toura Toura Tour Kelilah(   Читать дальше...   )1990Жанр: gnawa, african musicПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2580F2E7236B990CA8B4CECD88C07338777E0724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369576   (526315) от 31.07.2011
-
-VA Gnawa - Gbaya Music - Songs For Reflection (1995) [MP3|~241kbps]<gnawa, african music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526315.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:16] 01.  Garafi
-[03:25] 02.  Naa-zambara
-[04:27] 03.  Naa-koro
-[03:51] 04.  Dai-te
-[04:02] 05.  Yaa-kuri
-[04:36] 06.  Ndio
-[11:40] 07.  Mbodomon (1)
-[01:49] 08.  Mbodomon (2)
-[03:28] 09.  Kenge
-[03:17] 10.  Gima-biro(   Читать дальше...   )1994Жанр: gnawa, african musicПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11DD4962AEBA3C9C1D7946C5824A805778870C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369822   (526234) от 31.07.2011
-
-Omar Bashir - Discorgaphy (10 albums, 1997-2006) [MP3|128-320 kbps]<arabian traditional music, flamenco, oud>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_526234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1997-2006Жанр: arabian traditional music, flamenco, oudПродолжительность: 08:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24CC67C53C9351B17CB8C0E5904D2FA30DF65AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157258   (525820) от 10.08.2017
-
-Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbps] <Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525820.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadow of the Moon
-2. Spirit of the Sea
-3. Renaissance Faire
-4. Play Minstrel Play(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9CFEB082C5E613C3791FD9B5C521EFC49D1CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370570   (525281) от 02.08.2011
-
-VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hava Nagila
-002. Israel
-003. Lamce Ram Ciam
-004. Ba Aretz(   Читать дальше...   )Жанр: FolkПродолжительность: 06:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309D99C633404F84F7137F448DEF7C6D8431340F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157484   (525218) от 12.08.2017
-
-Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Better Than Myself
-2. Hellbent Hallelujah
-3. More Than Survival
-4. Freak Flag(   Читать дальше...   )Жанр: CountryПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD301D8DCA75CC9C2FB2BBAD0CE5D230C092C4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187817   (516886) от 20.08.2018
-
-Українські стрілецькі та повстанські пісні (Ukrains'ki strilec'ki ta povstans'ki pisni) (2008) [MP3|192-320 kbps]<Folk, ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ой, у лузі червона калина (Етнографічний хор "Гомін")
-02. Вже бубон грає (Квартет бандуристів "Рось")
-03. Ой, видно село (Національна заслужена капела бандуристів України ім. Г. І. Майбороди)
-04. Зажурились галичанки (Держ. засл. Буковинський анс. пісні і танцю)(   Читать дальше...   )Жанр: Folk, ethnicПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099D921663F18F6676FA835188AC7B52CD300186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241857   (516174) от 21.08.2018
-
-Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_516174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What is a Man (3:44)
-02. Icarus (3:28)
-03. Made to Love You (3:18)
-04. Fall Like a Feather (3:22)(   Читать дальше...   )Жанр: Folk-Rock, Pop, Soul, Singer/SongwriterПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12822CB589729E7D0042D312C8175414D8D2A1E8
+magnet:?xt=urn:btih:B96AF16376E016CB92006D9AE895F85985146E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1671115   (171592) от 23.10.2023
+
+AltTab 6.63.0 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение AltTab дает возможность пользоваться функцией «alt-tab» от Windows на Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2023Разработчик: © 2022 lwouisПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC36CF011FB61A238C6F23B6F21BF6D2C37B25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671135   (171585) от 23.10.2023
+
+Mellel 5 v.5.1.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
+Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2023Разработчик: © 2002-2023 Mellel AAR LTDПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C2B3020867A54FF6CA21207C0E8AC136A78114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671249   (171582) от 23.10.2023
 
 Final Draft 12 v.12.0.9 [En]
@@ -6,7 +59,7 @@ Final Draft 12 v.12.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171582.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ PD (Progressive Downloader) 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171577.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Get Backup Pro 3 v.3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171576.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Things 3 v.3.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171575.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ EditReady 23.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171571.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Sketch 98.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171567.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Principle 6.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171559.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Topaz Photo AI for Mac 2.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171558.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ DxO ViewPoint 4 for Mac v.4.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171555.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ TechSmith Camtasia 2023 Studio 2023.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171544.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Screaming Frog SEO Spider 19.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171492.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171448.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ System Dashboard Pro 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171445.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Unite 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171443.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Kaleidoscope 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171438.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Blocs 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171436.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ VideoProc Converter 4K 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171431.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ Aiseesoft Mac FoneTrans 9.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171427.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Wondershare Recoverit for Mac 12.0.15.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171425.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ Wondershare UniConverter for Mac 15.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171423.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ TinkerTool System 8 v.8.87 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171421.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ VideoProc Converter 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171417.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ Scrutiny 12.8.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171275.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ File List Export 2.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171274.jpg" />
 </div>
 
 
@@ -629,58 +682,6 @@ File List Export (бывший File list to Excel) - простое в испо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B32D65FDD70CA64595C9010E412DCEDC4D539A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671513   (171273) от 25.10.2023
-
-Boxy SVG 4.14.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2012-2023 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2539134313CFA1D98363ABB7C21B10B5E30A8AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671654   (171255) от 25.10.2023
-
-CADintosh X 8.8.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171255.jpg" />
-</div>
-
-
-###  Подробнее
-
-CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2023Разработчик: © 2002-2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6CDB11F28F1850F8E3F98A92203AE9CF008847
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1601136   (152703) от 30.12.2022
+
+System Toolkit 5.9.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152703.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80592CEDA10FAE567C2A5DF1C7ED92E70D09B2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601074   (152676) от 30.12.2022
+
+NetWorker Pro 8.5.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152676.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E08F5CB3AE9AB7C4A7DBE722F1C77B52A9C33A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601240   (152664) от 30.12.2022
 
 Aiseesoft Mac Video Converter Ultimate 10.3.38 [Multi/Ru]
@@ -6,7 +58,7 @@ Aiseesoft Mac Video Converter Ultimate 10.3.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152664.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ DriveDx 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152653.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ FoneDog Toolkit for iOS 2.1.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152625.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Byword 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152580.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Mactracker 7.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152512.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ DjVu Reader Pro 2.6.2 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152506.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ ColorWell 7.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152497.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ PDFpenPro 11.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152484.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Screenium 3 3.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152442.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ EtreCheck Pro 6.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152429.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Adware Zap Pro 2.7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152422.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ NeoFinder Business 7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152413.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Wirecast Pro 11.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152395.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Navicat Premium 15.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152370.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Screaming Frog SEO Spider 16.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152357.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Backgrounds 7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152330.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ EaseUS Todo Backup for Mac 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152291.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Downie 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152269.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ Adguard 2.3.2 (704) (CL-1.5.155) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152243.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Combo Cleaner Antivirus Premium 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152154.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ BluePlum Home Inventory 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152091.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Movavi PDF Editor 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152084.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ iLock 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152071.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ Net Worth Pro 2 v3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152061.jpg" />
 </div>
 
 
@@ -632,62 +684,6 @@ Net Worth Pro - отслеживайте свою чистую стоимост�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:176310E5F28E4D8520DC4C404BA74615F5EC826C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434352   (152052) от 24.12.2020
-
-URL Manager Pro 5.5.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152052.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2020Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387156DA81E499E632B9D8D6F2C839014D21FB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270377   (152021) от 22.12.2018
-
-Luminar 3 3.0.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: SkylumПоддерживаемая ОС: MacOS 10.11Язык интерфейса: Английский, Немецкий и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892FC757685159A7EF944A225305D0195AFE9CAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

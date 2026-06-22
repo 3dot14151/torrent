@@ -1,3 +1,35 @@
+###  Публикация: 249150   (412409) от 23.10.2010
+
+S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля [Ru] (L) 2007
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_412409.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 год. Шесть лет прошло с момента Второй катастрофы, затмившей события апреля 1986 года.
+
+Действие игры происходит в Чернобыльской зоне отчуждения, превратившейся из места, где ломались судьбы, в угрозу всему человечеству. Свои тайны Зона раскрывает неохотно, через силу, и редкий герой сможет добраться до самого ее сердца и узнать – какая опасность поджидает его там?
+
+Опасность, по сравнению с которой мародеры и вражеские группировки, все монстры и аномалии Зоны покажутся лишь подготовкой к встрече с чем-то более фатальным и пугающим.
+
+А пока... Готовься, герой. Собирай артефакты и торгуй, прощупывай дорогу и проверяй тылы, хватай рентгены и сражайся – но только выживи! И тогда, быть может, если будешь настойчив и особо везуч, ты узнаешь – почему все это свалилось на тебя.Тип издания: ЛицензияРазработчик: GSC Game WorldЖанр: Action (Shooter) (Survival) / 3D / 1st PersonЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325486   (411767) от 15.09.2019
 
 Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
@@ -6,7 +38,7 @@ Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411767.jpg" />
 </div>
 
 
@@ -32,7 +64,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411596.jpg" />
 </div>
 
 
@@ -58,7 +90,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.03/dlc) License HOODLUM [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411185.jpg" />
 </div>
 
 
@@ -84,7 +116,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.41044.0/dlc) Repack R.G. Catalyst [Full Clip 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407576.jpg" />
 </div>
 
 
@@ -110,7 +142,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407215.jpg" />
 </div>
 
 
@@ -136,7 +168,7 @@ Borderlands 3 (2019) [Ru/Multi] (5382210/dlc) License EMPRESS [Super Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406982.jpg" />
 </div>
 
 
@@ -162,7 +194,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406969.jpg" />
 </div>
 
 
@@ -188,7 +220,7 @@ Chivalry: Medieval Warfare [Ru] (Repack) 2012 | R.G Repacker's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405124.jpg" />
 </div>
 
 
@@ -215,7 +247,7 @@ E.Y.E. Divine Cybermancy [Ru] (Repack/1.37) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403305.jpg" />
 </div>
 
 
@@ -243,7 +275,7 @@ RAID: World War II (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402956.jpg" />
 </div>
 
 
@@ -269,7 +301,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402952.jpg" />
 </div>
 
 
@@ -295,7 +327,7 @@ Half-Life 2: Episode Two / Offshore [Ru] (Mod/P) 2004/2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_402821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402821.jpg" />
 </div>
 
 
@@ -321,7 +353,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402093.jpg" />
 </div>
 
 
@@ -347,7 +379,7 @@ RAID: World War II / RAID: World War 2 (2017) [Ru/En] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402078.jpg" />
 </div>
 
 
@@ -373,7 +405,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8) Repack R.G. Мех�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401991.jpg" />
 </div>
 
 
@@ -399,7 +431,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398270.jpg" />
 </div>
 
 
@@ -425,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391425.jpg" />
 </div>
 
 
@@ -452,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_391390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391390.jpg" />
 </div>
 
 
@@ -479,7 +511,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390962.jpg" />
 </div>
 
 
@@ -505,7 +537,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.208) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_390952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390952.jpg" />
 </div>
 
 
@@ -531,7 +563,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388760.jpg" />
 </div>
 
 
@@ -557,7 +589,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388705.jpg" />
 </div>
 
 
@@ -583,7 +615,7 @@ Crysis Warhead (2008) [Ru/Multi] (1.1.1.711) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388534.jpg" />
 </div>
 
 
@@ -609,7 +641,7 @@ Crysis / Wreckage [Ru/En/De] (RePack/Mod) 2012 | dr.Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_386656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386656.jpg" />
 </div>
 
 
@@ -635,7 +667,7 @@ Tom Clancy's Ghost Recon: Advanced Warfighter 2 [Ru] (RePack) 2007  | mefist00
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_385971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_385971.jpg" />
 </div>
 
 
@@ -644,32 +676,6 @@ Tom Clancy's Ghost Recon: Advanced Warfighter 2 [Ru] (RePack) 2007  | mefist00
 Год 2014. Южная граница США стала одной из самых горячих точек земного шара. Стена протяженностью 1900 миль - единственный рубеж, который отделяет благополучный и преуспевающий мир Соединенных Штатов Америки от обжигающего дыхания хаоса, царящего в соседней Мексике.
 Политическая обстановка на родине текилы нестабильна как никогда. Страну лихорадит от экономических и социальных потрясений, множество организаций экстремистского толка набрали невиданную мощь и угрожают как шаткому режиму мексиканского правительства, так и национальной безопасности прилегающих государств. Стена, пролегающая вдоль границы, становится для сепаратистов "целью № 1". Сотни до крайней степени озлобленных бойцов атакуют ее по всей протяженности, но где будет нанесен решающий удар, не знает никто.
 Предотвратить прорыв боевиков – задача, которую под силу выполнить лишь элитному отряду специального назначения "Призраки". Командир, приступайте. На ликвидацию угрозы у вас есть 72 часа!Тип издания: RePack ( перепакованная лицензия )Разработчик: GRINЖанр: Action (Tactical / Shooter) / 3D / 1st PersonЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250035   (384011) от 26.10.2010
-
-Nosferatu: The Wrath of Malachi / Вампиры [Ru] (P) 2003
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_384011.jpg" />
-</div>
-
-
-###  Подробнее
-
-У твоих врагов много имен - вампиры, вурдалаки, упыри, ожившие мертвецы, которые рыщут в ночи и хотят испить живой крови. Будь готов пережить немало жутких минут. А какими еще они могут быть в древнем румынском замке, которыми владеет кровавый вампир граф Тепеш? Именно здесь томится семья английских аристократов, которая скоро будет растерзана проклятыми тварями. Уничтожь гнездо упырей и положи конец царству призрака ночи!Тип издания: ПираткаЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash

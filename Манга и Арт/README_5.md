@@ -6,7 +6,7 @@ Corona Blossom Vol.1: Gift From the Galaxy (2016) [En/Jp] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310827.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Urusei Yatsura / Несносные пришельцы (1978) [3 тома] [Ма
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_303318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_303318.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Monster Collection / Коллекция монстров (1998) [1-33 гл.] [М
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299753.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296544.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Kaichou wa Maid-sama! | Class President is a Maid! | Президент студ
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277630.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Ai wo Utauyori Ore ni Oborero!! / Вместо того, чтобы петь п�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277309.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Akame ga Kill! | Убийца Акаме! (2010) [15 томов, 79 глав] [�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269083.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Sora no Otoshimono / Lost Property of the Sky / Потерянное небом 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_228208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228208.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Rewrite (2011) [Ru/Multi] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_217560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217560.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_214193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214193.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Love, Money, Rock'n'Roll | Любовь,деньги, Рок-н-ролл [Ru/En]
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187672.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов (2009-2021) [34
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169952.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Shokugeki no Souma | Food Wars | Кулинарные поединки Сомы 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169200.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Take Me To The Dungeon!! (2023) [Ru/Multi] (1.0.11) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153849.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Ushinawareta Mirai wo Motomete / В поисках утраченного буд
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145197.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Mahouka koukou no Rettousei / The Irregular at Magic High School / Непуте�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144340.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Utsuro no Hako to Zero no Maria / The Empty Box and The Zeroth Maria / Пуст�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140942.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Shinmai Maou no Testament / The testament of sister new devil / Клятва о�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140480.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Neon Genesis Evangelion: Angelic Days / Shin Seiki Evangelion: Girlfriend of Ste
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140195.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138341.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Nisekoi / False Love / Притворная любовь [Манга][главы
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_136324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136324.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Another Chance (2020) [Ru/En] (1.34) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126822.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ WANDERER: Broken Bed (2021) [Ru/En] (0.9) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125404.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Goodbye Eternity (Extra Life) (2021) [Ru] (0.8.1) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_125399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125399.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Peeping Dorm Manager (2023) [Ru] (1.0.8) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_122468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122468.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Lucy - The Eternity She Wished For (2016) [Ru/Multi] (v.1.05) Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118832.jpg" />
 </div>
 
 

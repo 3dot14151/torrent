@@ -1,3 +1,107 @@
+###  Публикация: 1481690   (1007824) от 06.07.2021
+
+Чернобыль (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Карпушин — обычный молодой советский парень, пожарный в Припяти, который впервые начинает строить планы длиннее, чем на выходные или отпуск — он влюбляется в парикмахера Олю. В прошлом у них уже были отношения, но тогда Алексей упустил свой шанс. Теперь у Оли есть маленький сын Леша, но Алексей намерен никогда больше не повторять прежних ошибок: он признается (   Читать дальше...   )Производство: Россия, Централ Партнершип, DK Entertainment, ГПМ КИТ, Нон-стоп ПродакшнЖанр: Драма, ИсторияРежиссер: Данила КозловскийАктеры: Данила Козловский, Филипп Авдеев, Оксана Акиньшина, Николай Козак, Равшана Куркова, Игорь Черневич, Петр Терещенко, Артур Бесчастный, Андрей Арчаков, Самвел ТадевосянПеревод: Не требуетсяСубтитры: Русские (Full, SDH), Английские (Full)Продолжительность: 02:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72142672D590095012EF020F5C77F871C8D8CA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482055   (1007811) от 06.07.2021
+
+Чернобыль (2020) BDRip [H.264/1080p] [FRA Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Карпушин — обычный молодой советский парень, пожарный в Припяти, который впервые начинает строить планы длиннее, чем на выходные или отпуск — он влюбляется в парикмахера Олю. В прошлом у них уже были отношения, но тогда Алексей упустил свой шанс. Теперь у Оли есть маленький сын Леша, но Алексей намерен никогда больше не повторять прежних ошибок: он признается (   Читать дальше...   )Производство: Россия / Централ Партнершип, DK Entertainment, ГПМ КИТ, Нон-стоп ПродакшнЖанр: Драма, историяРежиссер: Данила КозловскийАктеры: Данила Козловский, Филипп Авдеев, Оксана Акиньшина, Николай Козак, Равшана Куркова, Игорь Черневич, Петр Терещенко, Артур Бесчастный, Андрей Арчаков, Самвел ТадевосянПеревод: Не требуетсяСубтитры: Русские (Forced, SDH), Английские (SDH)Продолжительность: 02:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA712DA673B67B847EADF447E16777482962B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482264   (1007729) от 07.07.2021
+
+Серёга решил застрелиться (2018) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007729.jpg" />
+</div>
+
+
+###  Подробнее
+
+«С волками жить - по волчьи выть» - жизненная позиция Сереги. Мы судим людей по их внешности, но зачастую мы не догадываемся, что у человека внутри. Серега был на грани, он готов был нажать на курок. Но в последний момент в его жизнь приходит Влад - новый ухажёр его бывшей девушки. Сможет ли эта встреча изменить решение Серёги?Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Алексей ФедоровАктеры: Сергей Шароватов, Егор АнисимовСубтитры: ОтсутствуютПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8FA81B89990933367C2B3E1EB162125C500025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481991   (1007676) от 07.07.2021
+
+Чернобыль (2021) BDRip [H.264/1080p] [FRA Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Карпушин — обычный молодой советский парень, пожарный в Припяти, который впервые начинает строить планы длиннее, чем на выходные или отпуск — он влюбляется в парикмахера Олю. В прошлом у них уже были отношения, но тогда Алексей упустил свой шанс. Теперь у Оли есть маленький сын Леша, но Алексей намерен никогда больше не повторять прежних ошибок: он признается (   Читать дальше...   )Производство: Россия / Централ Партнершип, DK EntertainmentЖанр: Драма, ИсторияРежиссер: Данила КозловскийАктеры: Данила Козловский, Филипп Авдеев, Оксана Акиньшина, Николай Козак, Равшана Куркова, Игорь Черневич, Петр Терещенко, Артур Бесчастный, Андрей Арчаков, Самвел ТадевосянПеревод: Не требуется (Русский)Субтитры: Русские (Forced, SDH), английские (SDH)Продолжительность: 02:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C5EDBD4D84310FCA01EBA9FDFF543B4DC9D531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483466   (1006688) от 14.07.2021
 
 Приворот. Черное венчание (2021) BDRip [H.264/1080p] [US Transfer]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006688.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006565.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006439.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006421.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006272.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006200.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ A prima vista (2020) WEBRip [H.264/720p-LQ]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006151.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005963.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005099.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004935.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004695.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004685.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004412.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004394.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004240.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003904.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003898.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003897.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003643.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003363.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003326.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003179.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C8134347A603BFE19032AF14DDE8B92418364A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350513   (1003107) от 06.01.2020
-
-Эбигейл (2019) BDRemux [MPEG-2/1080i]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия \  KD StudiosЖанр: приключения, фэнтези, семейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артём Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Дублированный (iTunes)Субтитры: французскиеПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479054EDFBCCCD5500F9D6F644E1BAEBDD295DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350635   (1003102) от 06.01.2020
-
-Эбигейл (2019) BDRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия, KD StudiosЖанр: Приключения, Фэнтези, СемейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артем Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуется (русский) iTunesСубтитры: ФранцузскиеПродолжительность: 01:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC663128120EE63F249B10B74D846FAAEF4D9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350600   (1003089) от 06.01.2020
-
-Эбигейл (2019) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия / KD StudiosЖанр: Приключения, фэнтези, семейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артём Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуется (русский) iTunesСубтитры: ФранцузскиеПродолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EBC1AAB061879A51CD6E04A3B7CA1534762E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350744   (1002870) от 07.01.2020
-
-Эбигейл (2019) BDRip [H.264/720p-LQ]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка Эбигейл живет в городе, границы которого закрыли много лет назад из-за эпидемии загадочной болезни. Отец Эбби был одним из заболевших — и его забрали, когда ей было шесть лет. Пойдя наперекор властям, чтобы разыскать отца, Эбби узнает о том, что ее город на самом деле полон магии. И в ней самой пробуждаются необыкновенные магические способности…Производство: Россия, KD StudiosЖанр: Приключения, Фэнтези, СемейныйРежиссер: Александр БогуславскийАктеры: Тинатин Далакишвили, Эдди Марсан, Артем Ткаченко, Равшана Куркова, Риналь Мухаметов, Глеб Бочков, Марта Тимофеева, Никита Тарасов, Ксения Кутепова, Петар ЗекавицаПеревод: Не требуется (русский) iTunesСубтитры: нетПродолжительность: 01:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF73B2DAA7790F63F98E3713229C54BB783CE01
 ```
 
 https://mybot314.ru/tekegram_catalog/

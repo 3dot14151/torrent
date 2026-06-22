@@ -1,3 +1,55 @@
+###  Публикация: 915228   (196893) от 17.06.2023
+
+Адский мотель / Motel Hell (1980) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винсент и его сестра Ида являются собственниками придорожного мотеля, а также предприятия по производству колбасных изделий, пользующегося хорошей репутацией. Когда Винсента спрашивают рецепт такого вкусного копченого мяса, он говорит, что его происхождение восходит к его бабушке, которая любила окуривать дымом все, что движется и шевелится. Но внучок довел бабушкину (   Читать дальше...   )Производство: США, Camp HillЖанр: Ужасы, КомедияРежиссер: Кевин КоннорАктеры: Рори Кэлхун, Пол Линке, Нэнси Парсонс, Нина Аксельрод, Вулфман ДжекПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CFCEF8D813BAF80289914D44A33C72F0617456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521891   (196892) от 17.06.2023
+
+Айвенго / Ivanhoe (1952) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыцарь Уилфрид Айвенго, сопровождавший короля Ричарда Львиное Сердце во время крестовых походов, возвращается в Англию, чтобы найти деньги на выкуп государя, попавшего в австрийский плен. Он ищет помощи у своего отца Седрика, но тот, старый саксонский вельможа, не хочет спасать короля-норманна...Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Драма, Мелодрама, Приключения, ИсторияРежиссер: Ричард ТорпАктеры: Роберт Тейлор, Элизабет Тейлор, Джоан Фонтейн, Джордж Сэндерс, Эмлин Уильямс, Роберт Дуглас, Финлэй Карри, Феликс Эйлмер, Френсис Де Вулф, Норман ВулендПеревод: Многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D29796AE7CFD37B7023D506F6B621C37B07585C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405332   (196870) от 17.06.2023
 
 Аламо / The Alamo (1960) WEB-DL [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196870.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196868.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196867.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196864.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196859.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196823.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196806.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196773.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196772.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196658.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196598.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196025.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195931.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195852.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195821.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195768.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195723.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195534.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195459.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195452.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195427.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195425.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195379.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195114.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4E2607A3681D771B7521A210E6A9AC48BD6C5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634790   (194918) от 31.07.2023
-
-Мятеж на Баунти / Mutiny on the Bounty (1962) BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1789 год. Экипаж британского корабля «Баунти» под руководством жестокого капитана Блая, наполнив трюмы, отчаливает от берегов Таити. До этого дня в течение шести месяцев команда корабля подвергалась физическим и моральным издевательствам со стороны капитана, стремившегося любой ценой, даже ценой жизни матросов, выполнить приказ Адмиралтейства: доставить саженцы хлебного (   Читать дальше...   )Производство: США. Arcola Pictures, Metro-Goldwyn-MayerЖанр: драма, приключенияРежиссер: Льюис Майлстоун, Кэрол РидАктеры: Марлон Брандо, Тревор Ховард, Ричард Харрис, Хью Гриффит, Ричард Хейдн, Тарита, Перси Херберт, Дункан Ламонт, Гордон Джексон, Чипс Рафферти, Анна ЛиПеревод: Многоголосый профессиональный (НТВ+)Язык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 03:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCAC49C09C91EA4C096A2CA62BF61B42CF0FAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650908   (194389) от 12.08.2023
-
-Ганнибал / Annibale / Hannibal (1959) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карфагенское войско во главе с Ганнибалом перешло Альпы и движется к Риму, который великий полководец поклялся разрушить в детстве, на могиле убитого отца. На захваченной вилле он встречает Сильвию, которая очарована его мужеством и силой. Она признаётся ему в любви и остаётся с ним, опозорив этим род сенатора Фабио Максима, своего дяди. Её предательство дорого обойдётся (   Читать дальше...   )Производство: Италия / Liber FilmЖанр: боевик, драма, приключения, историяРежиссер: Карло Людовико Брагалья, Эдгар Дж. УлмерАктеры: Виктор Мэтьюр, Габриэле Ферцетти, Рита Гэм, Милли Витале, Рик Батталья, Франко Силва, Теренс Хилл, Мирко Эллис, Андреа Аурели, Андреа ФантазияПеревод: Двуголосый профессиональный («Арена»), авторский одноголосый (Александр Кашкин), одноголосый любительскийЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0E66E295FA8A333C99010B4056843C5E1D9216
 ```
 
 https://mybot314.ru/tekegram_catalog/

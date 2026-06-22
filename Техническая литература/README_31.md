@@ -1,3 +1,55 @@
+###  Публикация: 1651431   (207017) от 06.08.2023
+
+Сборник | Электроника и cхемотехника [24 книги (+2CD)] (2010-2018) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник книг по электронике и схемотехнике издательства "Наука и Техника"Жанр: Электроника, схемотехникаИздательство: Наука и ТехникаФормат: PDF, DJVUКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F0C87EC123B462A7C05B59E86CD2AFA75289AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465741   (203344) от 30.01.2023
+
+Илья Мельников | Подводка электроснабжения к дачному домику (2010) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электричество к дачному поселку проводят централизованно. К квартире и индивидуальному дому в городе или сельской местности, вилле или дачному домику электрическая энергия подводится при номинальном напряжении 220 В по отходящим линиям распределительной сети, которые берут начало на трансформаторной подстанции (ТП). К ТП электроэнергию подают в большинстве случаев (   Читать дальше...   )Жанр: Электротехника, электроснабжениеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2472B415B801DACC5C1887E24631724B726379BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616990   (201674) от 05.03.2023
 
 А.Н.Оглоблин | Основы токарного дела [Изд. 3-е] (1974) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201674.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201448.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200744.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200306.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200083.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200030.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198966.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198931.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198669.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198181.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197752.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196438.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196386.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195645.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194295.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192056.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191754.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191752.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191257.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190840.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190822.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190549.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190531.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ Farzin Asadi | Анализ и симуляция электрических ц�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190523.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ Essential Circuit Analysis using LTspice(   Читать дальше...   )Жа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D38F8DE00DF56FC6BDE5ACCF7B713956E22F2B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589227   (190520) от 08.11.2022
-
-Г.И. Гончаров | Составление и чтение чертежей в машиностроении (1966) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит систематическое изложение вопросов, относящихся к составлению и чтению машиностроительных и приборостроительных чертежей. Излагаются правила расположения видов, разрезов и сечений на чертежах., Подробно рассматривается вопрос нанесения размеров. В краткой форме даются сведения об условных обозначениях допусков и посадок, чистоты поверхности и видов (   Читать дальше...   )Жанр: учебное пособие, справочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEDA96FC90EB15203F04B8BE188DE0008A525E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589251   (190514) от 08.11.2022
-
-Е.В. Зеленин | Элементарный справочник по черчению (1964) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник предназначен для начинающих чертежников - молодых рабочих, учащихся средней школы, техникумов, ремесленных училищ, студентов первых курсов высших учебных заведений, а также лиц, изучающих черчение самостоятельно.Жанр: учебное пособие, справочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E842DA00447DD70FD2C275EFEBE2C1AB000FA97
 ```
 
 https://mybot314.ru/tekegram_catalog/

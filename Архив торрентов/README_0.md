@@ -6,7 +6,7 @@ Zen Browser 1.19.10 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067156.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kudu 1.37.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067151.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067147.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067146.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DesktopOK 12.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067139.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ X Radio Stream Finder 2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067137.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft PowerToys 0.99.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067134.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ XnView MP 1.11.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067118.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Tor Browser 15.0.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067107.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Perfectly Clear WorkBench 5.1.0.3198 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066603.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066551.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066550.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066549.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066546.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066545.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066543.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066542.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066540.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066539.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ XYplorer 28.30.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066525.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ ChrisPC VideoTube Downloader Pro 15.26.0422 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066524.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ YT Downloader 10.3.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066523.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066522.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Лучшие хиты ,,НАЗАД в СССР 4,, В современно�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065864.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065763.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Iperius Backup Full 8.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065761.jpg" />
 </div>
 
 

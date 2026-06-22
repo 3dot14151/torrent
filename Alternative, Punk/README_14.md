@@ -1,3 +1,32 @@
+###  Публикация: 908018   (636165) от 13.06.2015
+
+Sitcom - What's Up (2015) [MP3|320 кб/с]<Indie Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Reeboks 05:36
+02. Ginger Ale 03:49
+03. Window View 03:32
+04. How R You 03:28(   Читать дальше...   )Жанр: Indie Rock, PopПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535D82F4178D01DB82E228B0DCBEA2E12ECE5C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908373   (634194) от 14.06.2015
 
 Ash - Kablammo! (2015) Deluxe Edition [MP3|320 кб/с]<Indie Rock, Alternative, Powerpop>
@@ -6,7 +35,7 @@ Ash - Kablammo! (2015) Deluxe Edition [MP3|320 кб/с]<Indie Rock, Alternative,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634194.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ TIGRESS - Human; Like It Is; Who Cares? (2015-2018) 3 EP [MP3|320 Kbps] <Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633914.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Ida Maria - Katla (2010) [MP3|320 Kbps] <Alternative Rock, Blues, Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633261.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Royal Blood - How Did We Get So Dark? (2017) [MP3|320 Kbps] <Alternative, Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632925.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ The Pop Group - Citizen Zombie (2015) Deluxe Edition [MP3|320 кб/с]<Post-Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632485.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Good Charlotte - Youth Authority (2016) [MP3|320 Kbps] <Pop-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632423.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Light Your Anchor - 2 альбома (2013-2015) [MP3|320 кб/с]<Melodic Hardc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632412.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ The Dirty Youth - Gold Dust (2015) [MP3|320 кб/с]<Alternative Rock, Female Vo
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632405.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Richard Hell & The Voidoids - Blank Generation (1977) Reissue, 1990, Sire, Warne
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631793.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Papa Roach - 8albums + 5EPs + 10singles (1994-2015) [MP3|320kbps] <Alternative/R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631117.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ I Prevail - Trauma (2019) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629889.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Breaking Benjamin - Dark Before Dawn (2015) [MP3|320 кб/с]<Post-Grunge, Alt. 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629453.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [MP3|320 Kbps] <A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627587.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Fading Distance - I Have Hidden An Ocean [EP] (2014) [MP3|320 кб/с]<Post-Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626290.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Third Eye Blind - Dopamine (2015) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626289.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Audio Adrenaline - Sound of the Saints (2015) [MP3|320 кб/с]<Alternative, Chr
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_624076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624076.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Chappo - Moonwater (2012) Deluxe Edition [MP3|320 кб/с]<Alternative, Indie Sp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623928.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Chris and Juno - Pastime (2015) EP [MP3|320 кб/с]<Alternative, Indie Pop, ELe
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622233.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Chappo - Future Former Self (2015) [OGG|493-552 кб/с]<Alternative, Indie Spac
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622228.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ DeLaurentis - DeLaurentis (2015) EP [MP3|320 кб/с]<Alternative, Indie Pop, EL
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620659.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620479.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Art of Anarchy - Art of Anarchy (2015) [OGG|486-544 кб/с]<Alternative, Hard R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620370.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Cancer Bats - Psychic Jailbreak (2022) [MP3|320 Kbps] <Post-Hardcore, Southern R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616709.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Nine Inch Nails - Greatest Hits (2 CD) /Russian Release/ (2008) [MP3|320 кб/с
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616612.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ Oh Mercy - When We Talk About Love (2015) [MP3|320 кб/с]<Indie, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616441.jpg" />
 </div>
 
 
@@ -729,35 +758,6 @@ Oh Mercy - When We Talk About Love (2015) [MP3|320 кб/с]<Indie, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD57DCEA4DB2B447B53FFC749B7950AE420B428A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911371   (616440) от 23.06.2015
-
-The Armed - Untitled (2015) [MP3|320 кб/с]<Chaotic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Drugs
-02. Forever Scum
-03. Nervewrecker
-04. Rhythm (   Читать дальше...   )Жанр: Chaotic HardcoreПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA6C513212BD3D6A290717442713586A6498E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

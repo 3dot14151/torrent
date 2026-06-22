@@ -1,3 +1,59 @@
+###  Публикация: 1753245   (41519) от 04.10.2024
+
+В.О. Пелевин | Круть (2024) [PDF, FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идет третий век Зеленой Эры. Имплант-коррекция “Открытого Мозга” превратила женщин в доминантный гендер, и в уголовной иерархии изменился баланс сил. На ее вершину поднялся фем-блатняк – безжалостные куры-заточницы. Противостоять им не может никто из биологических мужчин, но есть нюанс.
+
+Маркус Зоргенфрей – лучший баночный оперативник “TRANSHUMANISM INC.” Задания, (   Читать дальше...   )Жанр: фантастикаИздательство: ЭксмоФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FF0B8A4CA225679706E11AA12C782D8A4128E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757656   (39015) от 28.10.2024
+
+Братья Гримм | Страшные сказки братьев Гримм (2024) [PDF, FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебные сказки, знакомые нам с детства, не всегда были безобидными. Их корни уходят в мрачные, но притягательные глубины народного фольклора, порожденного суровыми и жестокими временами. Такие сказки Disney не стал бы экранизировать. В такую сказку никто по доброй воле попасть не захочет.
+
+В этом сборнике братьев Гримм оживают зловещие легенды средневековой Германии: (   Читать дальше...   )Жанр: Сказки и притчиИздательство: МИФФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E4E7BF8135CF6FACE332C193C4017E05159CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762774   (35977) от 27.11.2024
 
 Геновева Димова | Ведьмин справочник по чудовищам. Книга 1. Тёмные дни (2024) [EPUB]
@@ -6,7 +62,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35977.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35570.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_31081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31081.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_30432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30432.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_29944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29944.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26599.jpg" />
 </div>
 
 
@@ -163,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25655.jpg" />
 </div>
 
 
@@ -189,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23959.jpg" />
 </div>
 
 
@@ -216,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21864.jpg" />
 </div>
 
 
@@ -243,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21385.jpg" />
 </div>
 
 
@@ -269,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21363.jpg" />
 </div>
 
 
@@ -295,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20968.jpg" />
 </div>
 
 
@@ -321,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20930.jpg" />
 </div>
 
 
@@ -347,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20831.jpg" />
 </div>
 
 
@@ -373,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20599.jpg" />
 </div>
 
 
@@ -400,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20499.jpg" />
 </div>
 
 
@@ -426,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20090.jpg" />
 </div>
 
 
@@ -452,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_19863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19863.jpg" />
 </div>
 
 
@@ -479,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_19052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19052.jpg" />
 </div>
 
 
@@ -505,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18538.jpg" />
 </div>
 
 
@@ -531,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18106.jpg" />
 </div>
 
 
@@ -559,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_18075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18075.jpg" />
 </div>
 
 
@@ -585,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17371.jpg" />
 </div>
 
 
@@ -611,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16740.jpg" />
 </div>
 
 
@@ -622,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBBBE96E3F61BD58453CCC0BBBBE3EAD3202C96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800769   (15477) от 06.06.2025
-
-Вадим Тарасенко | Цикл "Любимец Бога" [Книги 1-2] (2006-2007) [EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир 22 века не слишком уж отличен от нашего — только к двум супердержавам добавилась третья — Китай. Да мусульманское движение все сильнее захлестывает Европу. И в этом, достаточно близко подошедшем к грани религиозных войн, мире ученые приходят к выводу — гиперпространство, исследования которого ими начато — материальное воплощение Бога. «В гости к Богу» отправляется (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ЛениздатФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32D9C634244FB5645730DB1D97AACD53D76D25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801066   (15231) от 08.06.2025
-
-Антонина Гилёва | Эмпатия (2024) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15231.jpg" />
-</div>
-
-
-###  Подробнее
-
-2076, Россия, Москва. В будущем технологии достигли такого прогресса, что фото и видео стали считаться устаревшими и недостоверными источниками сведений. На рынок выходит корпорация «Эмпатия», которая предлагает пользователям делиться воспоминаниями и эмоциями. Скандал разгорается после того, как в раздел «музыка, концерты» на пользовательском уровне попадает 12-секундное (   Читать дальше...   )Жанр: Киберпанк, Антиутопия, ДетективИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D51855207E7361CE5C069B5294ED27FE704791B
 ```
 
 https://mybot314.ru/tekegram_catalog/

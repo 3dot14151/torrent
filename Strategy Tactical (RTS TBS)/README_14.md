@@ -1,3 +1,29 @@
+###  Публикация: 1562208   (212762) от 08.07.2022
+
+The Banner Saga (2014) [Ru/Multi] (2.60.02) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проживите эпическую ролевую сагу о викингах, где ваши стратегические решения влияют на ваше путешествие. Выбирайте себе союзников на пути своего каравана по красивой, но суровой земле. Решайте, кто будет помогать вам в битве против новой опасности, которая ставит под угрозу всю цивилизацию. Каждое решение, принятое в пути, в диалогах или боях, приведет к ощутимым (   Читать дальше...   )Тип издания: LicenseРазработчик: StoicЖанр: Strategy (Turn-based), RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE937C6D3ED595A0B96A5D6128E852E804E6BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564949   (212308) от 21.07.2022
 
 The Riftbreaker (2021) [Ru/Multi] (SVN_31432/dlc) Repack Other s
@@ -6,7 +32,7 @@ The Riftbreaker (2021) [Ru/Multi] (SVN_31432/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_212308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212308.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Showgunners (2023) [Ru/Multi] (1.1.0_53480/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208245.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tahira: Echoes of the Astral Empire (2016) [En] (1.1.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_202820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202820.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (Build 88888888/dlc) Repack
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_202298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202298.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Miasma Chronicles (2023) [Ru/Multi] (11294956) Repack DjDI
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197906.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Adeptus Titanicus: Dominus (2021) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195890.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188636.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188293.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188119.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Phoenix Point (2020) [Ru/Multi] (1.9.3/dlc) Repack xatab [Year One Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177042.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Scene Rune [Deluxe Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173105.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Valor & Victory (2021) [Ru/Multi] (1.07.06/dlc) Scene Skidrow
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172724.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Hexarchy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171816.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171301.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168879.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.f
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168838.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Phoenix Point (2019) [Ru/Multi] (1.0.54518) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167677.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167222.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161814.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Order of Battle: World War II (2) (2015) [Ru/Multi] (10.0.6.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161809.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Everyone Must Die: A Western Standoff (2023) [En] (1.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160754.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Nantucket (2018) [En] (1.4.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159983.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151240.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Warhammer 40,000: Dawn of War II Chaos Rising (2009-2010) [Ru/Multi] (2.6.0.1024
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151020.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Tooth and Tail (2017) [Ru/Multi] (1.8.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150054.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Tooth and Tail построена вокруг экономической мод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A66E0389E24540B49176381C78B6D69E675EE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084573   (149064) от 25.12.2016
-
-Worms Revolution (2012) [Ru/En] (1.0.140/dlc) Repack Mizantrop1337 [Gold Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Worms Revolution – это самая последняя игра в серии классических пошаговых стратегий, выходящая на просторы системы ПК, с множеством захватывающих новых опций и великолепной трехмерной графикой, сохранившей классические черты двухмерного геймплея, столь обожаемого поклонниками. Играйте во всестороннем режиме одиночной игры, включающем как кампании, так и миссии головоломки, (   Читать дальше...   )Тип издания: RepackРазработчик: Team 17Жанр: StrategyЯзык озвучки: МногоязычныйЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E3750F373465ED6461DC35B41CBFD94AB56A8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

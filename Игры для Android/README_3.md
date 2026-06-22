@@ -6,7 +6,7 @@ Star Wars: Knights of the Old Republic II (KOTOR II) v2.0.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026987.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Starman v1.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026706.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Scythe: Digital Edition v1.9.40 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026691.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ First Strike: Classic v3.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026530.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Into The Badlands Champions v1.5.123 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026349.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Legend of Solgard v2.17.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026336.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Shadow of Death: Dark Knight - Stickman Fighting v1.100.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023997.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Robot Warfare v0.4.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023979.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023973.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023951.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Machinarium v2.5.6 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1023917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023917.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Modern Combat 3: Fallen Nation 1.1.7g [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022346.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Modern Combat 4: Zero Hour 1.2.3e [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022341.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Titan Quest: Legendary Edition v2.9.9 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019369.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shadow Fight 2 v2.14.0 + v2.10.1 (Mod) [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007065.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Get aCC_e55 1.1.50 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006696.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Alien Shooter Anthology [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005135.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004525.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Shadow Fight 2 Special Edition v1.0.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001585.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Terraria v1.3.0.7.6 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001554.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Human: Fall Flat v1.0 build 34 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001260.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Geometry Dash v2.111 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001220.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Room (2012) v1.07 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000984.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Need for Speed: Hot Pursuit v2.0.18 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000947.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ GRID Autosport v1.6RC9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000945.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Return To Castle Wolfenstein (RTCW) v2.1.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000933.jpg" />
 </div>
 
 

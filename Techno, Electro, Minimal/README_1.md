@@ -6,7 +6,7 @@ VA - Ibiza Vibes 2023 - Tech House & Techno Only (2023) [MP3|320 Kbps] <Dark Tec
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_243654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243654.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Summer Compilation Vol. 1 (2023) [MP3|320 Kbps] <Minimal, Deep Tech, Electr
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221732.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Wonderful Days - Best of 90s Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192811.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Wonderful Days: Best Of 90s Classic Rave Tracks (2021) CD, Compilation [MP3
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192306.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - DJ Kubikov & Sapunov - 3fATMeN (2006) [MP3|320 Kbps|image+.cue, tracks+.cue
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174324.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Return of the Ade Edition (2023) CD, Compilation [MP3|320 Kbps] <Techno, Pr
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169818.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Boris Brejcha - 22 5th album (2016) [MP3|320 кб/с] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165727.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158914.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The No.1 Electro Album (2012) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Elect
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117684.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Madis - Live in Krakow (2023) [MP3|320 Kbps] <Electronic Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114521.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Electronica Confessions, Vol. 2 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109194.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Electronica Confessions, Vol. 3 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109188.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Electronica Confessions, Vol. 4 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109185.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Electronica Confessions, Vol. 1 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_109183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109183.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Electronica Confessions, Vol. 9 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105854.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Electronica Confessions, Vol. 8 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105853.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Electronica Confessions, Vol. 6 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105852.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Electronica Confessions, Vol. 7 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105845.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Electronica Confessions, Vol. 10 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105844.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Electronica Confessions, Vol. 5 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105839.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Electronica Confessions, Vol. 13 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105799.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Electronica Confessions, Vol. 14 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105796.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Electronica Confessions, Vol. 11 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105795.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Electronica Confessions, Vol. 12 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105794.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Electronica Confessions, Vol. 15 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105790.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Electronica Confessions, Vol. 16 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_105785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105785.jpg" />
 </div>
 
 

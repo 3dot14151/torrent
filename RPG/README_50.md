@@ -1,3 +1,107 @@
+###  Публикация: 1799660   (66419) от 29.05.2025
+
+Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66419.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некогда опустошенных войной и голодом землях вам предстоит начать новую жизнь, обзавестись соседями и основать собственную династию. В одиночку или в кооперативном режиме исследуйте прекрасный открытый мир, собирайте ресурсы и охотьтесь, мастерите предметы и стройте дома, а затем налаживайте цепочки производства в своей деревне, чтобы не только выживать, но и развиваться.Тип издания: RepackРазработчик: SuperkamiЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FF6C3B0A9C52248611204665992EBE058651A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803749   (65804) от 25.06.2025
+
+Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex Imperialis]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Rogue Trader – это изометрическая ролевая игра, сделанная по мотивам культовой вселенной Боевого Молота. В её сеттинге гримдарк смешивается с научной фантастикой. Данный продукт предлагает путешествовать по космосу на огромном корабле, посещать разные места, болтать с колоритными неписями, прокачиваться, выполнять квесты, участвовать в битвах. Все (   Читать дальше...   )Тип издания: RepackРазработчик: Owlcat GamesЖанр: Role-Playing, Turn-Based, TacticalЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA01CA5E08FBE7CF44478C30BFDFF6E2FE201B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803857   (65796) от 25.06.2025
+
+Questron II (1988) [En] (1.2) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение классической игры Questron от SSI для Apple II и духовный родственник Legacy of the Ancients от EA, Questron II продолжает историю спустя годы после окончания предыдущей игры. На этот раз Mesron the Great Wizard отправляет вас в путешествие в прошлое, чтобы помешать Безумным Колдунам создать Книгу Злой Магии. Отличный сюжет, головоломки и множество приятных (   Читать дальше...   )Тип издания: LicenseРазработчик: SSIЖанр: Ролевые игры, ФентезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE28C8334955284F777C8C23F72A18B39302965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707220   (62943) от 15.03.2024
+
+Zoria: Age of Shattering (2024) [Multi] (1.0/dlc) Scene FAiRLiGHT
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoria: Age of Shattering – тактическая групповая стратегия с пошаговыми поединками против многочисленных вражеских юнитов. Местом действия однопользовательской сюжетной кампании является вымышленный мир под названием Зория. Эта вселенная наполнена разнообразной магической энергией, всевозможными головоломками, использующими несколько десятков механик, и захватывающими (   Читать дальше...   )Тип издания: SceneРазработчик: Tiny Trinket GamesЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF0888BEB49E5A7029E6F2FC25E524D8408F127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707102   (62939) от 15.03.2024
 
 The Thaumaturge (2024) [Ru/Multi] (70.100/dlc) Repack FitGirl [Digital Deluxe Edition]
@@ -6,7 +110,7 @@ The Thaumaturge (2024) [Ru/Multi] (70.100/dlc) Repack FitGirl [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62939.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Microcosmum 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62838.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Feb 26 2024/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62834.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62732.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Solasta - Crown of the Magister (2021) [Ru/Multi] (1.5.97/dlc) License GOG [Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62615.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Goblin Stone (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62397.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ God of War (2022) [Ru/Multi] (1.0.13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62305.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Blade Prince Academy (2024) [Multi] (1.0) Repaclk FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62265.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Grand Soul Saga (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62058.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ EMPYRE: Earls of the Deep Earth (2024) [En] (Build #16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62054.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61972.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61884.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.240321) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61881.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.0.12/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61769.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61744.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61560.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61442.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61303.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Three Kingdoms Zhao Yun (2024) [Multi] (1.1.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61263.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61214.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Metal Unit (2021) [Ru/Multi] (010309) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61202.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ MANIAC (2024) [Ru/Multi] (0.9.12B) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61142.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Maniac - криминальный экшен в стиле rogue-lite, брос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA8E9647D381E7CCF06F55A8373F587DCAF226D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712020   (61110) от 01.04.2024
-
-Svarog's Dream (2023) [En] (2.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Svarog's Dream выделяется как увлекательная РПГ, погружающая в интригующие глубины подземного мира. Появившись в роли души, ищущей себя, игроки путешествуют по огромному открытому миру, разгадывая личные секреты и перемещаясь по постоянно меняющимся ландшафтам, определяющим это загадочное царство. Разнообразное окружение варьируется от пышных лесов до возвышающихся (   Читать дальше...   )Тип издания: RepackРазработчик: VI Game ForgeЖанр: RPG, Action RPG, Isometric, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C794DB68F68B13F043D6609EAB5EB8DA0C2BB17B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711992   (61061) от 01.04.2024
-
-Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дедушка оставил вам в наследство старую ферму в Стардью-Вэлли. У вас в кармане пара монет и простые инструменты – все, что нужно для начала новой жизни. Сможете ли вы прокормиться земледелием и превратить эти заросли в цветущий сад? Это будет нелегко, ведь былой уклад жизни исчезает под натиском появившейся в городе корпорации. Местный общественный центр, где когда-то (   Читать дальше...   )Тип издания: RepackРазработчик: ConcernedApeЖанр: Симулятор, Ролевая игра, МенеджментЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другиеРеклама: После установки на рабочем столе создаются ярлык на офф. сайт автора и текcтовый файл с оскорбительными инсинуациями в адрес трекера и его руководства
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15A7288313609DEF723F0CDF403DC614E0D9094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712144   (61001) от 02.04.2024
-
-Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерактивный роман, где вместо привычной компьютерной графики используются видеовставки с участием профессиональных актеров. Поступая в университет, вы даже не догадывались, что будете единственным студентом мужского пола на весь кампус. Теперь же вы оказались в самом центре внимания, поэтому хватайте быка за рога и отправляйтесь в захватывающее любовное приключение.Тип издания: SceneРазработчик: 蒸汽满满工作室Жанр: Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Английский, Японский, Корейский, КитайскийЯзык интерфейса: Английский, Японский, Корейский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0E4B1D2E7784543A93A952EB7FBF2A9A06920A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712556   (60904) от 03.04.2024
-
-Geneforge 2 - Infestation (2024) [En] (1.0/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geneforge 2 - Infestation - обновленная версия классической ролевой стратегии с проработанным фэнтезийным миром. В этой вселенной вы примерите на себя роль Творца, могущественного волшебника, которому подвластно создавать саму жизнь. Правда, со временем все созданные вами создания обленились и вовсе отбились от рук. Уже известно, что в горах затевают восстание против (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D44E59BC3E02C96C60053E4FB77D2AD8584C2EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

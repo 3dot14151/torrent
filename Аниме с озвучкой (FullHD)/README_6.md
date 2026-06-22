@@ -6,7 +6,7 @@ Shinmai Maou no Testament Departures | The Testament of Sister New Devil Departu
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932868.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shinmai Maou no Testament Burst | The Testament of Sister New Devil Burst | Но
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932867.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Новый За�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_932866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932866.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hanasaku Iroha: Home Sweet Home | Hanasaku Iroha the Movie: Home Sweet Home | А
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931385.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hanasaku Iroha | Hanasaku Iroha: Blossoms for Tomorrow | Азбука Цвето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931384.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ To Love-Ru: Trouble - Darkness 2nd | To Loveru: Darkness 2 | Любовные Н
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931380.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Motto To Love-Ru: Trouble | Motto To Loveru | Любовные Неприятн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931379.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ To Love-Ru: Trouble - Darkness | To Loveru: Darkness | Любовные Непр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931378.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_931377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931377.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kappa no Coo to Natsuyasumi | Summer Days with Coo | Волшебное лето
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929852.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ To Love-Ru: Trouble | To Loveru | Любовные Неприятности [TV-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928562.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Toki wo Kakeru Shoujo | The Girl Who Leapt Through Time | Девочка, Пок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926606.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Saenai Heroine no Sodatekata | Saekano: How to Raise a Boring Girlfriend | Ка�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924948.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из Другого М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923245.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Kokoro ga Sakebitagatterunda | The Anthem of the Heart | Сердцу Хочет
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923240.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Gakuen Mokushiroku: High School of the Dead | High School of the Dead | Школ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_923218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923218.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919920.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Dororo | Дороро [2019, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919745.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919742.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Baka to Test to Shoukanjuu | Дурни, Тесты, Аватары [ТВ-1][201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918216.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Baka to Test to Shoukanjuu Ni! | Дурни, Тесты, Аватары [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918215.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Batman Ninja | Бэтмен Ниндзя [2018, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918214.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Promare | Промар [2019, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918212.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Steins;Gate | Врата Штейна [2011, TV, 24 ep + 2 sp + 4 ONA] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_916649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916649.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Robotics;Notes | Записки о Робототехнике [2013, TV, 22 ep] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912020.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Chaos;Child | Хаос; Дитя [2017, TV, 12 ep + 1 sp + 2 OVA] BDRip 1080p 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911768.jpg" />
 </div>
 
 

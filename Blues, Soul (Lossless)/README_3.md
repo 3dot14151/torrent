@@ -6,7 +6,7 @@ Pontchartrain Shakers - Love, Peace, & Chicken Grease (2026) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059781.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Red Guitar Pick - Давай Русскую 2 (2026) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059780.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ricky Z - Back to the Truth (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059777.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Wildcat O'Halloran Band - Welcome to Sunderland (2026) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059774.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Turquoise Steel - Homeland (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059771.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Smooth & Timeless Favorites (2026) [FLAC|Lossless|WEB-DL|tracks] <Soul, Jaz
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1059741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059741.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Duke Robillard feat. his All Star Band - Blast Off! (2026) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058561.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ed Alstrom - This Idea of Humanity (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058560.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Evyatar Kirsh - Comfort or Solution (2026) [FLAC|Lossless|WEB-DL|tracks] <Rhythm
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058554.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Izzo Blues Coalition - Rise Again (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058552.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ J Lee and the Hoodoo Skulls - Bad Love (2026) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058551.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ JB - My Mississippi Roots (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058550.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jenna Quill - Neon After Midnight (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058549.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kevyn Smith - BLUESKYES (part 2) (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058548.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Redfish Blues Band - Together Is Better (2026) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058547.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Record Company - Give It Back To You (Deluxe Edition) (2026) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058546.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Trudy Lynn - Turning the Same Ole Corners (2026) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056578.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Matt Smith - ...this is not ok... (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056343.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Back pOrchEstra - Stories In The Heart (2026) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056335.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dixi's - Psycho Killer (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056333.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Elise Frank - I Didn't Pay for It (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056332.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Grant Lyle - And Now (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056331.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Jeff 'The Fish' Lefroy - Real Music By Real People (2026) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056324.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ John G. Matter - You Owe Me Nothing (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056312.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Julian James & Moonshine State - Prey to the Crow (2026) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056258.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Julian Taylor - Anthology Vol. 2 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056257.jpg" />
 </div>
 
 

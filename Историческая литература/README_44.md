@@ -1,3 +1,107 @@
+###  Публикация: 1539955   (654956) от 28.03.2022
+
+А. Язькова | Народная Румыния (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает читателю о тех больших переменах, которые произошли в Румынии за 20 лет, истекших со дня освобождения страны от фашистского ига. Громадный путь пройден за это время народом Румынии. За годы народной власти в прошлом отсталая аграрная страна, изнывавшая под пятой помещиков и капиталистов и испытывавшая всю тяжесть гнета иностранного империализма, (   Читать дальше...   )Жанр: Очерк, История, Экономика, Политология, СтрановедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319E7C76E229607BDDB82D88117C88FA8FA94498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903862   (654116) от 03.06.2015
+
+Екатерина Рождественская | Жили-были, ели-пили (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги – фотохудожник Екатерина Рождественская, дочь известного поэта-шестидесятника Роберта Рождественского. Такое ощущение, что вы сидите за семейным столом Екатерины и слушаете ее рассказ: здесь есть и истории семьи Рождественских, и меню дней рождений, и бабушкины рецепты, и детские воспоминания, и родительские письма, путешествия и происшествия и, конечно, (   Читать дальше...   )Жанр: Биографии. МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD138FCD85458E325530FCC593AAD4A434A2463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140877   (653991) от 08.06.2017
+
+Ф. Г. Матасова (сост.) | Стачки [1881-1895] (1930) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653991.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе над найденными документами и подготовке их к печати мы руководствовались тем, что для печатания к настоящем томе выбирали в качестве основного тот документ, который давал наибольшую сумму сведений, остальные же документы использованы нами в примечаниях. Читатель наших материалов поэтому должен игнорировать одну постоянно встречающуюся в них деталь—именно, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9E23B5C267A385E5C3416E400093DE9E56D24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140886   (653990) от 08.06.2017
+
+Г. С. Гурвич | Политический строй современных государств: США (1928) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — вторая в предположенной серии (срв. «Политический строй современных государств: Англия», ГИЗ, 1927). И здесь преследовались те же цели. Соединенные штаты должны были, между прочим, послужить иллюстрацией для того положения, что капиталистическое государство есть машина насилия никак не вопреки, а именно с помощью буржуазно-демократических принципов. Эти (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0F26732AEF6B57F8C3974EEE24B4AA0954AC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140896   (653986) от 08.06.2017
 
 Г. С. Гурвич | Политический строй современных государств: Англия (1927) [PDF]
@@ -6,7 +110,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653986.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653448.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_653383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653383.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_652004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652004.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651558.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651435.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651351.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651340.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651327.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651325.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651214.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651213.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651206.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_651201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651201.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650551.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_650202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650202.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649488.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649263.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_649150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649150.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647769.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647679.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647508.jpg" />
 </div>
 
 
@@ -572,114 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2D8EEA7595BF9B924A8A5DE01EF618FC4BDFE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517173   (646864) от 01.07.2012
-
-Книжная серия | Россия забытая и неизвестная (52 книги) [2001-2012] [FB2, DJVU, PDF][Обновляемая]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия забытая и неизвестная - серия исторических книг, которые время от времени, в зависимости от политического строя, изымаются из библиотек, "теряются", "забываются" и вновь появляются на свет.
-Круговорот исторической мысли в природе, хотя уже трудно, для отдельно взятого человека, прожившего всего одно поколение, разобраться, где правда, а где ложь.
-И приходишь к радостному выводу: вся история - вранье, сказки, фантастика...А фантастику можно и почитать.Жанр: ИсторияФормат: FB2, DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E5E612517A627B0AD6B401295100D147286005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227427   (646710) от 26.05.2018
-
-Галина Астапенко | Быт, обычаи, обряды и праздники донских казаков XVII - XX вв. (2011) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646710.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге Астапенко Г.Д., научного сотрудника Старочеркасского историко-архитектурного музея-заповедника, на основе архивных материалов, опроса старожилов станицы Старочеркасской, уже ушедших из жизни, рассказывается о быте, обычаях и праздниках донских казаков XVII - нач. XX вв.
-
-В книге вы найдёте главы, рассказывающие о казаках-земледельцах, рыболовах, виноградарях, (   Читать дальше...   )Жанр: История. ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14829FAB8D3C9E16F78FB5C7EB82E6A359E8ABA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906220   (645775) от 08.06.2015
-
-Ф. Я. Кон | Суд над партией «Пролетариат» (1931) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий Пролетариат (польск. Wielki Proletariat), по собственному названию Интернациональная социально-революционная партия «Пролетариат» (польск. Międzynarodowa Socjalno-Rewolucyjna Partia «Proletariat»), - польская социалистическая революционная партия, действовавшая на территории Российской империи в конце XIX века. Основана в 1882 году путём объединения (   Читать дальше...   )Жанр: история, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4148895B5FDD5E21FB48DB5A04B9525179D6C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906224   (645653) от 08.06.2015
-
-Ю. Ф. Карякин, Е. Г. Плимак | Запретная мысль обретает свободу. 175 лет борьбы вокруг идейного наследия Радищева (1966) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга воссоздает историю идейной борьбы вокруг первого русского революционного произведения, показывает, как произошло крушение созданной в прошлом веке либеральной легенды о Радищеве, подробно рассказывает о «загадках» «Путешествия из Петербурга в Москву», научных спорах, которые идут в советской исторической науке. Большое место авторы отводят критике современных (   Читать дальше...   )Жанр: история, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0A0108F6483473D1B53B3F4648357580368BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

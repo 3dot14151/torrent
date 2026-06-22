@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876155   (1073052) от 
+
+Переломный момент (2025) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073052.jpg" />
+</div>
+
+
+###  Подробнее
+
+14-летний Артём учится в элитной гимназии. Он настоящая легенда — победитель всех соревнований, лучший ученик. После болезненного поражения и несправедливого исключения из команды он оказывается перед выбором: сдаться или доказать свою правоту. Он подвёл команду, и теперь вся школа ополчилась против него, родная мать не поддерживает Артёма, а его единственный союзник (   Читать дальше...   )Производство: Беларусь / "Беларусьфильм"Жанр: драма, спортРежиссер: Дмитрий СорокаАктеры: Михаил Цуба, Денис Сериков, Роман Наумович, Назар Реут, Мария Налецкая, Александр Шаров, Павел Адамчиков, Наталья Холодович, Виктор Рыбчинский, Евгений БогомоловЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BE1216BCF3FF28CFB4972293F63736B401117D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873199   (1071105) от 30.05.2026
 
 Благословите женщину (2003) WEBRip [H.264/1080p] (серии 1-4 из 4) (режиссерская версия)
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071105.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070822.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070701.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070694.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069220.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069205.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068914.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068492.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068338.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068336.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068170.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067744.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067588.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067569.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067526.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066490.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065810.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065465.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065460.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065378.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065259.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065110.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064985.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064667.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064459.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D3659703F9165B9B5C41CB24304849ADB9DCEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862932   (1063836) от 01.04.2026
-
-Кибердеревня. Кибертакси (2024) UHD WEBRip [AV1/1080p] (спецэпизод сиквел)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой художник Рустам влюблён в прекрасную Мадину. Чтобы добиться её внимания, он решает подарить девушке то, о чем она мечтает, — чудесные очки «Очи-3000». Рустам отправляется таксовать в Гигаполис на старой летающей «Волге» — ему предстоит совершить 300 поездок, чтобы собрать нужную сумму и исполнить желание Мадины.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедия, короткометражкаРежиссер: Сергей ВасильевАктеры: Карим Омаров, Мия Магомедова, Джалил Асретов, Сергей Чихачёв, Игорь БогомягковСубтитры: русские (full, SDH)Продолжительность: 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1FE784AC2B5D2449FA05CCA13B2A706705C7CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1567.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_962.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVD9 5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_778.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_777.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_760.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_241.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59.jpg" />
 </div>
 
 

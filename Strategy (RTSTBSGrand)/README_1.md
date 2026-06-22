@@ -1,3 +1,29 @@
+###  Публикация: 1487310   (1003698) от 04.08.2021
+
+Kingdom Rush Vengeance (2018) [Ru/Multi] (1.9.9.20) License PLAZA
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могущественный маг Везнан вернулся! Отправьтесь в эпическое путешествие и помогите ему собрать армию тьмы и воплотить в жизнь его хитрый план... ха-ха-ха! Покажите Королевству, кто тут настоящий босс! Сражайтесь и покоряйте как новые, так и уже знакомые Вам земли. Столкнитесь с могущественными империями и схлестнитесь с могучими боссами в этой классической игре в (   Читать дальше...   )Тип издания: LicenseРазработчик: Ironhide Game StudioЖанр: Strategy, Tower DefenseЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39073B42576801BE55CFE3C4405FADD14E4AAE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338892   (1003632) от 04.01.2020
 
 I am not a Monster: First Contact (2018) [Ru/Multi] (1.2/dlc) License GOG
@@ -6,7 +32,7 @@ I am not a Monster: First Contact (2018) [Ru/Multi] (1.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003632.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kingdom Rush Origins (2018) [Ru/Multi] (4.2.15) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003178.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Interstellar Space: Genesis (2019) [En] (1.0.8) Repack Mr_Weegley
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002349.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Medieval II: Total War Gold [Ru] (RePack/1.03 & 1.05) 2006 | R.G. ILITA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997900.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Dungeons | The Dark Lord [Ru] (RePack/1.3.2.1, 1.1.1.0) 2011 | Audioslave
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997091.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ A Game of Thrones: Genesis / Игра престолов: Начало [Ru] (ReP
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997083.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Sword of the Stars II: Enhanced Edition [Ru/En/Multi4] (RePack /2.0.24759.2) 201
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_994962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994962.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Oil Rush [Ru/En/Multi3] (L) 2012 | *PROPHET*
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993867.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Overland (2019) [Ru/Multi] (713) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990477.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Command & Conquer 3: Dilogy / Command & Conquer 3: Дилогия (2007-2008) [R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988149.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Command & Conquer 4: Tiberian Twilight / Command & Conquer 4: Эпилог (2010
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988148.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Warsworn: Dragon of Japan (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985661.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ King Arthur: The Role-playing Wargame / Король Артур [Ru] (L) 2009
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979548.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Astra Exodus (2020) [Multi] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977326.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Defense Grid: The Awakening [En] (Steam-Rip/8 DLC) 2008 | R.G. Игроманы
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977089.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Etherlords / Демиурги (2001) [Ru] (1.07) Repack Focus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970201.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ Age of Mythology (2014) [En/Multi] (2.0.1/dlc) License RELOADED [Extended Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_955461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955461.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ Stronghold Crusader 2 (2014) [Ru/Multi] (1.0.22689/dlc) SteamRip Let'sPlay [Spec
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953189.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ Grey Goo (2015) [Ru/Multi] (0.34.593311/dlc) SteamRip Let'sРlay [Definitive Edi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_947789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947789.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ Broken Lines (2020) [Ru/Multi] (1.0) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944776.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Northgard (2018) [Ru/Multi] (2.1.4.16370/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941968.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Planar Conquest (2016) [Ru/Multi] (1.3.1f) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936701.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Meridian: New World (2014) [Ru/Multi] (1.0.4.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936596.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Stronghold: Crusader II (2014) [Ru/Multi] (1.0.22714) License GOG [Special Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936576.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Cuban Missile Crisis Dilogy (2005) [Ru/Multi] (1.4/1.2) SteamRip Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934834.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Cuban Missile Crisis Dilogy (2005) [Ru/Multi] (1.4/1.2) SteamRip Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB073A6E54BE5F0E38E32C23FDF5082CA4751118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092768   (934545) от 14.01.2017
-
-Worlds of Magic (2015) [Ru/Multi] (1.2.6/dlc) SteamRip Let'sPlay
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_934545.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Миры Магии” это 4Х пошаговая стратегическая игра. Игроки могут исследовать и завоевывать практически бесконечное число постепенно генерируемых вселенных, используя магические и армейские силы для превосходства над своими противниками.Тип издания: SteamRipРазработчик: Wastelands InteractiveЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA118BA2D3A955FFBCEAFF0E0E831C0F56ECE746
 ```
 
 https://mybot314.ru/tekegram_catalog/

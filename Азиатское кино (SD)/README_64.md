@@ -1,3 +1,81 @@
+###  Публикация: 1781305   (70227) от 23.02.2025
+
+Испытание человека / Ningen no shomei / Proof of the Man (1977) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70227.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноимённому бестселлеру Сэйити Моримуры... Молодой негр Джонни Хэйвард найден мёртвым в лифте отеля. Среди свидетелей оказывается Киоко Ясуги, известный дизайнер. Следователь узнаёт в ней бывшую служанку бара в конце 40-х годов. Впоследствии, Киоко заняла видное место в обществе. Следователь предполагает, что Джонни — сын Ясуги, которого она убила, чтобы сохранить (   Читать дальше...   )Производство: Япония, США / Kadokawa Haruki Jimusho, ProSer Co.Жанр: драма, криминалРежиссер: Дзюнья СатоАктеры: Джордж Кеннеди, Марико Окада, Юсаку Мацуда, Бродерик Кроуфорд, Дзюнзабуро Бан, Такэо Тий, Е.Х. Эрик, Киндзи Фукасаку, Бунджаку АнПеревод: любительский одноголосый (den904)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0E8F8454910442B29756376F5B3A62CA3E682E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781768   (70151) от 25.02.2025
+
+Высохшая кровь / Chi wa kawaiteru / Blood is dry (1960) WEB-DLRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такаси Кигути – ничем не примечательный сотрудник текстильной фабрики «Тоё». Когда его фирма разоряется, он совершает неожиданный поступок: выхватив пистолет, угрожает дирекции убить себя. Чудом Такаси остается в живых, но о случившемся быстро узнают газеты. Скромный и неуклюжий клерк в одночасье делается знаменитостью. С ним заключают контракт на участие в рекламе, (   Читать дальше...   )Производство: Япония / Shochiku OfunaЖанр: драмаРежиссер: Ёсисигэ ЁсидаАктеры: Кэйдзи Сада, Канэко Ивасаки, Синъитиро Миками, Мари Ёсимура, Кодзи Андо, Хираёси Аоно, Нацуко Арай, Масахико Арима, Макото Асакава, Дзюнко ХараПеревод: Одноголосый любительский (Олег Воротилин)Язык озвучки: русский, японскийСубтитры: русские, английские, французские, испанскиеПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2E79C1D3BC37A076F69AA916229913E4E3946E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788684   (68476) от 31.03.2025
+
+История кино / Geuk jang jeon / Tale of Cinema (2005) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68476.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Сеуле пути двух мужчин и одной женщины пересекаются и движутся отдельно друг от друга, концентрируясь вокруг их любви к кино... Студент с суицидальными наклонностями встречает молодую женщину, которая принимает решение последовать за ним... Выходя из кинотеатра, режиссёр-неудачник замечает красивую женщину и узнаёт её: она главная актриса в том фильме, который (   Читать дальше...   )Производство: Южная Корея, Франция / arte France Cinéma, Centre National du Cinema et de l'Image Anime, Eonwonsa...Жанр: драмаРежиссер: Хон Сан-суАктеры: Ким Сан-гён, Ом Джи-вон, Ли Ги-у, Ли Гён-джин, Ким Мён-су, Чо Хан-чхоль, Ли Сын-а, Чхве Му-сон, Пан Джун-хён, Ке Сон-ёнПеревод: профессиональный многоголосый (Kino World)Язык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34EFD2BAFC08E3C4764AB7CF773F2EB2203716D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793979   (67398) от 27.04.2025
 
 Хороший человек, хороший день / Kojin kojitsu / A Good Man, A Good Day (1961) WEB-DLRip [H.264] [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_67398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67398.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65672.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65626.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64844.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63479.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63345.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63332.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63243.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63053.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62418.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62319.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62138.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60537.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60236.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60193.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60088.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_60078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60078.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58768.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58346.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58275.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58137.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58088.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58035.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CD12F5B8717222741F79F9E2BE1719E8E64E61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650337   (57873) от 02.05.2024
-
-Угрызения совести / Duk sit dai jong / A Guilty Conscience (2023) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небрежно подойдя к делу о жестоком обращении с детьми, острый на язык адвокат Адриан Лам становится причиной того, что невиновную Джолин Цан приговаривают к тюремному сроку в 17 лет. Пытаясь исправить свою ошибку, Адриан вступают в борьбу с магнатами, интересы которых представляет высококлассный адвокат.Производство: Гонконг / EDKO Film Ltd., Film Development Fund of Hong Kong, Irresistible FilmsЖанр: драмаРежиссер: Нг Вай-ЛуньАктеры: Дайо Вон, Луиз Вон, Хо Кай-Ва, Цзэ Кван-Хо, Адам Пак, Винсент Кок, Боуи Лам, Шелдон Ло, Фиш ЛьюПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8255730112495CEB1EAC5A33167BBF4018B6D7F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720893   (57466) от 06.05.2024
-
-Годзилла: Минус один / Gojira -1.0 / Godzilla: Minus One (2023) BDRip [H.265] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57466.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние дни Второй мировой камикадзе Коити Сикисима посадил самолёт на острове Одо, где располагалась ремонтная база императорской армии Японии. В тот же вечер на них напал невесть откуда взявшийся огромный ящер Годзилла — именно так называли его местные.
-Коити возвращается в разрушенный бомбардировками Токио (родители погибли, от дома остались одни обломки) (   Читать дальше...   )Производство: Япония / Robot Communications, Toho Company, Toho StudiosЖанр: фантастика, боевик, драмаРежиссер: Такаси ЯмадзакиАктеры: Рюносукэ Камики, Минами Хамабэ, Хидэтака Ёсиока, Сакура Андо, Юки Ямада, Такато Ёнэмото, Рикако Миура, Мунэтака Аоки, Майкл Ариас, Юки ТакаоПеревод: Многоголосый профессиональный (GoltFilm)Язык озвучки: Русский, ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 02:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04E64D36C529E9C4E300E1B2CC8430AAB74E449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720103   (57173) от 09.05.2024
-
-Годзилла: Минус один / Gojira -1.0 / Godzilla: Minus One (2023) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в 1945 году. Япония, которая уже опустошена войной, сталкивается с новой угрозой в виде Годзиллы, в результате чего страна оказывается под угрозой существования. Кайдзю вновь проявляет свою ужасающую и разрушающую силу. Выстоит ли Япония?Производство: Япония / Robot Communications, Toho Company, Toho StudiosЖанр: фантастика, боевик, драмаРежиссер: Такаси ЯмадзакиАктеры: Рюносукэ Камики, Сакура Андо, Минами Хамабэ, Юки Ямада, Такато Ёнэмото, Рикако Миура, Мунэтака Аоки, Майкл Ариас, Юки Такао, Кураносукэ СасакиПеревод: 2 х Многоголосый профессиональный (TVShows, GoltFilm)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F90CA525BCD652A84B7E5DC22A3F0AC05A8698
 ```
 
 https://mybot314.ru/tekegram_catalog/

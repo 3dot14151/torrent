@@ -1,3 +1,107 @@
+###  Публикация: 546945   (466748) от 18.09.2012
+
+В ожидании конца света (2 эпизод) / Doomsday Preppers (episode 2) (2012) IPTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как бы вы стали готовиться к концу света? Мы познакомимся с обыкновенными во всем остальном американцами, которые начали приготовления к крушению нашей цивилизации, и узнаем об их необычных взглядах, мотивах и стратегиях выживания. От бункеров до изолированных укрепленных жилищ, эти «выживальщики» не остановятся ни перед чем, чтобы во всеоружии встретить любые катаклизмы. Но всё ли они сделали для этого? Наши эксперты оценят их готовность и выяснят, каковы же реальные шансы этих людей на выживание, если их самые худшие страхи оправдаются.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DB1BDC8073D31A87793FB8421F902D9A1C07A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246180   (465467) от 09.09.2018
+
+NG. Осушить океан: тайны нацистов / Drain the Oceans. Nazi Secrets (2018) DVB (Сезон 1, серия 1)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы думаем, что знаем из истории планы Гитлера по порабощению всего мира, но есть одна малоизвестная и нерасказанная еще страница истории о том, как нацисты вели тайную войну в мировом океане. Морские археологи и историки отправляются на поиски тайн Гитлера, спрятанных глубоко под водой. Научные данные в комбинации с компьютерной графикой позволяют им "осушить" (   Читать дальше...   )Производство: Канада, National GeographicЖанр: Документальный, научно-популярный, исследованиеРежиссер: Марк ТилиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC1CF58A7615103A79DBF31BDAF02BE32123363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246212   (465191) от 09.09.2018
+
+NG: Неизвестная планета Земля / One Strange Rock (2018) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы живем на планете Земля и даже не подозреваем о том, какие загадки и секреты она хранит. В этом интереснейшем проекте мы постараемся понять, что именно изучают современные ученые, какие готовятся исследования в скором времени, и почему человечество, пуская в космос исследовательские зонды, не может себе позволить спуститься на дно Марианской впадины? Авторы этого (   Читать дальше...   )Производство: США, Nutopia, Protozoa PicturesЖанр: Документальный, познавательный, научно-популярныйРежиссер: Nick Shoolingin-Jordan, Грэхэм Бут, Нат ШарманПеревод: Многоголосый профессиональный (AMS); одногоголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976C0636D4A0CC6CC7482DA1E2814D22779656DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161764   (463560) от 30.08.2017
+
+NGW: Секретная жизнь жемчужин / The Secret Life of Pearls (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воды Южных морей – удивительный край, где хранятся несметные сокровища, сокрытые внутри невзрачных раковин диких моллюсков. Жемчуг, добытый на северо-западном побережье Австралии - в Кимберли, имеет особую ценность. Из-за превосходно ровной формы и уникальной игры переливов он ценится выше большинства драгоценностей. Охотники за сокровищами часто рискуют жизнью, (   Читать дальше...   )Производство: Австралия, Eye Spy Productions Pty Ltd and Northern PicturesЖанр: Документальный, природа, флора, фаунаРежиссер: Ник РобинсонПеревод: Одноголосый закадровый, профессиональный  (Велес)Субтитры: отсутствуютПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488471B63E59A429803A2261C7D5018D742566C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246466   (463299) от 10.09.2018
 
 NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 серий)
@@ -6,7 +110,7 @@ NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463299.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Генуя. Хронология катастрофы / Genoa. Bridge Disast
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463134.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Человек против осьминога / Man vs octopus (2017) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463130.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Тайны святых ковчегов / Mysteries of the Holy Arks (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459171.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ National Geographic. Тайны святых ковчегов / Mysteries of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459091.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Взгляд изнутри: Северная Корея - династия 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458969.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458964.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG. Акула-молот: в поисках рекордсмена / World's Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457435.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457270.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ NG:Больше, чем тираннозавр / Bigger Than T.Rex (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457239.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ NG: Реальные "Злые птицы" / Real Angry Birds (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457159.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ NG. Легенда о хрустальном черепе / Legend of the Crysta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456831.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ NG: Взгляд изнутри: Северная Корея - тогда и с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454733.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ NGW: Удивительные летучие мыши / Incredible Bats (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454684.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ NG. Мафия. Тото Риина / Mafia Confidential. Toto Riina (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454640.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ NG: Международный аэропорт Дубай. Серия 2 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453852.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453386.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453376.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ NG: Исследователь 2.0 / Explorer (2015) HDTV [H.264/1080i] (8 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453076.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ NG. Нападение нацистов на США (Атака нацистов
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452648.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ National Geographic: Американские транссексуалы / Ameri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450279.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NG: Голливудская наука. Чудо машины / Hollywood Scien
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448481.jpg" />
 </div>
 
 
@@ -566,112 +670,6 @@ NG: Голливудская наука. Чудо машины / Hollywood Scien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:506BC5F44CFA7188076366BD88636C1BA6D02428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248019   (448476) от 17.09.2018
-
-NGW: Прекрасная Америка: Величественный Северо-Запад. В тени Скалистых Гор / The Mighty Northwest (2018) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с жизнью дикой природы на Северо-Западе Америки.
-Жизнь в долинах Скалистых Гор и на склонах бьет ключом, но животным здесь для выживания приходится преодолевать целый ряд трудностей.Производство: США, Red Rock Films, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5989C1C717F985506B6F782C41EA3A7DBC66797B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248031   (448320) от 17.09.2018
-
-NGW: Национальные парки Америки / America's National Parks (2017-2018) HDTVRip [H.264/1080p-LQ] (Сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соединенные Штаты Америки являются домом для некоторых из самых невероятных национальных парков в мире. Йеллоустоун, Йосемити и Гранд-Каньон - это лишь некоторые из природных чудес, которые может представить страна. Настройтесь на невиданные ранее кадры этой волшебной среды и уникальных животных, которые ее населяют.Производство: США, NDR Naturfilm, Studio Hamburg DocLights, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Генри М. Микс, Ян Кочачевский, Ян Хафт, Уве Андерс, Оливер ГетцльПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C5A33F6556B447B505BC8ABEEE082A85A45B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248480   (444658) от 19.09.2018
-
-NG. Тайная семерка Африки / Africa's Secret Seven (2003) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие знают про «большую африканскую пятерку» - пять желанных трофеев для охотника. Но есть еще и «секретная африканская семерка» - это живущие в глухих дебрях лесов и зарослей кустарников саванн животные, крайне неохотно попадающиеся на глаза человеку. Так незаметно они и живут: сражаясь за существование, добывая пропитание, взращивая потомство. В фильме представлены (   Читать дальше...   )Производство: ЮАР, Aquavision TV Productions, NDR Naturfilm, National Geographic TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Стефания МиллерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1148E20CE66F7A6B82DB4D79F3B71CFF3640A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164082   (443578) от 08.09.2017
-
-NGW: Вся правда о крокодилах / The whole truth about crocodiles (2015) DVBRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_443578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни из самых впечатляющих существ на планете живут в африканской реке бок о бок. Бегемоты и крокодилы терпят друг друга но другие животные могут угрожать молодым и беззащитным представителям обоих видов. Вооруженные огромными челюстями они борются за драгоценную территорию, а тем, кто станет у них на пути, придется за это поплатиться.
-В этом документальном фильме (   Читать дальше...   )Производство: Нидерланды, Nature Conservation Films World Wide B.V.Жанр: Документальный, научно-популярный, фаунаРежиссер: Алан МиллерПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1C597F3D26FDEDE155E0A8653F578007C717B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

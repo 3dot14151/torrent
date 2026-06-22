@@ -1,3 +1,170 @@
+###  Публикация: 1090692   (945881) от 07.01.2017
+
+Al Di Meola - 37. Leverkusener Jazztage (2016) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление американского jazz fusion, latin jazz гитариста, композитора и музыкального продюсера Эла Ди Меола на 37 джазовом фестивале Leverkusener Jazztage nov 07, 2016Misterio
+Mawazine
+Esmeralda
+Cinema Paradiso(   Читать дальше...   )Производство: Запись со спутниковго канала 3SAT dec 05, 2016Жанр: Jazz fusion/Latin jazz/World fusionПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A82D62556DA718426D79DC85C68D5592DF754F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090511   (945765) от 07.01.2017
+
+The Steve Miller Band - Avo session Basel (2012) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив Миллер (Steve Miller, род. 5 октября 1942 г.) - американский гитарист, создавший в возрасте 12-ти лет блюз-рок-команду, которая после многочисленных смен состава получила в 1968 году название Steve Miller Band.
+• Стив Миллер родился в Милуоки 5 октября 1942 года. Мать его была певицей, а отец в свободное время занимался звукорежиссерскими делами, так что неудивительно, (   Читать дальше...   )● Take the Money and Run
+● The Stake
+● Abracadabra
+● Further On Up The Road(   Читать дальше...   )Производство: Запись с канала Musik NightЖанр: МузыкаПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C6AF086FF44134C6551EC067AF71ADBD017FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853556   (945685) от 13.01.2015
+
+The Beatles - A Day In The Life (1967) HDTV [1080i] [hand made clip]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945685.jpg" />
+</div>
+
+
+###  Подробнее
+
+За один день может случиться много чего. Можно утром стать миллионером, а вечером попасть в автокатастрофу. Или с утра выпить чашечку чая, днем посмотреть фильм о том, как английская армия выиграла войну, а вечером попасть... на эту самую войну! Хотя в настоящей войне и автокатастрофы выглядят по-другому, и армия далеко не всегда побеждает.
+«A Day in the Life» (рус. (   Читать дальше...   )Жанр: МузыкальныйРежиссер: Джордж МартинПродолжительность: 00:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5F1BCB5DDE969B0462AB19C0B9D4944BFC290B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090480   (945568) от 07.01.2017
+
+Эстас Тонни - Внутренний полет / Estas Tonne - Internal Flight (2016) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эстас Тонне – музыкант, обладающий яркой и мощной выразительной силой, обрушивающий все законы шоу-бизнеса, музыкант для которого Музыка является не целью, а средством, освобождающим человеческие возможности к познанию как самих себя, так и окружающей реальности.
+
+Путешествуя по несчетному количеству стран и континентов, Эстас Тонне часто находил себя в проявлениях (   Читать дальше...   )Производство: Паганель СтудиоЖанр: Музыкальный видеорядПродолжительность: 00:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C6F9FB3B323DA6F013E349C76E403F0A95B7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859115   (945463) от 13.01.2015
+
+Огонь Кристиана Лубутена 3D / Feu: Crazy Horse Paris (2012) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый создатель туфель с красной подошвой ставит шоу в известном парижском клубе «CRAZY HORSE PARIS». По словам самого Лубутена, танцевальные номера в парижском кабаре «это памятник, памятник танцу, фантастическая идея праздника для женщин от женщин».Производство: Франция (студия KaBo)Жанр: Документальный, Мюзикл, ШоуРежиссер: Бруно ХаллинАктеры: Люмина Классика, Нука Карамель, Бейби Лайт, Кристиан Лубутен, Лив Менот, Дива Новита, Фьямма Роза, Ясна Снигура, Псикко Тико, Лоа ВаинаПеревод: Многоголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1448E486BC0FF300B249FBCFBC43D3B5E093C89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877551   (945218) от 05.02.2016
+
+Галатея (1977) VHSRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-балет по пьесе Бернарда Шоу "Пигмалион" на музыку Тимура Когана.
+Впервые была предпринята попытка перевести пьесу на язык хореографии. И хотя за основу был взят мюзикл Ф.Лоу "Моя прекрасная леди", балетмейстер Д. Брянцев и режиссер А. Белинский предложили совершенно оригинальную трактовку известного произведения - танцоры классического балета (   Читать дальше...   )Производство: СССР, к/с ЛентелефильмЖанр: фильм-балетРежиссер: Александр БелинскийПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445574C5DB883DB452DAF4894A70D57C5268DB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982780   (945056) от 05.02.2016
 
 VA – Live Aid (1985) 4DVD, 2004 Warner Music Vision, DVDRip
@@ -6,7 +173,7 @@ VA – Live Aid (1985) 4DVD, 2004 Warner Music Vision, DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945056.jpg" />
 </div>
 
 
@@ -35,7 +202,7 @@ Mark Knopfler and Emmylou Harris - Real Live Roadrunning (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944822.jpg" />
 </div>
 
 
@@ -64,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944670.jpg" />
 </div>
 
 
@@ -93,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944505.jpg" />
 </div>
 
 
@@ -122,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944500.jpg" />
 </div>
 
 
@@ -149,7 +316,7 @@ The Beatles: Вечер трудного дня / A Hard Day-s Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944450.jpg" />
 </div>
 
 
@@ -176,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944428.jpg" />
 </div>
 
 
@@ -202,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_944231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944231.jpg" />
 </div>
 
 
@@ -228,7 +395,7 @@ Shirley Bassey - Divas Are Forever (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943733.jpg" />
 </div>
 
 
@@ -257,7 +424,7 @@ Stray Cats - Greatest Hits! (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943687.jpg" />
 </div>
 
 
@@ -286,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943427.jpg" />
 </div>
 
 
@@ -315,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943399.jpg" />
 </div>
 
 
@@ -342,7 +509,7 @@ VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_943261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943261.jpg" />
 </div>
 
 
@@ -372,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942727.jpg" />
 </div>
 
 
@@ -401,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942722.jpg" />
 </div>
 
 
@@ -430,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942496.jpg" />
 </div>
 
 
@@ -456,7 +623,7 @@ The Chemical Brothers: «Не думай» / The Chemical Brothers: Don’t Thin
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942208.jpg" />
 </div>
 
 
@@ -482,7 +649,7 @@ Sting: Live in Berlin (2010) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_942151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942151.jpg" />
 </div>
 
 
@@ -508,7 +675,7 @@ Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941919.jpg" />
 </div>
 
 
@@ -534,7 +701,7 @@ VA – Реальная Музыка (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941882.jpg" />
 </div>
 
 
@@ -548,174 +715,6 @@ VA – Реальная Музыка (2001) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:788B0EE7733011043306534B0D1E9C170F3055AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983786   (941708) от 07.02.2016
-
-Концерт Елены Ваенги (2016.02.06) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее песни знакомы каждому в нашей стране. В эту субботу Первый канал покажет сольный концерт Елены Ваенги, в котором прозвучат композиции: "Сердце напополам", "Курю", "Нева", "Шопен", "Остановка", "Мишина песня", "Аэропорт", "Невеста" и другие.Телекомпания: Первый канал HDЖанр: КонцертПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD962C21754797CC464FF9EDC957096D5DD27C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626809   (941213) от 07.03.2013
-
-Beth Hart - Live at Paradiso (2004) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941213.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 мая 2004 года, Бет Харт выступила в Paradiso театре, который считается одним из самых красивых концертных залов Амстердама. Этот концерт Вас не разочарует, можно даже сказать, что это маленький спектакль! В первую очередь он для тех кто любит рок и блюз. Концерт не для слабонервных, Бет Харт выступает очень раскованно и провокационно сексуально, а это не на шутку (   Читать дальше...   )01. Hiding Under Water
-02. Delicious Surprise
-03. Guilty
-04. Leave The Light On(   Читать дальше...   )Жанр: Концерт, Rock, BluesПродолжительность: 01:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215E997E057E1C23C33CD95EB0378861AF265958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091575   (941129) от 10.01.2017
-
-Легенды Ретро FM (полная версия) (2016) HDTVRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_941129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступление 2017 года в эфире Первого ознаменует новогоднее супершоу лучшей музыки 70-х, 80-х и 90-х с участием ВИА «Верасы», Татьяны Булановой, Михаила Муромова, Игоря Николаева, Дмитрия Маликова, Игоря Корнелюка и других исполнителей.Грандиозный ностальгический концерт уже в двенадцатый раз соберет под одной крышей Олимпийского звезд семидесятых, восьмидесятых (   Читать дальше...   )01. Божья Коровка - Друзья-товарищи
-02. Божья Коровка - Гранитный камешек
-03. Afric Simone - Todo Pasara Maria
-04. Afric Simone - Hafanana(   Читать дальше...   )Производство: РоссияЖанр: PopПродолжительность: 03:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B930416B3C19CD8E22D5156D694B83E587E31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625827   (940955) от 07.03.2013
-
-Сборник клипов - VA - Various Music part. 40 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940955.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2Elements - Tell Me Boy 1080p (3:24)
-2. Akcent feat. Anushka Manchanda - I'm Sorry 1080p (4:04)
-3. Alina Grosu - Let Go (Eurovision 2013) 1080p (3:10)
-4. Arty, Nadia Ali & BT - Must Be The Love 1080p (4:57)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D36F0EF9148FA4B3BD96D5FD9F402BC3FAC8D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363758   (940915) от 29.02.2020
-
-Квартирник НТВ у Маргулиса. Мот (28.02.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940915.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришел один из самых лиричных рэп-исполнителей современности — Мот. Учеба в МГУ, «Битва за респект» и треки в стиле релакс — с этого начинал будущий «аспирант в дипломате» Матвей Мельников. А после был контракт с Black Star, хиты «Мама, я в Дубае», «День и ночь», «Капкан», «Абсолютно все», «Сопрано», и дуэты с Ани Лорак, Егором Кридом, (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E008FC13146455B62BA2432203EFFD67E2809418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 277814   (940706) от 02.02.2014
-
-Chris Norman: One Acoustic Evening - Live at the Private Music Club (2005) 2xDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двойной концертный альбом Криса Нормана. Первый диск - акустический концерт Криса и его группы в клубе Private Music Club в Дортмунде (Германия), который состоялся 14 декабря, 2004 года. В программе песни Smokie, Beatles, классика рок-н-ролла и немного собственных песен. Второй - электрический концерт в Вене 27 июня, 2004. Все лучшее из репертуара Smokie, сольного (   Читать дальше...   )Disk 1 - LIVE AT THE PRIVATE MUSIC CLUB:
-
-01. Sweet Surrender
-02. Breathless(   Читать дальше...   )Производство: Locomotive SpainЖанр: Pop-RockПеревод: ОтсутствуетЯзык субтитров: ОтсутствуетФормат: DVD9Продолжительность: 01:31:23 + 01:08:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

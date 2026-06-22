@@ -1,3 +1,83 @@
+###  Публикация: 1435042   (1042385) от 03.01.2021
+
+Долгий путь вокруг Земли / Long Way Round (2004) WEB-DLRip (сезон 1, серии 1-10 из 10) AMS [AD]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042385.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2004 году известные актёры и хорошие друзья Чарли Бурман и Юэн МакГрегор завершили кругосветное путешествие на своих BMW R 1150 GS Adventure, которые летом 2004 года обвезли их вокруг Земного шара.Производство: Великобритания / Long Way RoundЖанр: документальный, реальное ТВ, приключенияРежиссер: Дэвид Алексаниан, Расс МалкинАктеры: Юэн Макгрегор, Чарли Бурмен, Дэвид Алексаниан, Расс Малкин, Джеймс Саймак, Клаудио фон Планта, Дэйзи Бурман, Дун Бурман, Джон Бурмен и др.Перевод: Многоголосый закадровый - Студия «AMS»Субтитры: русские, украинские, английские (отдельными файлами в раздаче)Продолжительность: ~00:50:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF57E1934710605405AE0272CE3BCF8566D4700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611315   (1041427) от 11.02.2023
+
+Главная дорога (11.02.2023) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый автомобилист регулярно обслуживает машину, но часто забывает про главную деталь — водителя. А его, если сломается, починить сложнее. О том, как следить за своим здоровьем когда нет времени ходить в спортзал, и снизить риск внезапной смерти за рулем, рассказали Андрей Федорцов и Денис Юченков.
+
+Отказать — себе дороже: почему желание водителя поехать к наркологу (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C826009DC96A1AE4906A41E016E79DA989193A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613255   (1039661) от 18.02.2023
+
+Главная дорога (18.02.2023) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откуда берется жажда скорости и как ее уталить никого не убив? Жажда стресса! Именно это, по словам врачей, заставляет нас нарушать правила, пусть и немного. Ведь каждый любитель погонять — своего рода наркоман, только адреналиновый. Но можно ли на спорткаре ехать с разрешённой скоростью, не мешая другим, и получать удовольствие? Андрей Федорцов и Денис Юченков проверят, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7242572E456D9077BBF24D6110FD0006DF06BFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613711   (1039401) от 19.02.2023
 
 Первая передача на НТВ. Автомобильная передача (19.02.2023) SATRip [H.264]
@@ -6,7 +86,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039401.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038804.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037589.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037177.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035872.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035830.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035181.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034944.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033518.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033305.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032583.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031827.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030989.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030968.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030732.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030006.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029740.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029232.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028898.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028750.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027745.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027589.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026612.jpg" />
 </div>
 
 
@@ -597,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:942CD140F4A815DB8BA02F17656EFB0FDAEDD0B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454260   (1026432) от 14.03.2021
-
-Первая передача на НТВ. Автомобильная передача (14.03.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда чей-то питомец бросается под машину, водитель, задавивший животное возмещает ущерб хозяину. А что происходит, если под колеса попадает дикий зверь? Что делать, если виновник ДТП — иностранец? Какой документ нужно потребовать у него на месте аварии? В 2017 году история Вадима Остапова обошла все федеральные телеканалы. Ради общего блага водитель маршрутки бросил (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34194225F7163326830B5203774EB85275F09BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455732   (1025481) от 20.03.2021
-
-Главная дорога (20.03.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выбирая машину на вторичном рынке, водители смотрят на год, ее состояние и пробег. Только вот пробег может быть скручен! Электронные сервисы предлагают помощь в проверке автомобилей, но можно ли им доверять? Андрей Федорцов и Денис Юченков взяли несколько машин, проверили их в сервисах и приложениях и узнали, насколько разной может быть судьба автомобиля в реальной (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65988488AD95E4C92C929192D7A5C7D4FF7FBBFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457783   (1024237) от 27.03.2021
-
-Главная дорога (27.03.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крепкий алкоголь, но немного, или легкий, но в неограниченном количестве? Что выбрать на праздничном банкете и можно ли на следующий день после торжества садиться за руль? Андрей Федорцов и Денис Юченков пригласили зрителей программы разного возраста, чтобы выпить, закусить и с помощью алкотестера проверить, какой алкоголь опаснее — пиво, портвейн или водка, и, конечно, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C226D9B4D02FEBA01908A97EC62D36323BE9F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

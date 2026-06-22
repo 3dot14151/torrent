@@ -1,3 +1,57 @@
+###  Публикация: 1415248   (379246) от 11.10.2020
+
+CheckBook Pro 2.6.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379246.jpg" />
+</div>
+
+
+###  Подробнее
+
+CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2020Разработчик: Splasm Software, Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333D1AAB201DA982703BD5300DDF774204F6B60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415182   (379245) от 11.10.2020
+
+Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1861 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2020Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70F79378BEA932A1F6127172B71AE08B38C60F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253751   (379195) от 11.10.2018
 
 Sketch 52.2 [En]
@@ -6,7 +60,7 @@ Sketch 52.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379195.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Xcode 7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379143.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ IconJar 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379118.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ PhotoSweeper X 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379115.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ SwitchGlass 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379109.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Aurora HDR 2019 v1.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379094.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Sublime Text 3 (3150) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379043.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Find Any File (FAF) 2.1.2b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378961.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378959.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ Fresh 4 v4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378954.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Bongiovi Digital Power Station (DPS) 2.2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378953.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ TinkerTool System 6 v.6.93 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378951.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Records 1.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378950.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ Bootstrap Studio 5.4.1 Lifetime Edition [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378854.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378832.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ Antivirus Zap – Virus & Adware 3.9.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378825.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ Renamer 6.0.6 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378822.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ EverWeb 3 v3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378791.jpg" />
 </div>
 
 
@@ -493,7 +547,7 @@ MarsEdit 4 v4.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378790.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ Unite 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378789.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ Pastebot 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378787.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ MovieSherlock 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378786.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ TextBar 3 v3.2.182 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378785.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ TotalSpaces 2 v2.7.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378784.jpg" />
 </div>
 
 
@@ -638,61 +692,6 @@ TotalSpaces - удобное приложение для управления р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1093D5EF7F91A4DC43FD9413A07F7BCAC2EBD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326982   (378783) от 23.09.2019
-
-GlueMotion 1.3.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378783.jpg" />
-</div>
-
-
-###  Подробнее
-
-GlueMotion - идеальный инструмент для фотографов. Приложение позволяет редактировать пакетные Deflicker и собирать последовательности изображений в покадровые фильмы.
-
-GlueMotion был создан, чтобы сэкономить время и помочь вам в процессе работы. Благодаря использованию инструмента пакетного редактирования, нет необходимости использовать дополнительные приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B491C298262FF004F327442AF77A81491C22D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326804   (378782) от 23.09.2019
-
-Grids for Instagram 5.6.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grids переносит лучшее из Instagram на ваш Mac.
-Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37321CDDACB60EFADAF74BC2DDD167DAAA57771
 ```
 
 https://mybot314.ru/tekegram_catalog/

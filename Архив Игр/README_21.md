@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765507.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Numen: Contest of Heroes / Numen: Время героев [Ru] (Repack) 2010 | -
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764679.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0) St
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764152.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763772.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Chernobyl: Terrorist Attack / Чернобыль: Зона отчуждения 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762961.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Borderlands 2 (2012) [Ru] (1.8.0/46dlc) Repack R.G. Механики [Game of th
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762748.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Heroes Chronicles: Warlords of the Wasteland / Хроники героев: Во
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762458.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762454.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Sherlock Holmes Collection (2004-2012) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762338.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Animal Kingdom: Wildlife Expedition [Wii] [English] [NTSC-U] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761320.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Second Sight [Ru] (P) 2005
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760853.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Deus Ex: Human Revolution - Director's Cut (2013) [PS3] [EUR] 4.46 [License] [En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760678.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760460.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Pillars of Eternity (2015) [Ru/Multi] (1.0.3.0530/dlc) Repack R.G. Catalyst [Roy
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_760156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760156.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Beat Hazard [Multi11] (P) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759426.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ True Crime: New York City [Ru/En] (RePack) 2006 | tukash
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759310.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Heroes Chronicles: Conquest of the Underworld / Хроники героев: П�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_759250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_759250.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2021122301) License GOG [Digital De
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757997.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.9.23742/dlc) License GOG [Special Edit
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757995.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Delaware St. John / Охотник за призраками Трилогия [R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_757771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757771.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ FUEL [Ru] (RePack) 2009 | tukash
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757614.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Wings over Vietnam / Асы над Вьетнамом [Ru] (P) 2004
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_757593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_757593.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_757534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_757534.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Goliath (2016) [Ru/En] (1.0.2) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756968.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ SAS: Secure Tomorrow / SAS: На страже будущего [Ru] (RePack) 200
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755713.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Death to Spies / Смерть шпионам Дилогия [Ru] (RePack) 2007-2
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755635.jpg" />
 </div>
 
 

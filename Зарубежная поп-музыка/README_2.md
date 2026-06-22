@@ -6,7 +6,7 @@ VA - Romantic Collection. Aria (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040755.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 1
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040751.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Romantic Collection. Nordic (2005) [OGG Vorbis|480 Kbps] <Pop Nordic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040514.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Romantic Collection. Black and Beautiful (2000) [OGG Vorbis|480 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040283.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Romantic Collection. Country (2000) [OGG Vorbis|480 Kbps] <Country>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040091.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Romantic Collection. Diva Mystic (2000) [OGG Vorbis|480 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039807.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Romantic Collection. Golden 60s (2000) [OGG Vorbis|480 Kbps] <Jazz, Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039312.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Marlene Dietrich - Lili Marlene (1950) [MP3|320 kbps]<Cabaret,Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038681.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Mega Hit Mix 2022 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038332.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tommy Seebach - Instrumental (2010) CD, Compilation [MP3|320 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038077.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kilo - Kilo (1979) LP [MP3|320 Kbps] <Electronic, Rock, Disco, Funk Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038062.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Romantic Collection. Sweden (1999) [OGG Vorbis|480 Kbps] <Electronic, Hip H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037534.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Romantic Collection '2000 Vol. 8 (2000) [OGG Vorbis|480 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037219.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ John Lennon - Imagine (1971) Reissue, Remastered, 2014, Universal Music [OGG Vor
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036718.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - 2021 Mega Hits [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035092.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Valentines Day 2021 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034681.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - 100 Easy Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032959.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Old Music Alert 70s (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032795.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - 100 Greatest Party Songs (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032791.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - 80s Top Tracks (2022) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032774.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Songs for the Car (2022) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032581.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Modern Disco (2023) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Indie Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032579.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - The 100 Collection: 00s – Top Up 1 (2023) [MP3|320 Kbps] <Synthpop, Post-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032539.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - 80s Finest Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032520.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Imagination - 8 Albums (1981-2016) Collection [MP3|320 Kbps] <Electronic, Funk/S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032359.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - The Best 70's Music (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032328.jpg" />
 </div>
 
 

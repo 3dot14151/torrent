@@ -1,3 +1,29 @@
+###  Публикация: 1463298   (507800) от 10.07.2022
+
+Shadow's House | Дом теней [2021, TV, 13 из 13] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507800.jpg" />
+</div>
+
+
+###  Подробнее
+
+В огромном особняке живут безликие, похожие на тени дворяне, которых обслуживают живые куклы. Основная задача кукол — счищать копоть и сажу, постоянно выделяемые их таинственными хозяевами. История расскажет о повседневной жизни молодой дворянки Кейт Шэдоу и её помощницы Эмилико, которая только начинает свою работу в особняке.Производство: Япония / CloverWorksЖанр: Повседневность, Сверхъестественное, СейненРежиссер: Охаси Кадзутэру / Oohashi Kazuteru / 大橋一輝Перевод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ, 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AE99F9F9031D76716F5F20CAF2CE0957DC255C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543211   (507790) от 10.07.2022
 
 Kawaii Dake ja Nai Shikimori-san / Shikimori's Not Just a Cutie / Шикимори-сан не только милая [2022, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Kawaii Dake ja Nai Shikimori-san / Shikimori's Not Just a Cutie / Шикимор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507790.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Yuukoku no Moriarty (2022) | Патриотизм Мориарти OVA [2022, OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506217.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ One Room: Second Season | Из одной комнаты [ТВ-2] [2018, TV, 13 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505769.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Yuyushiki / Формула ЮЮ [2013, TV, 12 + 6 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503339.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Yuri Seijin Naoko-san / Lesbian Citizen Naoko-san / Наоко - лесбиян�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503337.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Yuri Seijin Naoko-san (2012) / Lesbian Citizen Naoko-san / Наоко - лесб
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503246.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Coquelicot-zaka kara / From Up on Poppy Hill / Со склонов Кокури�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501951.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Fantasy Bishoujo Juniku Ojisan to | Life with an Ordinary Guy who Reincarnated i
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499666.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499600.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Aka
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499586.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499582.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Ag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499581.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499530.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Marie and Gali / Мари и Гали (первый сезон) [2009, TV, 40 ep
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_499047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499047.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498523.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Gyokou no Nikuko-chan | Fortune Favors Lady Nikuko | Никуко из Рыба�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498514.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498233.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Tatsu no Ko Tarou / Taro the Dragon Boy / Таро - сын дракона [1979
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_497065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497065.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Karakuri no Kimi / Puppet Princess / Принцесса марионеток [20
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495368.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Mazinkaizer SKL / Череп Мазинкайзера [2010, OVA, 3] BDrip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495308.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Vatican Kiseki Chousakan | Vatican Miracle Examiner | Инспекторы чу�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495176.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493817.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_493539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493539.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Amatsuki / Амацуки [2008, 13эп] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492868.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Pinky:st | Улица Пинки [2006, OVA, 2 из 2] DVDRip 480p HEVC 10-bit r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492447.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Pinky:st | Улица Пинки [2006, OVA, 2 из 2] DVDRip 480p HEVC 10-bit r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5D949D63987839F9C2A395ABA3613B4EB555F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123999   (491813) от 24.07.2022
-
-Warau Salesman New / The Laughing Salesman New / Весёлый коммивояжёр по-новому [2017, TV, 12 из 12] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его зовут Фукудзо Могуро . Он - Весёлый коммивояжёр. Нет, он не обычный продавец. Его основной товар - души… Души людей. Все люди на земле одиноки: старики, молодёжь, мужчины и женщины. Весёлый коммивояжёр заполняет эту пустоту. И нет, он не берёт ни копейки. Ему достаточно видеть своих клиентов удовлетворёнными. Но его клиенты редко (никогда) могут воспользоваться (   Читать дальше...   )Производство: Япония / Shin-Ei Animation, TMS EntertainmentЖанр: Комедия, сейнэнРежиссер: Огура ХирофумиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ, 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7EDD124DF6C5F5D5FF18AF37E42C23E75CCB10
 ```
 
 https://mybot314.ru/tekegram_catalog/

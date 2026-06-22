@@ -1,3 +1,55 @@
+###  Публикация: 1050128   (539672) от 07.09.2016
+
+One Piece Burning Blood (2016) [Ru/Multi] (1.06/dlc) Repack Other s [Gold Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539672.jpg" />
+</div>
+
+
+###  Подробнее
+
+One Piece Burning Blood - яркий и динамичный файтинг о самом знаменитом пирате в мире: Манки Д. Луффи.Тип издания: RepackРазработчик: Spike Chunsoft Co., Ltd.Жанр: Arcade (Fighting), 3DЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72665B2A74548F6532173816D92FA9A7BDA41648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144579   (538201) от 05.08.2018
+
+140 (2013) [En] (171409-r400) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538201.jpg" />
+</div>
+
+
+###  Подробнее
+
+140 – это непростой минималистичный платформер с яркой абстрактной графикой. Вам потребуется изрядное чувство ритма, чтобы преодолеть препятствия под энергичную, но мрачную электронную музыку.Тип издания: LicenseРазработчик: Carlsen GamesЖанр: Экшн, Аркада, ПлатформерЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667305B362F1F1214BEB4CDAEFC3A7F09B15F3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926359   (534823) от 09.08.2015
 
 A Story About My Uncle (2014) [Ru/Multi] (build 3717) Repack R.G. Механики
@@ -6,7 +58,7 @@ A Story About My Uncle (2014) [Ru/Multi] (build 3717) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534823.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ MachiaVillain (2018) [Ru/Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534761.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Lara Croft and the Temple of Osiris (2014) [Ru/En] (1.1.240.4/dlc) Repack R.G. �
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534689.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Flipping Death (2018) [Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534623.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Dead Cells (2018) [Ru/Multi] (1.0/dlc) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534607.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ A Story About My Uncle (2014) [Multi] (1.0.8767.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534029.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Seasons after Fall (2016) [Ru/Multi] (25913) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533792.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ghostly Matter (2018) [En/Fr/It] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533064.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Oddworld Abe's Oddysee [Ru] (RePack) 1997 | Kirill Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531767.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Basingstoke (2018) [En] (101_built_842018_54725_pm) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531130.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530475.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Mother Russia Bleeds (2016) [Ru/Multi] (1.0.1) Repack GAMER [Dealer Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530198.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_530043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530043.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Paranautical Activity (2015) [En] (4.5.4.162119) License GOG [Deluxe Atonement E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529475.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Redeemer (2017) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529351.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Pac-Man Championship Edition 2 (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528723.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ RIVE (2016) [En/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_527714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527714.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Sine Mora EX (2017) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526258.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Dead or Alive 5: Last Round (2015) [Ru/Multi] (1.10A/upd25/dlc) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_526248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526248.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Running Gods (2016) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_525904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525904.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Lego Jurassic World / LEGO Мир Юрского периода (2015) [Ru/Multi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524694.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Phantom Trigger (2017) [Ru/Multi] (02082017) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524400.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Black The Fall (2017) [Ru/En/Ge] (5.5.2) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_524391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524391.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Toy Soldiers: War Chest (2015) [En] (1.0) Rip R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523769.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Toy Soldiers: War Chest (2015) [En] (1.0) Rip R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4533D0EB9DB4BB4BC7146940DC9F57082EDE67C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927466   (523041) от 15.08.2015
-
-Earthworm Jim Pack (1995-1999) [En] License I KnoW
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_523041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовьтесь, самый популярный кольчатый вернулся. Червь возвратился покрасоваться в своем следующем приключении - Earthworm Jim 3D. Червяк Джим вырубленный упавшей на него коровой, очухивается в сумасшедшем мире собственного разума. Помогите Джиму пробиться через потаённые уголки своего подсознательного, найти свои шарики и вернутся в нормальный мир.Тип издания: ЛицензияРазработчик: Shiny & Rainbow Arts SoftwareЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290DE1C5C6167EF8489D68FEABB96B63DFE8CF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241145   (521926) от 15.08.2018
-
-TANGLEWOOD (2018) [En] (1.0) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_521926.jpg" />
-</div>
-
-
-###  Подробнее
-
-TANGLEWOOD – хардкорный платформер-головоломка, разработанный изначально для Sega Mega Drive® и Genesis®. События игры разворачиваются в вымышленном мире, где вам предстоит сыграть за юного зверька, похожего на лисицу, по имени Нимн, который оказался далеко от своего дома после захода двух солнц-близнецов. Помогите герою найди дорогу домой, преимущественно решая (   Читать дальше...   )Тип издания: RepackРазработчик: Big Evil CorporationЖанр: Action, Adventure, Platform, PuzzleЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C619B632791C310B88506A87D2E98F964C07FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

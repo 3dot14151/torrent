@@ -1,3 +1,56 @@
+###  Публикация: 853117   (151233) от 28.12.2014
+
+Хороший, плохой, злой / Il buono, il brutto, il cattivo (1966) BDRip [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151233.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар гражданской войны таинственный стрелок скитается по просторам Дикого Запада. У него нет ни дома, ни друзей, ни компаньонов, пока он не встречает двоих незнакомцев, таких же безжалостных и циничных.
+По воле судьбы трое мужчин вынуждены объединить свои усилия в поисках украденного золота. Но совместная работа — не самое подходящее занятие для таких отъявленных (   Читать дальше...   )Производство: Италия, Испания, Германия (ФРГ)Жанр: ВестернРежиссер: Серджио ЛеонеАктеры: Клинт Иствуд, Ли Ван Клиф, Илай Уоллак, Альдо Джуффре, Луиджи Пистилли, Рада Рассимов, Энцо Петито, Клаудио Скаркилли, Джон Барта, Ливио ЛоренцонПеревод: Профессиональный (многоголосый, закадровый)Субтитры: ОтсутствуютПродолжительность: 02:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C5A66F08F8D1ABBD47DD121279D274AEC3A937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345714   (151120) от 23.12.2019
+
+Сексмиссия (Новые амазонки) / Seksmisja (Sexmission) (1983) BDRemux [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альберт и Максимилиан соглашаются стать участниками эксперимента профессора Куппельвайзера: они, двое молодых мужчин лет 30-ти, в интересах науки должны быть заморожены сроком на 3 года. Однако за время, проведенное ими в специальных капсулах, на Земле многое изменилось, и потому Альбертика с Максом разморозили не через три года, а через полвека с лишним. В 2044 (   Читать дальше...   )Производство: Польша / ZRF "Kadr", Zespól Filmowy "Kadr"Жанр: Фантастика, комедия, приключенияРежиссер: Юлиуш МахульскийАктеры: Ольгерд Лукашевич, Ежи Штур, Божена Стрыйкувна, Богуслава Павелец, Ханна Станкувна, Беата Тышкевич, Рышарда Ханин, Барбара Людвижанка, Мирослава Мархелюк, Ханна МикуцьПеревод: Профессиональный многоголосый, профессиональный двухголосыйСубтитры: русские (полные), английские (полные)Продолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4515D42F94D910846B2CDAD007E8C308AB8C95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968953   (150925) от 25.12.2015
 
 Здоровый образ жизни / HealtH (1980) HDTV [H.264/1080i]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150925.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150864.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150804.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150415.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150250.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150186.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150100.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149171.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148464.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147873.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147499.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147410.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146790.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146774.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146225.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144633.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144594.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144448.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144441.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144249.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144070.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143428.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143401.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143264.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCF5FA71E9BD2A300D953BA22EBE90FBF492C52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515728   (143197) от 27.12.2021
-
-Очаровательная лгунья / Adorable menteuse (1962) WEB-DL [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героини фильма - две сестры, красавицы Жюльетта и Софи. Они очень разные. Софи серьёзная, всегда говорит правду. Жюльетта - выдумщица и лгунишка. Сёстры заводят знакомства, влюбляются, бегут от обыденной скучной жизни. Но скоро на смену увлечениям приходит настоящее чувство...Производство: Франция / EléfilmЖанр: комедияРежиссер: Мишель ДевильАктеры: Марина Влади, Маша Мериль, Мишель Витоль, Жан-Марк Бори, Клод Никот, Жинетт Летондаль, Жан-Пьер Мулен, Франсуа Далу, Микаэль Лонсдаль, Кристиан АлерПеревод: Многоголосый профессиональный (телеканал "Россия")Субтитры: русские (Forced, Full), английские, хорватские, чешские, датские, голландские, финские, французские, греческие, венгерские, итальянские, норвежские, португальские, румынские, шведские, испанскиеПродолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6082E32F43EAA212FD3A0579C1313D8612E2B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739386   (142867) от 29.12.2013
-
-Прощай, Эммануэль / Goodbye Emmanuelle (1977) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она была рьяной искательницей эротических приключений, никогда не прекращающей своей неистовой гонки за наслаждением. И вдруг произошло совершенно невероятное. Исполненная сексуальной свободы, Эммануэль попадает в классическую, но парадоксальную ситуацию — ситуацию Любви с большой буквы. Страстно и безоглядно она порывает с привычной жизнью, влекомая этим неведомым (   Читать дальше...   )Жанр: Мелодрама, Драма, ЭротикаРежиссер: Франсуа ЛетерьеАктеры: Сильвия Кристель, Умберто Орсини, Сильви Феннек, Жан-Пьер Бувье, Александра Стюарт, Ольга Жорж-Пико, Эрик Колен, Шарлотт Александра, Каролина Лоранс, Джек Аллен, Жак Дониоль-Валькроз, Грег Жермен, Боб Асклеф, Патрик ВикторПеревод: Любительский одноголосыйЯзык субтитров: АнглийскийФормат: MKVПродолжительность: 01:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B8A2F11BE773C49285424A199AAA52B894A04D
 ```
 
 https://mybot314.ru/tekegram_catalog/

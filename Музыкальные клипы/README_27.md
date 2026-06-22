@@ -1,3 +1,211 @@
+###  Публикация: 569326   (391680) от 03.11.2012
+
+Pirupa - Party Non Stop (Uncensored) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334083D4FA2797A5F0615BF15277F29F6B5AF137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570003   (390885) от 04.11.2012
+
+No Doubt - Looking Hot (2012)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый клипЖанр: МузыкаПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8E4BF0867F3F359B22D80EFFF125A50D0492B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570422   (390207) от 05.11.2012
+
+Daniel Bedingfield - Secret Fear (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7FEE134A1DA073E6FDD9288AC2B86186C88535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570622   (390111) от 05.11.2012
+
+Mungo Jerry - Video Collection (70-77) (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё одна забытая британская рок-группа 70-х и если кто не видел и тем более не слышал этих веселых и жизнерадостных парней то непременно советую посмотреть этот сборник с ранними песнями!Жанр: Музыка,Glam RockПродолжительность: 00:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80695A7B4C954BA9909C486C27D7D5B992ACE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570817   (389243) от 06.11.2012
+
+Christina Aguilera - Your Body (2012) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F72ADF9B96CBC0FCD00AF52A444AD5DDD566CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571524   (388270) от 07.11.2012
+
+Space RockerZ & Ellie lawson - Under The Same Sky (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FD97FCDB8D88360ACE155F76385251609529BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571527   (388261) от 07.11.2012
+
+Master and Ian Carey - Lights Out (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BACBEE445D1D357AE4A20913D5176E735D85F7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571523   (388016) от 07.11.2012
+
+Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD716F14FA7D971328EBA8D33D680BF394CDA0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571878   (388003) от 07.11.2012
 
 Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
@@ -6,7 +214,7 @@ Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_388003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388003.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387865.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387741.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ Enigmatic Chill-Out Lounge (2012) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385280.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_385082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385082.jpg" />
 </div>
 
 
@@ -144,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382676.jpg" />
 </div>
 
 
@@ -173,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382668.jpg" />
 </div>
 
 
@@ -202,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_382639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382639.jpg" />
 </div>
 
 
@@ -231,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_380505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380505.jpg" />
 </div>
 
 
@@ -260,7 +468,7 @@ Rihanna - Bitch Better Have My Money (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379153.jpg" />
 </div>
 
 
@@ -286,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_379093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379093.jpg" />
 </div>
 
 
@@ -315,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378112.jpg" />
 </div>
 
 
@@ -341,7 +549,7 @@ Akcent / Коллекция видео (2002-2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377111.jpg" />
 </div>
 
 
@@ -367,7 +575,7 @@ VA - Осенний марафон № 199 / Видеоклипы (Свежие 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_377040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377040.jpg" />
 </div>
 
 
@@ -396,7 +604,7 @@ Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376421.jpg" />
 </div>
 
 
@@ -422,7 +630,7 @@ M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376072.jpg" />
 </div>
 
 
@@ -448,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375342.jpg" />
 </div>
 
 
@@ -484,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374410.jpg" />
 </div>
 
 
@@ -498,229 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796DCD353E5D7DB8FE6B7D0885E7D687E3F49740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327326   (374111) от 25.09.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 3 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся сила энергия и мощь понастоящему крутой музыки! Это 3я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 3 — Intro
-01. Cinderella — The More Things Change
-02. Van Halen — Don’t Tell Me
-03. 3 Doors Down — Duck & Run(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89118020E59E4514FAA7891C3A0087EE9FE71267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175540   (374069) от 20.10.2017
-
-Сборник клипов - Reggae от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_374069.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые мелодичные клипы мирового рэгги. Эта музыка пропитана ямайским духом и жарким климатом тропиков. Для всех любителей солнечных мелодий и почитателей легендарного Боба Марли. От себя добавлю, Если б я мог превратиться в музыку, то стал бы позитивным ямайским солнечным рэгги! Это 1 часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для (   Читать дальше...   )001 Robert Palmer and UB40 - I`ll Be Your Baby Tonight
-002 Mark Wonder & Sizzla Guiding Light
-003 Mattafix - Cool Down The Pace
-004 Inner Circle - Games People Play(   Читать дальше...   )Жанр: ReggaeПродолжительность: 03:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A669C26E15B7B739B417F3DCDFF7057483FBD483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175701   (373927) от 20.10.2017
-
-VA - Viva Music (1996) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов легендарного немецкого музыкального телеканалаDJ Hooligan - System Ecstasy
-Rhythm of Sylvia - Rhythm of Sylvia
-CJ Bolland - Camargue
-Der dritte Raum Trommelmaschine(   Читать дальше...   )Производство: Viva MusicЖанр: Музыка,клипыСубтитры: отсутствуютПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D8558D78FB6CEABEFD7328311F451CBA39BA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176076   (369192) от 22.10.2017
-
-Сборник клипов - Русский шансон от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой подарок всем любителям русского шансона. В сборник вошли самые хитовые кабацкие песни, романсы, ну и конечно же много блатной темы. Это 1 часть сборника. Да прибудет с нами качественная музыка! Все лучшее для вас в натуре! =)  ALEXnROCK000 Интро
-001 Жека - Растревоженная птица
-002 Вячеслав Добрынин - Капитан запаса
-003 Бутырка - Малец(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6CD4E3DC0B7625616AD4F8057DC8B1CDB99BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070221   (368450) от 06.11.2016
-
-Assorti Creative 50 (2016) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приглашаю вас в мир моей музыки! Надеюсь, что каждый здесь найдет что-то для себя. Пусть музыка наполнит вас гармонией и в вашей жизни всегда все будет хорошо! Клипы исполнителей Enigmatic направления. Для любителей проэкта Enigma.01. Achillea ( Jens Gad ) - Amadas Estrellas [05:30]
-02. Deep Forest - Deep Forest [03:30]
-03. Enigma - Fata Morgana [03:05]
-04. Conjure One - Sleep [05:03](   Читать дальше...   )Производство: Assorti CreativeЖанр: Enigmatic, New AgeПродолжительность: 04:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD40D76020C2942A0C29AAB0E727EC3DAF71115E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575573   (367907) от 15.11.2012
-
-DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectroПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E598918AB0D717FBF07847D23DF4B830FE8D3A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405851   (367808) от 04.11.2011
-
-Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипРежиссер: Леди ГаГа, Лори Энн Гибсон, Haus of GaGaПродолжительность: 00:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F55F773E2A68E01CA6EC1FB92D89EB18B235D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406067   (367786) от 04.11.2011
-
-VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_367786.jpg" />
-</div>
-
-
-###  Подробнее
-
-“The best video clips ” -  Музыкальные видеоклипы. Большинство видео материала записано с музыкальных каналов высокой чёткости.Жанр: МузыкаРежиссер: N/AАктеры: DEV, Jennifer Lopez, Selena Gomez & The SceneПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 5x ~00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B797F046A5D5D8FCF9DBAF8ACFF7BA3C8F95172A
 ```
 
 https://mybot314.ru/tekegram_catalog/

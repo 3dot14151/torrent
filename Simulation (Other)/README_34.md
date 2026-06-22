@@ -1,55 +1,3 @@
-###  Публикация: 1785891   (24248) от 18.03.2025
-
-Candy & Toys Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оптимизируйте организацию вашего магазина конфет и игрушек для повышения эффективности и эстетики. Разработайте магазин так, чтобы максимально использовать пространство и привлекать взгляды. Стратегически разместите продукты, управляйте организацией проходов и приоритизируйте бесшовный опыт покупок для ваших клиентов.Тип издания: RepackРазработчик: Ox DevelopersЖанр: Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C933929B7D8E6278E7EF4E09E5B2C2B272A7CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786064   (24185) от 19.03.2025
-
-Corner Kitchen: Fast Food Simulator (2025) [Ru/Multi] (1.1.1) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте своим собственным рестораном быстрого питания! Покупайте кухонное оборудование, готовьте вкусные блюда и обслуживайте голодных клиентов. Улучшайте свой ресторан, читайте отзывы клиентов и расширяйте бизнес, чтобы стать лучшим фастфудом в городе.Тип издания: RepackРазработчик: Purple Heads GamesЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79580663BE9135473E7DED85ADF0529D9C5BA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710509   (24124) от 20.03.2025
 
 Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Scene Rune
@@ -58,7 +6,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24124.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24116.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ Death Stream (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24114.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ Cataclismo (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23973.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ Aquatic Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23962.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ The Operator (2024) [Ru/Multi] (5091) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23917.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ Cities: Skylines II (2) (2023) [Ru/Multi] (1.2.5f1/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23887.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ Cataclismo (2024) [Ru/Multi] (1.0.0.33.199) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23855.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ Contraband Police (2023) [Ru/Multi] (Build 17173236) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23799.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ House Builder (2021) [Ru/Multi] (Build 20-03-2025/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23622.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ Urban Jungle (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23583.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (2.01g/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23582.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.28/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23508.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (3781/dlc) Repack FitGirl [S
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23486.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.29/dlc) Repack FitGirl [Ultimate Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23478.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (build 17836335) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23381.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23355.jpg" />
 </div>
 
 
@@ -500,7 +448,7 @@ Spirit City: Lofi Sessions (2024) [Multi] (1.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23288.jpg" />
 </div>
 
 
@@ -526,7 +474,7 @@ I Am Future: Cozy Apocalypse Survival (2024) [Ru/Multi] (1.2.0.009r) Repack Let'
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23257.jpg" />
 </div>
 
 
@@ -552,7 +500,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.31637s/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_23016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23016.jpg" />
 </div>
 
 
@@ -578,7 +526,7 @@ A TAVERN FOR TEA (2023) [Ru/Multi] (2.03) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22921.jpg" />
 </div>
 
 
@@ -604,7 +552,7 @@ Nature & Life: Drunk On Nectar (2016) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22806.jpg" />
 </div>
 
 
@@ -630,7 +578,7 @@ House Party (2017) [Ru/Multi] (1.4.0.13093/dlc) Repack Other s [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22727.jpg" />
 </div>
 
 
@@ -656,7 +604,7 @@ Galacticare (2024) [Ru/Multi] (1.2.0+4f6f505ec2/dlc) Repack FitGirl [Full Covera
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_22640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22640.jpg" />
 </div>
 
 
@@ -667,6 +615,58 @@ Galacticare - это ваш шанс спасти галактику, заним
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A5C5528C572EA4FB270B3077ACF6E3C7303BA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789233   (22612) от 03.04.2025
+
+Train Yard Builder (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Train Yard Builder приглашает игроков в миниатюрный мир, где они могут построить и управлять собственными железнодорожными дворами. Благодаря разнообразному выбору поездов и вагонов можно собирать уникальные и персонализированные коллекции. В игре представлены инструменты для настройки, позволяя пользователям раскрашивать и украшать свои поезда, добавляя индивидуальный (   Читать дальше...   )Тип издания: RepackРазработчик: GameFormatic S.A.Жанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996823E47C7E52716B0A0202D917985407584AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789517   (22560) от 04.04.2025
+
+MosGhost (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей по работе переехал в Москву и снял себе квартиру в панельном доме, что подходило ему по бюджету. Вскоре, проживая в квартире начал замечать странные вещи, которые происходят каждую ночь. То в дверь кто-то стучит или просто открывается сама по себе, то в середине ночи будят странные звуки и голоса. Днём вроде всё возвращалось на круги своя.Тип издания: RepackРазработчик: Sinka GamesЖанр: СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894E673B13BDB430FC5DE14CD7ECA753ACFDBFCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1797796   (66700) от 18.05.2025
+
+Первая передача на НТВ. Автомобильная передача (18.05.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словесное карате: какой фразой заткнуть оппонента в дорожном конфликте?
+ Человек-легенда или самозванец? Простой автолюбитель из России против крупнейшего японского автопроизводителя. Кто из них всему миру врет?
+ Перекресток-западня: опытный водитель сманеврировал на перекрестке и оказался виноват в ДТП из-за влетевшего в него с крайней полосы авто. Неужели водитель (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C33516A838FF2423807A1CF93848BAAB838574B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798912   (66570) от 24.05.2025
+
+Тест-драйв KNEWSTAR 001 — Минтранс (24.05.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66570.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Сдача прицепа для легкового автомобиля в аренду.
+🔸 Может ли суд признать арендодателя предпринимателем?
+🔸 Тест-драйв Knewstar 001: все плюсы и минусы.
+🔸 Лайфхак: как достать запасное колесо, если оно закреплено под днищем?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9292F639C3B8947BC978893EAC88BFA4C1C9B576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798900   (66556) от 24.05.2025
+
+Главная дорога (24.05.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Машина ест резину и двери не закрываются? Пора на стапель, даже если авто выглядит идеально!
+Андрей Федорцов и Денис Юченков проверили усталость металла и рассказали, на что влияет жесткость кузова, почему новая машина не всегда лучше старой и какой автомобиль даже не стоит восстанавливать после аварии.
+Хотела на НТВ, а попалась на автоюристов: сколько «Главных дорог» (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F9BFF7DBA6F89F9E3BAD055A790D1F97DEC913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799101   (66545) от 25.05.2025
+
+Первая передача на НТВ. Автомобильная передача (25.05.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66545.jpg" />
+</div>
+
+
+###  Подробнее
+
+СНТ строгого режима: кто и на каком основании может потребовать плату за выход со своей территории и проезд к ней?
+Грозовая молния попала в автомобиль: как правильно себя вести, чтобы самому не пострадать и опасен ли атмосферный разряд для электроники автомобиля?
+ Карликовый «жигулёнок»: неужели в легендарном семействе появился малыш?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C77B2E343586BE8DBCE7D354128511E7B976B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800060   (66323) от 31.05.2025
 
 Тест-драйв Kia Sorento 2016 — Минтранс (31.05.2025) WEBRip [H.264/720p]
@@ -6,7 +119,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66323.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66297.jpg" />
 </div>
 
 
@@ -63,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66268.jpg" />
 </div>
 
 
@@ -92,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66241.jpg" />
 </div>
 
 
@@ -120,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66126.jpg" />
 </div>
 
 
@@ -149,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66080.jpg" />
 </div>
 
 
@@ -178,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65920.jpg" />
 </div>
 
 
@@ -207,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65716.jpg" />
 </div>
 
 
@@ -236,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65688.jpg" />
 </div>
 
 
@@ -265,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65481.jpg" />
 </div>
 
 
@@ -294,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65178.jpg" />
 </div>
 
 
@@ -323,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64882.jpg" />
 </div>
 
 
@@ -351,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_64573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64573.jpg" />
 </div>
 
 
@@ -380,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63386.jpg" />
 </div>
 
 
@@ -409,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56773.jpg" />
 </div>
 
 
@@ -438,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56770.jpg" />
 </div>
 
 
@@ -467,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53959.jpg" />
 </div>
 
 
@@ -495,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53226.jpg" />
 </div>
 
 
@@ -523,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_51622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51622.jpg" />
 </div>
 
 
@@ -551,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46497.jpg" />
 </div>
 
 
@@ -579,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45032.jpg" />
 </div>
 
 
@@ -607,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44361.jpg" />
 </div>
 
 
@@ -618,110 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17072C27058D59DE7BC8408A18BA992ABED7469E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750191   (43200) от 18.09.2024
-
-Гранд тур / The Grand Tour (2024) WEBRip [H.264/720p] (сезон 6, серия 1 из 1) AlexFilm
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кларксон, Хаммонд и Мэй игнорируют указания мистера Уилмана и отправляются в Зимбабве на трех автомобилях, которые они всегда хотели иметь. Поездка по красивым ландшафтам приводит к эмоциональному финалу на странно знакомом острове.Производство: США, Великобритания / Amazon PrimeЖанр: ток-шоу, комедия, спортРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин Уайтхед, Брайан КлейнАктеры: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm)Субтитры: Английские (Full, SDH)Продолжительность: 02:10:07Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999CD2550DDA567221E46DAB9685AFF5FCED33FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750406   (43102) от 19.09.2024
-
-Гранд тур / The Grand Tour (2024) WEB-DL [H.264/1080p] (сезон 6, серии 1-1 из 1) AlexFilm
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43102.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: ток-шоуРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин УайтхедУчастники: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm)Язык озвучки: Русский, АнглийскийСубтитры: Aнглийские (Forced, Full, SDH)Продолжительность: 02:10:07Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAD50DA5926FF753B6E27F0692F7DC287737AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750342   (43072) от 19.09.2024
-
-Гранд тур / The Grand Tour (2024) WEB-DL [H.265/2160p] (сезон 6, серии 1-1 из 1) AlexFilm
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43072.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: ток-шоуРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин УайтхедУчастники: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 02:10:07Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C42D0384666FD74D7D5AE45C7888B0477CE8CF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751233   (42676) от 23.09.2024
-
-Гранд тур / The Grand Tour (2024) WEB-DL [H.264/1080p] (сезон 6, серии 1-1 из 1) Jetvis Studio
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42676.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: ток-шоуРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин УайтхедУчастники: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (Jetvis Studio)Язык озвучки: Русский, АнглийскийСубтитры: OтсутствуютПродолжительность: 02:10:07Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4275F396A7077846CA74ADA7FB49AFA27737EABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1846026   (1051019) от 04.01.2026
+
+Сибирская Благозвонница | Святой Иоанн (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русских людей за пределами России раньше часто звали «иванами». В языке русском, в фольклоре и сегодня не забыты Иванушка-дурачок, Иван-царевич, братец Иванушка, а вместе с ними и ванька-встанька. Отличает их всех, если верить народному творчеству, помимо индивидуальных качеств общая им удивительная открытость, щедрость, даже жертвенность. Народ и по сей день относится (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2BE9B6505FB157455C7FED83160457EED5686C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846027   (1051018) от 04.01.2026
+
+Сибирская Благозвонница | Святой Олег (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олег – скандинавское имя, в переводе означающее «святой». В Церкви слово «святой» имеет два значения: первое из них – «освященный»: в этом смысле святыми называли всех христиан, принявших благодать Крещения, второе – «праведный»: это человек непорочной жизни, обладающий Божественной благодатью. Книга «Святой Олег» рассказывает об угодниках Божиих с именем Олег, о (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A537577B762D8F59064FC432A26482EF934379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846044   (1051013) от 05.01.2026
 
 Сибирская Благозвонница | Святой Серафим (2015) [PDF]
@@ -6,7 +58,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051013.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051012.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050991.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050643.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050222.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046436.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046431.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046342.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046036.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046033.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046026.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046015.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045930.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045859.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045831.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045745.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045328.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045216.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044942.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044314.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044311.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043706.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043640.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043520.jpg" />
 </div>
 
 
@@ -622,61 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC91C0BDB357D78B0FDCAB12E345AA9766E13258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609600   (1043187) от 04.02.2023
-
-Архиепископ Сергий (Королёв) | Хождение во свете (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043187.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Если бы мы попробовали преодолеть тьму в нас самих, то тем самым сделалось бы светлее и вокруг нас, но мы не стараемся рассеять тьму. Если же достигнуть момента осветления, всё изменяется, и люди, окружающие нас, становятся как будто иными.
-
-Побеждая же грех, человек подходит легко к другому человеку и заражает его добром.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3C2FA97065A57A629DFC1E00369624AD8023A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610287   (1042667) от 06.02.2023
-
-Андрей Плюснин | Преподобный Серафим Саровский. Житие, наставления (2014) [PDF, FB2, EPUB, TXT, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1042667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серафим Саровский (в миру Прохор Мошнин) (19.07.1753-2.01.1833), русский святой и духовный мыслитель. В 1786 Прохор был пострижен в иноки с именем Серафима, а в следующем году рукоположен в диаконы. Приняв этот сан, св. Серафим почти все время стал проводить в молитве, не выходя из храма. Участвуя в богослужениях, видел он святых Ангелов, сослужащих священнослужителям (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, TXT, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9912E63F5098DDD4633656A86C93B2FF1EC52C
 ```
 
 https://mybot314.ru/tekegram_catalog/

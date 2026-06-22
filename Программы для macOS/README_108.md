@@ -1,3 +1,111 @@
+###  Публикация: 1419158   (341919) от 27.10.2020
+
+Amphetamine 5.0.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Amphetamine, самое потрясающее приложение для «бодрствования», когда-либо созданное для macOS. Амфетамин может удерживать ваш Mac и, при необходимости, его дисплей (ы), активными с помощью простого переключателя включения / выключения или автоматически с помощью не сложных настроек триггеров. Амфетамин чрезвычайно эффективен и включает расширенные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.08.2020Разработчик: William GustafsonПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E391BFEF371C6C299D37CAF0A224367DE3858340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419203   (341863) от 27.10.2020
+
+Ample Sound Ample Guitar Twelve v3.3.0 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ample Guitar Twelve - цель - принести звук 12-струнной гитары Taylor 956 CE в вашу студию.Тип издания: macOS SoftwareРелиз состоялся: 26.10.2020Разработчик: Ample Sound Co., LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E588F6DF184CB2E02B0407C1988ACF20298CD32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180319   (341845) от 03.11.2017
+
+Capture One Pro 10 v10.2.1.39 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 ноября 2017Разработчик: Phase OneПоддерживаемая ОС: macOS 10.11.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса программы зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6C4C62CA3182F19AD5E84DD32B660828C6F839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180224   (341841) от 03.11.2017
+
+Affinity Designer 1.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Designer - векторный редактор
+Affinity Designer является самым быстрым, плавным, самым точным векторным графическим редактором. Работаете ли вы над графикой для маркетинговых материалов, веб-сайтов, иконками, дизайном пользовательского интерфейса или просто, как создание концепт-арт, Affinity Designer внесет революцию в Вашу работу.
+
+Affinity Designer  в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02 ноября 2017Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Испанский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A248C30708955AE0F69459F962C6B03FA00BA3CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954506   (341257) от 07.11.2015
 
 FL Studio Producer Edition 12.1.3 [En] [OS X WineSkin]
@@ -6,7 +114,7 @@ FL Studio Producer Edition 12.1.3 [En] [OS X WineSkin]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341257.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Vill Q 1.2.12 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341212.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Movavi Video Editor 15 Business v15.5.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341003.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Mountain 1.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340439.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Cyberduck 6.8.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340409.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ DockShelf 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340145.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Alfred 4 Powerpack 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_340130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_340130.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ Copy'em Paste (Clipboard Mgr.) 2.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340030.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ Unibox 1.8.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339741.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Exposure X6 Bundle v6.0.1.86 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339714.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ Nik Software Dfine 2.112 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339624.jpg" />
 </div>
 
 
@@ -307,7 +415,7 @@ Nik Software Sharpener Pro 3.010 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339609.jpg" />
 </div>
 
 
@@ -337,7 +445,7 @@ Nik Software Viveza 2.009 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339497.jpg" />
 </div>
 
 
@@ -369,7 +477,7 @@ Commander One PRO 2.5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_339451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339451.jpg" />
 </div>
 
 
@@ -398,7 +506,7 @@ Nik Software Silver Efex Pro 2.006 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_339385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339385.jpg" />
 </div>
 
 
@@ -433,7 +541,7 @@ iCalamus 2 v2.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338673.jpg" />
 </div>
 
 
@@ -461,7 +569,7 @@ Aeon Timeline 2 v2.3.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338671.jpg" />
 </div>
 
 
@@ -488,7 +596,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.18 (79982) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338519.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ Copied 1.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338439.jpg" />
 </div>
 
 
@@ -543,7 +651,7 @@ Man Reader 1.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336132.jpg" />
 </div>
 
 
@@ -572,7 +680,7 @@ Trash Without 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335599.jpg" />
 </div>
 
 
@@ -598,7 +706,7 @@ Periscope Pro 3.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335482.jpg" />
 </div>
 
 
@@ -612,115 +720,6 @@ Periscope Pro простое в использование приложение,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E674542CC0876117CC6ADAD888BD09A23DBD2DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181162   (335465) от 06.11.2017
-
-Block Advertising on Internet 1.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин для Safari. Нет больше рекламы при навигации!  С помощью этого приложения вас больше не будут раздражать баннеры или всплывающие окна.  Вся реклама будет заблокирована, позволяя сэкономить время, трафик данных и деньги!  Просмотр будет подвижнее и быстрее. 
-
-Защитите вашу конфиденциальность без малейших усилий.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2017Разработчик: Giacomo GuglielmiПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F58A168C65746249ABD4E5C2AAFDB87B3315DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181171   (335055) от 06.11.2017
-
-H265 Converter Pro 3.3.1 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень простой (одноконный), высокопроизводительный конвертор, с помощью которого Вы можете преобразовать любое видео в формат MOV, MP4 или MKV, с применением видео кодека H.265 и сохраняя при этом очень высокое качество.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2017Разработчик: Jose Antonio Jimenez CamposПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E90552B608C820226877E49CFF4A1D12AEBC408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955258   (335023) от 10.11.2015
-
-Cyberduck 4.7.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberduck — удобное приложение для "заливки" и скачивания файлов с FTP. Будучи простым и удобным в использовании, клиент легко настраивается под нужды пользователя. Одна из самых удобных фич — это поддержка всеми полюбившегося QuickLook иподдержкой самых распространенных протоколов: FTP, SFTP, WebDAV, Cloud, Google Docs и Amazon S3.
-
-Отличается простым (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 октября 2015Разработчик: David KocherПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427C856383D0BB110B859FBDFA26A3642DA00399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330981   (335002) от 13.10.2019
-
-Hobo 1.5.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hobo - инструмент для управления Vagrant и Vagrantfile на вашем Mac
-Hobo это самый лучший и самый простой способ контролировать свои Vagrant boxes и редактировать Vagrantfiles на вашем Mac. Вы можете быстро запускать, останавливать и перезагружать свои Vagrant машины. И вы можете легко создать новый Vagrantfile с нуля.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Click On TylerПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E50DB756B93E87AD066F87B4D49A6E50F4B86D
 ```
 
 https://mybot314.ru/tekegram_catalog/

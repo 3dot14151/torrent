@@ -6,7 +6,7 @@ Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864945.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Miko Vanilla - Vanilla (2021) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864877.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Italo Disco Extended Versions Vol.7 (Italo Holiday) (2017) [MP3|320 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864530.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Lorraine Johnson - Learning To Dance All Over Again (1978) Reissue CD, 1992, Pre
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862258.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Player [1] - Game Over (1980) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860938.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Sea Cruise - Sea Cruise (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860620.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Disco Edits: Vol.XIX (2017) [MP3|320 Kbps] <Disco, Nu Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859159.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Black Soul - Black Soul (1979) LP [MP3|320 Kbps] <Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859085.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Motown Sounds - Space Dance (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859019.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - New Generation Italo Disco: The Lost Files Vol.2 (2017) [MP3|320 Kbps] <Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859012.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Cosmic Gal - Keep On Moving (1979) LP [MP3|320 кб/с] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857444.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Clubbers Culture Electronic Disco Lovers (2017) [MP3|320 Kbps] <Disco, Nu-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853811.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Gino Soccio - 4 Albums, 1 Compilations (1979-1984) [MP3|320 кб/с] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853789.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Disco Fox 80 Vol.7 (The Original Maxi-Singles Collection) (2016) [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_853677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853677.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Neoton Familia - 21 Albums (1978 - 1989) Collection [MP3|320 Kbps] <Electronic, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_852441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852441.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cristina - Doll In The Box (1980) Reissue CD, 2004, ZE Records [MP3|320 Kbps] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851883.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Max-B - Sex Revolution (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, A
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_851880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851880.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Munich Machine - 3 Albums (1977-1979) [MP3|320 кб/с] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850263.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VideoKids - The Invasion Of The Spacepeckers (1995) [MP3|320 kbps]<Pop, Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_849867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849867.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ L.E.B. Harmony - Disco Boogie (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848672.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Divas Of The Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846737.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Slick - Slick (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840018.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [MP3|320 кб/с] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840017.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Peter Griffin - 2 Albums, 4 Singles & EPs (1977-1981) [MP3|320 кб/с] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840001.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Melophonia - Limelight Disco Symphony (1978) LP [MP3|320 Kbps] <Electronic, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837699.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Bad Boys Blue - MP3 Play (2015) [MP3|320 Kbps] <Disco, EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836339.jpg" />
 </div>
 
 

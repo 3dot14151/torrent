@@ -1,3 +1,57 @@
+###  Публикация: 1487609   (1003385) от 06.08.2021
+
+Паломник (изд.) | Не ропщите при потере детей. Молитва матери о детях своих (1996) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одному духовному лицу приходилось некогда утешать мать в её сильной скорби о преждевременной смерти единственного малютки. Искренно сочувствуя её скорби и горю, служитель Божий молился с ней, приводил ей изречения Слова Божия и всячески старался внушить ей покорность воле Божией, но всё это было безуспешно. Наконец он рассказал ей притчу об одном человеке, ведшем (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51CF3E0EE51AB3305DBFC2E16D0D9C56E288635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487547   (1003382) от 06.08.2021
+
+Издательство Московской Патриархии | Шамординъ (2000 [Репринтное издание]) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская Казанская община въ Шамординѣ или, какъ обыкновенно зовутъ ее, Шамординъ, — это любимое созданiе оптинскаго старца, отца Амвросiя.
+
+Повѣсть о Шамординѣ заслуживаеть тѣме большаго вниманiя, что она въ наши дни воскрешаетъ преданiе золотыхъ вѣковъ христiанства и показываешь, что и теперь не оскудѣваетъ иноческое подвижничество, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201360D85B987C2BF201657C91160E3DD784AD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350492   (1003337) от 06.01.2020
 
 Святитель Игнатий Брянчанинов | Отечник: Избранные творения (2010) [FB2]
@@ -6,7 +60,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003337.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002996.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002759.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002592.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001761.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001681.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001468.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001188.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001092.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001083.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000900.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_998080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998080.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997842.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997821.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997820.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997819.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997812.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997809.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997805.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997804.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997788.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997780.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997779.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997775.jpg" />
 </div>
 
 
@@ -638,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33EC0E44AA9BD76BEEE95C4BB6E0F9792D295AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602263   (997752) от 12.01.2013
-
-Святая Тереза имени Младенца Иисуса (Тереза из Лизье) | Повесть об одной душе [1992] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997752.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Святая Тереза, в отличие от великих святых прошлого, избирает малый путь. Эта первая особенность её личного credo. Тема детскости оказывается для нее чуть ли не главной — детскости, которая становится определяющей характеристикой нашего «я». Слова «если не обратитесь и не будете как дети...» бесконечно часто цитировались во время проповедей, но евангельский призыв к детскости в истории христианства так и не был осмыслен, пока не появилась «История одной души» Терезы из Лизье."
-
-Священник Георгий ЧистяковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6284F7076BBD634536E78144374ACA5639F4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602142   (997532) от 13.01.2013
-
-Майкл Хейз, Лайам Джирон (под ред.) | Современное католическое богословие. Хрестоматия [2007] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрестоматия состоит из разделов, посвященных Библии, христианской этике, богослужению, личности Христа, учению о церкви. Книга адресована прежде всего студентам и преподавателям семинарий и богословских факультетов ВУЗов в качестве учебного пособия по курсам «Введение в Ветхий Завет», «Введение в Новый Завет», «Введение в богословие», «Этика и аксиология религии», «История современной церкви».Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387D2C1E8986295DE402AE84699B0E1893C34C20
 ```
 
 https://mybot314.ru/tekegram_catalog/

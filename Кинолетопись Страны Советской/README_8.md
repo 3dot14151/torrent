@@ -1,3 +1,29 @@
+###  Публикация: 1257481   (342596) от 27.10.2018
+
+Стена / The Wall (2017) HDTVRip [H.264/720p-LQ]
+
+>>След.
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм был снят в один день – день рождения Сталина. Камера следит за толпами людей, которые приходят к одной из стен Кремля, куда вмонтировано тело вождя. Кто-то здесь для того, чтобы поклониться его могиле, у кого-то на глазах слезы любви, другие — вслух проклинают тирана, в людском водовороте вспыхивают споры… Режиссер и сам, кажется, не понимает почему фигура (   Читать дальше...   )Производство: Россия, Feeling RealityЖанр: ДокументальныйРежиссер: Дмитрий БоголюбовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ECA915CB64ABB9CB7F224103A105819BF10C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190094   (340711) от 28.10.2018
 
 Идёт по городу троллейбус (1981) VHSRip
@@ -6,7 +32,7 @@
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_340711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340711.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_338983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338983.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334853.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334114.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332518.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_325677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325677.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323866.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319271.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314544.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307809.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298806.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298720.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293170.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290943.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282805.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282678.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282555.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282237.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_282229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282229.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280460.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272396.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264637.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263581.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257778.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_254652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254652.jpg" />
 </div>
 
 
@@ -645,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F53DD75C319483E0C72A44D346D9702EE221646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651863   (251681) от 07.11.2025
-
-Как это делалось в Одессе?! (1988) TVRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_251681.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1988 году в Одесе состоялся очередной кинофестиваль Золотой Дюк. Организаторы попытались провести его с наименьшим количеством официоза.
-Вашему вниманию предлагается документальная хроника этого события, сделанная чисто по-одесски, с юмором и шармом, а также краткий обзор фильмов, включенных в конкурсный показ.Жанр: телепередачаРежиссер: Ирина ЛесневскаяПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99BFE4DEF15A30E33CDA9027BFB4068D604EB68
 ```
 
 https://mybot314.ru/tekegram_catalog/

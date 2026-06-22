@@ -1,3 +1,159 @@
+###  Публикация: 1758352   (38519) от 02.11.2024
+
+L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Repack Other s [Complete Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38519.jpg" />
+</div>
+
+
+###  Подробнее
+
+L.A. Noire – мрачный и жестокий триллер. В игре используется революционная технология MotionScan, с помощью которой удалось перенести на экран все нюансы актерской мимики. Это приключение сочетает в себе динамичные боевые сцены с размеренной, полной напряженных раздумий работой детектива. Вы будете искать улики, проводить задержания и допрашивать свидетелей – все (   Читать дальше...   )Тип издания: RepackРазработчик: Team Bondi, Rockstar LeedsЖанр: Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BAAAB363BD82B42D802E7D020EB658F090BA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758669   (38443) от 03.11.2024
+
+L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Scene Razor1911 [Complete Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38443.jpg" />
+</div>
+
+
+###  Подробнее
+
+L.A. Noire – мрачный и жестокий триллер. В игре используется революционная технология MotionScan, с помощью которой удалось перенести на экран все нюансы актерской мимики. Это приключение сочетает в себе динамичные боевые сцены с размеренной, полной напряженных раздумий работой детектива. Вы будете искать улики, проводить задержания и допрашивать свидетелей – все (   Читать дальше...   )Тип издания: SceneРазработчик: Team Bondi, Rockstar LeedsЖанр: Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764974257938719A2D95CA2F3A6C03ED66793F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758801   (38359) от 04.11.2024
+
+Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Scene Razor1911
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Dead Redemption - компьютерная игра в жанре action-adventure, разработанная компанией Rockstar San Diego при поддержке Rockstar North, Rockstar NYC, Rockstar Leeds, Rockstar New England и Rockstar Lincoln. Является логическим продолжением игры 2004 года - Red Dead Revolver. Выпущена 18 мая 2010 года на PlayStation 3 и Xbox 360, 17 августа 2023 года на Nintendo (   Читать дальше...   )Тип издания: SceneРазработчик: Rockstar Games, Double ElevenЖанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4BA228BF124C48A9E1C65D3A21BE942B9BF36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758766   (38306) от 04.11.2024
+
+Totally Spies! - Cyber Mission (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы готовы к невероятному приключению? Пришло время вновь спасти мир! ️‍Яркое трио из Беверли-Хиллз – Сэм, Кловер и Алекс – снова в деле. Девушки готовы блеснуть шпионскими навыками на оживленных улицах Сингапура! Отправляйтесь в захватывающее путешествие по футуристическому мегаполису, выполняя задания в разных локациях от оживленных городских улиц до (   Читать дальше...   )Тип издания: SceneРазработчик: Balio StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8466F177F35B2134CC0A9D9F8EFD66D1B1C45230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700205   (38241) от 05.11.2024
+
+Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (15795727) Repack Decepticon
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический подарок для любителей адвенчур, в котором собраны оригинальные приключения легендарной Лары Крофт. В комплект входят первые три части со всеми дополнениями и секретными уровнями, которые теперь обновлены благодаря улучшенной графике и производительности, что позволяет игрокам плавно переключаться между (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B6F9CA736056CE21B9826E8E841209256C01DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758855   (38219) от 05.11.2024
+
+Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack FitGirl [Complete Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38219.jpg" />
+</div>
+
+
+###  Подробнее
+
+После трагических событий, унесших близких Макса, его душевные раны не спешат затягиваться. Макс уже не коп – он спившийся, сидящий на обезболивающих безработный. Волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью Родриго Бранко. Увы, надежды оставить прошлое (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07444763EAA80933E7A92B025154056E395DA6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725548   (38163) от 06.11.2024
 
 Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (0.4.0.87) Repack 1nomok
@@ -6,7 +162,7 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38163.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Beyond Good & Evil / За гранью добра и зла (2003) [Ru] (1.01) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38161.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Fifth Element (1998) [Ru/Multi] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38064.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ The Thing (2002) [Ru/En] (1.2) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38055.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Oni (2001) [Ru] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38030.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (1.01) Licens
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37740.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Take no Prisoners (1997) [Ru/En] (1.0) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37553.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ MageSlayer (1997) [Ru/En] (1.1) Repack 1nomok
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37552.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Resident Evil 6 / Biohazard 6 (2013) [Ru/Multi] (1.0.6/1.1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37538.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack FitGirl [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37045.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack dixen18 [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37026.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Decepticon [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36940.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ God of War: Ragnarök (2024) [Ru/Multi] (1.0.622.6666/dlc) Scene Rune [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36738.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1.0.0/dlc) Repack FitGirl [The Complete Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36283.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36205.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Arma III (3) (2013) [Ru/Multi] (2.18.152405/dlc) Scene Rune [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35907.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0.0.15) Repack Let'sР
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35892.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack dixen18 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35172.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ The Thing: Remastered (2024) [Multi] (1.0) Scene Skidrow
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34987.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack seleZen [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34968.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ World War Z: Aftermath - кроссплатформенный зомби-шут�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45794A2926F9597AEB6E2525A3DF09F3932E5253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764994   (34639) от 10.12.2024
-
-World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34639.jpg" />
-</div>
-
-
-###  Подробнее
-
-World War Z: Aftermath - кроссплатформенный зомби-шутер с упором на кооператив, где игрок участвует в Апокалипсисе. Здесь предложено объединиться с тремя другими участниками либо же одному попытаться устоять против толпы ходячих мертвецов в сюжетной кампании, действуя по всему земному шару на разрушенных противником землях. В продолжении Мировая Война Z геймер проходит (   Читать дальше...   )Тип издания: RepackРазработчик: Saber Interactive IncЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7EFB1A1726BD38F71AEE50DBDA7B5DAF12280A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765118   (34559) от 11.12.2024
-
-Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (Build 16541638) Scene Rune
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отпразднуйте 25-ю годовщину оригинальной Legacy of Kain: Soul Reaver с Legacy of Kain: Soul Reaver 1 & 2 Remastered. Погрузитесь в вечную историю о вампирах, предательстве и мести, путешествуя по завораживающе красивой земле Носгот с более высокой точностью, чем когда-либо прежде. Испытайте эти эпические приключения по-своему, с возможностью переключаться между (   Читать дальше...   )Тип издания: SceneРазработчик: Aspyr, Crystal DynamicsЖанр: Action, AdventureЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C53F4CE5076005C06182F46CE7C4623D533D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765322   (34479) от 12.12.2024
-
-Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Repack FitGirl
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отпразднуйте 25-ю годовщину оригинальной Legacy of Kain: Soul Reaver с Legacy of Kain: Soul Reaver 1 & 2 Remastered. Погрузитесь в вечную историю о вампирах, предательстве и мести, путешествуя по завораживающе красивой земле Носгот с более высокой точностью, чем когда-либо прежде. Испытайте эти эпические приключения по-своему, с возможностью переключаться между (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEE26716A4C7A644420699F0BE10802FD51C5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765360   (34453) от 12.12.2024
-
-Sifu (2023) [Ru/Multi] (1.28.6.720/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sifu – стильная, но суровая игра в жанре «избей их всех», где вам предстоит участвовать в напряженных рукопашных боях в современной городской среде. Sifu – это новая игра студии Sloclap, рассказывающая историю молодого ученика кунг-фу, выбравшего путь мести и отправившегося по следу убийц своей семьи.  Ему придется противостоять бесчисленным врагам в одиночку. Поэтому (   Читать дальше...   )Тип издания: RepackРазработчик: SloclapЖанр: Экшены, ИндиЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6F79391A9F6B5DF170D8786530F5EC074949CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765330   (34448) от 12.12.2024
-
-LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lollipop Chainsaw RePOP - это стремительный hack-and-slash, повествующий о приключениях Джульет Старлинг, школьной чирлидерши, ставшей охотницей на зомби. Джульетта столкнется с новой волной нежити и таинственной вспышкой, угрожающей ее родному городу. Вооружившись своей верной бензопилой, Джульетта должна пробиться сквозь полчища зомби, от классических шамблеров (   Читать дальше...   )Тип издания: RepackРазработчик: DRAGAMI GAMES, LTD.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ECAE5945C55EA8FD90949A7809EEAF801FFA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765329   (34438) от 12.12.2024
-
-LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Wanterlude
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lollipop Chainsaw RePOP - это стремительный hack-and-slash, повествующий о приключениях Джульет Старлинг, школьной чирлидерши, ставшей охотницей на зомби. Джульетта столкнется с новой волной нежити и таинственной вспышкой, угрожающей ее родному городу. Вооружившись своей верной бензопилой, Джульетта должна пробиться сквозь полчища зомби, от классических шамблеров (   Читать дальше...   )Тип издания: RepackРазработчик: DRAGAMI GAMES, LTD.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A2F5E521B3FFE54A12F7482953EFD435E247CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

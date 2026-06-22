@@ -1,3 +1,81 @@
+###  Публикация: 1227292   (646481) от 26.05.2018
+
+Боевая башня / Gunhed (1989) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646481.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2038 году группа охотников за сокровищами прилетает на остров, на котором расположен роботизированный военный комплекс Kyron-5, в поисках драгоценного минерала Texmexium. Планы охотников рушатся, когда они попадают в ловушки охранных систем комплекса. Механик группы по кличке «Бруклин», найдя минерал, пытается выбраться вместе с выжившей девушкой Ним, сержантом (   Читать дальше...   )Производство: ЯпонияЖанр: Фантастика, БоевикРежиссер: Масато Харада, Алан СмитиАктеры: Масахиро Такасима, Бренда Бакки, Джеймс Брюстер Томпсон, Ая Эндзёдзи, Каори Мидзусима, Ёсукэ Саито, Долл Нгуйен, Джэй Кабира, Рэнди Рейс, Мики КертисПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91A6252E153A64D53EACEEA9F341545C5798B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541243   (646425) от 02.04.2022
+
+Битва на озере / Битва при Чосинском водохранилище / Zhang jin hu / Chang jin hu / The Battle at Lake Changjin (2021) BDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима 1950 года, Корейская война. На восточном побережье Корейского полуострова в районе водохранилища Чосин 9-й корпус китайских народных добровольцев вступает в жестокое противостояние с корпусом ООН (в составе 1-й дивизии морской пехоты США, полка 7-й пехотной дивизии США и батальона коммандос Великобритании).Производство: Китай, Гонконг | August 1st Film Studio, Bona Film GroupЖанр: боевик, военный, история, драмаРежиссер: Кайгэ Чэнь, Данте Лам, Харк ЦуйАктеры: Джеки У, Джексон И, Дуань Ихун, Чжу Явэнь, Ли Чэнь, Элвис Хань, Ху Цзюнь, Чжан Ханьюй, Хуан Сюань, Охо ОуПеревод: Одноголосый любительский (Колобок)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A57BC82AB41EB9E7FB8CD5FBADBB8A77B43765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292304   (646347) от 29.03.2019
+
+Тень / Ying (2018) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпоха Троецарствия. Без ведома короля командующий Цзы Юй вызвал на дуэль генерала Яна, который захватил и удерживает город государства Пэй. Из-за своенравия командующий попадет в немилость правителя и лишается привилегий, но свою затею не оставляет. Только жена умирающего Юя знает, что вместо супруга уже целый год действует Тень, ещё с детства специально обученный (   Читать дальше...   )Производство: Китай, Гонконг / Perfect Village Entertainment, LeVision Pictures, Shanghai Tencent Pictures Culture MediaЖанр: Боевик, Драма, ИсторияРежиссер: Чжан ИмоуАктеры: Ден Чао, Сунь Ли, Чжэн Кай, Ван Цяньюань, Ван Цзинчунь, Ху Цзюнь, Гуань Сяотун, У Лэй ...Перевод: Дублированный, Многоголосый закадровыйСубтитры: Русские (Full), английские (Full) - отдельными файламиПродолжительность: 01:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4B8DA229E018C48B0DD0E6118961A17CAA9A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 345889   (645295) от 05.06.2011
 
 Шаолинь вызывает Ниндзя / Zhong hua zhang fu / Heroes of the East / Shaolin Challenges Ninja (1978) DVDRip [VO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645295.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643562.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640647.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640528.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638713.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637652.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633324.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633282.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_632779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632779.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_630040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630040.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629268.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628451.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627728.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip [H.264] [DVO]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627243.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627231.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621203.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620656.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617872.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617677.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616628.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616215.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614466.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611364.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95CC0ADAFD04071739BBF5EE4800FD0AD1F64536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545848   (611039) от 21.04.2022
-
-Математик в стране чудес / Isanghan naraui suhakja (Mathematician of a Wonderland, In Our Prime) (2022) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже немолодой гениальный математик из Северной Кореи некоторое время назад перебежал в Южную. На новом месте мужчина вынужден скрывать свое прошлое и может рассчитывать только на работу охранником в школе. Однажды он начинает общаться со старшеклассником, которому математика дается с трудом, и решает помочь парню подтянуть знания. Так начинается необычная дружба.Производство: Южная Корея, Joy Rabbit, Showbox/MediaplexЖанр: ДрамаРежиссер: Пак Дон ХунАктеры: Но Джон Хён, Пак Хэ Джун, Ким Дон Хви, Пак Пён Ын, Юн Со, Чхве Мин СикПеревод: Enasty CheСубтитры: Русские, английские - отдельными файламиПродолжительность: 01:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E5B35E75AD9E9B2FA8DAD78D481266BD77033E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354308   (610227) от 23.06.2011
-
-В поисках Джеки / Looking for Jackie (2009) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чеонгу Ят-Сану 16 лет, он живет в Индонезии и мечтает о то, что когда-нибудь встретится со своим кумиром Джеки Чаном, который возьмет его в ученики. Чеонг настолько погружен в свои мечты, что даже толком не учится — особенно плохие оценки у него по мандаринскому диалекту, из-за чего одноклассники его задирают. Чеонга хотят отправить к дедушке и бабушке в Пекин, и (   Читать дальше...   )Производство: Китай / August 1st Film Studio, Beijing Film Studio, Children's Film Studio Entertainment, Davis-FilmsЖанр: боевик, комедияРежиссер: Фанг КанлянАктеры: Бинг Бай, Джеки Чан, Лан Куин, Ян Тэнг, Хуа Тиан, Джан ВуПеревод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 01:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06010477E906758AF50EC14565CBD168C58E5AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296640   (610046) от 18.04.2019
-
-Горы Хаккода / Hakkodasan (1977) BDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610046.jpg" />
-</div>
-
-
-###  Подробнее
-
-В январе 1902 года Генеральный штаб Императорской армии Японии ведёт активную подготовку к войне с Российской империей и вторжению на континент. Чтобы подготовить армию к сибирским морозам, генералы решают провести испытательные маневры на севере Хонсю, и два батальона получают приказ совершить пеший переход через перевал в горах Хаккода.Производство: Япония, Hashimoto Productions, Shimano Kikaku Company Ltd., Toho CompanyЖанр: Драма, ИсторияРежиссер: Сиро МоританиАктеры: Сёго Симада, Кэн Такакура, Хидэдзи Отаки, Кинъя Китаодзи, Тэцуро Тамба, Рэнтаро Микуни, Комаки Курихара, Акира Хамада, Марико Кага, Юдзо КаямаПеревод: Одноголосый, любительский (Владислав Данилов)Субтитры: отсутствуютПродолжительность: 02:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E166807E088B540EB4B84725CD035B9776E2CCB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

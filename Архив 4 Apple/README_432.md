@@ -1,3 +1,58 @@
+###  Публикация: 1419103   (344825) от 26.10.2020
+
+Iridient Developer 3.4.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью неразрушающи и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2020Разработчик: Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60380F55CE5432BF70CC645E8B939979EFAA0E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419142   (344710) от 26.10.2020
+
+Loopback 2.1.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудио между приложениями на вашем Mac.
+Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере!
+
+Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте приложений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2020Разработчик: Rogue Amoeba Software, Inc. AllПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397F09C756D04306BA970665A775413FE77BCCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418970   (344697) от 26.10.2020
 
 ON1 HDR 2020.1 [Multi/Ru]
@@ -6,7 +61,7 @@ ON1 HDR 2020.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344697.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344558.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344550.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ Canvas X Draw 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344436.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ IINA 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344430.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Wirecast Pro 8.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344324.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ Sublime Text 4.0 Dev build 4090 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344311.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ ON1 Portrait AI 2021 v15.0.0.9618 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344296.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344204.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ CleanMyMac 3.1.2 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344161.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343698.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ Find Any File 2.0 (210)  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343659.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ Amadeus Pro 2.6.2 (2210) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343658.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Studies 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343580.jpg" />
 </div>
 
 
@@ -380,7 +435,7 @@ Cardhop 1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343574.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ BlueHarvest 7 v7.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343562.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ Blocs 3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343549.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Jettison 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343445.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ BetterZip 4 v4.2.5 (1558) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343408.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ Enolsoft PDF Converter with OCR 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343308.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ Folx Pro 5 v5.7.13761 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343304.jpg" />
 </div>
 
 
@@ -576,7 +631,7 @@ Screenium 3 v3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343298.jpg" />
 </div>
 
 
@@ -602,7 +657,7 @@ File Juicer 4.68 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343297.jpg" />
 </div>
 
 
@@ -630,7 +685,7 @@ PDFelement 6 Pro - PDF & OCR v6.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343296.jpg" />
 </div>
 
 
@@ -641,59 +696,6 @@ Wondershare PDFelement - программа для общего редактир
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4554AC3E94E5053F2BE17B44FF9AD6927B398A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330141   (343272) от 09.10.2019
-
-Compressor 4.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Compressor плотно интегрирован с Final Cut Pro для добавления специфичных установок вывода, распределенного кодирования и большого количества вариантов конечного результата. Гладкий интерфейс соответствует Final Cut Pro и упрощает навигацию по проектам сжатия. Это простой и мощный инструмент для сжатия видео. Compressor может сжимать ваше видео с поддержкой большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CE1D9F59F240D5C7648BD6F7A0C4613C7AB5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073805   (343050) от 17.11.2016
-
-Day One 2 Journal + Notes 2.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_343050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Day One 2: новый журнал-дневник
-Разработчики персонального журнала Day One выпустили новую, кардинально переработанную версию приложения. Версия 2.0, доступная на i-устройствах и "маках", получала ряд важных функций. Во-первых, теперь у пользователей есть возможность вести несколько дневников одновременно, а также присваивать им собственные цвета и названия. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 ноября 2016Разработчик: Bloom Built, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1E01908503E1CFDA29571CDF37BA6E211393E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1571207   (436194) от 20.08.2022
+
+Brightly Pro 2.1.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Brightly Pro разработано для macOS Monterey с интуитивно понятным интерфейсом, в котором есть все функции редактирования фотографий, какие вы ожидаете, чтобы показать ваши фотографии и видео в лучшем свете, и изначально работает на компьютерах Mac с процессором Apple M1. Поднимите редактирование на новый уровень с помощью обязательных профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.08.2022Разработчик: © 2022 Code Organa LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5378E5B7A292FDE304C8B69239893CCC63EF7D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571211   (436193) от 20.08.2022
 
 Days - Countdown for Menu Bar 1.6.1 [En]
@@ -6,7 +32,7 @@ Days - Countdown for Menu Bar 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436193.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ CADintosh X 8.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436182.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Blocs 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436163.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ AnyGo 5.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436124.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Tweetbot for Twitter 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436091.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Master of Typing - Мастер Печати : Практика 3 v3.11.6 (15.11
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436072.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ PatterNodes 2 v2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435999.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Vectoraster 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435987.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Disk Drill Enterprise 3.8.977 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435974.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ CADintosh X 8.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435714.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Nice Clipboard 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435567.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ VideoProc (former MacX Video Converter Pro) 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435544.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ Vallum 1.3.1 & Murus 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435367.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ FIFA 13 by EA SPORTS 1.0.2 [4.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_435113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_435113.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ OptimUSB 7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435021.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Winclone Pro 6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434847.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ TotalFinder 1.10.2 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434845.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Resolutionator 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434834.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Waltr 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434419.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ BlueHarvest 8 v8.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434059.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ doubleTake 2.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434046.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Yate 6.10.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434042.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Boxy SVG 3 v.3.89.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_434041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434041.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ SQLPro Studio 2022.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433954.jpg" />
 </div>
 
 
@@ -666,7 +692,7 @@ Valentina Studio Pro 12.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433949.jpg" />
 </div>
 
 
@@ -677,34 +703,6 @@ Valentina Studio - это идеальный инструмент управле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8529083D1E5170573E8F5126EB0362B3BD04DE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323457   (433683) от 05.09.2019
-
-Ulysses 17 (51691) CR2 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ulysses — это лучшее приложение для писателей и редакторов. Удобный и понятный интерфейс, мощные возможности организации документов, прозрачная синхронизация и экспорт во все форматы делают его незаменимым инструментом для всех, кто работает с текстом на Маке, Айфоне и Айпаде.
-
-Ulysses разработан преимущественно для писателей, творчески работающих с текстом, создающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 августа 2019Разработчик: The Soulmen GbRПоддерживаемая ОС: OS X 10.11.0Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BE2BBFC3A3DE6F275B3E599A6BE27486717AED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Otonari ni Ginga / A Galaxy Next Door / Галактика по соседств
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196567.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Isekai Shoukan wa Nidome Desu / Summoned to Another World... Again?! / Приз�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196551.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196550.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ World Dai Star / Мир великих звёзд [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196546.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196504.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Idolmaster: Cinderella Girls - U149 / Идолмастер: Золушки - U14
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196406.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tengoku Daimakyou | Heavenly Delusion | Великая небесная стен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196293.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mashle | Mashle: Magic and Muscles | Магия и мускулы [2023, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196256.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [2023, TV, 13 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196245.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Kidou Senshi Gundam: Suisei no Majo (2023) | Mobile Suit Gundam: The Witch from 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196231.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Oshi no Ko | Звёздное дитя [2023, TV, 11 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196108.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196054.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Okashi na Tensei | Sweet Reincarnation | Сладкое перевоплощен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189926.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ayaka | Ayaka: A Story of Bonds and Wounds | Аяка [2023, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188165.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Liar Liar / Лжец Лжец [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188152.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Ryza no Atelier: Tokoyami no Joou to Himitsu no Kakurega / Ателье Райз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188136.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Genjitsu no Yohane: Sunshine in the Mirror / Yohane the Parhelion: Sunshine in t
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187850.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mononogatari (2023) | Malevolent Spirits (2023) | Истории нечисти 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187592.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187591.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Yumemiru Danshi wa Genjitsushugisha / The Dreaming Boy is a Realist / Из ме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186937.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186508.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sugar Apple Fairy Tale (2023) | Сказка о сахарном яблоке [�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186344.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186342.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | Великий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186337.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Tenpuru / Temple / Храм [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186326.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Horimiya: Piece | Horimiya: The Missing Pieces | Хоримия [ТВ-2] [2023, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186167.jpg" />
 </div>
 
 

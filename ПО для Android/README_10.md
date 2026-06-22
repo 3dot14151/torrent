@@ -1,3 +1,29 @@
+###  Публикация: 1848414   (1052635) от 17.01.2026
+
+Electrical Cost / Стоимость электроэнергии v6.1.7 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расчет теоретических расходов в соответствии с потреблением энергии бытовой техникой. С помощью программы вы легко сможете посчитать нагрузки, возможность отправки созданного шаблона на другие устройства.Тип издания: ModРелиз состоялся: 16.01.2026Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E732F91C812BBB24AE4B0A7D84ABD6E9C9A09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848415   (1052634) от 17.01.2026
 
 Photo Editor v12.5 Pro Mod by Mixroot [Ru/Multi]
@@ -6,7 +32,7 @@ Photo Editor v12.5 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052634.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ AR Ruler App: Линейка Рулетка v3.1.7 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052632.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ AR Plan 3D: Линейка, Рулетка v4.10.4 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052631.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.4 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052619.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052618.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052617.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.1 Mod by baalajimaestro  [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052616.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ NewPipe v0.28.1 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052615.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Grok - ИИ ассистент v1.1.04-release.09 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052614.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Eatr・Здоровые рецепты v2.11.1 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052024.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Solid Explorer File Manager v3.2.13 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051975.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ DjVu Reader & Viewer (читалка) v1.0.140 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051974.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Vanced Tube v5.5.80.345 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051955.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ FitAI - Планировщик тренировок v1.5.3 Mod by vadj [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051954.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Grok - ИИ ассистент v1.1.03-release.08 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051953.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Win 11 Launcher v9.33 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051952.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051892.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ USB Camera Pro v11.9.0 Mod by ApplicazioniCR [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051869.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051828.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051827.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ MX Player Pro v1.93.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051807.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ AI Photo Editor Pro - Polish v1.711.245 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051805.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ AirBrush: ИИ Фоторедактор v7.23.5 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051729.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Flud v1.13.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051700.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051699.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE701CC56857BE92AEFC61A7079FD089FE82C81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846631   (1051694) от 08.01.2026
-
-PictureThis - Plant Identification v5.18.0 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 04.01.2026Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBA44AE73BDABB2E075524678E43F06DEC9CFE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

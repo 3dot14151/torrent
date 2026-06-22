@@ -1,3 +1,29 @@
+###  Публикация: 1153133   (559701) от 26.07.2017
+
+Hungry Heart: Wild Striker / Неистовый бомбардир [2002, TV, 52 эп.] DVDRip 480p 10bit Raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559701.jpg" />
+</div>
+
+
+###  Подробнее
+
+История начинается как и множество других спортивных аниме. Бывший футболист Каноу Кёске переходит в старшую школу. Обладая кое-каким талантом, он, все же, не хочет играть в футбол. Причины две - его характер и, в большей степени, старший брат. Дело в том, что его брат играет в ФК Милан, и он - будущее, главная надежда и гордость Японии, поэтому Кёске постоянно сравнивают (   Читать дальше...   )Производство: Nippon AnimationЖанр: спорт, комедия, школаРежиссер: Сага СатосиСубтитры: РусскиеПродолжительность: 52 серии по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF985FDB6C0A51735749557E17D1DC7916BA678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126313   (559195) от 26.07.2017
 
 Atom: The Beginning / Атом: Начало [2017, TV, 12 из 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Atom: The Beginning / Атом: Начало [2017, TV, 12 из 12] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559195.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC / Мелодия воронё�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558757.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC | Мелодия воронё�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558687.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Princess Minerva / Принцесса Минерва [1995, OVA] DVDrip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_558650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558650.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Calamity of the Zombie Girl | Aru Zombie Shoujo no Sainan | Месть восс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_557292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557292.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Devil Survivor 2 The Animation | Выжившие среди демонов 2 [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556710.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556120.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556035.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555921.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555918.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Selector Infected WIXOSS | Селектор: заражение WIXOSS [ТВ-1][
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555917.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555913.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Break Blade /  Broken Blade / Сломанный Меч [2010, Movie, 6 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555665.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Slow Start / Медленный старт [2018, TV, 12] BDrip 1080p HEVC 10bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555201.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Bubblegum Crisis / Кризис каждый день [1987, OVA, 8 эп.] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554135.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553038.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Hi no Tori 2772: Ai no CosmoZone / Phoenix 2772: Cosmo Song of Love / Жар-п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553034.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Koro-sensei Quest! (2016) / Квест Коро-сэнсэя! (2016) [2016, ONA,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552878.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Senki Zesshou Symphogear AXZ / Последняя Песня Боевых При
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552801.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Ansatsu Kyoushitsu OVA / Assassination Classroom OVA / Класс убийц [20
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552762.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552347.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Hanamonogatari / История Цветов [2014, SP] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551081.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Nobunaga the Fool | Глупец  Нобунага [2014, TV, 24] BDrip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550747.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Tonari no Seki-kun | Tonari no Seki-kun: The Master of Killing Time | Сэки, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549935.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Toshokan Sensou: Kakumei no Tsubasa / Библиотечная война: Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549421.jpg" />
 </div>
 
 
@@ -648,34 +674,6 @@ Toshokan Sensou: Kakumei no Tsubasa / Библиотечная война: Кр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6621EFF09BD9F5E33CE6809FB2D4D86EA39A16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 816093   (549283) от 26.08.2014
-
-Basilisk: Kouga Ninpou Chou | Basilisk: The Kouga Ninja Scrolls | Василиск [2005, TV, 24 эп.] BDrip 1080p Hi10P raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два клана ниндзя, Ига и Кога, издревле враждовали друг с другом. И сверкали мечи, и лилась реками кровь, до тех пор пока на пути древней вражды не встал местный лорд Хаттори Хандзо. И тогда были связаны два клана нерушимым договором, запрещающим стародавнюю вражду.
-
-Время шло, вековая лютая ненависть, хоть и поугасла немного, все равно продолжала тлеть в сердцах непримиримых. Но встали между кланами двое влюбленных, юноша и девушка, два юных сердца, вознамерившиеся вступить в союз и тем самым покончить с древними (   Читать дальше...   )Жанр: самурайский боевик, драма, мистикаРежиссер: Кидзаки ФуминориПродолжительность: 24 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACDCEAC46E82ECA7B7482DC04EBA70917E949BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

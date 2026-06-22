@@ -1,55 +1,3 @@
-###  Публикация: 1450521   (196291) от 30.06.2023
-
-Готэм / Gotham (2014-2019) HDRip, WEB-DLRip (сезоны 1-5, серии 1-100 из 100) Fox
-
->>Зарубежные сериалы
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Джеймс Гордон приступает к работе в департаменте полиции Готэма. Город потрясает убийство Томаса и Марты Уэйн, влиятельных предпринимателей и филантропов, и Гордон берётся расследовать это дело. Между тем ему приходится сталкиваться с мафией и опасными злодеями, населяющими Готэм.Производство: США / Primrose Hill Productions, DC Comics, Warner Bros. TelevisionЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Роб Бэйли, Дэнни Кэннон, Т.Дж. СкоттАктеры: Бен Маккензи, Донал Лог, Давид Мазуз, Робин Лорд Тейлор, Камрен Бикондова, Кори Майкл Смит, Шон Пертуи, Эрин Ричардс, Морена Баккарин, Крис ЧокПеревод: Многоголосый профессиональный (Fox)Язык озвучки: Русский, английскийПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A46F7F40DA8DBF7D7F6ACB10B7356E2DA2A6A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626798   (196178) от 03.07.2023
-
-Рыцари Готэма / Gotham Knights (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-13 из 13) LostFilm, TVShows
-
->>Зарубежные сериалы
->>Сериалы DC Comics
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тернер Хейз, приемный сын Брюса Уэйна, ошарашен сразу двумя открытиями — его отца убили, а еще он был супергероем Бэтменом. Полиция во главе с прокурором Харви Дентом уверена, что преступление совершили Тернер и дети известных суперзлодеев вроде Джокера. Поэтому подросткам придется объединить усилия, чтобы найти настоящего убийцу.Производство: США, Berlanti Productions, DC Entertainment, Warner Bros. TelevisionЖанр: фантастика, боевик, триллер, драма, криминал, детективРежиссер: Джеффри Дж. Хант, Дэнни Кэннон, Элизабет ХенстриджАктеры: Оскар Морган, Навия Зираили Робинсон, Фэллон Смит, Тайлер ДиКьяра, Анна Лори, Миша Коллинз, Оливия Роуз Кигэн, Рахарт Адамс, Shanita Wilburn, Lovell GatesПеревод: Многоголосый профессиональный (LostFilm, TVShows)Язык озвучки: русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB04211800E410A3DF2AA44E0241AE7C0E435230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621379   (196176) от 03.07.2023
 
 Супермен и Лоис / Superman and Lois (2023) WEB-DLRip (сезон 3, серии 1-13 из 13) LostFilm
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196176.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189889.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189857.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189829.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189007.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_189001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189001.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_188999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188999.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179519.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_177879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177879.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173084.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165757.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164035.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163907.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161790.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160879.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160714.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160702.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159989.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159982.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159389.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152659.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148891.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148134.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148005.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:936AF762F95D67B5898FC89C5729D6696D9D32D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673657   (144834) от 21.11.2023
+
+Роковой патруль / Doom Patrol (2022) WEB-DL [H.264/1080p] (сезон 4, серии 1-12 из 12) Кубик в Кубе, LostFilm, TVShows
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о супергероях, обретших сверхспособности в результате изувечивших их роковых случайностей. В состав необычной команды под руководством сумасшедшего учёного Найлза Колдера (также известного как Шеф) входят Роботмен, Негативный Человек, Безумная Джейн и Эластичная Женщина. Сломленные и искалеченные, эти люди находят применение своим способностям, защищая (   Читать дальше...   )Производство: США / DC ComicsЖанр: фантастика, боевик, драма, комедия, детективРежиссер: Крис Мэнли, Кристин Уинделл, Дермотт ДаунсАктеры: Дайан Герреро, Эйприл Боулби, Мэтт Бомер, Брендан Фрейзер, Райли Шэнэхэн, Мэттью Зук, Джоиван Уэйд, Тимоти Далтон, Скай Робертс, Фил Моррис, Мишель ГомесПеревод: Двухголосый профессиональный (Кубик в Кубе), многоголосый профессиональный (LostFilm, TVShows)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFBC4BEB0F37E52A2187C89B6AA950E4E9C9570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265325   (137348) от 31.12.2018
+
+Титаны / Titans (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-11 из 11) TVShows
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137348.jpg" />
+</div>
+
+
+###  Подробнее
+
+В надежде остановить своего отца — древнего демона Тригона — обладательница невероятных способностей девушка Рэйвен обращается за помощью к Робину. Бывший напарник Бэтмена теперь сам вершит правосудие на улицах Готэма, но, чтобы остановить зло, Рэйвен и Робину понадобится подмога.Производство: СШАЖанр: фантастика, фэнтези, боевик, драма, приключенияРежиссер: Брэд Андерсон, Кэрол Бенкер, Джон ФоусетАктеры: Брентон Туэйтс, Тиган Крофт, Анна Диоп, Линдси Горт, Райан Поттер, Каррен Уолтерс, Шеймус Девер, Эйприл Боулби, Дуэйн Мерфи,Томасо Санелли и др.Перевод: Многоголосый закадровый, любительский - TVShowsСубтитры: английскиеПродолжительность: ~00:51:00 cерия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5367E87CCEF2E04ADB6C44F6AD6D9ABF3309893
 ```
 
 https://mybot314.ru/tekegram_catalog/

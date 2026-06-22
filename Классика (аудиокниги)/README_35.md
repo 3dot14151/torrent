@@ -1,3 +1,55 @@
+###  Публикация: 1074652   (320803) от 22.11.2016
+
+Фёдор Достоевский | Кроткая. Избранные рассказы [сборник] (2013) [MP3, Владимир Ерёмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что объединяет фильмы «Полет над гнездом кукушки», «Игра» и «Знакомьтесь, Джо Блэк»? Голос Владимира Еремина, который дублирует главных героев. Голосом этого актера и признанного мастера дубляжа говорят на русском Джек Николсон, Аль Пачино, Роберт де Ниро, Энтони Хопкинс, Дастин Хоффман и многие другие. Предлагаемая вашему вниманию аудиокнига раскрывает Владимира (   Читать дальше...   )Жанр: КлассикаИздательство: ИП Сергей ГригорянПродолжительность: 03:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618328F3E1791BD1136C382ACFE5C38E5487521E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074957   (320802) от 22.11.2016
+
+Эмиль Брагинский, Эльдар Рязанов | Сослуживцы (1972) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нерешительный и робкий сотрудник статистического управления Новосельцев влюбляется в директора Калугину, женщину властную и категоричную. В результате этого возникают неожиданные ситуации, в которых грустное соседствует со смешным. Любовь помогает героям пьесы многое переосмыслить и преображает обоих...Жанр: Комедия, радиоспектакльПродолжительность: 01:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DE7E9AB3924DC754617542A1CF4B65C2A70116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957851   (319121) от 23.11.2015
 
 Максим Горький | Жизнь Клима Самгина (2014) [MP3]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319121.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318671.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316936.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316452.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316371.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316299.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314585.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314228.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314157.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_310894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310894.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309792.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309557.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309262.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_309034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309034.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308468.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307336.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307295.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304819.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303348.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303103.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301061.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300699.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300529.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300301.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F19D2FA6183554A5C7663F7318AEA806DE14821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078111   (300290) от 01.12.2016
-
-Федор Достоевский | Петербургская летопись. Петербургские сновидения в стихах и прозе (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300290.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Петербургская летопись» (1847)
-Тема Петербурга была одной из самых актуальных для молодого автора и не покидала его рассказов до последних дней. В своих фельетонах автор поднимал эту тему не менее остро, чем в своих прозаических сюжетах. Написание рассказов происходит именно в тот период, когда в Достоевском усиливается критическое восприятие действительности. Он (   Читать дальше...   )Жанр: КлассикаПродолжительность: 02:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D1244A774D1503771AD6FB169B1F124DF1E258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077975   (299690) от 01.12.2016
-
-Александр Пушкин | Евгений Онегин (2015) [MP3, Жорж Октавио]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299690.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сей труд забава зимних дней найдёт приют в душе унылой..." Работа завершена, выключен микрофон. Непривычная тишина возвращает в реальность. Окончилось маленькое увлекательное путешествие в мир пушкинских героев 19-го века. Проживая вместе с ними строфу за строфой как будто оставляешь часть себя там. И они всем хором уникальных голосов непременно остаются (   Читать дальше...   )Жанр: Классика, роман в стихахИздательство: Аудиокнига своими рукамиПродолжительность: 04:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E014B8AF9AFF5C9DE547BED756E340B9AB3BD955
 ```
 
 https://mybot314.ru/tekegram_catalog/

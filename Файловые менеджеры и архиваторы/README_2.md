@@ -1,3 +1,215 @@
+###  Публикация: 1853358   (1056515) от 12.02.2026
+
+7-Zip 26.00 Final [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056515.jpg" />
+</div>
+
+
+###  Подробнее
+
+7-Zip - очень хороший и качественный архиватор, который превосходит многих конкурентов и поэтому все больше пользователей останавливают выбор именно на нем. Забота разработчика программы проявляется в распространении 7-Zip по всему миру, переводу программы на 79 языков мира, среди которых есть и русский.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C838B5701C71D8AC5A06DC8A9E65D7F3D1485B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852520   (1055976) от 07.02.2026
+
+OneCommander Pro 3.107.2.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055976.jpg" />
+</div>
+
+
+###  Подробнее
+
+OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательнее, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB6DC73FBE318640D70F63155061CA4D88B8920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851911   (1055566) от 04.02.2026
+
+WinRAR 7.20 Final [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055566.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых степень (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F88F9B00BD4710DBA6AAD1884C30201016E547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851928   (1055559) от 08.02.2026
+
+WinRAR 7.20 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055559.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых степень (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C94B01ABA3676DEC5B1525CDD657550CC1FECD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851800   (1055433) от 04.02.2026
+
+InnoExtractor Ultra 11.4.0.166 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055433.jpg" />
+</div>
+
+
+###  Подробнее
+
+InnoExtractor - это приложение, которое поможет вам распаковать инсталляторы Inno Setup, используя технологию InnoUnp.
+С помощью InnoExtractor вы можете изучить внутреннюю структуру и содержимое программы установки, а также извлечь их в локальную папку или на портативные устройства без необходимости запуска программы установки.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4636EA4B976D27C141C2E57FD223FAC82BB17BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851459   (1055198) от 02.02.2026
+
+OneCommander Pro 3.107.1.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055198.jpg" />
+</div>
+
+
+###  Подробнее
+
+OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательнее, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97881198D3F698CD4033C846CF19714C81EFEDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850502   (1054335) от 28.01.2026
+
+WinArchiver Free / Pro 6.1 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1054335.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinArchiver — это мощная утилита для работы с архивами, которая может открывать, создавать и управлять архивными файлами. Она поддерживает практически все форматы архивов, включая zip, rar, 7z, iso и другие популярные форматы. WinArchiver также может монтировать архив на виртуальный диск без предварительного извлечения содержимого.Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D8B20135A33BA6A1FAD470696244A353571CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848944   (1053200) от 19.01.2026
+
+Advanced Renamer 4.20 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
+Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBEE7A8E060C13992A1E50A339CA027C3A866FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847640   (1052273) от 13.01.2026
 
 OneCommander Pro 3.106.0.0 + Portable [Multi/Ru]
@@ -6,7 +218,7 @@ OneCommander Pro 3.106.0.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052273.jpg" />
 </div>
 
 
@@ -33,7 +245,7 @@ Double Commander 1.1.32 gamma + Portable  [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051592.jpg" />
 </div>
 
 
@@ -59,7 +271,7 @@ OneCommander Pro 3.105.0.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051014.jpg" />
 </div>
 
 
@@ -86,7 +298,7 @@ Double Commander 1.1.31 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050098.jpg" />
 </div>
 
 
@@ -104,6 +316,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843248   (1049087) от 19.12.2025
+
+WinRAR 7.20 Beta 3 [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1049087.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых степень (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B61BC2E1CA2DBD02DCF713696384F3A3774FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843265   (1049075) от 19.12.2025
 
 WinRAR 7.20 beta 3 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -112,7 +350,7 @@ WinRAR 7.20 beta 3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049075.jpg" />
 </div>
 
 
@@ -138,7 +376,7 @@ Total Commander 11.56 Extended 25.12 Full / Lite RePack (& Portable) by BurSoft 
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048039.jpg" />
 </div>
 
 
@@ -165,7 +403,7 @@ InnoExtractor Ultra 11.3.0.161 Portable by 799 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047620.jpg" />
 </div>
 
 
@@ -192,7 +430,7 @@ OneCommander Pro 3.104.1.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1047023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047023.jpg" />
 </div>
 
 
@@ -219,7 +457,7 @@ InnoExtractor Ultra 11.3.0.161 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046971.jpg" />
 </div>
 
 
@@ -246,7 +484,7 @@ OneCommander Pro 3.104 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046513.jpg" />
 </div>
 
 
@@ -273,7 +511,7 @@ WinNc 9.7.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037367.jpg" />
 </div>
 
 
@@ -299,7 +537,7 @@ Attribute Manager 4.70 RePack by Soft Maniac [Англ.\Рус.]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_999553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999553.jpg" />
 </div>
 
 
@@ -327,7 +565,7 @@ Universal Extractor 1.6.1.2017 RePack by koros [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964288.jpg" />
 </div>
 
 
@@ -353,7 +591,7 @@ Universal Extractor 1.9.11.196 RePack + Portable by gora [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964223.jpg" />
 </div>
 
 
@@ -379,7 +617,7 @@ InnoExtractor Plus 5.2.2.187 Portable by PortableAppC [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_939710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_939710.jpg" />
 </div>
 
 
@@ -405,7 +643,7 @@ FonePaw iOS Transfer 2.4.0 RePack by tolyan76 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939678.jpg" />
 </div>
 
 
@@ -431,7 +669,7 @@ WinZip Pro 24.0 Build 13618 (x86-x64) [Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_913328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913328.jpg" />
 </div>
 
 
@@ -442,244 +680,6 @@ WinZip Pro – это многофункциональный архиватор 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC4D22D579E8D8DE4A9A16CC00CE2111AA8DF143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372886   (883159) от 04.04.2020
-
-oMega Commander 3.0.47 Build 5687 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883159.jpg" />
-</div>
-
-
-###  Подробнее
-
-oMega Commander – современный файловый менеджер, созданный для пользователей нового тысячелетия. Он выглядит и работает так, как и должна программа 21-го века – быстро, аккуратно, надежно и функционально.
-
-oMega не просто поддерживает все стандартные файловые операции, которые вы ожидаете от файлового менеджера, но и расширяет их возможности и удобство использования. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57019EB3F4C27D4A953573C5E559704E82D890ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384551   (801442) от 21.05.2020
-
-WindowsZIP 1.1 [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Архиватор отличается простым и понятым интерфейсом. Легко открывает архивы, созданные не только на ПК, но и на портативных устройствах. Это делает утилиту универсальной. Сохранить архив можно более чем в 20 форматах. Для этого нужно выбрать из выпадающего списка необходимое расширение. Например, ZIP, GZ, GZIP и многие другие форматы. С помощью панели управления, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0741641DB0F29EE32E9124CEC152293303694F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200501   (795332) от 21.01.2018
-
-Just Manager 0.1 Alpha 54 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_795332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный двухпанельный файловый менеджер для ОС Windows, который позволяет осуществлять основные операции с файлами и папками. Поддерживается работа с вкладками, пакетное переименование, имеется поиск файлов и их фильтрация, работа с FTP и многое другое.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C57C5AFC1838E68D1F0D862FBA98CDE85BC436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511401   (789168) от 20.11.2021
-
-Unreal Commander 3.57 Build 1497 + Portable + GraphXPackv [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_789168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unreal Commander - бесплатный файловый менеджер выполненный в двухпанельном виде. Программа помогает удобнее и быстрее осуществлять навигацию по вашим файлам и папкам, а также выполнять с ними различные операции.
-
-Помимо операций копирования, перемещения, удаления и переименования файлов и папок, Unreal Commander позволяет сортировать файлы, переименовывать группу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EA176CB5F185B517B06C903E0342EC4702BFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013360   (777462) от 04.05.2016
-
-Ashampoo ZIP Pro 1.0.7 RePack by Manshet [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo ZIP Pro - это мощный набор из 5 превосходных приложений для сжатие, шифрование, обмена и резервирования Ваших данных. Положите конец путанице в форматах одним кликом! ZIP, RAR, TAR, CAB и многим другим форматам - Ashampoo ZIP открывает Ваши файлы быстро и объединяет многотомные архивы.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD8954ACD55051401DCF9C2B4D1A059C5CA48AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327769   (719285) от 24.04.2011
-
-ShellExView-Shell Extensions Manager v1.65 [Английскийй]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_719285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта жемчужина из ожерелья утилит NirSoft невероятно удобна и эффективна при диагностике проблем проводника Windows. Она показывает все расширения проводника, позволяя легко выделить сторонние и отключить их.Язык интерфейса: Английскийй
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919644   (582563) от 19.07.2015
-
-FreeArc 0.67 alpha (15.03.2014) [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_582563.jpg" />
-</div>
-
-
-###  Подробнее
-
-FreeArc — современный архиватор общего назначения. Основное преимущество программы — богатый набор методов сжатия, благодаря чему FreeArc демонстрирует высокую степень сжатия и завидную производительность. FreeArc работает в 2-5 раз быстрее лучших упаковщиков, показывающих ту же степень сжатия.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0472EB91FC6C3A20F8FE6ADA2CD17F382B657D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921051   (576787) от 24.07.2015
-
-ASPack 2.38 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576787.jpg" />
-</div>
-
-
-###  Подробнее
-
-ASPack - усовершенствованная программа для сжатия исполняемых файлов(exe) под Win32 и защиты от непрофессионального реверс-инжиниринга. ASPack уменьшает размер файлов и библиотек под Windows XP/Vista/7/8 и Windows Server 2003/2008/2012 до 70% (степень сжатия выше стандарта ZIP на 10-20%), а также сокращает время загрузки таких приложений в локальных сетях и Интернет. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E26EA09E3014347DC046C64BF20A776631BDAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049695   (539786) от 07.09.2016
-
-NexusFile 5.3.3.5532 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539786.jpg" />
-</div>
-
-
-###  Подробнее
-
-NexusFile - это мощный и стильный файловый менеджер для Windows. Множество его полезных функций сэкономят ваше время и усилия.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E09BD5363FF359B8744A75AC9CB4A2D3824770
 ```
 
 https://mybot314.ru/tekegram_catalog/

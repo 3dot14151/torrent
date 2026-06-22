@@ -1,3 +1,56 @@
+###  Публикация: 1827556   (187986) от 22.10.2025
+
+Ева Меркачёва | Град обреченных. Честный репортаж о семи колониях для пожизненно осуждённых (2021) [MP3, Ева Меркачёва]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист и правозащитник Ева Меркачёва побывала во всех семи российских колониях для пожизненно осужденных – там, где никто не хочет оказаться по своей воле. Она брала интервью у сотрудников колоний и у заключенных и рассказала в своей книге честно и без прикрас всё, что ей удалось увидеть и узнать. Автор подробно описала распорядок дня в колониях, быт заключенных, (   Читать дальше...   )Жанр: ПублицистикаИздательство: ЭВЕРБУКПродолжительность: 08:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A369BD3E62CD6D805864A8BFBC3F72BD0E98B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662565   (187749) от 18.09.2023
+
+Пётр Кропоткин | Анархия и нравственность (2022) [MP3, Пётр Мальцов]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник включает избранные труды Петра Алексеевича Кропоткина (1842—1921) – русского революционера-анархиста.
+Будучи пытливым учёным и высокообразованным человеком, П. А. Кропоткин пытался подвести под анархизм какую-либо научную основу и аргументированно показать его необходимость. Для него анархизм представлялся философией человеческого общества. Метод познания (   Читать дальше...   )Жанр: ПублицистикаИздательство: ИДДКПродолжительность: 16:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA1F49FF3C433725CE284317BA96F19E2951E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664090   (185853) от 25.09.2023
 
 Джордж Карлин | Будущее уже не то, что прежде (2021) [MP3, Неизвестный]
@@ -6,7 +59,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185853.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_183062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183062.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_181373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_181373.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_180604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180604.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176835.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175714.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167793.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167042.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166308.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164278.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162003.jpg" />
 </div>
 
 
@@ -289,32 +342,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674769   (160831) от 06.11.2023
-
-Вадим Быстрянский | Контр-революция и её методы (Белый террор прежде и теперь) (2023) [MP3, Александр Харитонов]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткая история Белого Террора первых послереволюционных лет, написанная "по горячим следам"....Жанр: ПублицистикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2FE88F649AF79D5D2FA86CA3806E0A7B7B8B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675902   (159177) от 11.11.2023
 
 Семён Уралов | Украинская трагедия (2023) [MP3, Александр Карлов]
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159177.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158456.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158237.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157268.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157225.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155931.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155597.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155199.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153821.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140203.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138424.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135106.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129254.jpg" />
 </div>
 
 
@@ -650,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C39D69230A4187BD8C1F5AD0CA32FE14EF82C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525687   (129194) от 21.01.2022
-
-Винсент Ван Гог | Письма к друзьям (2021) [MP3, Константин Корольков]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ван Гог создал более сорока автопортретов. «Трудно познать самого себя. Однако написать самого себя не легче», – говорил он. Ван Гог оказался талантливым мастером не только кисти, но и пера. Буквально каждый вечер после работы за холстом он садился за стол и писал длинные письма родным и друзьям. После его смерти письма были найдены. Без преувеличения их можно назвать (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Зарубежная публицистикаПеревод: Полина В. МелковаПродолжительность: 04:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FD96C95829D7A0D543996BFD807ABC16F7265B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1495238   (507797) от 10.07.2022
+
+Книжная серия | «Звезды детектива» [10 книг] (2020-2022) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507797.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии «Звезды детектива» будут представлены мировые звезды детективного и криминального жанра, премиальные книги, уже ставшие культовыми, и многообещающие дебюты, которые придают жанру новое видение и прочтение. Лучшие тексты, которые дают понимание о том, что происходит в мире детектива здесь и сейчас, а также классические романы, до сих пор не столь известные (   Читать дальше...   )Жанр: Детектив, ТриллерПеревод: С. А. Карпов, Е. А. Ру , А. Нехай, Е. Романин и др.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2F050738B1CBE3698A72F661E85C1BF898992F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539326   (506346) от 26.08.2012
+
+Книжная серия | Мировой бестселлер (202 книги) [1991-2003] [RTF, FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Мировой бестселлер издательства "Новости" является одной из самых авторитетных книжных серий, в которой публикуются зарубежные авторы. В серии выходили разные произведения - от сентиментальной остросюжетной прозы Сидни Шелдона до жестких триллеров Дина Кунца и техногенных боевиков Тома Клэнси. Все книги изданы в замечательных переводах, ставших "фирменной" особенностью серии.
+В 2003 году серию Мировой бестселлер продолжили другие издательства.Жанр: История / Детектив / Мистический триллерФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7B0E577E443F5D3096FA15E8FA2ED64AFE1A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933455   (505954) от 01.09.2015
 
 Книжная серия | Суперпроекты Азбуки [24 книги] (2005-2010) [FB2]
@@ -6,7 +59,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505954.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505068.jpg" />
 </div>
 
 
@@ -54,6 +107,36 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540282   (504291) от 28.08.2012
+
+Книжная серия | О чем мечтают женщины. О чем говорят женщины (14 книг) [2011-2012] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_504291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серии О чем мечтают женщины и О чем говорят женщины - суть одна серия. О чем женщины мечтают - о том и говорят.
+Практически все книги одной серии повторяются в другой, да и в оформлении отличаются лишь соответствующей надписью на обложке.
+В сериях представлена современная зарубежная проза о женских чаяниях.
+Из книг вы узнаете: Рецепт вранья; что Лимоны - желтые; Как опасно быть женой, бороться с замужеством и бегать на шпильках; вам разъяснят Сорок правил любви и почему Размер имеет значение.
+Вот какие познавательные книги!Жанр: Современная зарубежная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA30AD70DAC0022B2892E26F242BECBACF536846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249111   (504118) от 14.07.2022
 
 Книжная серия | Некрономикон. Миры Говарда Лавкрафта [13 книг] (2010 - 2016) [FB2]
@@ -62,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504118.jpg" />
 </div>
 
 
@@ -88,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500938.jpg" />
 </div>
 
 
@@ -114,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500861.jpg" />
 </div>
 
 
@@ -144,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500014.jpg" />
 </div>
 
 
@@ -162,6 +245,40 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381120   (498716) от 28.08.2011
+
+Библиотека «Антологии, Сборники, Ежегодники» в 397 томах | 1955 - н.в. [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_498716.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче собраны различные Антологии, Сборники и Ежегодники,
+от Советских времен и до нашего времени. Книги разбиты по жанрам
+ и по сериям, если таковые имеются и насчитывают более 2-3 книг.
+ Данная раздача не претендует на полный охват темы. Разместил
+ то, что насобирал для себя. Если подскажете адреса на книги,
+ которых нет в релизе, с удовольствием добавлю, при следующем
+обновлении. (Vovchenko)
+
+Сайт автора сборника: http://book.libertorrent.com/1955 - н.в.Жанр: Детектив, Фантастика, Фэнтези, Приключения, Мистика, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935534   (498226) от 09.09.2015
 
 Подборка книг | Врачебная проза [692 книги] (2014) [FB2, PDF, DJVU, RTF, DOC, CHM]
@@ -170,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498226.jpg" />
 </div>
 
 
@@ -196,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498186.jpg" />
 </div>
 
 
@@ -222,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498126.jpg" />
 </div>
 
 
@@ -248,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_498123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498123.jpg" />
 </div>
 
 
@@ -274,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495750.jpg" />
 </div>
 
 
@@ -300,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495600.jpg" />
 </div>
 
 
@@ -326,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495482.jpg" />
 </div>
 
 
@@ -353,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_495272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495272.jpg" />
 </div>
 
 
@@ -381,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_492959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492959.jpg" />
 </div>
 
 
@@ -409,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491271.jpg" />
 </div>
 
 
@@ -437,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489752.jpg" />
 </div>
 
 
@@ -463,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486441.jpg" />
 </div>
 
 
@@ -492,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_486012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486012.jpg" />
 </div>
 
 
@@ -519,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484905.jpg" />
 </div>
 
 
@@ -546,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484584.jpg" />
 </div>
 
 
@@ -575,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483405.jpg" />
 </div>
 
 
@@ -587,117 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AAC9FFDC6324B4A30DD999AD512B65E7FA1A5AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938822   (479099) от 19.09.2015
-
-Книжная серия | Военно-историческая фантастика [170 книг] (2008-2015) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Военно-историческая фантастика» запущена в 2008 году издательством «Эксмо».
-В этой серии печатаются произведения российских авторов. Жанр - альтернативная история, военно-историческая фантастика. Отдельные книги выходили с грифом «Военно-патриотическая фантастика».
-Минимум истории — максимум фантастики!..
-(   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2408CDA94F5C83122DCCABF3A2D91B2377107D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939295   (474919) от 21.09.2015
-
-Книжная серия | Грандмастер приключений [35 книг] (2010-2015) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474919.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Грандмастер приключений» - серия лучших приключенческих произведений издательства Эксмо от знаменитых авторов супербестселлеров. В серии выходят как широко известные читателям книги, так и изданные на русском языке впервые.
-
-•••
-(   Читать дальше...   )Жанр: ПриключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5868FA4BB8315AA4E1D0BBEEEF95C7C918F52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701581   (474495) от 28.09.2016
-
-Книжная серия | "Фантастический раритет" [57 книг. Обновляемая] (2010-2016) [FB2, DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Фантастический раритет основана в 2010 году. В ней переиздаются редкие произведения отечественной и зарубежной фантастики, изданные, преимущественно, до войны, а также в 50-х — начале 60-х годов. Значительная часть издаваемых произведений ранее выходили лишь в периодических изданиях, и практически были недоступны для любителей фантастики.
-Для оформления обложек (   Читать дальше...   )Жанр: ФантастикаФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32FA17CC2E444D52DCD524571853FF5F6AB44EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547198   (473449) от 15.09.2012
-
-Книжная серия | Сокровищница боевой фантастики и приключений (131 книга) [1993-1998] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473449.jpg" />
-</div>
-
-
-###  Подробнее
-
-С этими книгами не заскучаешь: погони, перестрелки, инопланетные монстры, мутанты, магия, робототехника… В этой серии собраны совершенно разные произведения, но их объединяет насыщенность и "зрелищность" - с каждой страницы на вас глазеют другие миры и времена, за каждым абзацем что-нибудь взрывается, а отважные герои попадают в самые невероятные приключения и фантастические переделки.Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274E372611D6DFBC4C21112BBA064A69ECD2D9A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

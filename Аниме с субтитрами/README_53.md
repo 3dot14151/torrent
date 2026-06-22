@@ -1,3 +1,30 @@
+###  Публикация: 1029561   (680254) от 27.06.2016
+
+Chitose Get You!! | Читосе добьется тебя! [2012, TV, 26] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680254.jpg" />
+</div>
+
+
+###  Подробнее
+
+История повествует об 11-летней школьнице Читосе, которая влюблена в молодого человека намного старше ее, работающего рядом со школой. Он, само собой, об этом даже не догадывается и только удивляется преследованию с ее стороны.
+©Etsu333Жанр: комедияРежиссер: Сано Такао / Sano Takao / 佐野隆雄Продолжительность: 26 серий по 3 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B1F528EE0A15252E9FE7776025795BBA9EE1D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029631   (679986) от 27.06.2016
 
 Konosuba OVA | Kono Subarashii Sekai ni Shukufuku o! OVA | Этот замечательный мир! OVA [2016, OVA] BDrip 720p Hi10P raw
@@ -6,7 +33,7 @@ Konosuba OVA | Kono Subarashii Sekai ni Shukufuku o! OVA | Этот замеча
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679986.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Denki-gai no Hon`ya-san | Denki-Gai no Honya-san | Книжный магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679120.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуда лучше
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678988.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Ojou-sama Sousamou | Debutante Detective Corps | Дебютный детекти
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678986.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Miyuki | Миюки [1983, TV, 37 из 37] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678982.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Tetsu no Otome Jun | Iron Virgin Jun | Железная дева Дзюн [1992,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678971.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Rokujouma no Shinryakusha!? | Invaders of the Rokujyoma!? | Захватчики
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678731.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678727.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ Shin Kaitei Gunkan / Super Atragon / Супер Атрагон [1995, OVA, 2 и�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678551.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ Military! Шизомилитаризм! [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678166.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Kagewani: Shou [2016, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677953.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ Kiznaiver [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677945.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ Bungou Stray Dogs | Бродячие псы литературы [2016, TV, 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677933.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ One Piece Film Z / Ван-Пис: Фильм двенадцатый [2012, MV] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_677712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677712.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ Kuma Miko / Жрица и медведь [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673925.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ High School Fleet / Hai-Furi / Морская школа [2016, TV, 12] HDTV 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_673673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673673.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ Tanaka-kun wa Itsumo Kedaruge / Всегда вялый Танака-кун [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_671732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671732.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho | Muhyo & Roji's Bureau of Supernatur
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670868.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho 2 | Muhyo & Roji's Bureau of Supernat
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670863.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ Mini Toji | Katana Maidens: Mini Toji | Мини-жрицы [2019, TV, 10 + SP] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670135.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_670128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670128.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ Unhappy / Anne-Happy / Невезучие [2016, TV, 12] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669977.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ Ragnastrike Angels / Ангелы Рагнастрайк [2016, TV, 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669903.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ Ansatsu Kyoushitsu (2016) / Assassination Classroom (2016) / Класс убий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669872.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ Netoge no Yome / And You Thought There Is Never a Girl Online? / А ты дум�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669745.jpg" />
 </div>
 
 
@@ -644,33 +671,6 @@ Netoge no Yome / And You Thought There Is Never a Girl Online? / А ты дум�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE09B564C65F2115CD3567802ECC92B052586675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899265   (669120) от 21.05.2015
-
-RWBY / Red White Black Yellow / Красная, Белая, Чёрная, Жёлтая [2013-2014, TV, 28 из 28] WEB-DLRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_669120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в мире называемом Ремнант, появились полчища ужасных чудовищ — существ Гримм. Человечество оказалось на грани уничтожения. Однако, открытие волшебного вещества, "Праха", позволило отогнать Гримм. А в дальнейшем и поднять цивилизацию на совершенно иной уровень.
-Сейчас об угрозе никто и не помнит. Ведь мир и покой охраняют искусные воины, способные (   Читать дальше...   )Производство: США,   Rooster Teeth ProductionsЖанр: технофэнтези, боевик, комедия, школаРежиссер: Monty Oum (Монти Оум)Перевод: Серии 1-23, 27-28Язык субтитров: РусскийФормат: MP4Продолжительность: ~4-17 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8EDE7DBDB48A85A34136B2A676D5C7C70C837E
 ```
 
 https://mybot314.ru/tekegram_catalog/

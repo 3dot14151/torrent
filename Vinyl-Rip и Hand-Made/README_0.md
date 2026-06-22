@@ -1,3 +1,91 @@
+###  Публикация: 1872073   (1070225) от 20.05.2026
+
+After The Burial - Studio Albums (6 releases) (2006-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metalcore/Deathcore/Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070225.jpg" />
+</div>
+
+
+###  Подробнее
+
+After the Burial — американская метал-группа из города Миннеаполис, штат Миннесота, сформированная в 2004 году.2006 - Forging A Future Self
+2008 - Rareform
+2010 - In Dreams
+2013 - Wolves Within(   Читать дальше...   )Жанр: Progressive Metalcore/Deathcore/DjentПродолжительность: 04:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF2DED4DCDA1AE27362F0F0F8D2AAC5DEC91D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872230   (1070117) от 21.05.2026
+
+James Last - East Meets West (1977) UK Tour '78, Limited Edition 2LP Set [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Folk, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Country And Western Dance Party
+A1 Orange Blossom Special
+A2a Irish Washerwoman
+A2b Gary Owen(   Читать дальше...   )Жанр: Jazz, Folk, Easy ListeningПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E52DC8F6CE99C7545BED80E4A2A0B51D6572013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871695   (1070000) от 18.05.2026
+
+Thyrfing - Studio Albums (8 releases) (1998-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Viking/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thyrfing - шведская блэк/фолк/викинг-метал группа, образованная в 1995 году в Стокгольме.
+Название группы происходит от королевского меча Тирфинг из скандинавской мифологии.1998 - Thyrfing
+1999 - Valdr Galga
+2000 - Urkraft
+2002 - VansinnesvisorЖанр: Viking/Black MetalПродолжительность: 06:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69293696A0B29D0C5F5AEC4D525D16DDD2CDD2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871922   (1069825) от 19.05.2026
 
 Vera Lynn - Spotlight On Vera Lynn (1979, 198) 24 Track Double Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
@@ -6,7 +94,7 @@ Vera Lynn - Spotlight On Vera Lynn (1979, 198) 24 Track Double Album [FLAC 2.0|1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069825.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ Karl Richter - Bach, Organ Recital (1955) Organ of the Victoria Hall, Geneva [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069768.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ Vera Lynn - Remembers (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069334.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ Vera Lynn - Unforgettable Songs By Vera Lynn (1972) With Alyn Ainsworth & His Or
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069289.jpg" />
 </div>
 
 
@@ -122,7 +210,7 @@ Disbelief - Studio Albums (12 releases) (1997-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069055.jpg" />
 </div>
 
 
@@ -151,7 +239,7 @@ VA - The Vintage Years Of Musical Comedy (year unknown) [FLAC 2.0|96/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069054.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ Guy Mitchell - 20 Golden Greats (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068955.jpg" />
 </div>
 
 
@@ -209,7 +297,7 @@ Extol - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068824.jpg" />
 </div>
 
 
@@ -238,7 +326,7 @@ Cruel Force - Studio Albums (4 releases) (2010-2026) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068809.jpg" />
 </div>
 
 
@@ -267,7 +355,7 @@ Vera Lynn - The World Of Vera Lynn Vol. 2 (1970) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068238.jpg" />
 </div>
 
 
@@ -296,7 +384,7 @@ Vera Lynn - The Vera Lynn Collection (1961) 2 Records Set [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068237.jpg" />
 </div>
 
 
@@ -325,7 +413,7 @@ Vera Lynn - Haar 26 mooiste songs / Wereldsuccessen (1975) [FLAC 2.0|192/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068232.jpg" />
 </div>
 
 
@@ -354,7 +442,7 @@ Gordon And Sheila Macrae - Our Love Story (1960) [FLAC|Lossless|image + .cue] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067802.jpg" />
 </div>
 
 
@@ -383,7 +471,7 @@ All That Remains - Studio Albums (10 releases) (2002-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067801.jpg" />
 </div>
 
 
@@ -412,7 +500,7 @@ Udo Dirkschneider (U.D.O.; Dirkschneider & The Old Gang) - Studio Albums (23 rel
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067291.jpg" />
 </div>
 
 
@@ -441,7 +529,7 @@ Parkway Drive - Studio Albums (8 releases) (2004-2022) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066583.jpg" />
 </div>
 
 
@@ -470,7 +558,7 @@ MyGrain - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066463.jpg" />
 </div>
 
 
@@ -499,7 +587,7 @@ Kalisia - Cybion (2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066351.jpg" />
 </div>
 
 
@@ -526,7 +614,7 @@ Monuments - Studio Albums (4 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066137.jpg" />
 </div>
 
 
@@ -555,7 +643,7 @@ Nat King Cole - Sings The Blues (1963) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065682.jpg" />
 </div>
 
 
@@ -584,7 +672,7 @@ Autumn Leaves - Studio Albums (2 releases) (1997-1999) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065681.jpg" />
 </div>
 
 
@@ -611,7 +699,7 @@ Decadence (a.k.a. Decadence Sweden) - Studio Albums (6 releases) (2005-2019) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065680.jpg" />
 </div>
 
 
@@ -640,7 +728,7 @@ Nat 'King' Cole - Unforgettable (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065423.jpg" />
 </div>
 
 
@@ -654,92 +742,6 @@ A4 Lost April(   Читать дальше...   )Жанр: Jazz, Pop, SwingПр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:528696673B5CF98837E429AA4BD6FA4D1022C147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865058   (1065422) от 13.04.2026
-
-Orden Ogan - Studio Albums (9 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orden Ogan - рок-группа из Арнсберга, Северный Рейн-Вестфалия (Германия), основана в 1996 году.2004 - Testimonium A.D
-2008 - Vale
-2010 - Easton Hope
-2012 - To The EndЖанр: Power MetalПродолжительность: 08:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A82F311334FC9F43921B50C061CA010EE5B7612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865206   (1065369) от 14.04.2026
-
-Sacrilege (Sweden) - Studio Albums (2 releases) (1996-1997) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sacrilege - дэт-метал группа из Гётеборга, Швеция, существовавшая с 1993 по 1998 год.
-Группа распалась, когда Даниэль Свенссон присоединился к In Flames.1996 - Lost In The Beauty You Slay
-1997 - The Filth SeasonЖанр: Melodic Death MetalПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9688AB147D26CCBCAC693F79EF0F626AA6BBF068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1865201   (1065368) от 14.04.2026
-
-Merle Haggard And George Jones - A Taste Of Yesterdays Wine (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065368.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Yesterday's Wine
-A2 I Haven't Found Her Yet
-A3 I Think I've Found A Way (To Live Without You)
-A4 Silver Eagle(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3B79AED564766A788A176A0B6A241594E656D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

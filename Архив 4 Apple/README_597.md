@@ -1,3 +1,56 @@
+###  Публикация: 1670005   (172296) от 19.10.2023
+
+WiFi Explorer 3 Pro 3.6.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172296.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Explorer быстро определяет конфликты в каналах связи, overlapping сигнала или просто проблемы в конфигурации, которые мешают стабильной работе сигнала в беспроводной сети вашего офиса или дома.
+WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавляет набор функций, которые делают его подходящим инструментом для WLAN и IT-специалистов. Вы можете использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2012-2020 Intuitibits LLCПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121C72FFF130847DA18601BD677ED64E5EE44285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670166   (172234) от 19.10.2023
+
+Adguard for Mac 2.12.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2023Разработчик: © 2022 AdguardПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D08308E1FA559B0B0E880B4E3C7A023B1215A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670039   (172199) от 19.10.2023
 
 Parallels Desktop Business Edition 19 for Mac 19.0.0 [Multi/Ru]
@@ -6,7 +59,7 @@ Parallels Desktop Business Edition 19 for Mac 19.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172199.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Folder-Factory 7.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172144.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Debit & Credit Premium 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172143.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ EazyDraw 11.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172142.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ SpamSieve 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172139.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Sublime Text 4.0 Build 4159 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172138.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Movie Thumbnails Maker 4.4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172134.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ Project Office X Pro 1.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172132.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ Audio Hijack 4.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172111.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ PDF Expert 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172099.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ macOS 13 Ventura 13.6 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172032.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ Trimma for Mac 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171931.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ iShowU Instant (Advanced) 1.4.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171778.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171762.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ iNet Network Scanner 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171750.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ Sublime Text 4.0 Build 4160 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171745.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ Music Tag Editor Pro 7.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171744.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ Stats 2.9.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171608.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ Iris 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171604.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ EdgeView 4.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171602.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ Clipboard Manager 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171600.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ TinkerTool System 8 v.8.86 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171598.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ Sound Siphon 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171594.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ A Better Finder Rename 12.02 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171593.jpg" />
 </div>
 
 
@@ -633,59 +686,6 @@ A Better Finder Rename является лучшим решением для а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB7C2EEBD8BD96F5EFFF18A3FBC37A0F736C028C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671115   (171592) от 23.10.2023
-
-AltTab 6.63.0 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение AltTab дает возможность пользоваться функцией «alt-tab» от Windows на Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2023Разработчик: © 2022 lwouisПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC36CF011FB61A238C6F23B6F21BF6D2C37B25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671135   (171585) от 23.10.2023
-
-Mellel 5 v.5.1.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
-Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2023Разработчик: © 2002-2023 Mellel AAR LTDПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C2B3020867A54FF6CA21207C0E8AC136A78114
 ```
 
 https://mybot314.ru/tekegram_catalog/

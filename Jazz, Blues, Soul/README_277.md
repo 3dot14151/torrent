@@ -1,32 +1,3 @@
-###  Публикация: 931542   (511847) от 26.08.2015
-
-Galactic - Into The Deep [Deluxe Edition] (2015) [FLAC|tracks|WEB-DL]<Funk, Fusion, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Doosie (4:06)
-02. Higher And Higher (feat. JJ Grey) (4:11)
-03. Into The Deep (feat. Macy Gray) (3:43)
-04. Dolla Diva (feat. David Shaw and Maggie Koerner) (3:32)(   Читать дальше...   )Жанр: Funk, Fusion, RockПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A54EAFFC0B2AF263F3144468EFF6EF8A9DECF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562209   (511538) от 08.07.2022
 
 Duke Ellington - The Complete Variety, Vocalion And Okeh Small Group Sessions (1936 - 1940) 7CD, 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing>
@@ -35,7 +6,7 @@ Duke Ellington - The Complete Variety, Vocalion And Okeh Small Group Sessions (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511538.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Dave Brubeck & Paul Desmond - 1951-1953 /1990, Fantasy/[APE|image+.cue]<Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511119.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Bill Evans - Alone (1975) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_511090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511090.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Amy Winehouse - Back To Black (2006) [FLAC 2.0 24/96|tracks (WEB-DL)] <Soul, R&B
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510639.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Bonedog - Blame The Cat (2011) [MP3|320 кб/с]<Blues Rock | Hard Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510559.jpg" />
 </div>
 
 
@@ -186,7 +157,7 @@ Roland Kirk - Introducing (1960) /1990, Chess Records/ [FLAC|tracks+.cue]<Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510331.jpg" />
 </div>
 
 
@@ -215,7 +186,7 @@ Marc Ribot - Live At The Village Vanguard (2012) /2014, Pi Recordings/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510279.jpg" />
 </div>
 
 
@@ -244,7 +215,7 @@ The Dirty Dozen Brass Band - The New Orleans Album (1990) /Columbia/[APE|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510277.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ VA - The Dirt Lounge (Smooth Chillout & Jazz) (2015) [MP3|320 кб/с]<Lounge, C
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_510188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510188.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ VA - Capital Gold - Soul Legends (2003) 2CD [MP3|320 кб/с]<Soul, Pop, Rock>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509737.jpg" />
 </div>
 
 
@@ -337,7 +308,7 @@ VA - Roots of Rock N' Roll Vol.1-8 (1927-1952) (16CD)  [MP3|320 кб/с]<Blues, 
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509574.jpg" />
 </div>
 
 
@@ -372,7 +343,7 @@ Bruno Angelini - Instant Sharings (2015) [FLAC|tracks+.cue]<Contemporary Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509554.jpg" />
 </div>
 
 
@@ -401,7 +372,7 @@ The Lew Tabackin Quartet - Desert Lady (1990) /Concord Jazz/[FLAC|tracks+.cue]<H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509553.jpg" />
 </div>
 
 
@@ -430,7 +401,7 @@ Marie Seferian Quartett - Mille Nuits (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509551.jpg" />
 </div>
 
 
@@ -459,7 +430,7 @@ Ted Curson - Quicksand (1974) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509549.jpg" />
 </div>
 
 
@@ -488,7 +459,7 @@ John Coltrane - First Meditations (for quartet) (1965) /2015, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509545.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ Clark Terry - Three Classic Albums (1958 - 1960) 2CD, 2011, Real Gone Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509289.jpg" />
 </div>
 
 
@@ -546,7 +517,7 @@ Mound City Blue Blowers - 1935 - 1936 (1996) Classics [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508908.jpg" />
 </div>
 
 
@@ -575,7 +546,7 @@ Mick Martin & The Blues Rockers - Blues Rock U. S. A. (2002) [FLAC|Lossless]<Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508589.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ Blue Mitchell - Out Of The Blue (1958) /1991, Riverside/[FLAC|tracks+.cue]<Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508398.jpg" />
 </div>
 
 
@@ -639,7 +610,7 @@ John Patton - That Certain Feeling (1968) /2014, Universal/[FLAC|tracks+.cue]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508397.jpg" />
 </div>
 
 
@@ -668,7 +639,7 @@ Clark Terry with Thelonious Monk - In Orbit (1958) /1987, Riverside/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508396.jpg" />
 </div>
 
 
@@ -697,7 +668,7 @@ Akua Dixon - Akua Dixon (2014) [FLAC|Lossless|WEB-DL]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508393.jpg" />
 </div>
 
 
@@ -726,7 +697,7 @@ E.J. Strickland Quintet - The Undying Spirit (2015) [FLAC|tracks|WEB-DL]<Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508390.jpg" />
 </div>
 
 
@@ -755,7 +726,7 @@ Anita Baker - The Song'stress (1983) /1991, Elektra/[FLAC|tracks+.cue]<Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508325.jpg" />
 </div>
 
 
@@ -769,6 +740,35 @@ Anita Baker - The Song'stress (1983) /1991, Elektra/[FLAC|tracks+.cue]<Smooth Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1427AE4E338816048D4CFF871938340147AD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932614   (508318) от 30.08.2015
+
+Sarah Maclaine - The Heart Of Me (2015) [FLAC| image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On A Clear Day
+02. God Only Knows
+03. Moon River
+04. In My Life(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7C819B3532AA706AB27FD0E1A766C8C4C58479
 ```
 
 https://mybot314.ru/tekegram_catalog/

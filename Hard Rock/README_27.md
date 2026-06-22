@@ -1,3 +1,90 @@
+###  Публикация: 1186084   (287132) от 24.11.2017
+
+Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born to Touch Your Feelings (Studio Edit)
+02. Still Loving You
+03. Wind of Change
+04. Always Somewhere(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B332B169D9E2B7B3249EAE5FF469A6DDB68B5250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963990   (285798) от 09.12.2015
+
+Good Rats - Ratcity In Blue (1976) Remastered, 1998, Uncle Rat Music [MP3|320 кб/с]<Art, Glam, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Does It Make You Feel Good
+02. Boardwalk Slasher
+03. Ratcity in Blue
+04. Reason To Kill(   Читать дальше...   )Жанр: Art, Glam, Hard RockПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7518ADB8E91D4B4F992EF246300B3C6ED64126FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963852   (285789) от 09.12.2015
+
+Growl - Growl (1974) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake Your Money Maker
+02. Young And Grazy
+03. I Wonder
+04. Working Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31660D29740DF8A2B82C6195672364DEBE2B1B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963985   (285783) от 09.12.2015
 
 Sister Whiskey - Liquor & Poker (1993) [MP3|320 кб/с]<Hard Rock>
@@ -6,7 +93,7 @@ Sister Whiskey - Liquor & Poker (1993) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285783.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ After Hours - Take Off (1988) [MP3|320 кб/с]<AOR, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284129.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ AC/DC - Transmission Impossible Legendary Broadcasts From The 1970s (2016) [MP3|
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283941.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Cry Of Love - Brother (1993) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280920.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Tiger B. Smith - Tiger Rock (1972) Reissue, 1997, Second Battle [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280781.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Wildness - Wildness (2017) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280450.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Revolution Highway - Revolution Highway (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279514.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Ruud Cooty - Aftermath (2002) [MP3|320 Kbps] <Hard Rock, Heavy Blues>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279102.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ WHITE LION - Дискография (1985-2008) [MP3|320 kbps]<Hard Rock,Glam Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278554.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Barbe-Q-Barbies - All Over You (2010) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277061.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Niva - Atmospherical (2016) Japanese Edition [MP3|320 Kbps] <Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275919.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Snakes in Paradise - 6 альбомов (1994-2002) [MP3|320 кб/с]<Melodic Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_275786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275786.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Amish - Amish (1972) 2007, Second Harvest [MP3|320 Kbps] <Hard Rock, Prog Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274750.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ Zepparella - Live At 19 Broadway (2006) Tribute to Led Zeppelin [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274696.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ Dante Fox - Breathless (2016) [MP3|320 Kbps] <Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273712.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ Bon Jovi - This House Is Not For Sale (Live From The London Palladium) (2016) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273561.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ Zodiac - Grain Of Soul (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273475.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Lordi - Babez for Breakfast (2010) [MP3|320 kbps]<Hard Rock/Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271815.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ VA - The Many Faces Of KISS: A Journey Through The Inner World Of KISS (2017) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269105.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Ozzy Osbourne - Under The Graveyard (2019) Single [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_268065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268065.jpg" />
 </div>
 
 
@@ -581,7 +668,7 @@ Stripwired - Another Shot (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266109.jpg" />
 </div>
 
 
@@ -610,7 +697,7 @@ Sunroad - Wing Seven (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265974.jpg" />
 </div>
 
 
@@ -639,7 +726,7 @@ Privilege - Privilege (1973) Reissue, 1999, Lizard Records [MP3|320 Kbps] <Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265802.jpg" />
 </div>
 
 
@@ -653,93 +740,6 @@ Privilege - Privilege (1973) Reissue, 1999, Lizard Records [MP3|320 Kbps] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:265D0EAC2B7EFC20CD1C7F32D117A7E56D91B4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267547   (265798) от 07.12.2018
-
-Domain - Our Kingdom (1988) Reissue, 2000, Humbucker Music [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lost In The City
-2. The Run
-3. We Got Love
-4. Sign From Your Heart(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9268496D97EF47CC389B9984509F8CE7B647EF8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267695   (265729) от 07.12.2018
-
-Magic Dance - New Eyes (2018) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You're Holding Back 4:13
-02.Never Go Back 3:59
-03.These Four Walls 4:35
-04.Please Wake Me 5:02(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63221754F8D01FB6F9297E523415D479997DEE1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837919   (257913) от 19.11.2025
-
-Midnite City - Bite The Bullet (2025) [MP3|320 Kbps] <Melodic Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Like Ya Mean It 04:44
-02. Worth Fighting For 04:25
-03. It’s Going To Be Alright 04:33
-04. Heaven In This Hell 03:47(   Читать дальше...   )Жанр: Melodic Hard Rock, GlamПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC04287361814D09CE79662CFB4421F6184B0CDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

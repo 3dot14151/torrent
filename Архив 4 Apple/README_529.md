@@ -1,3 +1,56 @@
+###  Публикация: 1458846   (235614) от 30.03.2021
+
+Posterino 3 v3.10.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Posterino – программа, ориентированная на создание различных постеров и открыток. Включает в себя достаточно много разных шаблонов, касательно расположения изображений на постере. Среди них такие знаменитые, как 365 Days, Landscape, Classic, Clasters и многие другие.
+Шаблоны можно редактировать, получая в какой-то мере произвольные результаты постеров. Это достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2021Разработчик: Zykloid SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD98D6F463009AF5E41DBD367830EEE79D1C4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512509   (235611) от 25.11.2021
+
+Data Guardian 7 v7.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: © 2021 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71163FA32E97EF89CC7251EB7D62C7A1677205B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641297   (235592) от 21.06.2023
 
 Mimestream 1.0.2 [Multi/Ru]
@@ -6,7 +59,7 @@ Mimestream 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235592.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Allavsoft Video Downloader Converter 3.23.4.7759 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235590.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Default Folder X 6.0 a7 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235584.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Disk Space Analyzer Pro 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235583.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Chrono Plus - Time Tracker 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235556.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Keep It 1.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235555.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Cocktail Ventura Edition 16.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235552.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ NCH ClickCharts Diagram Pro 8.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235528.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Task Office 8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235526.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ VideoDuke 2.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235522.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Dropshare 5.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235519.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ SiteSucker 4.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235510.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Stats 2.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235509.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ PhoneRescue for iOS 4.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235491.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Serial 2 v2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235481.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Amadeus Pro 2.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235474.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235459.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Rogue Amoeba Farrago 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235454.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ Downie 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235430.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Magic Disk Cleaner 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235367.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ Ghost Buster Pro 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235362.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ Dropzone 4 Pro v4.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235353.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ Pixelmator Pro 3.3.7[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235306.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ DEVONthink Pro Office/Server 3 v3.8.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235302.jpg" />
 </div>
 
 
@@ -626,60 +679,6 @@ Devonthink Pro Office — программное обеспечение для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496881CA1C3B72F99576271A4FD6D0EA4E688AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530862   (235294) от 12.02.2022
-
-Money Pro - Personal Finance 2.7.21 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2015-2019 iBear LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7981F5B7E08EE1FF383B2D5C4EBAB0D6DA8E34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641583   (235287) от 23.06.2023
-
-SiteSucker 5.1.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_235287.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.06.2023Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB10BE62FB373D67C672828FCB13B1E1F248E25
 ```
 
 https://mybot314.ru/tekegram_catalog/

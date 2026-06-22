@@ -1,3 +1,29 @@
+###  Публикация: 1298263   (602058) от 26.04.2019
+
+Half-Life 2 Anthology (2004-2007) [Ru/En] (1.0) Repack xatab [Complete Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная цель - доставить в Белую Рощу данные, добытые в Цитадели, где содержатся секретные планы руководства Альянса, а также код частоты сверхпортала, образовавшегося над разрушенным Сити 17. Этот портал должен вновь прочно связать Землю и вселенную АльянсаТип издания: RepackРазработчик: Valve CorporationЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213689F9C87F15C8EB2A691C510E2B3C187623CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149442   (600830) от 10.07.2017
 
 Labyrinth Escape (2017) [En] (1.0) License HI2U
@@ -6,7 +32,7 @@ Labyrinth Escape (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600830.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597717.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Crysis 2 Maximum Edition [Ru/En/Multi9] (Steam-Rip/1.9) 2011 | R.G. Киноза
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596704.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Whispers (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595546.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Crysis 3 (2013) [Ru] (1.3/dlc) Rip Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_594669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594669.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Sublevel Zero Redux (2015) [Ru/Multi] (1.2.9875/13429) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593723.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584913.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584148.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581219.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (1.009/2.070/dlc) Repack/Mo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_581176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581176.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579697.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579043.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576633.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ The Hunt / Черная метка [Ru] (RePack) 2008 | R.G. Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575817.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Titanfall 2 (2016) [Ru/En] (2.0.6.1) Repack Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575523.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572027.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ INVITATION (2019) [En/Ko] (1.0/upd3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570498.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Carrier Command: Gaea Mission (2012) [Ru/Multi] (1.6.0011) RePack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569139.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Blood Feed (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568338.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568337.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Enemy Front (2014) [Ru/Multi] (3.4.4.6290 Upd4/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567795.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Aliens versus Predator Classic 2000 (2000) [En] (20160330) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_566424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566424.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Nether: Resurrected (2014) [Ru/En] (2016 April) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564563.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Painkiller: Resurrection / Painkiller: Воскрешение (2010) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564161.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Far Cry 2: The Fortune’s Pack [Ru] (RePack/1.3) 2008 l UltraISO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_562173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562173.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Far Cry 2: The Fortune’s Pack [Ru] (RePack/1.3) 2008 l UltraISO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADCB0427123942A1A04775EBB3311074442C4711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556407   (559335) от 09.06.2022
-
-Alien: Isolation (2014) [Ru/Multi] (1.0.4/dlc) License GOG [The Collection]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ощутите подлинный страх в мире Alien: Isolation - триллере с атмосферой ужаса и смертельной угрозы. Спустя 15 лет после событий Alien™ дочь Эллен Рипли, Аманда, начинает искать истинную причину исчезновения матери и вступает в схватку за выживание.Тип издания: LicenseРазработчик: Creative AssemblyЖанр: Экшн, Survival, ХоррорЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389C14718088447FA13572E9550EF8EA1F3083A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

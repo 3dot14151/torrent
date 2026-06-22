@@ -1,3 +1,56 @@
+###  Публикация: 1641343   (210896) от 22.06.2023
+
+Фортуна - это женщина / Fortune Is a Woman / She Played with Fire (1957) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страховой инспектор Оливер Брамвель прибывает в Lewis Manor, чтобы расследовать причины пожара, случившегося в канун Рождества. Неожиданно Оливер обнаруживает, что хозяйкой поместья является женщина Сара, с которой он встречался много лет тому назад в Гонконге, откуда она внезапно исчезла без объяснения. Теперь она вышла замуж за владельца поместья Трейси. Вскоре (   Читать дальше...   )Производство: Великобритания, США / John Harvel Productions Ltd.Жанр: драма, криминалРежиссер: Сидни ГиллиатАктеры: Джек Хокинс, Арлин Даль, Деннис Прайс, Вайолет Фэрбразер, Иэн Хантер, Малкольм Кин, Джеффри Кин, Патрик Холт, Джон Робинсон, Майкл ГудлиффПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CBC426D477B23DEC6EF58C2E4876925D692661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568068   (210822) от 10.08.2022
+
+Звёздные войны: Эпизод 6 – Возвращение Джедая / Star Wars: Episode VI - Return of the Jedi (1983) BDRip [H.264/1080p-LQ] [Remastered]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210822.jpg" />
+</div>
+
+
+###  Подробнее
+
+В шестом эпизоде «Звездных войн» Дарт Вейдер создает вторую «Звезду Смерти». Он объединяет все силы зла, чтобы с помощью этого смертоносного оружия нанести последний сокрушительный удар по повстанцам и их союзникам.
+Люк Скайуокер вместе с принцессой Лейей и верными дроидами R2D2 и C-3PO отправляется спасать своего друга Хана Соло, который попал в плен к отвратительному (   Читать дальше...   )Производство: США / LucasfilmЖанр: фантастика, боевик, фэнтези, приключенияРежиссер: Ричард МаркуэндАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу (I), Иэн МакДайармид, Фрэнк Оз, Джеймс Эрл Джонс, Дэвид Праус, Алек ГиннессПеревод: ДублированныйСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB13A1FDBECF0AF32E9E58E0C2EFDB3546C119F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568739   (210400) от 15.08.2022
 
 Список Шиндлера / Schindler's List (1993) BDRip [H.265/1080p] [10-bit] [US 20th Anniversary Limited Edition]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210400.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210264.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_210093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210093.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209876.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209698.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209690.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209594.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209324.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209187.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_209160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209160.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209150.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209128.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_209036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209036.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208919.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208905.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208869.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208843.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208836.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208834.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208810.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208805.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208663.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_208621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208621.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_208257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208257.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96226BFFAEB0E201D51306C9805D0C701784FC9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648335   (207986) от 26.07.2023
-
-Фриско Кид / The Frisco Kid (1979) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_207986.jpg" />
-</div>
-
-
-###  Подробнее
-
-1850 год. Новоиспечённый ортодоксальный раввин Авраам Белински решил добраться из Филадельфии до Сан-Франциско верхом. Единственное, что он знает о Калифорнии — что она «где-то неподалеку от Нью-Йорка». К счастью, Авраам знакомится с бывалым ковбоем Томом Лиллардом, который готов протянуть руку помощи. Путь в Сан-Франциско - весьма рискованное мероприятие - принесёт (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: комедия, приключения, вестернРежиссер: Роберт ОлдричАктеры: Джин Уайлдер, Харрисон Форд, Рамон Биери, Вал Бизольо, Джордж ДиЧенцо, Лео Фухс, Пенни Пейсер, Уильям Смит, Джек Сомак, Бидж Баркетт, Шэй Даффин, Уолтер Яновитц, Джо Кэпп, Клайд Кусацу, Клиффорд А. ПеллоуПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (leonid55), английскиеКачество: BDRipПродолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75BDC3C678B7F86794C09039C3AA4D53FF06B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606771   (207861) от 08.02.2023
-
-...иначе мы рассердимся / ...altrimenti ci arrabbiamo! (1974) BDRip [H.264/720p] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_207861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил да был один мафиози местного значения. И задумал он, по совету своего психолога, возвыситься, разорив беззащитный парк аттракционов и построив на его месте огромный небоскрёб. И всё бы у него получилось, если бы под горячую руку распоясавшихся рэкетиров не попалась дюна-багги, любимый автомобиль двух приятелей, голубоглазого красавца и медведеподобного толстяка. (   Читать дальше...   )Производство: Италия, Испания, Capital Films, Filmayer S.A., Rizzoli Film S.p.a.Жанр: комедия, боевикРежиссер: Марчелло ФондатоАктеры: Теренс Хилл, Бад Спенсер, Пэтти Шепард, Деогратиас Уэрта, Джон Шарп, Мануэль де Блас, Луис Барберо, Дональд Плезенс, Эмилио Лагуна, Рафаэль АльбачинПеревод: профессиональный двухголосый, авторский (Николай Живаго)Язык озвучки: русский, английский, итальянскийСубтитры: английскиеПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE164DBB9BC0F1C359ACCF38433837A53DF50BCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

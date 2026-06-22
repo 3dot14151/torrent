@@ -1,3 +1,112 @@
+###  Публикация: 1188314   (275440) от 01.12.2017
+
+Книжная серия | «Зарубежная фантастика». Издательство «Мир» [129 книг] (1965 – 1999) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия московского издательства «Мир» не нуждается ни в каких представлениях. Любой настоящий ценитель фантастики со стажем хотя бы раз если не читал, то точно видел или держал в руках эти книги. Во времена СССР серия была вне конкуренции.
+
+Поначалу на книгах не ставилось название серии, так как задумывались лишь несколько сборников зарубежной фантастики, продолжающих (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастика, Социальная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB566D36DFEE014A976B4C4A5A848725F38E8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321353   (274485) от 10.11.2019
+
+Книжная серия | Урал - батюшка [14 книг] (2018-2019) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия "Урал - батюшка" - новый подарок любителям исторической прозы от известного издательства "Вече".
+Уральские горы — Каменный пояс — издавна привлекали наших предков, привыкших к вольным просторам Русской равнины, своим грозным и таинственным видом и многочисленными легендами о богатствах недр. А когда пала Казань, ничто уже не могло (   Читать дальше...   )Жанр: Историческая проза, исторические приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B83E96660AC4F6B13C8F1D7B1E59A1BD3BCEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134957   (274101) от 02.12.2017
+
+Книжная серия | Space Factor [9 книг. Обновляемая] (2017) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая серия отечественной космофантастики от издательства АСТ в жанре космический боевик. Динамично, профессионально, интересно!Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5ED307A2DA5DDDD5146BFCD9085C9ED5431B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 291193   (272773) от 29.11.2018
+
+Библиотека | Андеграунд (2010) [doc, rtf, txt]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека включает в себя скандальных авторов,пищущих о непопулярных сторонах жизни или, наоборот, о людях известных, но описываемые с желчью и цинизмом.
+На самом деле это явление гораздо обширнее, когда почитаете то у вас сложится собственное мнение.
+В принципе Андеграунд (по крайней мере в литературе) - это "Чернуха".Жанр: АндеграундФормат: doc, rtf, txt
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2FBCCBA69BFB2278A26BA3A7F1CB72841CE25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291081   (272735) от 29.11.2018
 
 Библиотека | Лауреаты Нобелевской премии в области литературы [477 книг] (1901-2010) [DOC, FB2]
@@ -6,7 +115,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272735.jpg" />
 </div>
 
 
@@ -35,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272734.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272203.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271959.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271698.jpg" />
 </div>
 
 
@@ -139,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271668.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271025.jpg" />
 </div>
 
 
@@ -191,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271015.jpg" />
 </div>
 
 
@@ -217,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_267200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_267200.jpg" />
 </div>
 
 
@@ -243,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_266220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266220.jpg" />
 </div>
 
 
@@ -269,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264540.jpg" />
 </div>
 
 
@@ -297,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263635.jpg" />
 </div>
 
 
@@ -326,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261338.jpg" />
 </div>
 
 
@@ -352,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261058.jpg" />
 </div>
 
 
@@ -379,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_261033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261033.jpg" />
 </div>
 
 
@@ -405,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260951.jpg" />
 </div>
 
 
@@ -431,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_260824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260824.jpg" />
 </div>
 
 
@@ -458,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260604.jpg" />
 </div>
 
 
@@ -484,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260556.jpg" />
 </div>
 
 
@@ -510,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260553.jpg" />
 </div>
 
 
@@ -536,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260548.jpg" />
 </div>
 
 
@@ -562,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_260112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260112.jpg" />
 </div>
 
 
@@ -575,116 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B28E4C0BD8D1AFB16D6F58B6C11DBEF87D7E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503691   (259907) от 31.05.2012
-
-"Ради славы Вселенной" Серия книг | 51 том [2007-2010] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ради славы Вселенной - серия космической фантастики отечественных авторов.
-В основном - переиздания книг из других серий.
-Почти весь объем серии занимает цикл Ливадного "История Галактики".
-Оформление серии Б. Волкова.2007-2010Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A833B5E5D32F1C60085BED1705E4BF42EEBC17A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503232   (259447) от 29.05.2012
-
-Книжная серия | Воровской закон [2002-2010] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам представлена книжная серия остросюжетных криминальных произведений "Воровской закон".2002-2010Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9481FAFDC0100E0F421EC35AA3613004E8B2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502658   (259231) от 28.05.2012
-
-Сборник научной фантастики| НФ (Знание) (41 книга) [1963 - 1992] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_259231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборники (альманахи) научной фантастики «НФ» выпускались издательством «Знание» с 1964 по 1992 год. Сюда включались фантастические произведения отечественных и зарубежных авторов, а также публицистика.
-В 1963 году было выпущено два нулевых (пробных) сборника, затем последовали 36 пронумерованных книги и 3 итоговых альманаха (один был переизданием, а еще два - сборниками лучших произведений серии).
-Итак, к серии Научная фантастика - НФ (Знание) имеет отношение 41 книга.
-Книжная серия полная.Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC254789ECF0C462BA3A0F95D5BBDDB46EDDC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501911   (258916) от 27.05.2012
-
-Книжная серия | Зарубежная фантастика Эксмо (29 книг) [2004-2005] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Зарубежная фантастика была создана издательством Эксмо в 2004 году на смену закрытой серии «Стальная крыса». Выгодно отличалась от первой хорошим качеством изданий. Как правило книги выходили на белой бумаге, часто использовались оригинальные обложки. В серии в основном печатались молодые зарубежные авторы, реже выходили книги авторов-классиков (Р. Желязны, Г. Гаррисон, Э. Маккефри). Серия просуществовала всего один год.2004-2005Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9DB983A85DE4353ACAB2B980C899B694DBC6E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

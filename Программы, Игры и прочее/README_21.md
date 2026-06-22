@@ -1,3 +1,29 @@
+###  Публикация: 1437939   (1041458) от 07.01.2021
+
+Don't Push The Wrong Button 2 v1.0 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Don't Push The Wrong Button 2 - Самый реалистичный и сложный на данный момент симулятор обезвреживания бомбы для Android стал еще лучше. Игра была кардинально переработана и дополнена новыми функциями и улучшенной графикой. Вас ждет 60 уровней с множеством различных модулей и типов бомб. Решайте разные загадки и головоломки за отведенное время, чтобы обезвредить (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 3 января 2021 г.Разработчик: Rene WahlПоддерживаемая ОС: Android 5.0+Жанр: Симуляторы, ГоловоломкиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E3174F56934C1FAA4A1E98F84DD3DD84A9C7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611252   (1041308) от 11.02.2023
 
 Экстраверт: навык общения v1.1.6 [Ru/Multi]
@@ -6,7 +32,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041308.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Bike Computer v1.8.4.2 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041041.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Levelhead v100.0.38 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040848.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Vengeance RPG v1.2.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040731.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Clash of Robots v3.8 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040538.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040467.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ AGAMA Car Launcher v2.7.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040452.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ AI Translate v3.1.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040290.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Old Movies v1.13.09 Premium [En] - Oldies but Goldies
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040289.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ ICQ New Мессенджер v9.20.1(824739) [Ru/Multi] - Общение, чат
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040221.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Tody v1.9.4 Premium [Ru] - уборка по-умному
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040076.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040071.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Weather XL PRO v1.4.7.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040042.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039831.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039779.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039500.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039305.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039267.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039251.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ Spread The Signs v2.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039114.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039078.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039042.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Firefight v1.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039022.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039012.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039008.jpg" />
 </div>
 
 
@@ -663,33 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BFD01D1911CA87C276630AB12DD4AC46B06916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440090   (1039006) от 16.01.2021
-
-Сварочные работы v1.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039006.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приложении рассмотрены: Ручная дуговая, газовая сварка, сварка полуавтоматом, электродуговая резка различных материалов.
-Особенности сварки разных металлов: стали, чугуна, алюминия, меди, латуни, свинца, никеля.Сварочные швы и соединения.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 6 марта 2018 г.Разработчик: Progressive Digital Inc.Поддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C5D539DF35738490570D43FF6C74A278869A89
 ```
 
 https://mybot314.ru/tekegram_catalog/

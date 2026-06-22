@@ -7,7 +7,7 @@ Super no Ura de Yani Suu Futari | Smoking Behind the Supermarket with You | Ис
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072108.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mahou no Shimai Lulutto Lily / Magical Sisters Lulutto Lilly / Волшебны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069533.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai Returns | Изобрази отв�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069103.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068530.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Marika-chan no Koukando wa Bukkowarete Iru | Симпатия Марики [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068133.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Snowball Earth | Земля-снежок [2026, TV, 3 из 13 эп.] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067329.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana | Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066903.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Ichijouma Mankitsu Gurashi! / Жизнь в манга-кафе [2026, TV, 2 и�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066589.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Akane-banashi / Сказание об Аканэ [2026, TV, 3 из ?] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066587.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Yowayowa Sensei | Yowayowa Teacher | Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066210.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Yowayowa Sensei / Yowayowa Teacher / Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066077.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Yozakura-san Chi no Daisakusen (2026) | Операция: Семейка Ёдз�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065558.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hokuto no Ken: Fist of the North Star | Кулак Северной звезды
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065414.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Aishiteru Game o Owarasetai / I Want to End This Love Game / Я хочу зак�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065299.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Kami no Shizuku | Drops of God | Слёзы Бога [2026, TV, 1 из 12] HDTVR
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065116.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Kill Ao | Kill Blue | Убивая юность [2026, TV, 1 из 12] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065080.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Tsue to Tsurugi no Wistoria 2 / Wistoria: Wand and Sword 2 / Меч и жезл 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064979.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Kuro Neko to Majo no Kyoushitsu / The Classroom of a Black Cat and a Witch / Ч�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064949.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana / Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064785.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Awajima Hyakkei | Scenes from Awajima | Сто видов Авадзимы [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064683.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Hime Kishi wa Barbaroi no Yome | The Barbarian's Bride | Невеста варв
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064666.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Mamonogurai no Boukensha: Ore dake Mamono o Kuratte Tsuyoku Naru | Monster Eater
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064635.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 4 | Жизнь в альтернативн
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064471.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Otaku ni Yasashii Gal wa Inai!? | Gals Can't Be Kind to Otaku!? | Гяру не 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064465.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Nigashita Sakana wa Ookikatta ga Tsuriageta Sakana ga Ookisugita Ken | Always a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063828.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 4th / Classroom of the Elite IV 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063824.jpg" />
 </div>
 
 

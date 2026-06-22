@@ -1,4 +1,149 @@
 https://t.me/izofen
+###  Публикация: 1876610   (1073454) от 
+
+Paul Mauriat - Best Of France (1988) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comme d'habitude
+02. Ne me quitte pas
+03. Fascination
+04. Sous le ciel de Paris(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D8AF9F47D22257BA38D255D7EE66F4E0747C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 38233   (1073237) от 
+
+The Matrix OST (1999)
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073237.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Marilyn Manson - Rock Is Dead (3:10)
+2. Propellerheads - Spybreak! (Short One) (4:01)
+3. Ministry - Bad Blood (4:59)
+4. Rob D* - Clubbed To Death (Kurayamino Mix) (7:26)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071DCA27F3F1C66C13544BD9EA87B474F5F31A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875979   (1073190) от 
+
+Enigma - 1991-Best-1996 (1996) Compilation, Unofficial [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Voice Of Enigma - 2:10
+02 - Sadeness - 4:18
+03 - Find Love - 4:52
+04 - Sadeness (reprize) - 2:51(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B823160ADCC37AE5AEA5E367F2BAECE5907ABB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876191   (1073037) от 
+
+VA - The Orient Collective: Roots & Relics (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avet, Tibetania - East Dance (3:49)
+02. La'Dell, Tibetania - Get Oriented (4:54)
+03. Tamer ElDerini, Tibetania - Lafta (5:50)
+04. Idin Gorji, Sheenubb, Tibetania - Falak (4:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C1D873E18901B5ABDABA2D1CDB065681AA7C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1875352   (1072911) от 
+
+Ocarina - DeLuxe Collection (2001) Compilation, Limited Edition, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Song of Ocarina - 3:38
+02 - Implora - 3:52
+03 - Flying Officer - 3:42
+04 - Mystical Force - 3:56(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6DFF5609C72E0087718516B7744B5188E48893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875662   (1072802) от 
 
 VA - Official FIFA World Cup 2026™ Album (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -7,7 +152,7 @@ VA - Official FIFA World Cup 2026™ Album (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072802.jpg" />
 </div>
 
 
@@ -36,7 +181,7 @@ Fausto Papetti - Instrumental Collection (2002) Compilation [FLAC|Lossless|image
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072801.jpg" />
 </div>
 
 
@@ -65,7 +210,7 @@ VA - The Orient Collective: Rituals of the Sunfire (2026) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072742.jpg" />
 </div>
 
 
@@ -94,7 +239,7 @@ Blonker - Die Zeit Der Traume (1985) Compilation, Unofficial Release [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072703.jpg" />
 </div>
 
 
@@ -123,7 +268,7 @@ Carroll Baker - Hymns Of Gold (1985) CD, 1991, J & B Records [FLAC|Lossless|imag
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072699.jpg" />
 </div>
 
 
@@ -152,7 +297,7 @@ VA - The Lost Boys (Original Motion Picture Soundtrack) (1987) [FLAC|Lossless|im
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072698.jpg" />
 </div>
 
 
@@ -181,7 +326,7 @@ Magic Melody Makers - Romance in France (Dreamland Music House) (2024) [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072647.jpg" />
 </div>
 
 
@@ -210,7 +355,7 @@ Magic Melody Makers - Italian Seasons (Dreamland Music House) (2025) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072530.jpg" />
 </div>
 
 
@@ -239,7 +384,7 @@ Blonker - Fantasia & Inside  (1997) Super 2 Series, Reissue, Unofficial Release 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072170.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ Blonker - Essential (1998) Compilation, Unofficial Release [FLAC|Lossless|image 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072168.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ Magic Melody Makers - Spanish Flamenco & Guitar Classics (Dreamland Music House)
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072022.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ ERA - ERA VIII (2026) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071869.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ VA - The Orient Collective: Sacred Stories (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071681.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ Paul Mauriat - Transparence (1985) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrum
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071469.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ Paul Mauriat - Nagekidori (1987) [FLAC 24/96, 192|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071453.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Magic Melody Makers - Greek Tavern Nights (Dreamland Music House) (2025) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071356.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ ERA - ERA VIII (2026) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071290.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Magic Melody Makers - Turkish Nights 2026 (Dreamland Music House) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071282.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Magic Melody Makers - Italian Summer Hits 2026 (Dreamland Music House) [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071021.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - The Orient Collective: Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <World, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070335.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - Beverly Hills Cop (Music From The Motion Picture Soundtrack) (1984) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069640.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ VA - Beverly Hills Cop (Music From The Motion Picture Soundtrack) (1984) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EF347463109CCD0684F4BDC7832A60DD627AF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870828   (1069639) от 17.05.2026
-
-VA - Soundtrack Smashes - The 80's (1989) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glenn Frey - The Heat Is On 3:47
- 02. The Jets - Cross My Broken Heart 4:10
- 03. Jan Hammer - Miami Vice Theme 2:27
- 04. Dan Hartman - I Can Dream About You 4:10(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F956DBB7A30A8332478E0CBF31A490CE731FFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871275   (1069605) от 16.05.2026
-
-VA - The Orient Collective: Voices of the Ancients (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claudio Gasparini, Tibetania - Spiritual Awakening (6:29)
-02. A X L, Tibetania - Nay (6:51)
-03. BK YATRA, Tibetania - I Am a Cowboy (6:59)
-04. Willco, Tibetania - Samadhi Flow (6:17)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88B91812F1C56063BA4A16F4EC75198FF159483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1870010   (1069154) от 11.05.2026
-
-Govi - Cuchama (1993) [FLAC|Lossless|tracks + .cue] <Latin Jazz, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuchama    [0:03:49.05]
-02. Child's Play    [0:05:38.07]
-03. Spirit Rider    [0:06:05.40]
-04. Torero    [0:05:07.58](   Читать дальше...   )Жанр: Latin Jazz, New AgeПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBF419E75884894C0553A80A83C771A29F6C4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 27937   (1068580) от 09.05.2026
-
-Немецкое танго 1930-1940 гг.
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turnier Tango (R. Gaden Und. Orc.)
-02. Tango Bolero (B. Ette Und Orc.)
-03. Blauer Himmel (Tangoorc. B. Von Geczy)
-04. Man Kann Beim Tango Sich So Schone Dinge Sagen (Tangoorc. W. Schmidt-boelcke, Voc. H. Sohnker)(   Читать дальше...   )Жанр: Taнцевальное тангоПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C39B8239C4D23CF9AE011617567FEE90D9AA605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1869754   (1068509) от 08.05.2026
-
-VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Pura Luhur (4:38)
-02. Kaisser Bouzriba - Dreamers (6:31)
-03. D.J. Thor - Rinascita (5:00)
-04. LØDZIKØVSKY - Spiritual Tabla (5:09)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99A607D8FE724D739FC17DF713F7C48EEDB87D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

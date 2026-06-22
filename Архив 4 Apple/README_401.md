@@ -1,3 +1,58 @@
+###  Публикация: 1169192   (403886) от 26.09.2017
+
+Path Finder 7.6 (1724) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов, управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2017Разработчик: CocoatechПоддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824C7C32FE70471BDAAA8F1CACA7969560B697FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169047   (403666) от 26.09.2017
+
+CleanMyMac 3.9 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403666.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyMac 3 - Программа для очистки Mac
+CleanMyMac 3 сканирует каждый уголок вашей системы, удаляет гигабайты мусора в два клика и помогает вам поддерживать Мак в хорошем состоянии. CleanMyMac имеет красивый интерфейс, который не оставит равнодушным никого. Все выполнено в стандартном виде Mac OS: красиво, удобно и доступно.
+
+CleanMyMac позволяет избавиться от разнообразного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 сентября 2017Разработчик: MacPaw Inc.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA974B2351581548A4B5F3B147EB9B6AF30EBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169456   (403149) от 27.09.2017
 
 Algoriddim djay Pro (Complete FX Pack) 1.4.4 [Multi]
@@ -6,7 +61,7 @@ Algoriddim djay Pro (Complete FX Pack) 1.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403149.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Alfred Powerpack 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_403140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403140.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ Synalyze It! Pro 1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402475.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Hazel 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402473.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ liquivid Video Improve 1.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402462.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ OmniGraffle Pro 7.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402461.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Meta 1.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402408.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ SketchUp Pro 2017 v17.3.116 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402157.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_402004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402004.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ ExactScan Pro 17.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401620.jpg" />
 </div>
 
 
@@ -276,7 +331,7 @@ App Uninstaller 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401592.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ OmniOutliner Pro 5.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401549.jpg" />
 </div>
 
 
@@ -332,7 +387,7 @@ OmniFocus 2.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401521.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ Disk Drill Enterprise 3.5.860 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401411.jpg" />
 </div>
 
 
@@ -387,7 +442,7 @@ VMware Fusion Pro 10.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401124.jpg" />
 </div>
 
 
@@ -414,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401080.jpg" />
 </div>
 
 
@@ -440,7 +495,7 @@ Fanny Adams - Fanny Adams (1971) [ALAC|Lossless]<Hard Rock>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_401001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401001.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ Piezo 1.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400603.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ MenuBar Stats 2.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400572.jpg" />
 </div>
 
 
@@ -532,7 +587,7 @@ MacClean 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400429.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400208.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ Hope Sandoval & The Warm Inventions - Through The Devil Softly (2009) [ALAC|Loss
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400026.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ TextSoap 8.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399820.jpg" />
 </div>
 
 
@@ -647,7 +702,7 @@ iTubeDownloader 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399817.jpg" />
 </div>
 
 
@@ -660,64 +715,6 @@ iTubeDownloader 6 теперь имеет очередь загрузки. Оч�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:301023F590FE3D5E78903D0C04C9D1F3559788CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170397   (399626) от 01.10.2017
-
-TouchCopy 16.17 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Передача музыки с вашего iPod, iPad и iPhone в iTunes
-TouchCopy позволяет копировать вашу iPod, iPhone и iPad музыку на жесткий диск. Вы даже можете передавать музыку, плейлисты и видео прямо на iTunes, включая все ваши данные песни, ваши рейтинги и обложки альбомов
-
-TouchCopy позволяет просматривать данные, хранящиеся на сенсорных устройствах iPhone, iPAD, или iPod, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2017Разработчик: Wide Angle Software LtdПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97B5B1EF55780BA59ACC1F2694EF69C7A332041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170399   (399538) от 01.10.2017
-
-Geekbench 4.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_399538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench 4 – бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-
-Geekbench 4 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2017Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D0B877C9853786CE4721F342FC2CE1A7BF02DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

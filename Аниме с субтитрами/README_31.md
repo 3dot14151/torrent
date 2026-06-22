@@ -1,3 +1,29 @@
+###  Публикация: 1031735   (863796) от 24.02.2017
+
+Hatsukoi Monster / First Love Monster / Монстр первой любви [2016, TV, 12 из 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатилетняя Кахо Никаидоу съезжает от родителей, чтобы поступить в старшую школу в Токио, самостоятельно заселиться в общежитие и вообще начать новую жизнь. И первым делом она чуть было не попадает под грузовик. В последний миг девушку спасает прекрасный незнакомец, в которого она немедленно влюбляется. Кахо выслеживает парня, загоняет в угол и признаётся в (   Читать дальше...   )Производство: Студия Studio DEEN / スタジオディーンЖанр: комедия, романтика, сёдзёРежиссер: Инагаки ТакаюкиПеревод: YakuSub (1-9), Abiga (10-12)Язык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68E40446895B01261ECCF6D6510F36E293465DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063508   (863791) от 24.02.2017
 
 Long Riders! | Марафонцы [2016, TV, 12 эп.] HDTV 720p raw
@@ -6,7 +32,7 @@ Long Riders! | Марафонцы [2016, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863791.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gate Keepers | Gatekeepers | Хранители врат [2000, TV, 24 эп.] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863736.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Medaka Box: Abnormal | Medaka Box 2 | Ящик предложений Мэдак
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863470.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Путешес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_862508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862508.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Bang Dream! 3rd Season | Ура мечте! (ТВ-3) [2020, TV, 13 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861685.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860889.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Punch Line | Punchline | Вся суть в трусах | Изюминка [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860649.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Prince of Stride: Alternative / Принц страйда: Альтернати�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860418.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Macross Frontier / Макросс Фронтир [2008, TV, 25 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859865.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Infinite Dendrogram / Бесконечная Дендрограм [2020, TV, 13]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859734.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Strike the Blood IV | Удар крови [OVA-4] [2020, OVA, 12 эп.] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859288.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Bokutachi no Remake / Remake Our Life! / Ремейк нашей жизни [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859241.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Jaku-chara Tomozaki-kun / Bottom-tier Character Tomozaki / Низкоуровн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859237.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859236.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Bokutachi no Remake | Remake Our Life! | Ремейк нашей жизни [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859235.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_859234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859234.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Yowamushi Pedal: Grande Road | Трусливый Велосипедист 2 [TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858621.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Vinland Saga | Сага о Винланде [2019, TV, 24 из 24] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858473.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 эп.] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857510.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Blue Reflection Ray | Синее отражение. Луч [2021, TV, 24 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857416.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Gen'ei o Kakeru Taiyou | Day Break Illusion | Солнце, пронзающее
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856768.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Landlock / Лэндлок [1996, OVA, 2 ep.] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856498.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Relic Armor Legaciam / Легасиям [1987, OVA] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856383.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Grey: Digital Target / Грэй: Цифровая мишень [1986, MV] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_856105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856105.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855705.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D026746FE1DF079D269B659E27E5F19CA2FF10B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483304   (855701) от 27.09.2021
-
-Deatte 5 Byou de Battle | Battle in 5 Seconds After Meeting | Битва через 5 секунд после встречи [2021, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было самое обычное утро. Акира Щироянаги, большой любитель игр и сладостей, внезапно был призван на поле таинственной девушкой по имени Мион. Но Акира не один такой, ему и другим участникам сообщили, что они «удалены из семейного реестра, вовлечены в некий эксперимент и теперь обладают различными сверхспособностями». Парень полон решимости победить в битве с помощью (   Читать дальше...   )Производство: Vega EntertainmentЖанр: приключенияРежиссер: Найто МэаПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5212FE18BAE697CAEE94C5392AAA4A1B2AE188
 ```
 
 https://mybot314.ru/tekegram_catalog/

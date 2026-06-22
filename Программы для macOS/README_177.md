@@ -1,3 +1,108 @@
+###  Публикация: 1698261   (118584) от 08.02.2024
+
+SILKYPIX JPEG Photography 11 v.11.2.14.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118584.jpg" />
+</div>
+
+
+###  Подробнее
+
+С SILKYPIX JPEG Photography вы можете раскрыть свой творческий потенциал. Улучшите свои фотографии в формате JPEG, сделанные цифровыми камерами, смартфонами и другими устройствами. Используйте инструменты четкости для настройки резкости, кисть выделения от руки и другие инструменты. Создайте высококачественную фотографию, которую вы себе представляли, когда делали (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2024Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45A605E0CDC3739D188769C8C2C7D379B2B4E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698154   (118582) от 08.02.2024
+
+Athentech Perfectly Clear Video for Mac 4.6.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя возможности использования улучшенного Perfectly Clear’s AI Automatic Video Enhancement в своем бизнесе. Эта технология автоматического улучшения видео на основе искусственного интеллекта произвела революцию в отрасли, используйте ИИ для повышения качества вашего видео кадр за кадром.
+Если вы собираетесь улучшать видео с помощью Perfectly Clear’s (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2024Разработчик: © 2023 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90D1C82B155B40414860D5162D744EA91044956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698146   (118581) от 08.02.2024
+
+Movie Thumbnails Maker 4.5.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите сделать нарезку кадров из любимого фильма? Как насчет создания потрясающего обзора для всех последних фильмов? Movie Thumbnail Maker - это комплексное решение для быстрого и удобного создания миниатюр фильмов.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2024Разработчик: © 2024 yumysoft.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF76EE6A01E4CB92553B90125356FED6BEE92A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698359   (118573) от 08.02.2024
+
+FonesGo Location Changer for Mac 7.0.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имитируйте движение по GPS более реалистично на iOS/Android. FonesGo Location Changer — лучший партнер во время игры в Pokemon Go. Вы можете имитировать движение GPS с настраиваемой скоростью, например ходьбу, езду на велосипеде или вождение. Какой бы ни была причина, по которой вы застряли дома, вы всегда можете использовать этот инструмент, чтобы играть в Pokemon (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2024 FonesGoПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF643E3BD62C2C3EEF6A94FE27A1D1046C4D875D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698312   (118568) от 08.02.2024
 
 SILKYPIX Developer Studio Pro 11 v.11.0.14.0 [En]
@@ -6,7 +111,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.14.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118568.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Keep It 2.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118562.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Multitouch 1.27.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118552.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Note-C 2.5.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118547.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ File List Export for Mac 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118539.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ ff-Works for Mac 4.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118425.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Tinderbox 9 v.9.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118408.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ Sticky Notes: Easy Note Taking 2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118407.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ Middle for Mac 1.8.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118405.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ TextSoap 9.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118400.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ Mimestream 1.2.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118399.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ Cinemagraph Pro 2.11 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118279.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ Persecond for Mac 1.7 U2B [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_118262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118262.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ Barcode 2.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117971.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ Wirecast 16.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117969.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ Video Cut&Crop&Join for Mac 3.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117944.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ BlueHarvest 8 v.8.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117941.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ Moom 3.2.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117939.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ Coming soon 3 v.3.20 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117932.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ Cookie 7.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117926.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ FabFilter Total Bundle v.13.02.2024 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117838.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117790.jpg" />
 </div>
 
 
@@ -570,111 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:512E2EF1D302C549451135CE60D5642E62DD0331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699539   (117786) от 13.02.2024
-
-Myary 2.5.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117786.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Myary вы можете легко и быстро написать свой дневник, проектную документацию или хронику. Myary предлагает вам свободу создавать любые типы текстовых коллекций, которые будут храниться в хронологическом порядке.Тип издания: macOS SoftwareРелиз состоялся: 08.02.2024Разработчик: © Xelaton SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD0B2065F5449A3518D4CBA9C89E3A9B5469F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699528   (117785) от 13.02.2024
-
-EasyGantt Classic  4.3.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая сильная сторона EasyGantt - это простота и надежность. Вы можете создавать диаграммы Ганта, не ломая голову. Мы сосредоточим наше внимание на функциях, которые на самом деле используют большинство менеджеров проектов. Кроме того, сгенерированные диаграммы визуально привлекательны. Одна картинка стоит тысячи слов.Тип издания: macOS SoftwareРелиз состоялся: 12.02 2024Разработчик: © 2023 xProline LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAD6C9F0E32E32B1DB9EEEC2FAC41C8F41A9D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699604   (117642) от 14.02.2024
-
-Native Instruments Komplete Kontrol 3.1.2 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117642.jpg" />
-</div>
-
-
-###  Подробнее
-
-KOMPLETE KONTROL — это простой в использовании инструмент, который упорядочивает ваш рабочий процесс. Он упорядочивает все ваши инструменты, эффекты, пресеты, лупы и сэмплы, разумно сопоставляя все с вашим оборудованием, чтобы вы могли находить, воспроизводить и настраивать все свои звуки в одном месте. Этот плагин работает в любой DAW и без проблем работает с любым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.02.2024Разработчик: © 2024 Native Instruments GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8A8240962A45EE408C4626BF60A9B70B2545D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699600   (117615) от 14.02.2024
-
-Mellel 6 v.6.0.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_117615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mellel – продвинутый мультилингвистический текстовый редактор, созданный специально для студентов, писателей, журналистов и всех, кто хочет комфортно набирать текст.
-Mellel предлагает специальные инструменты для написания и оформления длинных документов. Mellel отличный выбор для работы с документами на арабском, персидском, иврите и сирийском языках. Но даже если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2024Разработчик: © 2002-2024 Mellel AAR LTDПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECB93AB49DBDC13C9021EF966506EEEC4C88CE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1689690   (124531) от 03.01.2024
+
+Уильям Шекспир | Макбет (2014) [MP3, Михаил Поздняков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиокнига.
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+«Макбет и его жена показывают, как ужасно зло, (   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаИздательство: МедиаКнигаПродолжительность: 03:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA0FC11C718569A8C6900FB05E1BD8E1B63EA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689581   (124530) от 03.01.2024
+
+Эрих Мария Ремарк | Гэм (2016) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрих Мария Ремарк (1898–1970) – знаменитый немецкий писатель, обладатель Ордена «За заслуги перед Федеративной Республикой Германия».
+Роман «Гэм» относится к раннему периоду творчества писателя и является попыткой Ремарка проникнуть в психологию свободной женщины. Гэм путешествует по миру в поисках сильных страстей. Роскошь высшего света и экзотика самых дальних (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 07:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013E7D277CB05BBE89BF05909EAF587696C7AA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689683   (124508) от 03.01.2024
 
 Уильям Шекспир | Зимняя сказка (2013) [MP3, Михаил Поздняков]
@@ -6,7 +61,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124508.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124507.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124348.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124346.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124344.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124342.jpg" />
 </div>
 
 
@@ -172,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124340.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124339.jpg" />
 </div>
 
 
@@ -227,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124333.jpg" />
 </div>
 
 
@@ -256,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124332.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124279.jpg" />
 </div>
 
 
@@ -312,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124274.jpg" />
 </div>
 
 
@@ -340,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124247.jpg" />
 </div>
 
 
@@ -367,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124234.jpg" />
 </div>
 
 
@@ -395,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124179.jpg" />
 </div>
 
 
@@ -422,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124106.jpg" />
 </div>
 
 
@@ -448,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124103.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124045.jpg" />
 </div>
 
 
@@ -504,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124041.jpg" />
 </div>
 
 
@@ -531,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124036.jpg" />
 </div>
 
 
@@ -558,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124035.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124027.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124004.jpg" />
 </div>
 
 
@@ -640,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124003.jpg" />
 </div>
 
 
@@ -651,60 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C5DCD90A6E1858E9D893D95D4531B709FB5051E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278258   (124002) от 07.01.2024
-
-Ги де Мопассан | Исповедь женщины (2009) [MP3, Александр Бордуков, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союз классика.
-Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века. Он написал более 300 новелл.
-Мечты о неком идеале женщины и переживания из реальной жизни тесно переплелись в романах, новеллах и рассказах великого французского писателя Ги де Мопассана. Аудиоверсия избранных из них вошла в этот сборник.Жанр: Зарубежная литература, классика, новеллаИздательство: Издательский дом «Союз»Продолжительность: 04:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD1331239B9D70213398DF8429207B1570A1EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278261   (124000) от 07.01.2024
-
-Ги де Мопассан | Лунный свет (2006) [MP3, Владимир Рыбальченко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник новелл «Лунный свет» был выпущен издателем Эдмоном Монье в самом начале 1884 года. В этом первоначальном виде сборник состоял из двенадцати новелл. В 1888 году «Лунный свет» был переиздан Оллендорфом, причем Мопассан дополнил книгу пятью новыми новеллами, напечатанными им в прессе 1887 – 1888 годов: «Дверь», «Отец», «Муарон», «Наши письма» и «Ночь». Сборник (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: БиблиофоникаПродолжительность: 04:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A957887CB7A13DBFA083A4DC24198CA2452BDA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

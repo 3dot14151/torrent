@@ -1,3 +1,133 @@
+###  Публикация: 1474217   (1013108) от 01.06.2021
+
+Нечестивые / The Unholy (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013108.jpg" />
+</div>
+
+
+###  Подробнее
+
+После видения Девы Марии девушка Элис обретает способность исцеления больных. Слухи о творимых ею чудесах привлекают огромное количество людей со всех концов света. Среди них — скандальный журналист, который надеется с помощью сенсации спасти свою карьеру. Ему предстоит выяснить, является ли происходящее божественным провидением или Алисой управляют зловещие силы.Производство: США / Ghost House Pictures, Screen GemsЖанр: УжасыРежиссер: Эван СпилиотопулосАктеры: Джеффри Дин Морган, Крикет Браун, Кэри Элвес, Уильям Сэдлер, Кэтрин Аселтон, Кристин Адамс, Диого Моргадо, Marina Mazepa, Гизела Чипе, Джанель ФиглиПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: РусскийСубтитры: Русские (forced) - отдельноПродолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BD87970D0525973146B08D762640F6914D35D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468517   (1012975) от 02.06.2021
+
+Особняк на прокат / Chateau Vato (2020) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья из рабочего класса перезжает в особняк, узнав о смерти его богатого владельца. Прикинувшись чужим именем, герои создают путаницу, которая выливается в классическую комедию положений.Производство: США, Chateau VatoЖанр: КомедияРежиссер: Том МускаАктеры: Пол Родригес, Эльпидия Каррильо, Патрисия де Леон, Дженни Арсола, Томас Ролдан, Ник Симмонс, Сизар Грация, Фрэнсис Аллен, Феликс Альварес, Нэнси БанПеревод: Многоголосый любительский (Синема УС)Субтитры: отсутствуютПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CB5C7FC85F7A66868B09CC501FDE73DCB27DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474341   (1012971) от 02.06.2021
+
+Звук металла / Sound of Metal (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blackgammon – так называется панк-металическая группа, сколоченная барабанщиком Рубеном и его боевой подругой Лу. Для рокера Рубен – бывший наркоман, завязавший с пагубной зависимостью – слишком повёрнут на здоровом образе жизни, впрочем, от болезней, как от сумы и тюрьмы, лучше не зарекаться. Во время выступления он вдруг слышит, что ударные издают не фирменный (   Читать дальше...   )Производство: США, Бельгия / Caviar, Flat 7 Productions, Ward FourЖанр: Драма, МузыкаРежиссер: Дариус МардерАктеры: Риз Ахмед, Оливия Кук, Пол Рэйси, Лорен Ридлофф, Матьё АмальрикПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full),  Английские (Forced, SDH)Продолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8791783311CB35F11A4C055E7C3789FDF930153D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474486   (1012955) от 02.06.2021
+
+Супернова / Supernova (2020) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэм и Таскер отправляются в путешествие по Великобритании, о котором давно мечтали. Это приключение имеет для них особый смысл, поскольку Таскер стремительно теряет память, а вместе с ней и жажду жизни. Сможет ли Сэм показать ему в этом пути, что жизнь — это самое прекрасное из чудес, несмотря на все трудности?Производство: Великобритания / BBC Films, British Film Institute (BFI), Quiddity FilmsЖанр: Драма, мелодрамаРежиссер: Гарри МакквинАктеры: Колин Фёрт, Стэнли Туччи, Пиппа Хэйвуд, Питер МакКвин, Нина Марлин, Иэн Дрисдейл, Сара Вудворд, Джеймс Дрейфус, Лори Кэмпбелл, Данека ЭтчелсПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (forced) - отдельноПродолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB85489706A0B9E55639D7A880A99C1530E9D5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468685   (1012807) от 03.06.2021
+
+Великий уравнитель / The Equalizer (2014) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший агент ЦРУ, пожилой афроамериканец Роберт Маккол, решил начать жизнь заново, оставить непростое прошлое и смотреть в будущее, как и обещал покойной жене. Он уже нашёл обычную работу продавца в магазине. Однажды Маккол вступается за юную проститутку Тери, с которой болтал в местной закусочной и которая находится под контролем русской мафии. Маккол прекращает (   Читать дальше...   )Производство: США / Columbia Pictures, LStar Capital, Village Roadshow PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Антуан ФукуаАктеры: Дензел Вашингтон, Мартон Чокаш, Хлоя Грейс Морец, Дэвид Харбор, Хейли Беннетт, Билл Пуллман, Мелисса Лео, Дэвид Мюнье, Джонни Скуртис, Алекс ВидовПеревод: Дублированный (BD CEE)Субтитры: ОтсутствуютПродолжительность: 02:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D25C4D57C145DA649709E0C2607E44AC67FA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474613   (1012769) от 03.06.2021
 
 Пила: Спираль / Spiral: From the Book of Saw (2021) WEB-DLRip [DVO]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012769.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012702.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012685.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012669.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012645.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012637.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012634.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012482.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012474.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012466.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012414.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012352.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012309.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012235.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012229.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012226.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012108.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012084.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011948.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011915.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011912.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B065A3A6A1BD19924AB9B2240B93D987699304A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466327   (1011880) от 09.06.2021
-
-Увиденное и услышанное / Things Heard & Seen (2021) WEB-DLRip [H.264] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1979 год. Кэтрин вынуждена оставить работу мечты в Нью-Йорке и вместе с мужем и 4-летней дочерью переехать в провинциальный городок, где супругу предложили должность преподавателя в местном колледже. Семейство покупает там дом и неплохо обживается, хотя Кэтрин и страдает от недостатка общения. Но вскоре в доме начинает ощущаться постороннее присутствие.Производство: США / Likely StoryЖанр: Ужасы, триллер, драма, фэнтезиРежиссер: Шари Спрингер Берман, Роберт ПульчиниАктеры: Аманда Сайфред, Карен Аллен, Рэй Сихорн, Наталия Дайер, Джеймс Нортон, Ф.Мюррэй Абрахам, Майкл О'Киф, Джеймс Урбаняк, Алекс Нюстадтер, Джек ГорПеревод: Дублированный (по заказу Netflix)Язык озвучки: РусскийСубтитры: Русские (forced, full), Английские (full)Продолжительность: 02:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E61C86AD3C6594218433392003EE8DAD8341DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476082   (1011768) от 10.06.2021
-
-Неспящие / Awake (2021) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011768.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате глобальной катастрофы перестают работать электронные приборы и люди теряют способность спать. Мир погружается в хаос. Только у Джилл, бывшей военнослужащей с непростым прошлым, возможно, есть ключ к спасению — ее собственная дочь.Производство: США / Aurum Producciones S.A., Netflix, Paul Schiff ProductionsЖанр: Фантастика, боевик, триллер, драма, приключенияРежиссер: Марк РасоАктеры: Джина Родригес, Ариана Гринблатт, Фрэнсис Фишер, Дженнифер Джейсон Ли, Барри Пеппер, Шамир Андерсон, Финн Джонс, Люсиус Хойос, Гил Беллоуз, Себастьян ПижоттПеревод: Дублированный (VSI Moscow) по заказу NetflixЯзык озвучки: РусскийСубтитры: Русские (forced, full), Украинские (forced, full), Английские (SDH)Продолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA665F95E71595075356CDB71D6BB94CC92E3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476301   (1011765) от 10.06.2021
-
-Игры шпионов / The Courier (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время Холодной войны Олег Пеньковский, полковник ГРУ генштаба Минобороны, выходит на связь с Гревиллом Винном, британским бизнесменом и шпионом, заинтересованном в постоянном контакте с Москвой. Разведчики договариваются о сотрудничестве, не представляя, чем оно закончится для каждого.Производство: Великобритания, США, 42, FilmNation Entertainment, SunnyMarchЖанр: ТриллерРежиссер: Доминик КукАктеры: Бенедикт Камбербэтч, Мераб Нинидзе, Рэйчел Броснахэн, Джесси Бакли, Владимир Чуприков, Джеймс Шофилд, Фред Хэйг, Эмма Пензина, Мария Миронова, Энтон ЛессерПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758C63614E28DC07196C5B236BE8A36C602318F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476091   (1011728) от 10.06.2021
-
-Неспящие / Awake (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011728.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате глобальной катастрофы перестают работать электронные приборы и люди теряют способность спать. Мир погружается в хаос. Только у Джилл, бывшей военнослужащей с непростым прошлым, возможно, есть ключ к спасению — ее собственная дочь.Производство: США / Aurum Producciones S.A., Netflix, Paul Schiff ProductionsЖанр: Фантастика, боевик, триллер, драма, приключенияРежиссер: Марк РасоАктеры: Джина Родригес, Ариана Гринблатт, Фрэнсис Фишер, Дженнифер Джейсон Ли, Барри Пеппер, Шамир Андерсон, Финн Джонс, Люсиус Хойос, Гил Беллоуз, Себастьян ПижоттПеревод: Дублированный (VSI Moscow) по заказу NetflixЯзык озвучки: РусскийСубтитры: (Русские (forced, full), Украинские (forced, full)) - отдельноПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9326769EE45015890BB7711B7C854B2A073C08DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470320   (1011627) от 11.06.2021
-
-Монстр / Monster (2018) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монстр — именно так государственный обвинитель называет 17-летнего ученика и начинающего режиссёра Стива Хармона, которому вменяют тяжкое убийство и грабёж. Парень не признаёт своей вины и ведёт отчаянную борьбу за то, чтобы не провести всю оставшуюся жизнь в тюрьме.Производство: США, Tonik Productions, Charlevoix Entertainment, BRON StudiosЖанр: ДрамаРежиссер: Энтони МэндлерАктеры: Келвин Харрисон, Мики Мэдисон, Джон Дэвид Вашингтон, Дженнифер Или, Алехандро Эрнандес, Джеффри Райт, Дженнифер Хадсон, Тим Блэйк Нельсон, Джаррель Джером, Пол Бен-ВикторПеревод: Двуголосый любительский (Pazl Voice)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC58264AC0CA1488F80B3B9C08D3B260FF7AD450
 ```
 
 https://mybot314.ru/tekegram_catalog/

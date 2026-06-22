@@ -1,153 +1,22 @@
-###  Публикация: 1274642   (792950) от 07.01.2019
+###  Публикация: 1385955   (795834) от 27.05.2020
 
-Шрифты - Creative Market - La Mona Kids / Cyrillic+Greek - 682077 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792950.jpg" />
-</div>
-
-
-###  Подробнее
-
-La Mona Kids это довольно интересный шрифт, который относится к типу детской графики.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA46CFD61066E394338E46EDEC5046DEB88D2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274618   (792924) от 07.01.2019
-
-Шрифты - Creative Market - Biker Remastered font + graphics - 681973 [TTF, OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновленный шрифт Biker включает в себя символы кириллицы, цифры и другие основные символы. Также теперь он разделен на файлы шрифтов для теневого слоя. Грубые и чистые версии доступны. В качестве бонуса включена иллюстрация черепа с крыльями и лентой и иллюстрация медведя в векторном формате eps.Формат: TTF, OTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00769F552B5F375382C499E6025DFA2AAFBD6BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274425   (792923) от 07.01.2019
-
-Шрифты - Creative Market - Juxta Script | 7 fonts - 1969528 [OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Juxta (сокращение от juxtaposition) составляет два совершенно разных стиля шрифта: моноширинный sans для программирования и монолинейный скрипт. Идеальная геометрия сетки и некоторые декоративные элементы, такие как перечеркнутые буквы, придают Juxta дух скандинавского минималистичного дизайна.
-Разработчик: Petr BushuevФормат: OTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FCFAF1E0191D757B1B1150C7A366EB4154E7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274621   (792922) от 07.01.2019
-
-Шрифты - Creative Market - Cookie Font - 954738 [TTF, OTF, EOT, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cookie - один из первых шрифтов автора, тонкий и рукописный в верхнем и нижнем регистре. Похож на написание мелом или карандашом, с рваным краем, но в то же время это красиво. Кроме того, Cookie включает в себя не только латинские, но и кириллические символы и цифры, всего 184 символа. Шрифт тонкий, но вы можете сделать его средним или жирным.Формат: TTF, OTF, EOT, EPS, AI, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0906A530DBB4EAE788407D77ECD03633B633CE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274619   (792920) от 07.01.2019
-
-Шрифты - Creative Market - Blacktear Script | Roman&Cyrillic - 959441 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blacktear харизматичный рукописный шрифт с современным креативным штрихом, простой и удобный для создания потрясающих надписей. Blacktear поставляется с прописными и строчными буквами, пунктуацией, цифрами, особыми европейскими иероглифами, кириллическими символами и дополнительными символами.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179544B88AD6E62C162D4DD333268E6F03CFF1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386963   (792510) от 31.05.2020
-
-Растровый клипарт - Небольшая подборка клипарта [TIF]
+Растровый клипарт - Pixelbuddha - Sunny Grape Vintage Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795834.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая подборка клипарта сетка, молнии, шестеренки и т.дФормат: TIFРазрешение файлов: 624x3626-22481x336
+Бесплатные 10 иллюстраций птиц и 20 иллюстраций винограда + 5 бесшовных узоров в растре на прозрачном фоне. Материал раздается с официальной документацией.Разработчик: Maria LettaФормат: PNGРазрешение файлов: 827 x 885 - 5001 x 5001
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D06EF400BF5280625A4CBE1BFB7E6B7B5D8A5526
+magnet:?xt=urn:btih:173E0032255595F394077FF75927D2564688B88B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -155,25 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386965   (792479) от 31.05.2020
+###  Публикация: 1386023   (795781) от 27.05.2020
 
-Растровый клипарт - Наклейки для авто и мото [TIF]
+Футажи - VideoHive - Air Strike Drone Fighter On Alpha Channel Loops V1 - 26436004 [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наклейки для авто и мото 333шт.Формат: TIFРазрешение файлов: 7008x1336-15120x6048
+16 различных анимаций авиаударных беспилотных истребителей (QuickTime+Alpha).
+Каждый из них имеет циклическую анимацию. Выберите, что подходит для ваших работ.
+Совместимость с любым нелинейным редактором: Adobe Premiere, Adobe After Effects, Final Cut, Sony Vegas, Movie Maker, Avid.Формат: MOVРазрешение файлов: UHD (3840x2160)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:749F7755980756DF953FCE48B48A81683EA06D02
+magnet:?xt=urn:btih:D2346F4BC874874EF6AC8EB9AC68D45559B8D8A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -181,25 +52,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386971   (792474) от 31.05.2020
+###  Публикация: 1385992   (795779) от 27.05.2020
 
-Растровый клипарт - Наклейки для авто и мото №2 [TIF]
+Футажи - VideoHive - Winter Trees - 21067914 [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наклейки для авто и мото 484шт.Формат: TIFРазрешение файлов: 3480x1160-4830x360
+4 различные анимации заснеженных деревьев (QuickTime+Alpha).
+Выберите, что подходит для ваших работ. Совместимость с любым нелинейным редактором: Adobe Premiere, Adobe After Effects, Final Cut, Sony Vegas, Movie Maker, Avid.Формат: MOVРазрешение файлов: Full HD 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70A7D90C5F3B16FD70D1DC58BDFF23FB636F2C6C
+magnet:?xt=urn:btih:721791EA2B7BB9100D215F7A76E857A3C1058F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,25 +79,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387062   (792462) от 31.05.2020
+###  Публикация: 1385987   (795778) от 27.05.2020
 
-3D модели - Hum3D - Toyota ToyoAce Flatbed 2006 [MAX, FBX, OBJ]
+Футажи - VideoHive - Growing Tree - 21369075 [MOV]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки ToyotaФормат: MAX, FBX, OBJ
+Анимация растущего и постепенно покрывающегося листвой дерева. (QuickTime+Alpha)
+Совместимость с любым нелинейным редактором: Adobe Premiere, Adobe After Effects, Final Cut, Sony Vegas, Movie Maker, Avid.Формат: MOVРазрешение файлов: Full HD 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8124D3B0158BCB2C8C7044365ED95AF81B31AE76
+magnet:?xt=urn:btih:88C2B4AAA57F34757CCBCCBCA241FCE9DECF0997
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -233,104 +106,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386973   (792433) от 31.05.2020
+###  Публикация: 1509110   (795428) от 11.11.2021
 
-Текстуры - Текстуры кожи змеи [TIF]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры кожи змеиФормат: TIFРазрешение файлов: 4500x1620
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89B4D2560BEE56611A52D73E1B675205C3EE7E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387057   (792395) от 31.05.2020
-
-3D модели - Hum3D - VAZ Lada 2103 1972 [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792395.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ВАЗФормат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5259999394CEE7B2C987CAA0EBDD70840CF61B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387072   (792385) от 31.05.2020
-
-3D модели - Hum3D - Toyota Hiace Passenger Van 1967 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792385.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D536650BDB327495449D52E161727F349CDF7BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387056   (792383) от 31.05.2020
-
-NNM-Club Sound Cleaner's - Cleared Soundtracks - Vol.05 [MP3]
+Звуковые библиотеки - FOUR Editors - Cinematic SFX Sound Library - 500+ [WAV, MP3, FLAC, AIFF]
 
 >>Материалы для мультимедиа и дизайна
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник музыкальных треков очищенных от "голосовых вставок" ("watermark").
-Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
+Звуковые эффекты - важный аспект в процессе редактирования видео. Эта библиотека включает уникальные звуковые эффекты, которые можно использовать для повышения качества видео-производства и по-своему уникальна.Формат: WAV, MP3, FLAC, AIFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBF3795363808B7BD86E52AF20210EBA45A3385E
+magnet:?xt=urn:btih:CE43C17BABF18424BDEEEB319B647272CDF0BDCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,259 +132,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387059   (792382) от 31.05.2020
+###  Публикация: 1509031   (795368) от 11.11.2021
 
-3D модели - Hum3D - VAZ Lada 21099 1990 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792382.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ВАЗФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF71B60161E3E4207E7495833A06203685BC225D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387081   (792358) от 31.05.2020
-
-3D модели - Hum3D - Toyota RAV4 5-door 2001 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792358.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1671B091ADF82A74A0C35181747852B659735401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387088   (792313) от 31.05.2020
-
-3D модели - Hum3D - Ural Solo sT 2013 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792313.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мотоцикла марки UralФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E2A386D1B0F05216CE701BF458F16F8F7BD00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274665   (792176) от 08.01.2019
-
-Шрифты - Creative Market - Galpon Family, Greek+Cyrillic - 365913 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Galpón довольно интересный, стильный шрифт, который подойдет под Ваши веселые мультяшные идеи.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B9FAEACCACC603D770E8156672FB8C20D209C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274791   (792134) от 08.01.2019
-
-3D модели - Daz 3D - Millennium Dragon [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D Драконы из категории AnimalsФормат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2D7736D130E18AD12196EB89CA15B4625BC8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274666   (792132) от 08.01.2019
-
-Шрифты - Creative Market - Kontora | Font Family - 923871 [OTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontora - это базовый и универсальный геометрический гротеск, который можно применять для разных стилей. В нем минимум ненужных деталей, в основном современные пропорции и формы букв, но с оттенком ретро качества от таких шрифтов, как Futura и Akzidenz Grotesk. Идеально подходит для заголовков, постеров, упаковок и т.д.Формат: OTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EDA70A142004A4CA95AF3EB19580268608E0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274667   (792131) от 08.01.2019
-
-Шрифты - Creative Market - Maika Font - 363458 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maika - это рукописный шрифт, выполненный чернильной ручкой. Он содержит латинские и кириллические символы, цифры и знаки препинания.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FDB9386A10055C4FD73ECDFAC3097BD18E2954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201503   (792107) от 25.01.2018
-
-Растровый клипарт - Deeezy - Futuro 3D Lettering [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алфавит в футуристическом стиле. (3000x3000, но размер букв немного меньше). Отлично подходит для ваших заголовков, плакатов, рекламных объявлений - любые веб-проекты или проекты печати.Формат: PNGРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8143904642A9A1B632792FDE50DB4E97116667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201507   (792105) от 25.01.2018
-
-Растровый клипарт - Fotolia - Tropical Islands Ocean Landscape [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пейзажи океана тропических островов с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3008x1998-14587x4639
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286224C7C2F7169B126354B658FED572D6320510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274659   (792074) от 08.01.2019
-
-Фоны и наложения - Creative Market - Butterfly Overlays (Real) - 2294970 [PNG]
+Оверлеи - Easy Digital Pro - Avanquest 5000+ Massive Photo Overlays Bundle [PNG, JPG, ATN]
 
 >>Материалы для мультимедиа и дизайна
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Добавьте волшебных бабочек к вашим изображениям с этим замечательным и красивым пакетом Butterfly Overlays.Формат: PNGРазрешение файлов: 2105x1891 - 5616x3744
+Это позволит вывести вашу фотографию на новый уровень и превратить ваши фотографии в шедевры. Воспользуйтесь преимуществами целой вселенной кинематографических наложений для фотографий, чтобы ускорить рабочий процесс без ущерба для качества изображений.Формат: PNG, JPG, ATNРазрешение файлов: 213x752-6250x4166
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:268DB27D14CAB25372731F8838AAEC2BD5C4272E
+magnet:?xt=urn:btih:8A86E049E77BB8C254B12C84457D9BE1BD9DFD54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,26 +158,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274663   (792072) от 08.01.2019
+###  Публикация: 1386262   (795109) от 28.05.2020
 
-Кисти - Creative Market - Photoshop Brush Watercolor Butterfly - 188397 [ABR]
+Фоны и Наложения - InkyDeals - The SuperMassive Bundle Of 13,000+ Overlays And Backgrounds [PNG, JPG]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этот набор кистей входят 16 бабочек высокого разрешения из оригинальных акварельных картин Автора.
-Этот набор идеально подходит для создания красочных акварельных бабочек в Photoshop или любых совместимых программах с ABR.Формат: ABR
+« The SuperMassive Bundle Of 13,000+ Overlays And Backgrounds» - большой пакет более 13К оверлеев (Overlays) и фонов (Backgrounds) на все случаи жизни для Вашего творчества.....
+В первую очередь предназначен для обработки и придания шика Вашим фотографиям. Имея такой набор больше не нужно искать на просторах инета что-либо для того чтоб подчеркнуть значимость Ваших (   Читать дальше...   )Формат: PNG, JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8163AEA77895DBE9D6122AD1673B7EB6B4D55712
+magnet:?xt=urn:btih:247357582C526149BCB834D507E149976ADA36F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +185,340 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201505   (792050) от 25.01.2018
+###  Публикация: 1273959   (794981) от 05.01.2019
 
-Растровый клипарт - Fotolia - Fresh fruit and berries [JPG]
+Рамки - С Рождеством Христовым! [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многослойный PSD, рамки С Рождеством Христовым! Формат А4 для удобной печати и для вашего творчества.Формат: PSDРазрешение файлов: 3508х2480-2480x3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5232B2BE9FA7D5774AA6EA42331BEF56F2BC5ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274124   (794980) от 05.01.2019
+
+3D модели - Mercedes-Benz GLK [MAX, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794980.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки Mercedes-Benz (не удалось найти оф-сайт)Формат: MAX, 3DS, C4D, FBX, LWO, OBJ, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03163200D123DA4409F5F20C1105A5BEE7F601B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274113   (794934) от 05.01.2019
+
+3D модели - ArtStation - p 40 war hawk (modified) [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, ребята, работающие над некоторыми сценами мировой войны для нашего предстоящего проекта, который включает в себя этот ястреб p40, я внес изменения в некоторые части, особенно кабину.Формат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF85013AD5DBBDED21EF959DCD66A15BE5BCAEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274131   (794931) от 05.01.2019
+
+3D модели - SQUIR - Gumpert Apollo Intensa Emozione 2019 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794931.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки Gumpert ApolloФормат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6014DD7E9172BE1BBA7B8AAF92A6C643911423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274139   (794926) от 05.01.2019
+
+3D модели - Hum3D - Ford Expedition MAX Platinum 2017 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794926.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки FordФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MA, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EF86BC075F36F577F2BA14B277DA816FC38198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274117   (794866) от 05.01.2019
+
+3D модели - ArtStation - Max Mad [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794866.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D модель в стиле известного всем фильма Mad MaxФормат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917EB5838C82D1F69D86759DE8D2234A91454EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978572   (794686) от 05.01.2019
+
+3D материалы - vray-materials 2019 [V-Ray|*.mat]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновилась коллекция материалов для связки V-Ray + 3Ds Max на довольно известном в узких кругах сайте vray-materials...
+Эта коллекция матералов, как говорится, must have (должна быть) у каждого начинающего изучать мир 3d моделирования, к сожалению или счастью для себя выбравшего вышеупомянутую связку.Формат: V-Ray|*.mat
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91040E6EBA25D607A82F9303E52FFF921BEACE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509524   (794665) от 12.11.2021
+
+3D модели - Unreal Engine - Hong Kong Street [UASSET]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модульная система с настраиваемыми коллайдерами позволяет собрать город как конструктор. После этого улицы и фасады домов можно оформить тематическим реквизитом.Формат: UASSET
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397557823270269CA40B72A103AEDFBBB7C762CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509528   (794654) от 12.11.2021
+
+3D модели - Unreal Engine - Futuristic Soldiers Pack [UASSET]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794654.jpg" />
+</div>
+
+
+###  Подробнее
+
+В набор входят: 42 собранных персонажа, 60 материалов для настройки и 35 частей тела.Формат: UASSET
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAE8752B1956599AC36FF7021C1A9C946B839C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200786   (794650) от 22.01.2018
+
+3D модели - Daz 3D - Animals [DUF, EXE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз 3d моделей для DAZ 3D из категории Animals, включающий в себя сборники Animals, Dinosaurs, Fantasy, Sci-fi, Toon с офсайта.Формат: DUF, EXE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5D81CBBE2DF8E081E42FCD8EE50D1A6CF86AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509327   (794624) от 12.11.2021
+
+Сборник - Creative Fabrica - Spectacular Collection Big Bundle [PNG, DXF, EPS, SVG, PSD, AI, OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spectacular Collection Big Bundle с невероятным выбором из 500 шрифтов и 1300+ мандал, монограмм и цитат в формате SVG. Этот пакет оценивается в 10063 доллара.Формат: PNG, DXF, EPS, SVG, PSD, AI, OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CCBF841BD4227875C3E533965F85C9BFE92B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386527   (794387) от 29.05.2020
+
+Векторный клипарт - Сборник 12 июня День России [EPS, AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+12 июня День России.
+146 EPS, 143 AI + preview.Формат: EPS, AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC3A76BEB2B0ACF67F9C0D9A9ECFDFBB9BCF749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122500   (794189) от 05.04.2017
+
+Фотография - 200 маленьких позитивчиков [JPG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Свежие фрукты и ягоды с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2450x1974-6217x3913
+В этой маленькой подборке фотографии, которые сделают ваш день более позитивным и заставят улыбнуться.Формат: JPGРазрешение файлов: от 341х341 до 3100х2052
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FF4EECC0E9D4582CF34FCF3A0EDBBA1EB2003CF
+magnet:?xt=urn:btih:28F11D319C124B58E6C8E352174CC49064FE7782
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,26 +526,155 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201499   (792042) от 25.01.2018
+###  Публикация: 1274315   (794046) от 06.01.2019
 
-Растровый клипарт - Creative Market - Nutty Nuts - 3D Lettering - 2196013 [PNG]
+3D модели - SQUIR - Toyota IQ EV 2013 [Mental Ray|*.max, 3DS, C4D, FBX]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hi-res 3D nuts или камни с надписями (3000x3000, но размер букв немного меньше). Отлично подходит для ваших заголовков, плакатов, рекламных объявлений - любые веб-проекты или проекты печати.
-урезанный от оригиналаФормат: PNGРазрешение файлов: 1000x1000
+3d модель автомобиля марки ToyotaФормат: Mental Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, WRL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:847177AC498DDD500ABA319B8269390C291EAE27
+magnet:?xt=urn:btih:63E630DB78122D0AD3E34822DD11FF32FDD29167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274213   (793996) от 06.01.2019
+
+3D модели - Hum3D - Lexus LX 2016 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793996.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки LexusФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C792141817E205FA53DBE71CA2FB68F2887B4B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274305   (793992) от 06.01.2019
+
+3D модели - Hum3D - Toyota Hilux Double Cab Chassis SR 2019 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793992.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ToyotaФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6934ACF19F7C79C8139CFB661549FDB89D0F6E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274218   (793991) от 06.01.2019
+
+3D модели - Hum3D - Holden Colorado Space Cab Divisional Van 2018 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793991.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки HoldenФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB4A7C87936E3CF1EA11286A2884586867C00C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274441   (793946) от 06.01.2019
+
+Boom Library - DEBRIS [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793946.jpg" />
+</div>
+
+
+###  Подробнее
+
+DEBRIS BUNDLE дает вам всю мощь звукового дизайна, так как содержит 2 пакета DEBRIS DESIGNED и DEBRIS CONSTRUCTION KIT.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C457CBD6FCB446C8CAE7F73206001EFE48C53BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274209   (793932) от 06.01.2019
+
+3D модели - Hum3D - BMW X5 (G05) M sport 2019 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793932.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки BMWФормат: Сorona|Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL, SKP, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B3A8C6C8A5B2724DDAD584F67D2BA47A6A8846
 ```
 
 https://mybot314.ru/tekegram_catalog/

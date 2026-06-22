@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876762   (1073332) от 16.06.2026
+
+У Мэри был маленький… / Mary Had a Little... (1961) WEBRip [H.264] [Eng]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название взято из детского стишка "У Мэри был маленький ягненок". Фильм рассказывает о ловком импресарио, который безуспешно пытается выиграть пари у психиатра о создании идеального ребенка с помощью гипноза.Производство: Великобритания / Caralan Productions Ltd.Жанр: комедияРежиссер: Эдвард БаззелАктеры: Агнес Лорен, Хэйзел Корт, Джек Уотлинг, Джон Бентли, Терри Скотт, Ноэль Хоулетт, Майкл Уорд, Клиффорд Моллисон, Патриция Мармот, Сидни ВивианПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750E51CFB4B606A148B05CB2488D28B56AF24A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861348   (1062701) от 28.03.2026
 
 Долина цветов / Valley of Flowers (2006) DVD9 [Director's Cut] [JPN / EN Sub]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062701.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047875.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043217.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041701.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033639.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031770.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031469.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029694.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026874.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024528.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013931.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012365.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012324.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011264.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005881.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264] [EN / RU, EN Su
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004212.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [EN / RU, EN Sub]
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004192.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004184.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996014.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990138.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989729.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_989139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989139.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988907.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985562.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984220.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FD0E08ADC300A8CCE47AE4A1565FEFCFFC9FC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972112   (982997) от 05.01.2016
-
-Воспоминания меча / Hyeomnyeo: Kar-ui gi-eok (2015) DVDRip [KOR / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в средневековой Корее. Юная девушка, овладев искусством меча, мстит за смерть своих родителей. Только дается ей месть непросто. Мешают любовь и неопытность. А вот противник, напротив, очень силён и опасен.Производство: Корея ЮжнаяЖанр: Боевик, драма, приключения, историяРежиссер: Хеунг-Сик ПаркАктеры: Ли Бен Хон, Чон До Ен, Ким Го Ын, Ли Кен Ен, Ким Тхэ У, Ли Чжун ХоПеревод: ОтсутствуетЯзык озвучки: КорейскийЯзык субтитров: РусскийПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C055BCC695AFBFF5B08E30B2D8E01245D89D439
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Wailin' Walker - Blues Lightnin' (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1794.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Hoochie Coochie Men - For A Good Time Call (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1793.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Jesse Williams Band - Keep Steady (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1789.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1776.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1773.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1771.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1769.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1767.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1334915   (291505) от 31.10.2019
+
+MediaInfo 19.09 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291505.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2019Разработчик: MediaArea.netПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED674138E5CCA96C2EF740B8ACC0EB555AE6474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262845   (291414) от 17.11.2018
+
+Folder Designer 1.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folder Designer это простой способ, чтобы настроить папки на вашем Mac. Мы сделали это приложение идеально простым в использовании, так что каждый может дать папкам совершенно уникальный внешний вид.Тип издания: macOS SoftwareРелиз состоялся: 31.10.2018Разработчик: IPLAB LtdПоддерживаемая ОС: macOS 10.8.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294521236AECFC0A7A9C63D5AA1ACA415BDAAB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262952   (291396) от 17.11.2018
 
 Boinx FotoMagico Pro 5 v5.6.4 [En]
@@ -6,7 +58,7 @@ Boinx FotoMagico Pro 5 v5.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291396.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Swinsian 1.11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291336.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Grids for Instagram 5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291330.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ UniConverter 11.5.1.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291314.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Inboard 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291162.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291135.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ Gemini 2: The Duplicate Finder 2.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291128.jpg" />
 </div>
 
 
@@ -200,7 +252,7 @@ MAMP & MAMP PRO 5.2 (rel2)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291070.jpg" />
 </div>
 
 
@@ -226,7 +278,7 @@ Audiobook Builder 1.5.4 (115) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290984.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ Transmit 5 v5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290731.jpg" />
 </div>
 
 
@@ -282,7 +334,7 @@ Autodesk AutoCAD 2018 (O.48.M.294) for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290623.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ Letter Templates for Pages 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290415.jpg" />
 </div>
 
 
@@ -337,7 +389,7 @@ Shredo 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290393.jpg" />
 </div>
 
 
@@ -366,7 +418,7 @@ Watts 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290324.jpg" />
 </div>
 
 
@@ -393,7 +445,7 @@ PDF Expert 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290321.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Ink2Go 1.7.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290037.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Adobe Audition CC 2017 (10.0.1) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289955.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Cisdem Data Recovery 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289915.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ iStatistica Pro 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289890.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Affinity Publisher Beta 1.8.0.499 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289888.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ QLab Pro 4 v4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289887.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Cisdem Document Reader 4 v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289886.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ FastScripts 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289885.jpg" />
 </div>
 
 
@@ -634,7 +686,7 @@ iFinance 4 v 4.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289884.jpg" />
 </div>
 
 
@@ -645,59 +697,6 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63CCD84AA0F4CBED7D6AC55AAECE34CC8F49B444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335234   (289883) от 01.11.2019
-
-Cisdem PDFPasswordRemover 3.9.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem PDFPasswordRemover - Удалить пароль из PDF и получить доступ к наиболее важным данным.
-Доступ к защищенным паролем PDF-файлам может быть огромной проблемой для многих предприятий, особенно, если этот файл PDF имеет заперт от печати, копирования и редактирования. Тем не менее, это не будет проблемой для вас, если у вас есть Cisdem PDF Password Remover для Mac! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0026C4645AB685A07324419D9434E461488575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335231   (289880) от 01.11.2019
-
-Cisdem PDFCompressor 3.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_289880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cisdem PDFCompressor является программным обеспечением для сжатия PDF файлов. Программа позволяет уменьшить размер всех ваших PDF файлов до 90%, сохраняя при этом их исходное качество неизменным. С Cisdem PDFCompressor, вы можете сэкономить место на Вашем компьютере, а также обмениваться PDF-файлами с друзьями/коллегами значительно быстрее.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589E2DC2C0A838F5D5582E5AB98E26BF31934E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

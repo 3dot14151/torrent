@@ -1,3 +1,81 @@
+###  Публикация: 1540659   (650230) от 31.03.2022
+
+Волк и Лев / Le loup et le lion / The Wolf and the Lion (2021) WEBRip [H.264/1080p] [Локализованный видеоряд]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная пианистка Альма возвращается в дом, где прошло её детство. Однажды она находит маленьких волчонка и львёнка, которые оказались одни в дикой природе. Альма спасает их и в тайне оставляет в своем доме. Они взрослеют вместе, и кажется, что их дружбу ничто не может разрушить. Но однажды их секрет раскрывают. Львенка ловят и отправляют в бродячий цирк, а волчонка (   Читать дальше...   )Производство: Франция, Канада / Mai Juin Productions, Galatée Films, Les Productions Wematin, StudioCanal, M6 FilmsЖанр: CемейныйРежиссер: Жиль де МэтрАктеры: Молли Кунц, Грэм Грин, Чарли Каррик, Дерек Джонс, Риз Слэк, Эван Булиунг, Ребекка Кролл, Виктор Корнфут, Дэниэл Брошу, Мелисса ПлантеПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D89450C6057E60F3716B31E94D62EB0383AFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798787   (649751) от 24.06.2014
+
+Невероятное путешествие мистера Спивета / The Young and Prodigious T.S. Spivet (2013) BDRip [1080p] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649751.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Спивет слывет среди своих друзей настоящим гением, но свои изобретения парень мало кому показывает, будучи очень скромным. После того как его приятель отправляет некоторые его работы в знаменитый вашингтонский институт, Спивет получает приглашение на научную конференцию, где ему предстоит выступить с докладом и получить престижную награду. Естественно, (   Читать дальше...   )Производство: Франция, Канада - Epithète Films, Filmarto, France 2 Cinéma, France Télévisions, Gaumont, Orange Cinéma Séries, Tapioca FilmsЖанр: Драма, приключения, семейныйРежиссер: Жан-Пьер Жене / Jean-Pierre JeunetАктеры: Хелена Бонем Картер, Роберт Мэйллет, Джулиан Ричингс, Джуди Дэвис, Каллум Кит Ренни, Ниам Уилсон, Доминик Пинон, Джейкоб Дейвис, Кайл Кэтлетт, Эмбер ГольдфарбПеревод: Одноголосый закадровый, любительский (Pashaup, qwerty)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, английскийПродолжительность: 01:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F9F55A49748B89F8DB06D2A75344F7CC9AB55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141761   (648263) от 11.06.2017
+
+Микстура с арахисовым маслом / The Peanut Butter Solution (1985) HDTV [H.264/720p-LQ] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648263.jpg" />
+</div>
+
+
+###  Подробнее
+
+11-летний Майкл отправляется в переполненный призраками дом, но от страха теряет сознание и у него выпадают все волосы! Привидения рассказывают ему о чудодейственном рецепте для восстановления волос, но, когда он смешивает все ингредиенты, происходит то, чего Майкл совсем не ожидал.Производство: Канада (CFCF-TV, La Societe Generale du Cinema du Quebec и др.)Жанр: Фэнтези, Комедия, СемейныйРежиссер: Майкл РуббоАктеры: Мэтью Маккэй, Силак Сейсенеси, Элисон Дарси, Майкл Хоган, Хелен Хьюз, Гриффит Брюэр, Гарри Хилл, Эдгар Фруатье, Пэт ТомпсонПеревод: Одноголосый закадровый (Семен Ващенко)Субтитры: РусскиеПродолжительность: 01:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDABC03BA1CD5A5B7DE2510FF35DFA489E8433D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292412   (646458) от 29.03.2019
 
 Мэри Поппинс возвращается / Mary Poppins Returns (2018) BDRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_646458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646458.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644610.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644454.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643955.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642699.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642636.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633355.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633354.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629764.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_629628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629628.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628360.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625802.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625396.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623869.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623863.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623736.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622081.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620645.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618297.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618000.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616468.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614826.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614804.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B5FD875B3A2F26A9FF064AF5157B6218AA5C151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230789   (611929) от 14.06.2018
-
-Кролик Питер / Peter Rabbit (2018) BDRip [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о приключениях маленького и непоседливого крольчонка по имени Питер, который хочет пробраться в огород к грозному фермеру и вдоволь полакомиться там фруктами и овощами.Производство: Австралия, США / Sony Pictures Entertainment (SPE)Жанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Уилл ГлакАктеры: Джеймс Корден, Файсаль Баззи, Донал Глисон, Сиа, Колин Муди, Сэм Нилл, Марго Робби, Элизабет Дебики, Дэйзи Ридли, Роуз БирнПеревод: Дублированный (Лицензия EUR)Субтитры: Русские (forced, full), Украинские, Английские (full, SDH, SDH Colored)Продолжительность: 01:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B8BE9BDD1D3A58C92CAD15E2C89531C4A3C1A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296405   (611741) от 17.04.2019
-
-Робо-Пес / Robo-Dog (2015) WEB-DL [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_611741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвероногий друг Тайлера трагически погибает, и его отец-изобретатель создает взамен говорящего робопса, оснащенного супербатареей и суперспособностями. Пока робопес осваивается в нашем мире и перенимает повадки настоящих собак, шеф отца Тайлера мистер Уиллис решает заиметь такую же супербатарею, и за робопсом начинается охота.Производство: США, Consolidated Media Holdings, In The Dark Entertainment, Prism PicturesЖанр: Фантастика, семейныйРежиссер: Джейсон МерфиПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2766172D9C6AB798A452528397324230DFF013F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434237   (609770) от 26.07.2016
-
-Полет навигатора / Flight of the Navigator (1986) [720p] BDRip
-
->>След.
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_609770.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1978 году 12-летний мальчик не вернулся домой. Он считался пропавшим без вести в течение 8 лет. Но однажды он вернулся. Радости родных не было предела, но что случилось с ребенком? За эти годы он совсем не вырос, оставшись таким, как и много лет назад. Сам он не может ничего объяснить. Мальчик помнит только, что заблудился в лесу, потом упал, а когда очнулся, то (   Читать дальше...   )Жанр: Фантастика, Приключения, СемейныйРежиссер: Рэндэл КлайзерАктеры: Джои Крамер, Пол Рубенс, Вероника Картрайт, Клифф Де Янг, Сара Джессика Паркер, Мэтт Адлер, Ховард Хессеман, Роберт Смолл, Элби УайтакерПродолжительность: 01:25:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

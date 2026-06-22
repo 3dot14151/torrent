@@ -6,7 +6,7 @@ Usher 2.0 RC [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018472.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Acon Digital Acoustica Premium Edition 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018471.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cascadea 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018470.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Paste Queue (Multi Clipboard) 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018466.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ GoodTask 6.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018464.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ TinkerTool System 7 v7.2  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018462.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ One Switch 1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018454.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ SecuritySpy 5 v5.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018453.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Live Home 3D Pro Edition 4.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018439.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Arturia Analog Lab V v5.2.0.1378 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018418.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cisco AnyConnect Secure Mobility Client for Mac 4.10.00093 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018376.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sublime Text 4.0 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018297.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Sound Control 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018294.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Magic Battery 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018289.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ TechTool Pro 14 v14.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018266.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Pixologic ZBrush 2021.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018202.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ DoubleTake 2.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018123.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ PhotoSweeper X 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018121.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Serial Box & SerialSeeker 05.2021 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018112.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DiskCatalogMaker 8.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018111.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Metasequoia 4 v4.7.7a [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017961.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ CheckBook Pro 2.6.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017943.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Geekbench 5 v5.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017942.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Paragon NTFS for Mac 15.8.243 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017794.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Sensei 1.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017783.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Micromat Drive Scope 1.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017781.jpg" />
 </div>
 
 

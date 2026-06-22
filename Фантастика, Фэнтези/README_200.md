@@ -1,3 +1,60 @@
+###  Публикация: 1185232   (294800) от 20.11.2017
+
+Вера Чиркова | Кадетки (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Разбойник с большой дороги».
+
+Найти любовь вообще непросто, особенно знатным бесприданницам, которых держат в незримых оковах суровые законы древнего рода и неумолимый этикет. Но эта задача становится неимоверно трудной, когда ко всему прочему добавляется подпись под королевским контрактом.
+Ведь этот документ принесет не только звание кадетки, (   Читать дальше...   )Жанр: Любовно-фантастические романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2C11B7909EE197852953413FED5564DCB72B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334523   (294768) от 29.10.2019
+
+Пэт Кэдиган | Гемини (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генри Броган, элитный киллер, становится мишенью таинственного агента, который предвидит каждый его шаг. К своему ужасу, скоро он выясняет, что человек, пытающийся его убить, – это клон, молодая, быстрая версия его самого.
+
+Официальная новеллизация долгожданного нового фильма от лауреата премии «Оскар» режиссера Энга Ли («Жизнь Пи», «Крадущийся тигр, затаившийся (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6CCDA74EEB41F4C71092B1D8058830DE9279F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262534   (294720) от 15.11.2018
 
 Дмитрий Зурков, Игорь Черепнев | Триумвират (2018) [FB2]
@@ -6,7 +63,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294720.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_294600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_294600.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294485.jpg" />
 </div>
 
 
@@ -90,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294347.jpg" />
 </div>
 
 
@@ -119,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293997.jpg" />
 </div>
 
 
@@ -145,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293636.jpg" />
 </div>
 
 
@@ -171,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293632.jpg" />
 </div>
 
 
@@ -200,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293601.jpg" />
 </div>
 
 
@@ -226,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293470.jpg" />
 </div>
 
 
@@ -254,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293427.jpg" />
 </div>
 
 
@@ -282,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293298.jpg" />
 </div>
 
 
@@ -310,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293120.jpg" />
 </div>
 
 
@@ -337,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293116.jpg" />
 </div>
 
 
@@ -365,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293025.jpg" />
 </div>
 
 
@@ -393,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292915.jpg" />
 </div>
 
 
@@ -419,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292905.jpg" />
 </div>
 
 
@@ -447,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292877.jpg" />
 </div>
 
 
@@ -476,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292871.jpg" />
 </div>
 
 
@@ -505,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292866.jpg" />
 </div>
 
 
@@ -534,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292324.jpg" />
 </div>
 
 
@@ -562,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291830.jpg" />
 </div>
 
 
@@ -589,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291822.jpg" />
 </div>
 
 
@@ -617,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291710.jpg" />
 </div>
 
 
@@ -645,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291665.jpg" />
 </div>
 
 
@@ -656,61 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D341671F5448C665A1C2FE5317047A000B8F04F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079991   (291579) от 05.12.2016
-
-Александр Рудазов | Арифмоман [дилогия] (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исидор Яковлевич Эйхгорн — не самый типичный обитатель планеты Земля. Незаурядный изобретатель, бывалый путешественник и исследователь аномалий. Он может собрать в гараже любое устройство, а самым интересным развлечением считает высшую математику.
-Именно Эйхгорн изобрел вормолеграф — прибор, способный регистрировать пространственные разрывы. Обнаружитель червоточин. (   Читать дальше...   )Жанр: Юмористическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383FC7B616F2D7B1D127C78675547599134C4DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185734   (291426) от 22.11.2017
-
-Карл Александр | Путешествие в машине времени (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Эпоха за эпохой».
-
-Лондон, 1893 год. Писатель Герберт Уэллс показывает своим друзьям собственное изобретение – машину времени. Он не подозревает, что хирург Джон Лесли Стивенсон, товарищ по колледжу, на самом деле и есть ужасающий Джек-потрошитель. Но когда в дом врываются детективы из Скотленд-Ярда, чтобы задержать убийцу, Потрошитель угоняет (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Научная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C2B347358EE9D202552A72B1D28370A55D6B27
 ```
 
 https://mybot314.ru/tekegram_catalog/

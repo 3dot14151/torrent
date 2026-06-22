@@ -6,7 +6,7 @@ ScAnDroid Experiment's - Strange Thoughts (2017) Авторская раздач
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_360503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360503.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Muffler - Stone Cold (2015) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358097.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Royalston - People On the Ground LP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357952.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Naibu - Case Study (2015) [MP3|320 Kbps] <Drum & Bass, Downtempo>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356054.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Makoto - Tomodachi Sessions (2019) [MP3|320 Kbps] <Drum'n'bass, Liquid Funk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_354444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354444.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Neuroporn (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351683.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Bloody Beetroots - The Great Electronic Swindle (2017) [MP3|320 Kbps] <Drums
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346592.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Brookes Brothers - Orange Lane (2017) LP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342512.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Prodigy - No Tourists (2018) [MP3|320 Kbps] <Electronic, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_332726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_332726.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Prodigy - The Day Is My Enemy (2015) Expanded Edition [MP3|320 кб/с]<Brea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331944.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Drumcorps - Falling Forward (2015) [MP3|320 кб/с]<Breakcore, Metal, Electroni
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331218.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Artificial Intelligence - Timeline (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323954.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ A-Mase - Breaking Memories (Best Remixes In Breaks) (2019) [MP3|320 Kbps] <Atmos
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320646.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - New Blood 013 (2013) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_311893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311893.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ ScAnDroid Experiment's - A Trap For The Traveller (2017) Single, Авторск�
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_307683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307683.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Karetus - PINATA (2015) [MP3|320 кб/с]< Drum & Bass, Dubstep, Electro, Moomba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297112.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Fast Warehouse Music (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297096.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296572.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Eschaton - Universe 2 (2016) [MP3|320 Kbps] <Electronic, Drum & Bass, Deep Techn
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_292059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292059.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_291078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291078.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Sigma - Life  (2015) (Deluxe Edition) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290978.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Enei - Rituals LP (2015) (Beatport Edition)  [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_290744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290744.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Feint - Fall Away EP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_287310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287310.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Liquicity Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273353.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - UKF Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265087.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Various Artists - Ram Drum & Bass Annual 2012 (2012) [MP3|320 кб/с]<Drum & Ba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226978.jpg" />
 </div>
 
 

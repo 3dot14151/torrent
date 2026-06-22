@@ -1,3 +1,58 @@
+###  Публикация: 632787   (919480) от 20.03.2013
+
+Mylene Farmer - Je Te Dis Tout (2013) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AC95D15BDB86E412FEEE7614B712A83924C4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756997   (919358) от 15.02.2014
+
+The Beatles - Video Collection. Vol. 2 (2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_919358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am The Walrus
+02. Hello, Goodbye
+03. Across The Universe
+04. Lady Madonna(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E95DC2E835EBBCE6C180A9B67EB804B8CECF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 756987   (919301) от 15.02.2014
 
 The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
@@ -6,7 +61,7 @@ The Beatles - Video Collection. Vol. 1 (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_919301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919301.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ VA - Дискохит 90-х (большая коллекция клипов) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_918119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918119.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Ed Sheeran - Give Me Love (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917960.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Alizee - A Cause De L'automne (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917829.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Flyingdick - Китайский квартал (2020) WEB-DL [V9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_917326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917326.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ Pyogenesis - 8 Music Videos (2015-2020) WEB-DL [VP9/H.264/2160p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915656.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ Sabaton - 54 Music Videos (2006-2020) WEB-DL [h.264/V9/360p/480p/720p/1080p/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915255.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_915092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915092.jpg" />
 </div>
 
 
@@ -229,7 +284,7 @@ Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912961.jpg" />
 </div>
 
 
@@ -255,7 +310,7 @@ Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912944.jpg" />
 </div>
 
 
@@ -281,7 +336,7 @@ Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912782.jpg" />
 </div>
 
 
@@ -307,7 +362,7 @@ Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_912642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912642.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910682.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ Stooshe - Slip (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909706.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909525.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909505.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909481.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909438.jpg" />
 </div>
 
 
@@ -489,7 +544,7 @@ London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909339.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDR
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_909286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909286.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908696.jpg" />
 </div>
 
 
@@ -574,7 +629,7 @@ Alisher - Money (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907830.jpg" />
 </div>
 
 
@@ -600,7 +655,7 @@ Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907822.jpg" />
 </div>
 
 
@@ -626,7 +681,7 @@ Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907713.jpg" />
 </div>
 
 
@@ -637,62 +692,6 @@ Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6D3C73FF636A416008265E8A671E8CA6A4ACA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635887   (907649) от 27.03.2013
-
-Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8224B7D5D11788926A0F46C398C70A6218080BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990276   (907446) от 27.02.2016
-
-VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016 + бонус) DVDRip,HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_907446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение коллекции клипов в авто.Часть 4.
-Клипы на весь экран для автомагнитол, так же планшетов и тд.Keida - Ganja Tea.avi
-Kelis - Acapella.avi
-Kelly Clarkson - Heartbeat Song.avi
-Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 40:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
 ```
 
 https://mybot314.ru/tekegram_catalog/

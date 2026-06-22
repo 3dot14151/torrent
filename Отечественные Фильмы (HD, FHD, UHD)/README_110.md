@@ -1,3 +1,107 @@
+###  Публикация: 1598719   (161845) от 20.12.2022
+
+Накипь (2020) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя занимается ремонтом стиральных машин в провинциальном городе. На одном из заказов он встречает свою бывшую девушку, которая приехала из Москвы, чтобы продать старую квартиру. Женя собирается возобновить отношения.Производство: РоссияЖанр: короткометражный, мелодрамаРежиссер: Сергей МалкинАктеры: Данил Стеклов, Дарья Жовнер, Федор Гамалея, Дарья Труханович, Богдан БончукСубтитры: отсутствуютПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60767FE47322A582ADB61DBD9E549016F72C77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598797   (161841) от 20.12.2022
+
+Увлечение (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка пытается выпутаться из неудобной ситуации — и муж и любовник случайно оказываются в квартире в одно и тоже время. Правда, очень скоро выясняется, что у мужа и любовника гораздо больше общих интересов.Производство: РоссияЖанр: короткометражный, комедияРежиссер: Денис КуклинАктеры: Надежда Игошина, Сергей Рудзевич, Олег КаменщиковСубтитры: отсутствуютПродолжительность: 00:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F8DE4B24AE64EEDD25110AE66E01F1C248EB53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432965   (161763) от 19.12.2020
+
+Девятая (2019) BDRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петербург конца XIX века охвачен массовым увлечением оккультными науками и эзотерикой. Британка-медиум Оливия Рид приезжает в столицу Российской империи с гастролями и собирает на своих публичных спиритических сеансах толпы людей. В это время в городе происходит серия загадочных убийств - изувеченные тела девушек находят в разных концах города. Расследованием занимаются (   Читать дальше...   )Производство: Россия / Non-Stop Productions, Central Partnership Productions, KIT Film StudioЖанр: Детектив, триллер, криминалРежиссер: Николай ХомерикиАктеры: Евгений Цыганов, Дэйзи Хэд, Дмитрий Лысенков, Джонатан Солвей, Юрий Колокольников, Евгений Ткачук, Игорь Черневич, Иван Решетняк, Мария Скуратова, Анна ХристичСубтитры: отсутствуютПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B908EAB8022CF41F6CC90C7D0F0AA2FCCEB7FA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674127   (161733) от 04.11.2023
+
+Последнее дело Вареного (1994) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проработав четыре года, молодой экспедитор Сизухин неожиданно узнает, что под видом перевозок детского питания его фирма занимается контрабандой наркотиков. Решив разобраться в этом деле, он начинает борьбу с мафией и обращается за помощью к профессиональному вору по кличке «Вареный».Производство: Россия, Голос, РоскомкиноЖанр: комедия, криминалРежиссер: Виталий МельниковАктеры: Виктор Степанов, Ольга Машная, Виталий Скворкин, Андрей Ургант, Елена Драпеко, Галина Гудова, Эра Зиганшина, Вера Карпова, Виктор Мелихов, Алла Одинг, Гелий Сысоев, Галина Баранова, Лев Елисеев, Ольга Самошина, Валерий СмоляковСубтитры: отсутствуютПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566530D939E7310A49DA88CEE24961176CEC4303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673785   (161556) от 04.11.2023
 
 Гардемарины 1787. Мир (2020) WEBRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161556.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161302.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161293.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161191.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160878.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160833.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160726.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160706.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160534.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160113.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160096.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160087.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160068.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160057.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160041.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160035.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160032.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159980.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159947.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159923.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159816.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159732.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C150765213B699EC3E1205817F949AEE0F89ABD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599121   (159704) от 23.12.2022
-
-1000 дешевых зажигалок (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семнадцатилетний Артём - невидимка в семье и бунтарь в техникуме. У него есть лучший друг, Костя, и все провокации и выходки они совершают вместе. Когда руководство техникума составляет неофициальный список опасных подростков - «взрывников», Костя, по чистой случайности, попадает на первое место, которое делает его популярным среди других студентов. Костя упивается (   Читать дальше...   )Производство: Россия, МТС Медиа, Liho! ProductionЖанр: драмаРежиссер: Ирина ОбидоваАктеры: Павел Чернышёв, Никита Плахотнюк, Елизавета Кононова, Никита Еленев, Софья Аржаных, Иван Капорин, Борис Заруцкий, Анна Бреннер-Вартаньян, Алёна Кучкова, Мария ЛавроваПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715E535F0A1F375696AFBD48380F2C1DB78E4C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599482   (159694) от 23.12.2022
-
-Дикие предки (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канун нового 2000 года. Молодые представители казачьей и татарской семей поженились без благословения родителей, нарушив традиции своих родов. Две семьи вступают в родовую схватку за право дать имя их новорожденному сыну, которая перерастает в битву — крестить или обрезать… Желание каждой семьи оказаться первой в споре превращается в приключение, во время которого (   Читать дальше...   )Производство: Россия, КиноквантЖанр: комедияРежиссер: Владимир Болгов, Юрий БунинАктеры: Наиль Абдрахманов, Наталья Ионова, Анна Уколова, Камиль Ларин, Алексей Булдаков, Роза Хайруллина, Инга Оболдина, Вячеслав Щенин, Михаил Богдасаров, Наталия МедведеваПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E636C36F800B8F3B8E7653F47F41FBB95315E50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599737   (159563) от 24.12.2022
-
-Курьер из «Рая» (2013) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Егор Глазунов работает в криминальной полиции столицы и обладает удивительным даром — «врать с листа». Это умение очень выручает его в далёком маленьком городе, которых на карте России великое множество. Сюда Глазунов отправляется помочь другу детства Артёму — обычному курьеру с необычными принципами, у которого угнали доставшийся ему по странному стечению обстоятельств (   Читать дальше...   )Производство: Россия / Дирекция Кино, Про-Синема продакшнЖанр: комедия, приключенияРежиссер: Михаил ХлебородовАктеры: Евгений Ткачук, Елизавета Боярская, Гоша Куценко, Дмитрий Дюжев, Игорь Скляр, Дмитрий Нагиев, Артём Ткаченко, Екатерина Климова, Екатерина Федулова, Олег ТактаровСубтитры: отсутствуютПродолжительность: 01:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69237F5EFC37EA418A04AE98ED9DD1D509DD201C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437675   (159537) от 24.12.2022
-
-Зависть богов (2000) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159537.jpg" />
-</div>
-
-
-###  Подробнее
-
-1983 год. Телевизионный редактор Соня и переводчик из Франции Андрэ встретились в Москве и полюбили друг друга. У Сони есть сын-подросток и муж, успешный писатель. У Андрэ тоже есть семья в Париже. И вдруг для них исчезло все, кроме внезапно нахлынувшей страсти. Несколько дней своей жизни они были абсолютно счастливы, однако боги не остались равнодушными...Производство: Россия / Госкино, Мосфильм, ЗАО Народное киноЖанр: Драма, мелодрамаРежиссер: Владимир МеньшовАктеры: Вера Алентова, Анатолий Лобоцкий, Александр Феклистов, Жерар Депардье, Ирина Скобцева, Владлен Давыдов, Людмила Иванова, Лариса Удовиченко, Владимир Еремин, Марина Дюжева, Леонид ТрушкинСубтитры: РусскиеПродолжительность: 02:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055CB6A5C44B9A6440A7092754B149C658237F6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

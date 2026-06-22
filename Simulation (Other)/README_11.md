@@ -1,3 +1,55 @@
+###  Публикация: 1053376   (449905) от 05.09.2017
+
+Farm Expert 2017 (2016) [En] (1.124) Repack R.G. Механики
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Farm Expert 2017 - это комплексный симулятор фермерского хозяйства с расширенной физикой почв и реалистичной моделью управления машинами. Играть придется в огромном открытом мире, ремонтировать технику в мастерской, выращивать животных, возделывать поля, собирать урожай в садах и ухаживать за растениями в теплицах.Тип издания: RepackРазработчик: SildenЖанр: Инди, СимуляторыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7678687381A0A704358930B39520BB05E5709C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061452   (447832) от 10.10.2016
+
+Thrills & Chills - Roller Coasters (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thrills & Chills - Roller Coasters — увлекательная игра, в которой Вам предложат прокатиться на американских горках!Тип издания: RepackРазработчик: VRischЖанр: SimulatorЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F144594168CC69C473F8FEFCEEF8127A87A3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944273   (442188) от 06.10.2015
 
 A-Train 9 V3.0: Railway Simulator (2014) [En] (3.0) Repack Mr.Weegley [Premium Edition]
@@ -6,7 +58,7 @@ A-Train 9 V3.0: Railway Simulator (2014) [En] (3.0) Repack Mr.Weegley [Premium E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_442188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442188.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ A-Train 9 V3.0: Railway Simulator (2014) [En] (3.0) SteamRip SKIDROW [Premium Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_441983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441983.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.182.64713/dlc) Repack xatab [Bear H
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439774.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Battle Royale Tycoon (2019) [Ru/Multi] (1.00) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435096.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Signal Simulator (2018) [En] (1.7.3) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433081.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Pinball FX3 (2017) [Multi] (1.0/dlc) License HI2U [Season 1-2 Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432647.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Planet Zoo (2019) [Ru/Multi] (1.2.5.63260) License EMPRESS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429077.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Planet Zoo (2019) [Ru/En] (1.2.5.63260/dlc) Repack Other s [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429060.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Planet Zoo (2019) [Ru/En] (1.2.5.63260/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429056.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Ships 2017 (2016) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425244.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Ships 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425243.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Robot Squad Simulator 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420459.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Demolish & Build Company 2017 (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415649.jpg" />
 </div>
 
 
@@ -339,32 +391,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 248057   (414591) от 22.10.2010
-
-RailWorks 2 (L) [Multi4+] 2010
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_414591.jpg" />
-</div>
-
-
-###  Подробнее
-
-RailWorks 2 Train Simulator это большой шаг вперед для симуляторов поездов за последние годы. С регулярными обновлениями и расширениями каталога загружаемых маршрутов, локомотивов и т.д., RailWorks 2 Train Simulator предлагает невероятно универсальную программу для железнодорожных энтузиастов и поклонников симулятора. И возможности не заканчиваются на том, что доступно в магазине www.railsimulator.com, все инструменты включены, чтобы пользователи могли создавать собственные реалистичные маршруты, в комплекте с городами, станциями и пейзажами, "с нуля". .Тип издания: ЛицензияЖанр: СимуляторЯзык озвучки: АнлийскаяЯзык интерфейса: Русский, Английский, Немецкий, Польский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066455   (411080) от 26.10.2016
 
 Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
@@ -373,7 +399,7 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411080.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Digital Deluxe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407615.jpg" />
 </div>
 
 
@@ -417,64 +443,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 566084   (398610) от 27.10.2012
-
-Farming Simulator 2013 [En] (L) 2012 | RELOADED
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_398610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стартовав в 2008 году, сериал Farming Simulator стал настоящим открытием для многих игроков по всему свету. В нынешнем сезоне он вновь возвращается, чтобы порадовать своих преданных фанатов — встречайте Farming Simulator 2013!
-
-Farming Simulator 2013 сочетает доступный и интересный геймплей оригинала с расширенными возможностями содержания виртуальной фермы. В игру добавлено множество новых машин и комбайнов, зерновых культур, животных и типов ландшафтов. Предусмотрены возможности создания и загрузки модификаций, транспортных средств и различной экипировки.
-
-Не обошлось и без продуманной многопользовательской составляющей: до 10 игроков могут вести совместное виртуальное хозяйство онлайн. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Simulator / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскиеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF240F0211A20BFCEF0854CEB3B72A1C5DC8822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565998   (395559) от 30.10.2012
-
-Scania Truck Driving Simulator - The Game [En/Ru/Multi33] (L) 2012
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая игра от студии SCS Software изначально не имела целью конкурировать с глобальной Euro Truck Simulator 2, но в этом "побочном продукте" всё же был достигнут такой уровень качества, который намного опережает все ранее выпущенные игры от этой компании. На первый взгляд, игра напоминает недавние Trucks & Trailers, но при более внимательном рассмотрении можно заметить, что в новой игре нас ждёт много нового. Конечно, геймплей ограничен исключительно грузовиками Scania R-серии, но это не так уж и плохо.
-Игра Scania Truck Driving Simulator состоит из нескольких частей. Первая, называется "Учебная езда" (в другом варианте перевода "Автошкола") и должна научить вас основам управления тяжёлым и габаритным транспортом. Вы поймёте, как ведёт себя тягач с полуприцепом при при движении задним ходом или на повороте, попробуете выполнить парковку с различными ограничениями, освоите некоторые другие сложные манёвры, которые, безусловно пригодятся в дальнейшей игре.
-Вторая часть игры "Соревнование водителей" (в другом варианте перевода "Водительские соревнования"). Эта часть игры представляет собой перенесённый в виртуальное пространство реальное соревнование водителей, которое организует Scania. На этом этапе вам следует ожидать преодоления многочисленных препятствий, в виде сложных заданий требующих мастерства вождения и максимальной концентрации внимания. Занимательной деталью этого этапа является динамическое движение времени. Так что, чем дольше вы будете повторять неудачные попытки, тем ближе будет вечер, а в темноте, при ограниченной видимости, выполнение сложных заданий ещё более проблематично. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: SCS SoftwareЖанр: Racing / Simulator / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, MULTI33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04CB714DD0E059B827C25D63443AA73DB96922ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566034   (395412) от 30.10.2012
 
 Bus Simulator 2012 [En/Ru] (L) 2012
@@ -483,7 +451,7 @@ Bus Simulator 2012 [En/Ru] (L) 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_395412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395412.jpg" />
 </div>
 
 
@@ -510,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_388120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388120.jpg" />
 </div>
 
 
@@ -537,7 +505,7 @@ Train Sim World 3 (2022) [Ru/Multi] (1.0.16/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_378551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378551.jpg" />
 </div>
 
 
@@ -563,7 +531,7 @@ Coast Guard (2015) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_376404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376404.jpg" />
 </div>
 
 
@@ -589,7 +557,7 @@ Professional Farmer: American Dream (2017) [Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375717.jpg" />
 </div>
 
 
@@ -615,7 +583,7 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_375360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375360.jpg" />
 </div>
 
 
@@ -641,7 +609,7 @@ Need to Know (2018) [En] (1.30.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371729.jpg" />
 </div>
 
 
@@ -667,7 +635,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Revenant
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_369411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369411.jpg" />
 </div>
 
 
@@ -678,6 +646,32 @@ Car Mechanic Simulator 2014 - это, как не трудно догадать�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60A93C799FE69F673E821346143B7BD2547160D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176574   (369313) от 22.10.2017
+
+Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.1.6.0/dlc) Repack R.G. Revenants
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Car Mechanic Simulator 2015 — продолжение популярного симулятора автомастерской Car Mechanic Simulator 2014! Новая часть порадует вас улучшенной графикой, увеличенным количеством машин, большим набором деталей и более разнообразными заданиями! Если вам понравилась предыдущая часть, то вам определенно стоит попробовать поиграть и в новую часть.Тип издания: RepackРазработчик: Red Dot GamesЖанр: Simulation, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7755F3CFA9A52A65AE2191103F550D1668B95A
 ```
 
 https://mybot314.ru/tekegram_catalog/

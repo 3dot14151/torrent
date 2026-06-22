@@ -6,7 +6,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Я — девочка-волшебница
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577515.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rinne no Lagrange: Flower declaration of your heart S2 / Сердца твоег
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576567.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575457.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Butlers: Chitose Momotose Monogatari | Butlers x Battlers | Дворецкие: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574409.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_574405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_574405.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fumikiri Jikan | Crossing Time | Ожидание на железнодорож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574089.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dorei-ku The Animation | Doreiku the Animation | Я и 23 раба [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573964.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ginga Tetsudou no Yoru / Night on the Galactic Railroad / Ночь на Гала
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572400.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka Gaiden: Sword Oratoria |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571819.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Guilty Crown / Корона греха [2011, TV, 22] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571367.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Rokuhoudou Yotsuiro Biyori | Чайная «Рокуходо» [2018, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570617.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Last Period: Owarinaki Rasen no Monogatari | Last Period: The Journey to the End
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570465.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sword Art Online Alternative: Gun Gale Online / Мастера меча онла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570443.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Piano no Mori (2018) | Рояль в лесу [ТВ] [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569088.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Hisone to Masotan | Dragon Pilot: Hisone and Masotan | Хисонэ и Масо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569072.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Atom: The Beginning / Атом: Начало [2017, TV, 12 из 12] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_559195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559195.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC / Мелодия воронё�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_558757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558757.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556120.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Nisekoi | Nisekoi: False Love | Притворная любовь | Любовь
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_556035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556035.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Nisekoi: | Притворная Любовь 2 [ТВ-2][2015, TV, 12 эп. + 2 O
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555921.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555918.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Selector Infected WIXOSS | Селектор: заражение WIXOSS [ТВ-1][
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555917.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Lostorage Conflated WIXOSS | Беспамятство: Объединение WI
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_555913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555913.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553038.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Hi no Tori 2772: Ai no CosmoZone / Phoenix 2772: Cosmo Song of Love / Жар-п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_553034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553034.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Pocket Monsters (Pokemon) XY / Карманные Монстры (Покемон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552567.jpg" />
 </div>
 
 

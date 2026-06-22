@@ -6,7 +6,7 @@ Tales from the Borderlands: Episode 1-2-3-4 v.1.0 (2015) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_509001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509001.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Winclone Pro 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508857.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Pillars of Eternity. The White March Part I v. 2.00.0706 (2015) [Multi/Ru] [OS X
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507828.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507810.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Parallels Desktop Business Edition 11.0.0 (31193 v2) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507730.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Elmedia Player Pro 6.0 (710) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506975.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Homeworld Remastered Collection (2015) [Multi/Ru] [OS X Native game] [AppStore]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506834.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Wondershare PDFelement 5.3.3 (978) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506007.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ DriveDx 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506000.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DxO Optics Pro Elite 10.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505952.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505948.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Alfred Powerpack 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505856.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ QuarkXPress 2015 v11.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505281.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ TextExpander 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505280.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505267.jpg" />
 </div>
 
 
@@ -402,6 +402,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375575   (505254) от 22.08.2011
+
+[Игра] (iOS) Sonic at the Olympic Winter Games (v. 1.0.6)
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_505254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и ожидалось, Sega выпустили в App Store игру Sonic at the Olympic Winter Games. Нам предлагают сыграть за Соника или одного из его друзей в четырех спортивных дисциплинах: скелетон, керлинг, фигурное катание и сноуборд-кросс. С таким ограниченным набором игру можно назвать урезанной Mario and Sonic at the Olympic Winter Games с Nintendo DS, в которой не только больше спортивных дисциплин, но и присутствуют персонажи игр Nintendo.
+Скелетон - гонка в ледяных желобах, цель геймплея - собирать кольца и проезжать по участкам, придающим дополнительное ускорение. Фигурное катание больше напоминает замедленную ритм-игру - нам необходимо тапать по экрану под музыку. Гонка на сноубордах довольно медленная и также не представляет из себя ничего особенного. Наконец, керлинг - командная игра где две стороны по 4 человека катают по льду "гирю", с целью остановить ее в центре отмеченного круга.2010 г.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933544   (505193) от 02.09.2015
 
 Левша / Southpaw (2015) WEB-DL [720p] ATV
@@ -410,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505193.jpg" />
 </div>
 
 
@@ -436,7 +463,7 @@ Carbon Copy Cloner 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505190.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ DaisyDisk 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504175.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ Artstudio Pro 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503824.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503819.jpg" />
 </div>
 
 
@@ -544,7 +571,7 @@ FontLab 8 v8.0.1.8228 beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503818.jpg" />
 </div>
 
 
@@ -571,7 +598,7 @@ Athentech Perfectly Clear Video for Mac 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503815.jpg" />
 </div>
 
 
@@ -598,7 +625,7 @@ OmniPlayer Pro - Media Player 2.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503814.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ EditReady 22.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503813.jpg" />
 </div>
 
 
@@ -653,7 +680,7 @@ RAR Extractor  - unzi‪p‬ 10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503729.jpg" />
 </div>
 
 
@@ -665,32 +692,6 @@ RAR Extractor может извлекать сжатые файлы во все�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E749FA682F6717CFB72D8529F8442E0CD8E7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563691   (503725) от 15.07.2022
-
-Infuse PRO 7 v7.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 12.07.2022Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30CE65FC42A80B42084A1FFB900B804BDBFE326
 ```
 
 https://mybot314.ru/tekegram_catalog/

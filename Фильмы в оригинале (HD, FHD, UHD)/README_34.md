@@ -1,3 +1,133 @@
+###  Публикация: 1238551   (546093) от 30.07.2018
+
+Мстители: Война бесконечности / Avengers: Infinity War (2018) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока Мстители и их союзники продолжают защищать мир от различных опасностей, с которыми не смог бы справиться один супергерой, новая угроза возникает из космоса: Танос. Межгалактический тиран преследует цель собрать все шесть Камней Бесконечности — артефакты невероятной силы, с помощью которых можно менять реальность по своему желанию. Всё, с чем Мстители сталкивались (   Читать дальше...   )Производство: США, Marvel StudiosЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Энтони Руссо, Джо РуссоАктеры: Роберт Дауни мл., Крис Хемсворт, Марк Руффало, Крис Эванс, Скарлетт Йоханссон, Дон Чидл, Бенедикт Камбербэтч, Том Холланд, Чедвик Боузман, Зои Салдана ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E42C3AFFA3401C1312A97789CC4D6FBAE992EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048742   (545593) от 03.09.2016
+
+Этажом ниже / The Ones Below  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545593.jpg" />
+</div>
+
+
+###  Подробнее
+
+У семейной пары Кейт и Джастина, ждущей желанного и уже любимого первого ребенка, появляются этажом ниже соседи, тоже в ожидании первенца. Беременная соседка теряет ребенка в результате несчастного случая, обвиняя в этом своих новых друзей сверху. А дальше в жизни у Кейт и Джастина начинают происходить странные вещи...Производство: ВеликобританияЖанр: триллерРежиссер: Дэвид ФаррАктеры: Клеманс Поэзи, Дэвид Моррисси, Стивен Кэмпбелл Мур, Лаура Бирн, Дебора Файндлей, Наташа Алдерслэйд, Лайла Ай, Фрэнсис Эшман, Алекс Эйвери, Грэйс Калдер, Туен До, Джонатан ХарденПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076E78C9B00D1DECF7FABC8DF0807102F118F99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048677   (545590) от 03.09.2016
+
+Флоренс Фостер Дженкинс / Florence Foster Jenkins  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545590.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Флоренс Фостер Дженкинс, девушки из богатой нью-йоркской семьи, которая мечтала стать оперной певицей, несмотря на то, что имела ужасный голос.Производство: ВеликобританияЖанр: драма, комедия, биографияРежиссер: Стивен ФрирзАктеры: Мэрил Стрип, Хью Грант, Саймон Хелберг, Ребекка Фергюсон, Нина Арианда, Стэнли Таунсенд, Аллан Кордунер, Кристиан МакКэй, Дэвид Хэйг, Джон Сешнс, Брид Бреннан, Джон КэвэнаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A58CA34506DC5DC6707B590DA40B500CC6B068D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049309   (544558) от 04.09.2016
+
+Такой же предатель, как и мы / Our Kind of Traitor  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая английская пара, отдыхая в Марокко, заводит знакомство с русским олигархом, отмывающим деньги для преступных группировок, чьи лидеры вот-вот спишут его со счетов. Чтобы спасти себя и семью, он предлагает разведке Великобритании море ценных сведений в обмен на защиту и покровительство. Его последняя отчаянная надежда - на «английских джентльменов», которые (   Читать дальше...   )Производство: Великобритания, ФранцияЖанр: триллерРежиссер: Сюзанна УайтАктеры: Карлос Акоста, Радивойе Буквич, Стеллан Скарсгард, Мария Фомина, Доля Гавански, Григорий Добрыгин, Велибор Топич, Павел Жайда, Юэн МакГрегор, Наоми Харрис, Алек Утгофф, Марек ОравекПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748F4CA4BC30AD296A885F11D07BE729699E7337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238810   (544337) от 01.08.2018
+
+Мстители: Война бесконечности / Avengers: Infinity War (2018) BDRemux [H.264/1080p] [EN / RU, EN Sub]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока Мстители и их союзники продолжают защищать мир от различных опасностей, с которыми не смог бы справиться один супергерой, новая угроза возникает из космоса: Танос. Межгалактический тиран преследует цель собрать все шесть Камней Бесконечности — артефакты невероятной силы, с помощью которых можно менять реальность по своему желанию. Всё, с чем Мстители сталкивались (   Читать дальше...   )Производство: США, Marvel StudiosЖанр: Боевик, Приключения, Фэнтези, ФантастикаРежиссер: Энтони Руссо, Джо РуссоАктеры: Роберт Дауни мл., Крис Хемсворт, Марк Руффало, Крис Эванс, Скарлетт Йоханссон, Дон Чидл, Бенедикт Камбербэтч, Том Холланд, Чедвик Боузман, Зои Салдана ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBD37E524BC6B97A1EE3551552E19AB521FA56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049562   (543384) от 05.09.2016
 
 Ярость 3 / Rampage: President Down  (2016) BDRip [H.264/1080p] [EN]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543384.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542723.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542527.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540648.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538580.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537881.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537533.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536989.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536758.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534872.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534754.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534371.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534276.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534273.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533577.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533403.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_532883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532883.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_531985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531985.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529662.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529545.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529538.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D22FA2651224D2AB385571B8B571B7C050D6C60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052110   (529145) от 13.09.2016
-
-Полтора шпиона / Central Intelligence  (2016) BDRip [H.264/720p][Unrated] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_529145.jpg" />
-</div>
-
-
-###  Подробнее
-
-От лайка в соцсети до спасения мира - один шаг. Сегодня ты френдишь бывшего одноклассника, а завтра - он тащит тебя под пули. Кто ж знал, что заядлый любитель пончиков превратится в похожего на скалу супершпиона.Производство: СШАЖанр: боевик, комедия, криминалРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Кевин Харт, Эми Райан, Даниэль Николет, Джейсон Бейтман, Аарон Пол, Райан Хансен, Тим Гриффин, Тимоти Джон Смит, Сион Келепи, Дилан Бойяк, Томас КречманПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанскийПродолжительность: 01:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7764498D73D9FF4AAA49552FF71B9D758CCF0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240338   (528605) от 11.08.2018
-
-Логово Монстра / Bad Samaritan  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое парней, работая парковщиками у элитного ресторана, успешно обчищают дома богатых посетителей, пока те наслаждаются изысканной кухней. Однажды один из подельников, вломившись в чужой особняк, кроме богатой добычи обнаруживает истерзанную пленницу, крепко связанную и скованную цепями. Пытаясь спасти девушку, он сам все глубже попадает в западню жестокого монстра.Производство: США / Electric EntertainmentЖанр: ужасы, триллерРежиссер: Дин ДевлинАктеры: Дэвид Теннант, Роберт Шиэн, Керри Кондон, Карлито Оливеро, Жаклин Байерс, Трэйси Хеггинс, Роб Нэгл, Лоррэйн Бар,  Дэвид Мейерс, Тони Дуп, Лиза БреннерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60CC9A977F5F7011B7C10069C41BB8E4A6CB848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240486   (528540) от 11.08.2018
-
-Сезон чудес / The Miracle Season  (2018) BDRemux [H.264/1080p] [EN, Fr / EN, Fr Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда юных волейболисток обескуражена гибелью своего звёздного капитана Каролины. Её лучшей подруге Кэлли нужно набраться мужества, чтобы занять место капитана и под руководством сурового, но любящего тренера пробиться на престижный чемпионат.Производство: США / LD Entertainment, Apex EntertainmentЖанр: драма, спортРежиссер: Шон МакНамараАктеры: Хелен Хант, Эрин Мориарти, Уильям Хёрт, Даника Ярош, Джейсон Грей-Стенфорд, Тиера Сковбай,  Неста Купер, Баркели Даффилд, Джиллиан ФергейПеревод: ОтсутствуетЯзык озвучки: Английский, французскийСубтитры: английские, французскиеПродолжительность: 01:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49978F22AC8D48D2980FB952C6BE607E27341B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240366   (528535) от 11.08.2018
-
-Опасное расследование (Шок и трепет) /  Shock and Awe (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528535.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о военной кампании США по вторжению в Ирак под предлогом обнаружения там оружия массового поражения. Операция, получившая неофициальное название «Шок и трепет», началась 20 марта 2003 года с целью свержения режима Саддама Хуссейна и растянулась на долгие 9 лет.Производство: США / Acacia Filmed Entertainment, Castle Rock Entertainment, Savvy Media HoldingsЖанр: триллер, драма, биография, историяРежиссер: Роб РайнерАктеры: Вуди Харрельсон, Джеймс Марсден, Роб Райнер, Томми Ли Джонс, Джессика Бил, Милла Йовович, Ричард Шифф,  Терренс Розмор, Марго Мурер, Майкл Хардинг, Кейт БатлерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF48A5D05F555E5C8C042CB5244D6AF74A7127F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240333   (528527) от 11.08.2018
-
-Небоскреб / Skyscraper (2018) WEBRip [H.264/720p-LQ] [EN / KOR Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_528527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый высокий и технологичный небоскрёб в мире становится центром огненной катастрофы. Только бывший агент ФБР, а теперь эксперт по безопасности Уилл Сойер может спасти вертикальный город под небесами. Когда нельзя доверять никому, а жизнь семьи в опасности, каждая секунда на счету.Производство: США, Legendary Entertainment, Flynn Picture Company, Seven Bucks ProductionsЖанр: Боевик, ТриллерРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Нив Кэмпбелл, Чин Хань, Роланд Мюллер, Ноа Тейлор, Байрон Манн, Пабло Шрайбер, МакКенна Робертс, Ной Коттрелл, Ханна Куинливан ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейские (вшитые, не отключаемые)Продолжительность: 01:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAE13953F56497D8A815598DBE220A4D945C62A
 ```
 
 https://mybot314.ru/tekegram_catalog/

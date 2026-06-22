@@ -1,3 +1,56 @@
+###  Публикация: 1598541   (162536) от 19.12.2022
+
+А.И. Васильев | Грузоподъемность и долговечность мостовых сооружений (2021) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлена методология оценки грузоподъёмности и долговечности автодорожных и городских мостов на основе системного подхода и положений теории надёжности. Приводятся характеристики функциональных потребительских свойств мостовых сооружений. Подробно описаны методы оценки проектного и фактического значений грузоподъёмности. Изложен состав натурных исследований, (   Читать дальше...   )Жанр: МостостроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4728CC84D3EBEBC1697D85FF5DD55DDFEBB7C3B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674285   (162246) от 04.11.2023
+
+Г. Аттура | Магнитные усилители (1963) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162246.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в доступной форме изложены основы теории современных магнитных усилителей. Внимание главным образом уделено двум основным типам магнитных усилителей - дросселю насыщения и усилителю с самонасыщением. Рассмотрены одно- и двухполупериодные, одно- и двухтактные магнитные усилители, а также комбинированные магнитно-полупроводниковые усилители.
+Излагаются преимущественно (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ГосэнергоиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F856DD1F07A79754A0A6507C08F7B675B28AC055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674295   (162215) от 04.11.2023
 
 Г.Ф. Сторм | Магнитные усилители (1957) [PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162215.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161356.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161339.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161336.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161285.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161127.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161019.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160969.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160842.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160807.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160606.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160602.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160554.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160527.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160382.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159728.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ Windell Oskay, Eric Schlaepfer / Уинделл Оскей, Эрик Шлепф�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158853.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158236.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_158105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158105.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156898.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155203.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152805.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150418.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150290.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DEC30EA6712740FA6E89CBFEAC88CEA897B6AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086728   (149749) от 25.12.2016
-
-Л.П. Зарубина | Гидроизоляция конструкций, зданий и сооружений (2011) [RTF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обобщена и систематизирована информация по производств) гидроизоляционных работ. Рассмотрены первичная и вторичная (обмазочная, оклеенная, проникающая, штукатурная, отсечная противокапиллярная, мембранного типа и др.) гидроизоляции. Наведена классификация гидроизоляционных материалов, облаем, их применения, технология гидроизоляции, сведения о механизмах и оборудовании (   Читать дальше...   )Жанр: СтроительствоФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE7E764A6FFDFF28503264D72524342AE7558AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347817   (147135) от 25.12.2019
-
-В.Н. Тищенко | Паровозы железных дорог России (1837-1890) (в 2-х частях) (2008) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_147135.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приводится подробное исследование начального периода истории железных дорог России и его главного действующего лица - паровоза - в наименее изученный период возникновения, становления и развития этого вида транспорта. Автор собрал и систематизировал сведения, статистические данные по постройке, эксплуатации, нумерации паровозов российских железных дорог, (   Читать дальше...   )Жанр: история техникиФормат: DJVU, 600 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3705B60DE70D74F209126F5FAD473B08D8BDAD57
 ```
 
 https://mybot314.ru/tekegram_catalog/

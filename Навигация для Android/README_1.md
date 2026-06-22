@@ -6,7 +6,7 @@ GPS АнтиРадар v51.0 Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91169.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91168.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ GPS Locker Prime v2.4.9 Mod by Dymonyxx [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69716.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gaia GPS (Topo Maps) v2025.5 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65256.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ OsmAnd - озвучка альтернативными голосами TTS [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_63012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63012.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ All-In-One Offline Maps v3.15 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61579.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gaia GPS (Topo Maps) v2024.4 b7878 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58053.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Gaia GPS (Topo Maps) v2024.4 b7881 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57599.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.17 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56574.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Navier HUD 3.4.22 Lite-Mod by NURIK [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55448.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Navier HUD 3.4.22 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55433.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Navier HUD 3.4.22 Mod by youarefinished [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55429.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8.1 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_50767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50767.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.8.6 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47184.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33481.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_28258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28258.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ MAPS.ME: Offline maps GPS Nav v16.3.71801 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27465.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Circuit - Планировщик маршрутов v3.42.1 Mod by Balatan [Ru/M
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24487.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15258.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ GPS Data Premium / GPS данные Glonass координаты v2.9.00 Mod by 
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14875.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ GPS АнтиРадар v49.0 Mod by СМАРТОС [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14561.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14559.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Guru Maps Pro & GPS Tracker v5.8.0 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11768.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Ozi Explorer for Android OS v1.38m [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8674.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Strava: бег, велоезда, хайкинг v424.13 Mod by PieMods [Ru/Mult
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7255.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ OsmAnd+  Карты & GPS Офлайн v5.1.9 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6824.jpg" />
 </div>
 
 

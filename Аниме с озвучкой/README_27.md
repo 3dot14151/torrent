@@ -1,3 +1,83 @@
+###  Публикация: 1632125   (617303) от 09.05.2023
+
+Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в Зазеркалье [2022, Movie] WEBRip HEVC 10-bit 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь прогуливающих школу подростков одновременно обнаруживают, что в их спальнях стали странно сиять зеркала. Прикоснувшись к стеклу, они переносятся в чудесный замок, где их встречает загадочная девушка, представившаяся Королевой-волчицей. Замок в Зазеркалье становится для ребят убежищем от нелюбимой школы, куда они сбегают...
+
+© FumodubПроизводство: Япония, студия A1Жанр: драма, фэнтези, детективРежиссер: Хара КэйитиЯзык озвучки: Русский (Fumodub)Субтитры: ОтсутствуютПродолжительность: 1 серия по 116 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32049428A2CFB596EDE18124BA953C8195DDA3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134697   (615874) от 28.06.2017
+
+Renai Boukun / Love Tyrant / Любовь тирана [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы задумывались, почему мы влюбляемся именно в какого-то конкретного человека? Ответ есть! Среди нас ходят купидоны, которые записывают в свою тетрадь поцелуев имена, создавая из них пары. Новоиспечённые влюблённые, указанные в этой тетради, поцелуются в течение 24 часов, а потом обязательно поженятся. Но что будет, если тетрадь поцелуев попадёт в безответственные (   Читать дальше...   )Жанр: комедияРежиссер: Нигорикава АцусиПеревод: MedusaSubЯзык озвучки: Японский и РусскийСубтитры: ASS, Встроенные, Полные | Надписи «AOS Team»Формат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F38E3DC0A5764D970583060EAA8082998542F1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296135   (614703) от 15.04.2019
+
+Kakegurui XX | Безумный азарт XX [2019, TV, 12] HDTV 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частная академия Хяккао. Престижное учебное заведение для привилегированных особ с необычной программой обучения. Ведь детям из престижных семей ни к чему корпеть над книгами или завоёвывать первые места на спортивных соревнованиях. Им надо уметь понимать, что творится в голове у оппонента, научиться искусству заключения сделки. Разве для этих целей есть что-то лучшее (   Читать дальше...   )Производство: Япония, MAPPAЖанр: драмаРежиссер: Хаяси ЮйтироСубтитры: Полные, отключаемые (Вшитые) | RusПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35501CEB6515899550BB274624FD5C14922C23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129196   (614123) от 29.06.2017
 
 ID-0 / Идентификатор - ноль [2017, TV, 12] WEBRip 720p rus
@@ -6,7 +86,7 @@ ID-0 / Идентификатор - ноль [2017, TV, 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614123.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Beatless / Мёртвый ритм [2018, TV, 20 ep + 4 sp] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605992.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ Ookami to Koushinryou | Spice and Wolf | Волчица и пряности [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604192.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603739.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ Tsuki ga Kirei / Какая красивая луна! [2017, TV, 12 ep] HDTV 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603247.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. +1 OVA] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603025.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601819.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601784.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601519.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ Gegege no Kitarou (2018) | Китаро из леса Гегеге [ТВ-6] [201
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599589.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ Grancrest Senki / Record of Grancrest War / Легенда о Гранкрест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597601.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ Cowboy Bebop: Tengoku no Tobira / Ковбой Бибоп: Достучатьс�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597362.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_597196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597196.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ Mobile Police Patlabor: The Movie / Полиция Будущего (фильм 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597191.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ Pokemon: Black and White. Rival Destinies / Покемон: Чёрное и Бе
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596748.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ Ryuu no Haisha | The Dragon Dentist | Драконий зубной [2017, Speci
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595686.jpg" />
 </div>
 
 
@@ -427,7 +507,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593034.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592677.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591992.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ Grisaia no Rakuen / The Eden of Grisaia / Эдем в серых тонах [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591285.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ Fantastic Children / Фантастические дети [2004, TV, 26] DVDrip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_591251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591251.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ Trinity Blood / Кровь Триединства [2005, TV, 24 серии] BDri
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_587841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_587841.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 720p Hi10p raw
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_587495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587495.jpg" />
 </div>
 
 
@@ -597,85 +677,6 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 720p Hi10p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7144063B7885FA9BCB5998A816D9BE590CF9D067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300997   (586889) от 09.05.2019
-
-Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служанка слишком назойлива! [ТВ-1] [2018, TV, 12 из 12 эп. + OVA] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цубаме Камои — бывшая сержант воздушных сил самообороны Японии, которая очень любит маленьких девочек. Находясь в поисках работы своей мечты (подразумевающей близость к юному девичьему телу), она случайно оказывается на пороге дома семьи Таканащи, где обитают маленькая и наполовину русская девочка Миша, рано потерявшая мать, и её отец-японец. Дому срочно требуется (   Читать дальше...   )Производство: студия Dogakobo / 動画工房Жанр: комедия, пародияРежиссер: Ота МасахикоПеревод: Язык озвучки: Профессиональный (многоголосый, закадровый) | (AniDub)Язык субтитров: Русский, English,Продолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD4C7CDE270B7D2AD3158D08AC9F72BC1052371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301096   (585914) от 10.05.2019
-
-Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней партой [2012, TV, 13 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585914.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летняя Сидзуку Мидзутани любит учиться и думать о своем будущем. Больше ей ничего не нужно, потому девушка и в старшей школе выстраивает образ «ботанички», в общении с остальными ограничиваясь простой вежливостью. Только, как на грех, учительница попросила героиню отнести конспекты загадочному парню Хару Ёсиде, который должен сидеть с Мидзутани рядом, но до сих (   Читать дальше...   )Производство: Япония,Жанр: комедия, романтика, повседневностьРежиссер: Кабураги ХироПеревод: русские субтитры (только надписи, полные)Язык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A257B724CC6B479EC2B3A94E5F04B7D5E6F9203C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301318   (584898) от 11.05.2019
-
-Samurai Seven | Семь Самураев | 7 самураев [2004, TV, 26] HDRip 400p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_584898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отдалённое будущее, похожая на Землю планета. Разбойники обложили деревеньку непосильным оброком. Оказавшись на грани голодной смерти, жители снаряжают небольшой отряд и отправляют его на поиски самураев, которые могли бы противостоять разбойникам и защитить деревню.Производство: Япония, студия GONZOЖанр: Приключения, Фантастика, Меха, ДрамаРежиссер: Такидзава ТосифумиЯзык озвучки: Русский (Профессиональный Дублированный (СВ-Дубль) | Телеканал FAN)Субтитры: ОтсутствуютПродолжительность: 26 эп. по 26 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07671295BED85DEAEFDF797F83B7C68D20C489C
 ```
 
 https://mybot314.ru/tekegram_catalog/

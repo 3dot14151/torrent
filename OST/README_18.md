@@ -1,3 +1,152 @@
+###  Публикация: 1068728   (377887) от 02.11.2016
+
+Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selections from the HBO® Series) - EP (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title Theme – Westworld (01:43)
+02. Black Hole Sun (02:29)
+03. Paint It, Black (05:45)
+04. No Surprises (04:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CBE165FBA5E37CC229DDD753489E87F63E3F222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573421   (377656) от 11.11.2012
+
+Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012)OST [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passion Pit / Where I Come From
+02. Ellie Goulding / Bittersweet
+03. Green Day / The Forgotten
+04. Feist / Fire In The Water
+05. The Boom Circuits / Everything And Nothing
+06. St. Vincent / The Antidote
+07. Pop Etc / Speak Up
+08. Iko / Heart Of Stone
+09. A Boy And His Kite / Cover Your Tracks
+10. James Vincent Mcmorrow / Ghosts(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0588CF84957C407C70AD20538C87181672A2571E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175524   (376456) от 19.10.2017
+
+Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Gate [02:07]
+02. A Wolf In Unix [01:17]
+03. The Scenic Route [01:50]
+04. First Day On the Job [01:17](   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756AF940DCCA31F94F3D32904F8AF583AA034F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415397   (376341) от 12.10.2020
+
+Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574330   (375454) от 12.11.2012
+
+Howard Drossin & RZA - Человек с железными кулаками (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Keys / RZA - The Baddest Man Alive
+  02. Ghostface Killah / M.O.P. / Pharoahe Monch - Black Out
+  03. Kanye West - White Dress
+  04. The Revelations feat. Tre Williams - I Forgot To Be Your Lover
+  05. Idle WarshipЖанр: SoundtrackПродолжительность: 04:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069434   (373682) от 04.11.2016
 
 James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +155,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_373682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373682.jpg" />
 </div>
 
 
@@ -35,7 +184,7 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371566.jpg" />
 </div>
 
 
@@ -61,7 +210,7 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_370985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370985.jpg" />
 </div>
 
 
@@ -90,7 +239,7 @@ VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_368682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368682.jpg" />
 </div>
 
 
@@ -119,7 +268,7 @@ L'One - 1985 (2017) Из т/с «Чернобыль 2. Зона отчужден
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_364908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364908.jpg" />
 </div>
 
 
@@ -148,7 +297,7 @@ Ennio Morricone - So Sweet,So Sensual Erotica Morricone (2004) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_363215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363215.jpg" />
 </div>
 
 
@@ -183,7 +332,7 @@ Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359347.jpg" />
 </div>
 
 
@@ -212,7 +361,7 @@ Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357789.jpg" />
 </div>
 
 
@@ -247,7 +396,7 @@ VA - Все песни из любимых кинофильмов (2006) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_357114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_357114.jpg" />
 </div>
 
 
@@ -273,7 +422,7 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356732.jpg" />
 </div>
 
 
@@ -302,7 +451,7 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356642.jpg" />
 </div>
 
 
@@ -331,7 +480,7 @@ Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356641.jpg" />
 </div>
 
 
@@ -360,7 +509,7 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356638.jpg" />
 </div>
 
 
@@ -389,7 +538,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356632.jpg" />
 </div>
 
 
@@ -418,7 +567,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355959.jpg" />
 </div>
 
 
@@ -447,7 +596,7 @@ Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355940.jpg" />
 </div>
 
 
@@ -476,7 +625,7 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_355501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355501.jpg" />
 </div>
 
 
@@ -505,7 +654,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352004.jpg" />
 </div>
 
 
@@ -534,7 +683,7 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352003.jpg" />
 </div>
 
 
@@ -563,7 +712,7 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351715.jpg" />
 </div>
 
 
@@ -592,7 +741,7 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349149.jpg" />
 </div>
 
 
@@ -606,151 +755,6 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0C90F25601EE19674BFBA72017A6FE748CD1BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 155554   (349107) от 29.11.2009
-
-Максим Дунаевский - Д'Артаньян и три мушкетёра (2002) [MP3|320 Kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_349107.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песня о Гасконии (Бургундия, Нормандия)
-2. Марш гвардейцев кардинала
-3. Куплеты Миледи (Песня Рошфора и Миледи)
-4. Баллада де Тревиля (Кровопролитие)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058943   (348804) от 24.10.2020
-
-Fernando Velazquez - A Monster Call / Голос монстра (2016) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tear Up This Town (Keane)
-02. Conor Wakes Up / Main Title
-03. Drawing
-04. The Monster Wakes Up(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23AA3D45AA5185F7912AD98490C8713A11D85C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073045   (347394) от 15.11.2016
-
-Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Soundtrack from the Netflix Original Series) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crown Main Title (01:24)
-02. Duck Shoot (04:07)
-03. Sagana (04:32)
-04. Government (04:07)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0CB3F8BC99C50ACD27AC90A91B1C3D457ADFC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179212   (346575) от 01.11.2017
-
-Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные дела 2 (A Netflix Original Series Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn On the Lights (01:44)
-02. Sick of Cow (04:03)
-03. Power Maintenance (01:31)
-04. Roars From the Lab (02:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EB9CC09C2071991A6AF0ABF16EC259C9F3B2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330007   (345612) от 08.10.2019
-
-Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Soundtrack) (2004) [MP3|320 Kbps] <Classical, Baroque>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отношения между Людовиком XIV, Люлли и Мольером, лежащие в основе фильма "Король танцует", несомненно, уникальны в истории искусств. Если летописцы, историки и романисты много вышивали вокруг этой встречи, то факты еще интереснее, чем легенда. Ибо речь идет не только о встрече мецената, музыканта и драматурга. Благожелательная случайность сделала все лучше, (   Читать дальше...   )01. Te Deum Motet a deux choeurs (02:16)
-02. La Bocanne primitive (01:43)
-03. La Bocanne compliquee (01:06)
-      .....Опера Фаэтон(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

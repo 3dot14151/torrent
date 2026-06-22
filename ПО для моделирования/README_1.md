@@ -1,3 +1,55 @@
+###  Публикация: 1439207   (1039999) от 12.01.2021
+
+Ornatrix v2 2.0.10.26200 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Ephere выпустила новую версию своего плагина Ornatrix для создания волос, меха и перьев, что позволяет генерировать волосы из частиц. Софт можно использовать для моделирования, анимации и визуализации волос, меха, перьев и даже растительности. Он разработан, чтобы обеспечить интуитивный художественный контроль над волосами, используя при этом неразрушающий (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F745842E645EA7EA76A43D04426F2A2B5D5603D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439202   (1039995) от 12.01.2021
+
+TurbulenceFD v1.0 build 1465 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин для создания огня и дыма в Cinema 4D. Реалистичная симуляция дыма в анимированных сценах. TurbulenceFD делает качественное моделирование огня, дыма, пыли и других газообразных явлений доступных непосредственно в CINEMA 4D. TurbulenceFD исключительно проста в использовании.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C227C4AFDF9D0D73E7D65496EA5E454FFEF14353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440646   (1038421) от 18.01.2021
 
 Transform v1.231S for Cinema 4D [En]
@@ -6,7 +58,7 @@ Transform v1.231S for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038421.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Reallusion Cartoon Animator 4.41.2431.1 RePack by PooShock [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037046.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Realbook v3.1 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1035650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035650.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ HB MODELLINGBUNDLE v2.31 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034321.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Solid Angle To Arnold 3.3.0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033366.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ U-RENDER 2021.1.3 for Cinema 4D [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032843.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Nitro4D QuickRender v1.02 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025052.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Terraform4D v1.1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024825.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ MagicaVoxel 0.99.6.3 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022383.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ PolyDesign3D - PolySnow Plus 1.01 for 3ds Max 2016-2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018354.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ PolyDesign3D - PolyCloth 2.02 for 3ds Max 2016-2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018347.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Aspire 10.514 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1018324.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Multiscatter 1.618 for 3ds Max 2014-2021 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017989.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ ArchvizTools - Kitchen Cabinet Generator 4.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013142.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010883.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010722.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ ArchvizTools - Picture Frame Generator 1.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008943.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ ArchvizTools - Sliding & Stacking Door Generator 2.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008927.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ RayFire 1.84 for 3ds max 2020 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001517.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ MakeHuman 1.0.2 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982631.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Aviz Studio ATiles Pro 2.62 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963948.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Planetside Terragen 3.3.03.0 Pro Plus Animation [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_958098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958098.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ V-RayMtl Converter 3 3.97 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_945058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945058.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Quick Stitch v1.0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888131.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ Quick Stitch это бесплатный плагин для Cinema4D при п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A15DA9C4A0BDC8983F2C52054EBDB892A9E2F26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495085   (884202) от 10.09.2021
-
-Soulburn scripts pack v.112 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulburn scripts pack - это сборник полезных скриптов для моделирования для 3ds Max.
-Это финальный пакет скриптов, автор отказался от дальнейшей разработки ввиду лицензионной политики AutoDesk.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEB1322713B06F6166919A12154B6786D80E1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495066   (883731) от 10.09.2021
-
-V-ray 5.10.22 Cinema 4D R20-R24 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883731.jpg" />
-</div>
-
-
-###  Подробнее
-
-V-Ray для Cinema 4D предоставляет стандарт в отрасли технологии фотореалистичного 3D-рендеринга в руках художников и дизайнеров Cinema 4D. Благодаря интеллектуальным инструментам и мощным возможностям рендеринга сочетание скорости и творческого контроля V-Ray идеально подходит для любого проекта. Единственный на сегодняшний день визуализатор способный рендерить GPU (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C634196FEAA02861E5DB1B68AE9BE9D27A19CAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

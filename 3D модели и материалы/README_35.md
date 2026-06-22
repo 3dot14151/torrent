@@ -1,3 +1,55 @@
+###  Публикация: 1781432   (26699) от 23.02.2025
+
+3D модели - KitBash3D - Victorian [BLEND, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте районы североамериканского содружества 18-го века или богато украшенные европейские башни современного Лондона, Вашингтона, округ Колумбия, или Мельбурна. Используйте эти знаковые памятники для создания исторических достопримечательностей, общественные здания для изображения величественных офисов или городские кварталы для формирования городских площадей. (   Читать дальше...   )Формат: BLEND, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED655FC4696E1FFAC9BFA3BC700291903EC682DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781646   (26580) от 24.02.2025
+
+3D модели - KitBash3D - World War 2 [BLEND, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте яркие военные сценарии с этим надежным набором Второй мировой войны. От разрушенных жилых зданий и снайперских вышек до лагерей, нагруженных оружием, и укреплений из мешков с песком — каждая деталь была продумана. Добавьте глубины своим творениям с помощью контрольно-пропускных пунктов, укрытий и знакового оружия. Привнесите хаос и разрушение мира в состоянии (   Читать дальше...   )Формат: BLEND, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF763FB0F6E8ED46AED0DD6718363FA810E1622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781860   (26506) от 25.02.2025
 
 3D модели - KitBash3D - Neighborhood Shops [FBX]
@@ -6,7 +58,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26506.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25866.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25686.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25450.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25163.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25109.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24804.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24580.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24561.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24363.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24269.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24263.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21768.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17198.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16243.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16094.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16090.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_16089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16089.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15778.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15686.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15078.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14771.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12846.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11227.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AEC3595BC7ADC8387FC71EAA9316237462D821B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807588   (10971) от 19.07.2025
-
-3D модели - 2209 | Gardening 01 [BLEND, FBX, C4D, OBJ, MAX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10971.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-модельи от известной студии.Формат: BLEND, FBX, C4D, OBJ, MAX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B4E70A00FEB27490578130985AF44DA4185C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808156   (10693) от 22.07.2025
-
-3D модели и материалы - ArtStation - Blender 3D Projects Collection by Rui Huang [BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция sci-fi анимаций от Rui Huang.Формат: BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBFEF07D6CE4746BE65BC85F982F650C4076D71
 ```
 
 https://mybot314.ru/tekegram_catalog/

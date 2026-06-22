@@ -1,3 +1,57 @@
+###  Публикация: 1622116   (239560) от 27.03.2023
+
+Money Pro - Personal Finance 2.8.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.03.2023Разработчик: © 2015-2019 iBear LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E9B4A764748DC90B72186E32944FCA1F57E53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572955   (239555) от 29.08.2022
+
+Downcast 2.11.13 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downcast - популярное приложение подкаста iOS теперь доступно для OS X. Загрузка, проигрывание и синхронизация. Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
+Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.08.2022Разработчик: © 2012-2022 Jamawkinaw Enterprises LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1506A07BA220AF7AE90E92F7752ED59802407292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423469   (239553) от 13.11.2020
 
 EazyDraw 10.1.1 [Multi]
@@ -6,7 +60,7 @@ EazyDraw 10.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239553.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Infuse PRO 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239548.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ GraphicConverter 11 v.11.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239546.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ SideNotes 1.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239545.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ DMG Canvas 3.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239537.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ SiteSucker 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239535.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ AI Transcription 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239530.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ Mp3tag 1.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239528.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ PrefEdit 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239526.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ Dropzone 4 Pro v.4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239515.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ DB-Text 1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239511.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Yoink 3.6.83 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239509.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ RAW Power 3.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239503.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ Storyist 4 v4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239498.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ Magic Sort List 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239494.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ GlanceCal 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239487.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ SwitchGlass 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239484.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ HitPaw Watermark Remover 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239481.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ ImageRanger Pro Edition 1.8.2.1754 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239480.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ Vellum 3.3.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239479.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ Acorn 6 v6.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239477.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ Serial 2 v2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239460.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ Data Guardian 6 v.6.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239457.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ Scrutiny 12 v.12.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239448.jpg" />
 </div>
 
 
@@ -629,62 +683,6 @@ Scrutiny проверит ваши изображения, ваши внутре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:991A79EA71CF4AA7D04B1CB90D9CD66BFC9AD07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423663   (239447) от 13.11.2020
-
-Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1887 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07FF1D0E88FDEF0FF1E5C23D5B4CC814A75CF24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423909   (239441) от 14.11.2020
-
-Receipts 1.9.10b5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_239441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент управления счетами, который может определять сумму, записанную в каждом счете-фактуре, и автоматически упорядочивать записи по поставщику или категории
-
-Receipts призван помочь вам эффективно управлять и упорядочивать входящие счета: вы импортируете документы, и утилита попытается автоматически определить сумму, преобразовать ее в ссылочную валюту и отсортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Dirk HoltwickПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE198F86D87998CA303C75DB50FB8CACE0A5880
 ```
 
 https://mybot314.ru/tekegram_catalog/

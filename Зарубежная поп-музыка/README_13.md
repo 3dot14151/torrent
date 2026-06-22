@@ -6,7 +6,7 @@ VA - Classic 80's Pop (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840968.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840123.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Graham Gouldman - Animalympics (1980) LP [MP3|320 Kbps] <Electronic, Pop-Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840098.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - 12 Inch Dance: 80s Pop (2016) 3CD [MP3|320 кб/с] <Indie Pop, New Wave, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839986.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - JP Music Project Prasentiert Die Besten Discofox Hits (2017) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838549.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837740.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eddy Grant - Walking On Sunshine (1978) LP [MP3|320 Kbps] <Electronic, Reggae, F
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837697.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sarah Brightman - 5 Disco Singles & EPs (1978-1983) [MP3|320 кб/с] <Pop, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836772.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - DMC Producer Mixes Paul Dakeyne Volume 1 (2021) [MP3|320 Kbps] <House, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836571.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Full Tilt Remix Vol. 99 (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836568.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - DJ Beats Chart 94 (2021) [MP3|320 Kbps] <Pop, Dance, Dubstep, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835205.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Lisa Nemzo - Out of Desire (серия "Другие восьмидесятые"
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835186.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Serious Beats 97 (2021) [MP3|320 Kbps] <Dance-pop, Techno, Disco, Progressi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_835122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835122.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ M83 - Junk (2016) [MP3|320 кб/с] <Indie-Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_834263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834263.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Alex - Handle With Care (1977) LP [MP3|320 Kbps] <Pop Rock, Funk, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833749.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Steve McManus - First Kiss (2017) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_833611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833611.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ DJ Mash Up - Summer Vibes: Chill-Out and Dance Hits (2016) [MP3|320 кб/с] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_832634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832634.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Rockets - The Reissue Collection (1976 - 2021) [MP3|320 Kbps] <Electronic, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831557.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Hazmat Modine - Extra-Deluxe-Supreme (2015) [MP3|320 Kbps] <SKA, Fusion, World>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828152.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Zara Larsson - So Good (2017) [MP3|320 Kbps] <Pop, R'n'B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828059.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ The Chantoozies - Chantoozies (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_828058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828058.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Rockefeller - Song Of An Island (1981) LP [MP3|320 Kbps] <Europop, Pop Rock, Sch
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826646.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Stevie B. - City Jungle (1980) LP [MP3|320 Kbps] <Funk-Soul, Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_826643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826643.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Retro Disco Koktel (2006) Compilation, Partially Mixed [MP3|255~303 кб/с
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_825184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825184.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Fenati At Piano With The Munich Machine - Disco Symphony (1977) LP [MP3|320 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824751.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - 12 Inch Dance: 80s Remix (2017) [MP3|320 Kbps] <Pop, Synthpop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_824450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824450.jpg" />
 </div>
 
 

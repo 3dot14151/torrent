@@ -1,3 +1,135 @@
+###  Публикация: 973644   (979050) от 09.01.2016
+
+Раскаяние / Apparition (2015) HDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979050.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как невеста Дуга Лори погибла в автокатастрофе, молодой человек уезжает в одинокую ферму в глуши, чтобы оправиться от утери. С Дугом начинают происходить сверхъестественные вещи, помогающие ему раскрыть тайну, которую Лори унесла с собой в могилу...Производство: США / Futurist Ape Productions, Thunder Smoke MediaЖанр: Ужасы, Фэнтези, ТриллерРежиссер: Куинн СаундерсАктеры: Катрина Ло, Джоди Квигли, Лили Бордан, Джаретт Армстронг, Ребека Чадхури, Пит Постильоне, Меган Роуз ВидерПеревод: Авторский (одноголосый, закадровый) Андрей ДольскийЯзык субтитров: ОтсутствуютПродолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5843E8E7989BA13E1C52F9EDE1C38B8A8A8A444A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973585   (979047) от 09.01.2016
+
+Настройщик / L'accordeur (2010) SATRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адриан — молодой одаренный пианист. Он переживает психологическую травму после провала на конкурсе Бернштайна и решает стать настройщиком фортепиано. Вскоре Адриану приходит мысль притворяться слепым: теперь он может проникать в личное пространство своих клиентов. Эта тайна позволяет ему вновь почувствовать вкус к музыке. Адриан видит вещи, которые не должен видеть, (   Читать дальше...   )Производство: ФранцияЖанр: Короткометражка, триллер, драмаРежиссер: Оливье ТрейньеАктеры: Грегуар Лепренс-Ренге, Даниель Лебрюн, Грегори Гадебуа, Эмелин ГеПеревод: Профессиональный двухголосый (Позитив)Субтитры: ОтсутствуютПродолжительность: 00:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FC0D4E1A1FF54D28C38A574C0E67F6A5CAE691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973820   (978944) от 09.01.2016
+
+А вот и она / And So It Goes (2014) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь закоренелого эгоиста в одночасье меняется, когда он вдруг знакомится со своей внучкой, о существовании которой даже не подозревал.Производство: СШАЖанр: Комедия, драма, мелодрамаРежиссер: Роб РайнерАктеры: Майкл Дуглас, Дайан Китон, Стерлинг Джеринс, Энни Парисс, Остин Лайзи, Майкл Терра, Симпкинс Сойер, Максвелл Симкинс, Морис Джонс, Йайа ДаКостаПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C6E72DB4BC44970EBB227C3F66CDED4706C0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973760   (978935) от 09.01.2016
+
+Раскаяние / Apparition (2015) HDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978935.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как невеста Дуга погибла в результате автокатастрофы, он отправляется жить в одинокую ферму, расположенную в глуши, чтобы оправиться от потери. С героем начинают твориться сверхъестественные вещи, которые помогают ему раскрыть тайну, которую его возлюбленная унесла с собой в могилу.Производство: США, Futurist Ape Productions, Thunder Smoke MediaЖанр: Ужасы, Фэнтези, ТриллерРежиссер: Куинн СаундерсАктеры: Катрина Ло, Джоди Квигли, Лили Бордан, Джаретт Армстронг, Ребека Чадхури, Airen DeLaMater, Дэйв Дрокслер, Joseph Forsstrom, Пит Постильоне, Меган Роуз ВидерПеревод: Одноголосый закадровый авторский (А. Дольский)Продолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA90D605949B86A266E75AE07957CD9F108E3B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437235   (978848) от 16.01.2012
+
+Заговор проказниц / Strike! / The Hairy Bird / All I Wanna Do (1998) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поначалу Оди Синклер школа для девушек, где она должна была учиться, показалась настоящей тюрьмой. Но, познакомившись с новыми подружками Вереной и Тинкой, она обнаруживает, что и здесь можно повеселиться, если нарушить правила.
+
+А в один прекрасный день всех облетела сенсационная весть о грядущем слиянии их школы с школой для мальчиков. И хотя молодые леди уже вовсю (   Читать дальше...   )Жанр: КомедияРежиссер: Сара КерночанАктеры: Кирстен Данст, Габи Хоффман, Линн Редгрейв, Рейчел Ли Кук, Том Гири, Винсент Картейзер, Моника Кина, Мэттью Лоуренс, Хитер Матараццо, Меррит Уэвер и др.Перевод: Одноголосый закадровыйПродолжительность: 01:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0DFC840D4838EEFA4C707C10921BCF83DCE1F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973888   (978829) от 09.01.2016
 
 Тайный игрок / Shadow Dancer (2012) HDRip
@@ -6,7 +138,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978829.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978822.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978821.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978818.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978817.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978806.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978778.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978743.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978740.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978656.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978646.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978640.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978639.jpg" />
 </div>
 
 
@@ -348,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978636.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978629.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978525.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978467.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978430.jpg" />
 </div>
 
 
@@ -480,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978420.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978416.jpg" />
 </div>
 
 
@@ -532,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978408.jpg" />
 </div>
 
 
@@ -543,136 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20B05EAB722930E4F881B27A45B1B48103943D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615146   (978342) от 07.02.2013
-
-Потерпевший / Wrecked (2010) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой очнулся в разбитом автомобиле, посреди каких-то джунглей. Машина разбита, у него сломана нога, вокруг несколько трупов, а в бардачке револьвер. Он ничего не помнит — как он здесь оказался и даже как его зовут. Вокруг глухой лес и никого нет. Сначала надо как-то выжить, а потом попытаться добраться до людей. А по пути еще и вспомнить что же произошло. А поскольку в багажнике еще и сумка полная денег, то еще спастись от людей, которые будут пытаться убить.Жанр: Триллер, Драма, Детектив, ПриключенияРежиссер: Майкл ГринспенАктеры: Эдриан Броуди, Каролин Давернас, Райан Роббинс, Адриан Холмс, Джейкоб Блэр, Марк МакКончиПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016387C906589A6AAAFB9379404574730D771797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615163   (978300) от 07.02.2013
-
-Толстяк на ринге / Here Comes the Boom (2012) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учитель биологии в средней школе подрабатывает бойцом в смешанных боевых искусствах, пытаясь собрать деньги, чтобы сохранить школьную музыкальную программу.Производство: СШАЖанр: Боевик, КомедияРежиссер: Фрэнк КорачиАктеры: Кевин Джеймс, Сальма Хайек, Генри Уинклер, Грег Джерманн, Джо Роган, Гари Валентайн, Чарис Пемпенгко, Бас Раттен, Регги Ли, Марк ДеллаГротт и др.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A971AB07F9BBC3F676642DB94D2C5652B6A944A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614914   (978292) от 07.02.2013
-
-Замуж на 2 дня / Un plan parfait (2012) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изабель мечтает о свадьбе. Но на её семье лежит проклятие. Все первые браки неминуемо заканчиваются разводами. Поэтому, когда ее парень делает ей предложение, Изабель решает перехитрить судьбу. Она отыскивает первого попавшегося лузера, влюбляет его в себя и: вместо того, чтобы развестись, случайно влюбляется сама.Производство: Франция / Quad Productions, TF1 Films Production, Scope PicturesЖанр: мелодрама, комедия, приключенияРежиссер: Паскаль ШомельАктеры: Дайан Крюгер, Дэни Бун, Алис Поль, Робер Планьоль, Джонатан Коэн, Бернадетт Ле Саше, Этьен Шико, Лорэ Кэлами, Мэлонн Левана, Оливье КлавериПеревод: ДублированныйПродолжительность: 01:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9906D3279C5CF28FFFC9DA687F6E478259E8CBB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615173   (978267) от 07.02.2013
-
-Толстяк на ринге / Here Comes the Boom (2012) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учитель биологии в средней школе подрабатывает бойцом в смешанных боевых искусствах, пытаясь собрать деньги, чтобы сохранить школьную музыкальную программу.Жанр: Боевик, КомедияРежиссер: Фрэнк КорачиПродюсер: Тодд Гарнер, Кевин Джеймс, Марти П. ЮингАктеры: Кевин Джеймс, Сальма Хайек, Генри Уинклер, Грег Джерманн, Джо Роган, Гари Валентайн, Чарис Пемпенгко, Бас Раттен, Регги Ли, Марк ДеллаГротт и др.Перевод: ДублированныйПродолжительность: 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6218906AB75BCE712F9B80418F1FD624564DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614857   (978253) от 07.02.2013
-
-Толстяк на ринге / Here Comes the Boom (2012) HDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учитель биологии в средней школе подрабатывает бойцом в смешанных боевых искусствах, пытаясь собрать деньги, чтобы сохранить школьную музыкальную программу.Жанр: Боевик, КомедияРежиссер: Фрэнк КорачиПродюсер: Тодд Гарнер, Кевин Джеймс, Марти П. ЮингАктеры: Кевин Джеймс, Сальма Хайек, Генри Уинклер, Грег Джерманн, Джо Роган, Гари Валентайн, Чарис Пемпенгко, Бас Раттен, Регги Ли, Марк ДеллаГротт и др.Перевод: ДублированныйПродолжительность: 01:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF811383847EA11C79C712A02F15D1697DE7E7C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,89 +1,25 @@
-###  Публикация: 1177759   (359834) от 26.10.2017
+###  Публикация: 1069434   (373682) от 04.11.2016
 
-Ramin Djawadi - Игра Престолов / Game of Thrones (Season 1-7) (2011-2017) [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title [01:46]
-02. North Of The Wall [03:48]
-03. Goodbye Brother [03:07]
-04. The Kingsroad [02:06](   Читать дальше...   )Жанр: ScoreПродолжительность: 08:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2167130CFED798D80E357F2755599DD1F648ED3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255054   (359651) от 06.11.2010
-
-Shakta Kaur Khalsa - Women's Yoga Music (2010) [MP3|320 kbps]<New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359651.jpg" />
-</div>
-
-
-###  Подробнее
-
-(05:35) 01. Aadays Tisai Aadays
-(04:37) 02. Listen, Listen, Listen
-(05:34) 03. Ra Ma Da Sa
-(06:10) 04. Blessed Is My Soul
-(06:13) 05. Where I Sit Is Holy
-(05:34) 06. Ajai Alai
-(03:46) 07. Kanekotsytha
-(07:07) 08. Hanshan Temple
-(02:05) 09. Sa Ta Na Ma Celebration
-(04:36) 10. Circle of LightЖанр: New Age, Easy ListeningПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E01D054886815031B09472979C62585DE975E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071392   (359347) от 10.11.2016
-
-Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scythia (The Ancient Era) (feat. Sandro Freidrich) (01:30)
-02. France (The Medieval Era) (03:14)
-03. Rome (The Medieval Era) (03:39)
-04. Spain (The Medieval Era) (03:49)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:24:33
+01. Main Titles - Fantastic Beasts and Where to Find Them (02:55)
+02. There Are Witches Among Us / The Bank / The Niffler (06:54)
+03. Tina Takes Newt In / Macusa Headquarters (01:57)
+04. Pie or Strudel / Escaping Queenie and Tina’s Place (03:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:249B4D84C7A8B474C3262EFAE6CE6CA0B400EA72
+magnet:?xt=urn:btih:FEC783B8217B130F3EC14A8A9C8429B36FEB1B3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -91,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071393   (359219) от 10.11.2016
+###  Публикация: 1069433   (373679) от 04.11.2016
 
-Geoff Knorr, Roland Rizzo, Phill Boucher - Sid Meier's Civilization VI (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Sarah Schachner - Call of Duty: Infinite Warfare (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scythia (The Ancient Era) (feat. Sandro Freidrich) (01:30)
-02. France (The Medieval Era) (03:14)
-03. Rome (The Medieval Era) (03:39)
-04. Spain (The Medieval Era) (03:49)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:24:33
+01. Anthropic Universe (04:22)
+02. Home (01:47)
+03. Rising Threat (05:29)
+04. Olympus Mons (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:23:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B10FA9F0E0DB22A269FD016DC933EEA76A4E581F
+magnet:?xt=urn:btih:45E2F1E3B9808ADDE778D2DB3912BBCD2B2C53EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -120,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328935   (359061) от 02.10.2019
+###  Публикация: 1254369   (373007) от 14.10.2018
 
-Gavri - Global Inspiration (2006) [MP3|320 Kbps] <New age, World beat, Ambient>
+Caravelli - Caravelli in Moscow (1982) 1999, Reissue, Boheme Music [MP3|320 Kbps] <Pop, Folk, Easy Listening>
 
 >>Other Styles
->>New Age/Meditative/Relax
+>>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Remember The Day (05:22)
-02. Castaway (04:25)
-03. Gatchami (01:52)
-04. Iddy's Song (05:01)(   Читать дальше...   )Жанр: New age, World beat, AmbientПродолжительность: 00:56:46
+01. A Starlit Summer (2:47)
+02. Love Has Come (4:38)
+03. The Moon Is Shining (3:50)
+04. It Was Long Ago (3:53)(   Читать дальше...   )Жанр: Pop, Folk, Easy ListeningПродолжительность: 00:42:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CFDA2FB780309BF3FE73FEE479BC61206680C19
+magnet:?xt=urn:btih:F0A54D4DC0B28E118F440F5056390EE37A9BB8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -149,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255931   (359026) от 20.10.2018
+###  Публикация: 1254437   (372993) от 14.10.2018
 
-Classic Rock Orchester London - Classic & pop (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+Roberto Danova - Panpipe moods (2001) [FLAC|Lossless|image + .cue] <Pop, Instrumental, Pan Flute, Easy Listening>
 
 >>Other Styles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_359026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Romance
-    02. Maid of Orleans
-    03. Sonate C- dur Kv 330
-    04. Boat on the River(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:03:00
+01. What A Wonderful World
+02. Don't Cry For Me Argentina
+03. Misty
+04. Killing Me Softly With His Song(   Читать дальше...   )Жанр: Instrumental, Pan Flute, Easy ListeningПродолжительность: 01:10:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C123FD09CA1AD4F386F16C1BBF38225350E5719F
+magnet:?xt=urn:btih:97F29D0A3368ED00E4971A0A0E9CC8A999399DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -178,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071474   (358842) от 10.11.2016
+###  Публикация: 1254373   (372992) от 14.10.2018
 
-Mick Gordon - DOOM (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Chris Piorkowski - Piano: Romantic Collection (2011) [MP3|320 Kbps] <Instrumental Pop, Piano>
 
 >>Other Styles
->>OST (Lossless)
+>>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I. Dogma (00:45)
-02. Rip & Tear (04:18)
-03. At Doom's Gate (01:11)
-04. Rust, Dust & Guts (07:42)(   Читать дальше...   )Жанр: Soundtrack, Score, Electronic, Progressive MetalПродолжительность: 02:08:18
+01. Belle Amitie (2:35)
+02. Celibataire (2:56)
+03. Le Piano (2:50)
+04. Reconnaissant (2:56)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:33:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B74C811726087EDBC203BBA0656F0E4A57460E5B
+magnet:?xt=urn:btih:6B2F51464A9BA26DF6962F23EA1B98931257A551
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256137   (358743) от 20.10.2018
+###  Публикация: 1254510   (372657) от 14.10.2018
 
-Two Steps from Hell - Illumina (2018) [MP3|320 Kbps] <New Age>
+VA - Popular Melodies of Russia (2011) [MP3|192 Kbps] <Other, Instrumental, Soundtrack>
 
 >>Other Styles
->>New Age/Meditative/Relax
+>>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Could've Been
-02 Ulthuan
-03 Corruption
-04 Organic Multiplication(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:37
+01. Heinz Schachtner – Cossack Patroll [02:42]
+02. Lady Geisler Trio – Dark Eys (Potpourri) [03:32]
+03. John Evans – Kazatschok – Trepak – Bublitschki [04:34]
+04. Unknown Artist – Schwarze Augen [03:21](   Читать дальше...   )Жанр: Other, Instrumental, SoundtrackПродолжительность: 01:07:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6038B23DB783393F15ED5D9EB87C272CD6EEBE2C
+magnet:?xt=urn:btih:B0749E2BBA0EFD6D345BF9A288B5FEF313ED3339
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,28 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177607   (358511) от 27.10.2017
+###  Публикация: 1254054   (372639) от 14.10.2018
 
-El Chido - Ghost Recon Wildlands: Corrido - The Sounds of Santa Blanca (2017) Bandes originales [MP3|320 Kbps] <Original Game Soundtrack>
+VA - The Great American Songbook: 66 American Standards (2018) [MP3|320 Kbps] <Pop, Vocal Jazz, Blues>
 
 >>Other Styles
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_358511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372639.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - ENTRE LA JUSTICIA Y EL CAPO - Steve Ouimette & Mario Tapia - 03:32
-2 - POR AMOR - LA HISTORIA DEL BOQUITA - Steve Ouimette & Mario Tapia - 03:22
-3 - CODIGO DE SANGRE - Steve Ouimette & Mario Tapia - 03:11
-4 - LA MUERTE ESTÁ DE MODA - Steve Ouimette & Mario Tapia - 02:45(   Читать дальше...   )Жанр: Original Game SoundtrackПродолжительность: 31:17
+01. Fred Astaire - Cheek to Cheek
+02. Patti LaBelle - Over the Rainbow
+03. Bobby Darin - Beyond the Sea
+04. Dionne Warwick - My Way(   Читать дальше...   )Жанр: Pop, Vocal Jazz, BluesПродолжительность: 03:21:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:288D753447228B99BD7AE8D3BE6C8D7F85C23443
+magnet:?xt=urn:btih:13B203B4404D916711AD0B5670D725A4FE8DE1A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,34 +201,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 577621   (357789) от 19.11.2012
+###  Публикация: 1415367   (371566) от 14.10.2020
 
-Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
+Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer Version] (2020) Deep Purple cover [MP3|320 кб/с]<Soundtrack>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_357789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pusher Theme (1:23)
-02. Pay Me The Money (0:46)
-03. Driving and Clubbing (1:13)
-04. Turkish Tension (1:30)
-05. Bridge Deal (1:49)
-06. Cutting and Doing (2:17)
-07. Chase (2:16)
-08. Cell (3:10)
-09. Frank Mirror (1:10)
-10. Haken Bar (2:10)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:46
+01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C630B08FB88D9B630EB7F7F41490005777D50AF1
+magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,21 +227,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 255092   (357114) от 07.11.2010
+###  Публикация: 252174   (370985) от 01.11.2010
 
-VA - Все песни из любимых кинофильмов (2006) [MP3|320 kbps]<Pop, Soundtrack>
+VA - Музыка Экрана. Коллекция Ридерз Дайджест (2008) 3CD [MP3|320 kbps] <Soundtrack, Classical>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_357114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, SoundtrackПродолжительность: 05:00:22
+Сборник популярных мелодий из кинофильмов несомненно украсит ваш досуг. Поможет насладиться мелодиями и песнями в исполнении лучших современных оркестров и музыкантов, окунуться в атмосферу приятных воспоминаний о любимых фильмах, и вновь пережить самые волнующие моменты. CD 1 - Незабываемые 60-70-е; CD 2 - Мелодии любви; CD 3 - Шедевры кинематографа.01. из к/ф "Афера"
+02. из к/ф "Выпускник"
+03. из м/ф "Розовая пантера"
+04. из к/ф "Бонни и Клайд"(   Читать дальше...   )Жанр: Soundtrack, ClassicalПродолжительность: 03:24:46
 
 ## Скачать торент
 ```bash
@@ -326,57 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071680   (356968) от 11.11.2016
+###  Публикация: 1070351   (368682) от 06.11.2016
 
-VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que canta (1996) [MP3|128 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Callejera
-02. Hector Pacheco - Patotero sentimental
-03. Floreal Ruiz - Vieja amiga
-04. Mariano Mores y su conjunto - La guitarrita(   Читать дальше...   )Жанр: TangoПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AD65BC3F58BAC07E62AD2B765ADC44009BB5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329078   (356732) от 03.10.2019
-
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+VA - The Elder Scrolls (Collection Original Soundtrack) (1994-2016) [MP3|320 кб/с]<Soundtrack, Score>
 
 >>Other Styles
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+01. Battledrums	(01:10)
+02. Soul-Shriven in Cyrodiil (09:10)
+03. Radiance and Glory (05:02)
+04. Flickering Shadows (05:59)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 17:13:43 •
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DC9E776F80B510ECFECEEEFD380A056AF21FF04
+magnet:?xt=urn:btih:FCF6BFAFBBF8DCCB7BBEEF20AF0C364DC69ECBDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,28 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329079   (356643) от 03.10.2019
+###  Публикация: 1255146   (368298) от 16.10.2018
 
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+VA - Mannerpension Die Musik Zum Film (1996) Soundtrack [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368298.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+01. Heike Makatsch - Stand By Your Man (02:53)
+02. Detlef Petersen - Cat Calls (02:35)
+03. Roy Orbison - In Dreams (02:51)
+04. Detlef Petersen - Curango (02:14)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:44:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
+magnet:?xt=urn:btih:A3C8FE08D145448FD41E24B0E21CC18B4B23F3F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329070   (356642) от 03.10.2019
+###  Публикация: 1255153   (368216) от 16.10.2018
 
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, World & Country>
 
 >>Other Styles
->>OST
+>>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368216.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
+01. Reel 'n' Roll (5:01)
+ 02. Don't You Be the One (3:51)
+ 03. It'll Have to Wait (3:27)
+ 04. Long Night (5:15)(   Читать дальше...   )Жанр: Rock, Folk, World & CountryПродолжительность: 00:46:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99B0697726DF45FF8C93804150EA24A0FBF50B44
+magnet:?xt=urn:btih:A7F2B0DB75B3082EA3180C67657569CA733D9894
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,86 +343,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329115   (356641) от 03.10.2019
+###  Публикация: 949793   (367890) от 27.10.2015
 
-Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeker Of The Serpent's Eye (02:12)
-02. Starling (02:15)
-03. Mandy Love Theme (04:39)
-04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895C453BAD7471C936B1D9A8F67AEC2B08A12AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329083   (356638) от 03.10.2019
-
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B767A3CC194821AD9B66AB0F3AAE46D3BDEE2D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329071   (356637) от 03.10.2019
-
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+VA - The Best Of Me - Original Motion Picture Soundtrack (2015) [FLAC|tracks + .cue]<Soundtrack>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
+01. I Did With You (Lady Antebellum) [03:16]
+02. Dream Girl (Hunter Hayes) [03:39]
+03. Hold On (SHEL and Gareth Dunlop) [03:26]
+04. In Love Again (Colbie Caillat) [03:31](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5219B60E23FB76262FAAC490F0083FBD29E436F9
+magnet:?xt=urn:btih:50BB6C25308F1D01C3417C646EECB44330441E46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,28 +372,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329102   (356636) от 03.10.2019
+###  Публикация: 1176678   (367474) от 23.10.2017
 
-Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивена Хокинга (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+Mariah Carey - The Star (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Soundtrack, Christmas>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cambridge, 1963 (01:42)
-02. Rowing (01:42)
-03. Domestic Pressures (02:37)
-04. Chalkboard (01:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
+01. The Star (4:01)Жанр: Pop, Soul, Soundtrack, ChristmasПродолжительность: 00:04:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF3EBAD0FDC86A95BF2ABEB1EC85E41732D791F5
+magnet:?xt=urn:btih:C4E2DFB85231726E15DD733909C371C376452716
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,57 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329090   (356632) от 03.10.2019
+###  Публикация: 949731   (367406) от 27.10.2015
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329084   (356631) от 03.10.2019
-
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FLAC|tracks + .cue]<Soundtrack>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
+01. Bill Medley & Jennifer Warnes - (I've had) The Time Of My Life [4:51]
+02. Celine Dion - My Heart Will Go On [4:41]
+03. Dolly Parton - 9 to 5 [2:46]
+04. The Four Tops - Loco In Acapulco [4:33](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 04:34:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
+magnet:?xt=urn:btih:CC41FEBEC554D14B0C037D6582E2758EE0FC710C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,57 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329091   (356630) от 03.10.2019
+###  Публикация: 950216   (367283) от 27.10.2015
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B893CFE9751C9CE235E3DE209EA28A3A9731B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256459   (356560) от 21.10.2018
-
-Jennifer Thomas - The Fire Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrumental>
 
 >>Other Styles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Fire Within (feat. The Rogue Pianist)
-02. Awakening
-03. Girl in the Mirror
-04. Rise of the Phoenix(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:45:06
+01. Chi Mai - Ennio Morricone
+ 02. My Serenade - Whitehall Mystery Orchestra
+ 03. Love Story - Paul Mauriat
+ 04. Bridge Over the Stars - Keiko Matsui(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:153642211E77EF2B11516D4D18EA5CB2691343DC
+magnet:?xt=urn:btih:895AB3A6198AB1259BB34B470B29E1E650494B63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,88 +456,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329092   (356504) от 03.10.2019
+###  Публикация: 1070689   (366531) от 07.11.2016
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC 2.0|24/48|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E3C8667E81CF36489939735230CC69E3E6BDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329030   (356422) от 03.10.2019
-
-DJ Taz Rashid - A Story of Satori (2015) [MP3|320 Kbps] <New age, World music, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etholodge (04:08)
-02. Prajna (03:25)
-03. Initiation (04:58)
-04. Atlan Winds (05:54)(   Читать дальше...   )Жанр: New age, World music, AmbientПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B1FE2E9973BB8BCD5F9DD8475B52AB3723CFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329024   (356404) от 03.10.2019
-
-Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack, Instrumental, Ambient>
 
 >>Other Styles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По поводу саунда Джокера - то отличная работа. А в фильме (не видел), наверно, вообще роскошно это будет.
-И эта работа уже получила награду "Премия Soundtrack Stars" на Венецианском кинофестивале.
-В общем новый сильный игрок появился на рынке композиторов. Молодец Hildur.01. Hoyt's Office (01:25)
-02. Defeated Clown (02:39)
-03. Following Sophie (01:33)
-04. Penny in the Hospital (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:26
+01. The Quarantine Zone (20 Years Later) - [3:40]
+02. The Hour - [1:02]
+03. The Last of Us - [3:04]
+04. Forgotten Memories - [1:08](   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:55:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8333EBF66518C51E60F091D73F376C489EDEDB5D
+magnet:?xt=urn:btih:685733E4C8001A852F10DF93FDBA6446BCF44DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255343   (366232) от 17.10.2018
+
+Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Modern>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titles (2:18)
+ 02. Mourning (3:24)
+ 03. Beach (2:35)
+ 04. Knife (2:25)(   Читать дальше...   )Жанр: Score, ModernПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CDD4CBBEC8DF0493C4048E3BB2E8A05B892E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576400   (366159) от 14.09.2022
+
+Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blinding Lights [03:29]
+02. Bad Habits [03:51]
+03. Wellerman (2k21 Native RMX) [02:12]
+04. Cold Heart [03:24](   Читать дальше...   )Жанр: New Age, Instrumental, Native AmericanПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5DF295B8C40CAC6C84EF65C513FEB25370154A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255367   (366059) от 17.10.2018
+
+The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterlily (4:29)
+ 02. Miss Casey Medley (2:00)
+ 03. Byker Hill (2:47)
+ 04. Atlantic Blue (4:15)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADEF5E69A8BA163B7E38D410770AC51389486A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255339   (366052) от 17.10.2018
+
+VA - Lady Bird (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Bird - Prayer of St. Francis (From St. Francis Hymn) (00:21)
+02. Alanis Morissette - Hand in My Pocket (03:38)
+03. HAIM - Little of Your Love (03:33)
+04. Adolf Fredrik Girls Choir - Panis Angelicus (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2603EC4694D1F20603B26A24653C0C82B440E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328097   (366029) от 29.09.2019
+
+Andrey Klimkovsky (Андрей Климковский) - Star Triangle (2001) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triangular Navigation (9:01)
+02. We Continue the Search (7:42)
+03. Andromeda (5:59)
+04. Comets Went Forever (4:54)(   Читать дальше...   )Жанр: Electronic, New Age, SpaceПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58EE38E581DCE4FE3A7C76762D8855343AE6CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327099   (366028) от 29.09.2019
+
+VA - Modern Sound Orchestras - Another Day In Paradise (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day In Paradise - Phil Collins  (3:46)
+02. Right Here Waiting – Richard Marx (3:22)
+03. Hey Jude - McCartney / Lennon  (3:43)
+04. I Just Died In Your Arms Tonight – Nicolas Eede (3:15)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2400F6EDE728C6238291D7E117A1DCF239BE8EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 153436   (365816) от 21.11.2009
+
+VA - Tea Music (Музыка для Чайных Церемоний) - 12 CD (1993 - 2004) [FLAC|lossless]<New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New age, Meditative, RelaxПродолжительность: 00:50:56
+
+01. Fragrance of Water
+02. Fine Tea Is Like a Beauty(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327209   (365543) от 29.09.2019
+
+Various Artists - Rocketman (Music From The Motion Picture) (2019) 2CD / Target Edition / Japan [FLAC|Lossless|tracks + .cue] <Rock, Pop, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taron Egerton, Rachel Muldoon - Don't Go Breaking My Heart (Interlude) [01:34]
+02. Taron Egerton, Richard Madden (2) - Honky Cat [02:34]
+03. Taron Egerton - Pinball Wizard (Interlude) [02:02]
+04. Taron Egerton - Rocket Man [04:31](   Читать дальше...   )Жанр: Rock, Pop, Stage & ScreenПродолжительность: 01:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFE4B52B67F5ED9486A5F31DDD219B2EFAE9FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951101   (365490) от 28.10.2015
+
+Jean Michel Jarre - Waiting For Cousteau (1990) Remastered / 2015, Sony Music / [FLAC|tracks + .cue]<Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calypso [8:23]
+02. Calypso Part 2 [7:11]
+03. Calypso Part 3 [6:23]
+04. En Attendant Cousteau [46:46]Жанр: ElectronicПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C82A06414613A081F9BE6C25EF1AEBE733570A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

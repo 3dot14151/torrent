@@ -1,3 +1,29 @@
+###  Публикация: 395867   (404307) от 08.10.2011
+
+Кабаре Мулен Руж - Феерия / Bal du Moulin Rouge - Feerie (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мулен Руж (фр. Moulin Rouge, буквально «Красная мельница») — знаменитое классическое кабаре в Париже, построенное в 1889 году, одна из достопримечательностей французской столицы. В «Мулен Руж» собирались не только представители среднего класса, но и аристократы, люди искусства (Пикассо, Оскар Уайльд) и даже члены королевских семей, например, принц Уэльский. Главной (   Читать дальше...   )Жанр: Шоу, Спектакль, МюзиклПеревод: ОригинальныйСубтитры: НетПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B988405CFE8023A02E8D031546E804CB1D1266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573508   (380428) от 10.11.2012
 
 Наталка Полтавка (1936) DVD5[ukr]
@@ -6,7 +32,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_380428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380428.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_365093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365093.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_356558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356558.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344945.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342484.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_337974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337974.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331052.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322297.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318373.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318227.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314866.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_302092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302092.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_300003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300003.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299829.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_299445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299445.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297929.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297008.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_288738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288738.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280432.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280431.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280417.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_280025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280025.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263136.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263094.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ The Beatles: Вечер трудного дня - клипы / A Hard Day's Nigh
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262818.jpg" />
 </div>
 
 
@@ -668,32 +694,6 @@ A Hard Day's Night - первый битловский фильм, снятый 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6403CEF3F81EFEB129187AF821334FC945648082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455149   (262786) от 26.11.2019
-
-Война миров. Музыкальная версия Джеффа Уэйна / Jeff Wayne's Musical Version of The War of the Worlds (2006) DVDRip [EN / RU Sub]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262786.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Никто не поверил бы в последние годы девятнадцатого столетия, что за всем происходящим на Земле зорко и внимательно следят существа более развитые, чем человек, хотя такие же смертные, как и он; что в то время, как люди занимались своими делами, их исследовали и изучали, может быть, так же тщательно, как человек в микроскоп изучает эфемерных тварей, кишащих и размножающихся (   Читать дальше...   )Производство: Великобритания, Double Jab, Ollie Record, Universal PicturesЖанр: Мюзикл, рок-операРежиссер: Дэвид МалеПеревод: ОригинальныйСубтитры: РусскиеПродолжительность: 01:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74E7AF578A3CFDA797B13EBDE42BB724A6CF546
 ```
 
 https://mybot314.ru/tekegram_catalog/

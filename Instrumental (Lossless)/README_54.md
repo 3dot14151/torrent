@@ -6,7 +6,7 @@ Marcus Malone - A Better Man (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642966.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Eb & Hal - On My Way Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642473.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gregg Wright - Big Dawg Barkin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642468.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dino McGartland - Hometown Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642467.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Eddie Blues Barney - Give It All You Got (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642464.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Electrified Soul - 61 (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642463.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Grant Stevens - Devil's Machinery (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642462.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eric's Maine Connection - Stuck Inside (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642460.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Grace Kuch - Studio Sessions at Mighty Fine Productions (2022) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642459.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Armin Sabol - Back in Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642458.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Fred Chapellier - Straight to the point (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_642457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642457.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - More From The Other Side Of The Trax (2017) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_641303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641303.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blues Company - Songs with No Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640977.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Layla Zoe - Breaking Free (2016) [FLAC|Lossless|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_640100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640100.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Roland Johnson - Imagine This (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639557.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Gregor Hilden & Bluesnight Band - Greg's Bluesnight - Live In Concert (2006) [AP
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639554.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Gunn - Hand in the Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638850.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ James Quandt - Out of the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638848.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Johnny Bootleg - Virtual Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638844.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jay Vee Band - One More Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638840.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ James Solberg - L.A. Blues (1998) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638838.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mark Rogers Band - Wild Card (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638760.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Albert Collins - The Complete Imperial Recordings (1991) [WavPack|image+.cue]<Te
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638083.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ B.B.King – Live At San Quentin (1990) [WavPack|image+.cue]<Blues, Electric Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638075.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sade - Lovers Rock (2000) [FLAC|Lossless|image + .cue] <Electronic, Reggae, Funk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637944.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Peter Green's Fleetwood Mac - The Original Fleetwood Mac (1971) /2004, Columbia/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637820.jpg" />
 </div>
 
 

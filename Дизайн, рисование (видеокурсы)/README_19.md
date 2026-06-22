@@ -6,7 +6,7 @@ Udemy, Mrawan Hussain | Blender 2.83: How to create realistic BedRoom with Cycle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911926.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ TheNewBoston | Фотошоп CS6 / Photoshop CS6 (2014) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910966.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 3 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910575.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 2 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910574.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Udemy | Скриптинг в Blender 2.81 / Python Scripting in Blender 2.81 wi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910415.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ FlippedNormals | Ретопология в Blender 2.8 / Retopology in Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910361.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bang Bang Education | Как устроены буквы (2018) PCRec [H.264/108
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910307.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Bang Bang Education | Сетки и проектирование сайтов (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910144.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Bang Bang Education | Создание пространства в Adobe Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_910120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910120.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Bang Bang Education | 1000 и 1 буква (2019) PCRec [H.264/1080p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_908687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908687.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 4
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906739.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906737.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ The VFX School, Agustin Schilling, Pol Villa | Houdini Renascence Program Part 1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_906569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906569.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ WingFox, Ognyan Zahariev | Magical Classroom Scene Creating for Games [Low Quali
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_905049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905049.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Explore Blender, Gustav Nilsson | Mastering Drivers in Blender 2.7 (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903802.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Udemy, Emiel Sleegers | Military Game Asset Creation in Blender 2.83, Substance 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903451.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ ArtStation, Ben Keeling | Authoring Props For Games [Blender, ZBrush, Substance 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_903416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903416.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ cmiVFX, Shivani Sondhi | Houdini Cloth Techniques (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902351.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ cmiVFX, Alvaro Segura | Houdini Debris Systems (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902318.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ cmiVFX, Adam Swaab | Houdini Particle Morphing Effects (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902300.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ cmiVFX, Dennis Weil | Houdini Mograph Title Design (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902288.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ School of Motion, Mike Frederick | Design Bootcamp Week 3 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_902083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902083.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Udemy | Создание фотореалистичной станции мет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901417.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Udemy | Создание фотореалистичной улицы в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_901349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901349.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Rohan Dalvi | Mograph in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900700.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Rohan Dalvi | Making dessert in Houdini Part 1 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_900687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900687.jpg" />
 </div>
 
 

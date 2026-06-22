@@ -1,3 +1,108 @@
+###  Публикация: 1596908   (168353) от 12.12.2022
+
+Irvue 2.7.15 U2B [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Irvue переносит на ваш рабочий стол тысячи потрясающих фотографий с высоким разрешением из Unsplash. Наслаждайтесь новыми художественными обоями каждый день с помощью этого небольшого приложения, которое находится в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2022Разработчик: © 2022 LeonspokПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB2068C1FC3DEA6C1C696EB8487D2B424C29403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672742   (168340) от 29.10.2023
+
+Chronicle Pro 14.3.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вам приходится часто оплачивать счета, то - Chronicle будет незаменимым помощником. Программа дает Вам душевное спокойствие, с ее помощью Вы никогда не пропустите нужный платеж.
+Даже если вы используете другие приложение для учета Ваших финансов, Вы оцените помощь Chronicle . Просроченные платежи могут нанести ущерб вашей кредитной истории, что приведет к повышению (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 2009, 2021 LittleFin LLCПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E25A02D52F68AE872ADC448F4C46DEDCDFC01B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596883   (168337) от 12.12.2022
+
+TogetherShare Data Recovery Professional for Mac 8.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168337.jpg" />
+</div>
+
+
+###  Подробнее
+
+TogetherShare Data Recovery предоставляет пользователям Apple простой и быстрый способ восстановить удаленные или потерянные данные на Mac. Многие пользователи Mac теряют важные данные из-за случайного удаления, форматирования или стирания. Но данные не теряются навсегда. С помощью надежного программного обеспечения для восстановления данных Mac, такого как TogetherShare (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.06.2022Разработчик: © 2022 TogetherShareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD15E72CD75CC71D236723093DB23F3D26407D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596945   (168287) от 12.12.2022
+
+Worksheet Crafter Premium Edition 2022.3.2 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте свой собственный Worksheet быстро и легко. Сделайте идеальные обучающие шаблоны, рабочие листы и классные тесты для ваших  учеников всего за несколько кликов. Создайте свои Worksheet, это весело использовать и так же просто, как пользоваться Microsoft Word.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 Worksheet CrafterПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549AA3618A1A1E38EB1921AF58446EBCA21ED5D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596988   (168275) от 12.12.2022
 
 CodeRunner 4 v.4.2.1 [En]
@@ -6,7 +111,7 @@ CodeRunner 4 v.4.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168275.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ FonePaw WhatsApp Transfer for iOS 1.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168221.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ CorelCAD 2023 v2022.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168079.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ iBeesoft Data Recovery Professional 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168071.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ MiniNote Pro 5.91 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168001.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Magic Battery 7.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167990.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Piezo 1.7.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167983.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ AirFoil+Airfoil Satellite 5.10.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167981.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ Home Inventory 3.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167958.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ Loopback 2.2.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167954.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ Native Instruments Massive X 1.4.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167948.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Disk Diet 5.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167940.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Tampermonkey 4.20.6184 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167923.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ dBpoweramp Image Converter 3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167908.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ dBpoweramp Video Converter 2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167904.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ Asset UPnP 7.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167854.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ Magic Sort List 3.4.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167768.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ Audio Hijack 3.8.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167739.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ Boris FX Mocha Pro for Mac 2023 v10.0.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167665.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ SILKYPIX Developer Studio 11.1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167575.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ Maxon Cinema 4D Studio 2024.1.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167510.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ Vector Cliparts 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167505.jpg" />
 </div>
 
 
@@ -574,111 +679,6 @@ Vector Cliparts — коллекция векторных графических
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7324EF0C125A603036A9E7D75EF1053922B9401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597025   (167386) от 13.12.2022
-
-Navicat Premium Essentials  16.1.5 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED621201C48666D6533252902786C3C36B544A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672958   (167339) от 30.10.2023
-
-World Clock Deluxe 4.19.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167339.jpg" />
-</div>
-
-
-###  Подробнее
-
-World Clock Deluxe - это надежное и простое в использовании ПО, которое позволяет отображать несколько часов в горизонтальной или вертикальной палитре, в строке меню и в Dock.
-С помощью World Clock Deluxe можно также отображать среднее время по Гринвичу и всемирное координированное время, легко определять лучшее время для конференц-связи или видеоконференции в нескольких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2023Разработчик: © 1997-2022 MaBaSoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831B5F491A5E47169316D606409AFB12E328EFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672879   (167281) от 30.10.2023
-
-App Tamer 2.8.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167281.jpg" />
-</div>
-
-
-###  Подробнее
-
-При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!Тип издания: macOS SoftwareРелиз состоялся: 30.10.2023Разработчик: © 2010-2023 St. Clair SoftwareПоддерживаемая ОС: macOS 13.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270D975AF6288A40FD8391A098AFF5A905D63D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672945   (167235) от 30.10.2023
-
-Proxyman for Mac 4.14.0 U2B [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proxyman — это современное и интуитивно понятное приложение HTTP Debugging Proxy. Не позволяйте громоздким инструментам веб-отладки сдерживать вас. С родным приложением Proxyman для macOS вы можете с легкостью захватывать, проверять и манипулировать трафиком HTTP(s).Тип издания: macOS SoftwareРелиз состоялся: 29.10.2023Разработчик: © 2023 Proxyman LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA182666B722552496B27B17267747F25765690C
 ```
 
 https://mybot314.ru/tekegram_catalog/

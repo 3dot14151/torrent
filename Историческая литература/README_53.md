@@ -1,3 +1,109 @@
+###  Публикация: 1303186   (572781) от 21.05.2019
+
+М. Берд | Парфенон [Биографии чудес света] (2007) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Силуэт этого храма над Афинами - мгновенно узнаваемый образ. Оскар Уайльд сравнивал этот храм с белокожей богиней, а Ивлин Во - со стилтонским сыром. Вот уже две с половиной тысячи лет Парфенон вызывает восхищение, вдохновляет, бередит души; от его красоты захватывает дух, а на глаза наворачиваются слезы. Этот храм сжигали, бомбили, грабили - но и по сей день он (   Читать дальше...   )Жанр: Историческая литература, АрхитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1D545DC358AE268CAF417DE3FACBCB8927B392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303183   (572496) от 21.05.2019
+
+М. Берд, К. Хопкинс | Колизей [Биографии чудес света] (2007) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это грандиозное сооружение олицетворяет собой имперское величие и могущество Древнего Рима. Его мгновенно узнаваемый силуэт с течением времени стал эмблемой Вечного города, подобно Эйфелевой башне для Парижа или Кремлю для Москвы. Колизей был свидетелем множества знаменательных событий, на его арене происходили блестящие представления и разворачивались кровопролитные (   Читать дальше...   )Жанр: Историческая литература, АрхитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8A7F4AB9FD5F58114175B5926CFCA6E16AE732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303516   (572434) от 21.05.2019
+
+Альберто Анджела | Империя. Путешествие по Римской империи вслед за монетой (2018) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место действия книги знаменитого итальянского палеонтолога, тележурналиста и писателя Альберто Анджелы — вся Римская империя эпохи Траяна.
+Как жили в то время? Каких людей мы встретили бы в ее городах? Как удалось римлянам создать столь грандиозное государство, объединив столь различные народы?
+Путешествуя по бескрайним просторам великой Римской империи вслед за (   Читать дальше...   )Жанр: История Древнего мираФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECA88529AF17384ADE79A83DCA61733D1A77DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554847   (572098) от 02.06.2022
+
+Александр Вдовин | История СССР от Ленина до Горбачева (2014) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572098.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, представляющей собой фундаментальное историческое исследование, прослежены основные события политической и социально-экономической истории СССР с 1921 по 1991 г., выявлены идеологические основания внутренней и внешней политики страны, факторы и причины развития, завершившиеся перестройкой и распадом великого государства. В книгу включены темы, которые ранее (   Читать дальше...   )Жанр: монографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FFDDC0EAA55C393BAC57F156B8EB7BDC9B67F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922056   (571788) от 27.07.2015
 
 Ю. В. Ганковский | Ислам в странах Ближнего и Среднего Востока (1984) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571788.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571787.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571781.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571690.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571586.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570937.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570795.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569940.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ Christopher Tyerman | The World of the Crusades (2019) [EPUB] [EN]
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569391.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568976.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568227.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568220.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568121.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567734.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564616.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564546.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564497.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563972.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563967.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563716.jpg" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563706.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563696.jpg" />
 </div>
 
 
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F68A2503AC481FA8BE7FA767B9645315E3B9CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044802   (563685) от 21.08.2016
-
-Владимир Павлов и др. | Дальневосточные путешествия и приключения. №11 (1984) [FB2, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одиннадцатый выпуск содержит разнообразные материалы, преимущественно путевые очерки, рассказывающие о давних и недавних путешествиях, экспедициях, походах по дальневосточной земле, о примечательных для туриста уголках Приамурья, Приморья, Северо-Востока. Особый раздел посвящен пограничным районам. Здесь воскрешаются эпизоды, связанные со становлением пограничной (   Читать дальше...   )Жанр: Путешествия и География ИсторияФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96A52F94376856E516DA94E071192C269FDD1D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152778   (563624) от 24.07.2017
-
-С. В. Ключарев | Крестьянская нищета и финансово-экономическая система С. Ю. Витте (1906) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Резко критическая полемическая брошюра. Автор указывает, что хозяйство крестьян слабо не потому, что у них земли мало, а потому, что их хозяйство ведется слабо, приводя в сравнение развитые страны. Причину всех бед автор усматривает в заградительных таможенных пошлинах. Мысли Ключарева в чем-то верны, в чем-то неверны, но книга в целом интересна и содержит интересно (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE6A1C5EC3A58E19C711CB5A807DDF3053BD549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152982   (563598) от 24.07.2017
-
-М. М. Малкин | Гражданская война в США и царская Россия (1939) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_563598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этой книги, использовав архивные и печатные источники, дает на основе подробную характеристику русско-американских отношений в период гражданской войны в США (1861-1865 гг.). Этот вопрос автор излагает на фоне международного положения того времени, хода гражданской войны в США и борьбы европейской демократии против попыток интервенции в США.Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DCBFCB77936AFDC70B54F63AC00F98DCB16B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044991   (561814) от 22.08.2016
-
-Григорий Щедрин и др. | Дальневосточные путешествия и приключения. №10 (1982) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_561814.jpg" />
-</div>
-
-
-###  Подробнее
-
-В материалах 10-го выпуска воскрешаются яркие страницы героической эпохи открытий и исследований на восточной окраине России и в прилегающих морях, одиссеи путешественников прошлого. Рассказано о беспримерном беспосадочном перелете советских авиаторов из Москвы в Америку, о санных спасательных экспедиция» в Арктике, о романтических изыскательских тропах старого и (   Читать дальше...   )Жанр: Путешествия и География ИсторияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28EA762D53F2928DB91FBF72242EBDCDA6173631
 ```
 
 https://mybot314.ru/tekegram_catalog/

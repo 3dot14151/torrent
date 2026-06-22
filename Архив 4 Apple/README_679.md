@@ -1,3 +1,56 @@
+###  Публикация: 1706397   (113614) от 12.03.2024
+
+TechSmith Snagit 2024.2.1 for Mac [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113614.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2023Разработчик: © 1995 - 2021, TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F7E69371F3ED0E6AF2CEADEF32D3F5CA7AE3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706452   (113585) от 13.03.2024
+
+Things 3 v.3.20.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2007-2024 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2215419376C26D70958394403C31577CF0EAE0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706465   (113570) от 13.03.2024
 
 Alfred PowerPack 5.5 Release Candidate [En]
@@ -6,7 +59,7 @@ Alfred PowerPack 5.5 Release Candidate [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113570.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113565.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113558.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113557.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Allavsoft Video Downloader Converter 3.26.2.8837  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113546.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ PullTube 1.8.5.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113533.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113529.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Topaz Video AI for Mac 4.2.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113498.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ System Dashboard Pro 1.10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113486.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Cookie 7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113470.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ WiFiSpoof 3.9.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113467.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ Topaz Gigapixel AI for Mac 7.0.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113409.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ Dato 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113406.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ Topaz Photo AI 2 for Mac 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113402.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ RAW Power 3.4.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113398.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ AirMail Pro 5 v.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113384.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ Text Workflow 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113379.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ AI Transcription 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113366.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ PowerPhotos 2.5.7 beta3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113332.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ Multitrack Editor: Beat Mixer 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113330.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Downie 4 v.4.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113157.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ Folder Icons 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113156.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ TechSmith Camtasia 2023 Studio 2023.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113155.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ EdgeView 4 v.4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113141.jpg" />
 </div>
 
 
@@ -625,60 +678,6 @@ EdgeView 3 - это новейший просмотрщик изображени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71C3E28AC687A287003DE0BBC395ED3073521160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708106   (113140) от 19.03.2024
-
-SiteSucker 5.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113140.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2001-2024 Rick CraniskyПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5F5F1E2587D4A1A4431BD9B410B0E8EBAAB4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708204   (113137) от 19.03.2024
-
-TunesKit Audio Capture 3.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший потоковый аудио рекордер и экстрактор для захвата, извлечения и редактирования любого звука на вашем Mac, включая Apple Music, Spotify, радио, игровую музыку, фильмы и т. д. С качеством без потерь и конвертирования записей в MP3, AAC, WAV, FLAC и многие другие популярные форматы.
-TunesKit Audio Capture для Mac - это самое умное и простое решение для аудиозаписи, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8952AD024CD6819488C90173FAB9D21937F67B0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

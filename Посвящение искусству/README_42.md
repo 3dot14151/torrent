@@ -1,3 +1,82 @@
+###  Публикация: 1621985   (234457) от 27.03.2023
+
+Между Богом и Элвисом / God Is the Bigger Elvis (2012) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правдивая история об актрисе Долорес Харт, которая оставила успешную голливудскую карьеру, чтобы стать монахиней. Дебютировавшая в возрасте 19 лет в фильме "Любить тебя / Loving You" (1957) с участием Элвиса Пресли, для которого это была вторая роль в кино, Долорес Харт в 25 лет решает оставить Голливуд и уединиться в бенедиктинском аббатстве "Царицы (   Читать дальше...   )Производство: СШАЖанр: документальный, история, искусство, биографияРежиссер: Режин де Лапиз, Кристоф СупироПеревод: двуголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: серии x ~00:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A611A32AD55E312D944910EAFFE6884CA9F7C17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633499   (234426) от 15.05.2023
+
+Первые шаги анимации / Incunables de l'animation (1833-1897) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из коллекции Французской синематеки.
+Вашему вниманию предлагаются неопубликованные ранее некоторые из самых красивых образцов ранней анимации.Производство: ФранцияЖанр: документальный, экспериментальная анимацияРежиссер: Маду, Эмиль Рейно, Эдвард Мейбридж, Оттомар Аншютц, Этьен-Жюль Маре, Жорж МельесПеревод: субтитрыЯзык озвучки: немое киноСубтитры: русские, французские интертитрыПродолжительность: 00:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF7ED053C354BBFAD39CE037546FC62EB4532E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633423   (234348) от 15.05.2023
+
+Милиус / Milius (2013) WEBRip [H.264/1080p] [EN / RU, EN Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он великолепный рассказчик и один из самых плодовитых голливудских сценаристов прошлого века. Он большой друг Стивена Спилберга, Джорджа Лукаса и Фрэнсиса Форда Копполы, с которыми учился в одной киношколе. Он сотворил Арнольда Шварценеггера и писал эффектные речи для Шона Коннери. Выше его работ – только его личность. Дзен-анархист, мишка Тедди с автоматом Калашникова, (   Читать дальше...   )Производство: США, Chop Shop Entertainment, Haven EntertainmentЖанр: документальный, история, биографияРежиссер: Джои Фигуроа, Зак НатсонПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DE959655E0D48A5B74A7A3C7A14D99F37CFCA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633932   (233961) от 17.05.2023
 
 Прелестное дитя: Брук Шилдс / Pretty Baby: Brooke Shields (2023) WEB-DL [H.264/1080p] (серии 1-2 из 2)
@@ -6,7 +85,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233961.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233883.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233856.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233545.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233452.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_233279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233279.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_233144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233144.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232877.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232867.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232636.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_232507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232507.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232375.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231928.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230468.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230429.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_230024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230024.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_228580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228580.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227623.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227181.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_226693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226693.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225908.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225680.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224771.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AFDA63CD2A5729C390079548F6D06C6B385CA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513119   (224719) от 28.11.2021
-
-The Beatles: Вернись / The Beatles: Get Back (2021) WEBRip (серии 1-3 из 3) [AD]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет об атмосфере, царившей на студии во время записи знаменитого альбома «Let It Be», и завершится записью последнего живого концерта группы, который состоялся на крыше дома 3 на лондонской улице Сэвил-Роу 30 января 1969 года.Производство: Великобритания, Новая Зеландия, СШАЖанр: Документальный, музыкаРежиссер: Питер ДжексонПеревод: Многоголосый профессиональный (BaibaKo.tv)Язык озвучки: РусскийСубтитры: Русские, английские (на непереведённые места)Продолжительность: ~02:40:00 серияРеклама: Присутствуют рекламные вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0705E598837CC6BD0619A9B734C51570C8266862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513078   (224691) от 28.11.2021
-
-The Beatles: Вернись / The Beatles: Get Back (2021) WEBRip [H.264/1080p] (серии 1-3 из 3) [AD]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет об атмосфере, царившей на студии во время записи знаменитого альбома «Let It Be», и завершится записью последнего живого концерта группы, который состоялся на крыше дома 3 на лондонской улице Сэвил-Роу 30 января 1969 года.Производство: Великобритания, Новая Зеландия, СШАЖанр: Документальный, музыкаРежиссер: Питер ДжексонПеревод: Многоголосый профессиональный (BaibaKo.tv)Язык озвучки: РусскийСубтитры: Русские, английские (на непереведённые места)Продолжительность: ~02:40:00 серияРеклама: Присутствуют рекламные вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5722F451CBD6FEEC8CDE17074B3C755A56F4D6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425215   (224196) от 19.11.2020
-
-Джим Маршалл: Рок-н-ролл в объективе / Show Me The Picture: The Story of Jim Marshall (2019) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_224196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о творчестве и частной жизни знаменитого фотографа Джима Маршалла, который в своих работах запечатлел самые значимые моменты эпохи рок-н-ролла. Маршалл снимал концерты The Beatles, Боба Дилана и Джимми Хендрикса, а также документировал зарождение важных общественных движений 60-х годов прошлого века. Джим Маршалл – автор самых известных фотографий времён расцвета (   Читать дальше...   )Производство: Великобритания, США, Bailey Kennedy Production, Sampsonic MediaЖанр: Документальный, биография, музыкаРежиссер: Альфред Джордж БэйлиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA964A7EE27B92F546D5605A9D44600D0CFF2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

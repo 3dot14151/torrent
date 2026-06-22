@@ -6,7 +6,7 @@ AppSales v5.0.1 [Ru/Multi] - Автоматизированное отслежи
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777911.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Photo Wall FX Live Wallpaper Pro v1.2.0 [Ru/Multi] - Фотостена Живы
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_777910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777910.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777112.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776768.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Perfectly Clear 4.3.0 [Ru] - Коррекция изображений
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776598.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ LayerPaint HD v1.5.5 [En/Ru] - графический растровый ред�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775672.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MOBILedit! Enterprise 9.2.0.22984 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775590.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Garmin: Bulgaria OFRM Geotrade 2016 Q1 [Bg]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775522.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VK Coffee Lite Beta  4.89 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775414.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Throw Box 1.0.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774102.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ XMTV Multimedia Player v2.0.10.38 + Addon Plugins [Ru/Multi] - плеер, по�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773882.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ HD Wallpapers and Background 4.1.1 AdFree [Ru/Multi] - HD-обои, раздел
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773872.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773794.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773789.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Sunset Riders 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773556.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ ToeJam & Earl. ToeJam & Earl in Panic on Funkotron. Антология (SEGA Gen
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_772037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772037.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Beyond Oasis - The Story Of Thor 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771812.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Warsong / Langrisser. Langrisser 2. Антология (SEGA Genesis Game) [Ru/E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771801.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771244.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770233.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Device Info HW+ 4.26.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768855.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ AVG AntiVirus Pro 5.9.4.1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768379.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Fly and Candy v1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768080.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768005.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Memrise Learn Languages Free Premium 2.9_3923 [Ru] - Интерактивное 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_767028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767028.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_766703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766703.jpg" />
 </div>
 
 

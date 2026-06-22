@@ -1,3 +1,56 @@
+###  Публикация: 1293322   (637141) от 03.04.2019
+
+В.П. Измайлова (ред.) | Здоровая жизнь [4 книги] (2018-2019) [PDF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Травы таят в себе много нужного и полезного. Они помогут похудеть и всегда оставаться стройным, здоровым и энергичным, ведь для того, чтобы сформировать красивую фигуру и здоровое тело, нужно очистить его от шлаков и накопленных вредных веществ.Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720C7FEACF89D52F58287B1420BD176FDF7638FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907766   (635845) от 13.06.2015
+
+Виталий Волович | С природой один на один (1989) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635845.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге даются научные рекомендации и практические советы, направленные на сохранение здоровья и работоспособности человека при автономном существовании в безлюдной, труднодоступной местности (арктической тундре, пустыне, в горах, джунглях, океане).
+ Книга рассчитана на широкий круг читателей (врачей всех специальностей и читателей, интересующихся проблемами жизнедеятельности (   Читать дальше...   )Жанр: ЗдравоохранениеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB841FF79A263392290625A550E2FCC0719492C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033732   (635800) от 12.07.2016
 
 И.П. Неумывакин | Вода - жизнь и здоровье: мифы и реальность (2014) [DJVU]
@@ -6,7 +59,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635800.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627621.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626081.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625926.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_625837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625837.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_623291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623291.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_622051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622051.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620847.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620846.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620731.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620480.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620102.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618833.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615850.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614929.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614075.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614071.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613746.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612717.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610554.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608819.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608694.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608585.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608217.jpg" />
 </div>
 
 
@@ -626,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D322D5DCD04C8EAEFBEFF9D8FBEEA0907739A500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913340   (606838) от 28.06.2015
-
-И-Шен | Тайцзи. Секреты здоровья (2007) [FB2, EPUB]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китайская оздоровительная гимнастика тайцзи пришла к нам из глубины веков. Она является одним из секретов китайского долгожительства. Тайцзи широко применяется при лечении заболеваний сердечно-сосудистой системы, нервных болезней, а также болезней желудочно-кишечного тракта.
-
-Приобщиться к этой уникальной гимнастике можно абсолютно в любом возрасте. Молодые люди (   Читать дальше...   )Жанр: ЗдоровьеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2C901AB981F5B08245A6503F89555F2E100A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913494   (604794) от 29.06.2015
-
-Мирзакарим Норбеков, Олег Ламыкин | Секреты опытных дураков, которые всегда здоровы (2014) [FB2, RTF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мирзакарим Норбеков - автор книг, которые оценили уже более 8 миллионов читателей. Создатель уникальной учебно-оздоровительной методики, вернувшей многим людям радость здоровой, полноценной жизни. Руководитель центра учебно-оздоровительных технологий им. М.С. Норбекова. Олег Ламыкин - президент Международной академии системы саморазвитии человека "Жим Лам". (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицинаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26FA3543FE21C6D74F2074BB0FC9930B049BA445
 ```
 
 https://mybot314.ru/tekegram_catalog/

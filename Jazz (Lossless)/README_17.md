@@ -6,7 +6,7 @@ VA - Smooth Jazz Summer (Third Edition) (2012) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013040.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chet Baker - The Legacy, Vol. 1 (1987) 1995, Enja Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013026.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Benny Goodman And His Orchestra - Featuring Great Vocalists Of Our Times (1972) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012893.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ David Larsen - The Mulligan Chronicles (2021) Self-Released [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012749.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sonny Rollins  And  Coleman Hawkins - Sonny Meets Hawk! (1963) Remaster, 1999,  
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012424.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lee Konitz - Tenorlee (1978) 2002, Candid [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012292.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Richie Cole - Pure Imagination (1987) Concord Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012157.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Richie Cole & Art Pepper - A Piece Of Jazz History (1982) 2006, Jazz Excursion [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012155.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lee Konitz & Gerry Mulligan - Konitz Meets Mulligan (1953) 1988, Pacific Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012146.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Casino Lights: Recorded Live At Montreux (1982) Warner[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012119.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chico Hamilton - Believe (2006) Joyous Shout! [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012027.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rodney Whitaker - Outrospection: The Music of Gregg Hill (2021) Origin Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012025.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ella Fitzgerald - Best Of The BBC Vaults (1940 - 1949) 1992, LaserLight Digital 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011854.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ella Fitzgerald - Sing Song Swing (1940 - 1949) 1992, LaserLight Digital [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011853.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ella Fitzgerald - Seven Classic Albums (1959 - 1961) 4CD, 2012, Real Gone Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011124.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Abraham Burton - The Magician (1995) Enja[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010966.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Madeline Bell & The Swingmates - Girl Talk (1995) [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010686.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Melody Gardot - Sunset In The Blue (2021) Deluxe Version [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010639.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jennifer Porter - Sun Come And Shine (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010355.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Eddie Higgins With Strings - Moonlight Becomes You (2003) 2005, Venus Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010183.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lyambiko - Out Of This Mood (2002) Nagel Heyer Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010025.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Alain Jean-Marie - Afterblue: Jazz In Paris (1998, 1999) 2CD, 2009, Gitanes Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009601.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nicki Parrott - If You Could Read My Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009569.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Stan Getz - Communications '72 (2007) Gitanes Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009464.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009344.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Johnny Hartman - There Goes My Heart (1947 - 1952) 2004, Proper Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008861.jpg" />
 </div>
 
 

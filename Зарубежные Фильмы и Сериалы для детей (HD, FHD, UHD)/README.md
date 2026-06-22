@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876211   (1073098) от 
+
+Лило и Стич / Lilo & Stitch (2025) WEB-DL [H.264/1080p] Delta Dubbing
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забота о шестилетней Лило Пелекаи легла на плечи её старшей сестры Нани. Нани приходится много работать и учиться, и поэтому девочка часто остаётся одна. Однажды соседка советует взять в приюте собаку, чтобы помочь девочке справиться с одиночеством. Однако из приюта Лило забирает милого инопланетянина вместо собаки. Девочка даёт новому питомцу кличку Стич, но на (   Читать дальше...   )Производство: США, Австралия, Канада / Walt Disney Pictures, RidebackЖанр: фантастика, комедия, семейныйРежиссер: Дин Флейшер-КэмпАктеры: Майя Кеалоха, Сидни Агудонг, Крис Сандерс, Зак Галифианакис, Билли Магнуссен, Кортни Б. Вэнс, Эми Хилл, Тиа Каррере, Каипо Дюдуа, Ханна УоддингэмПеревод: Дублированный (Delta Dubbing)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF24A07F06F9D0A0369E7DB39DDE3DF6CECE66FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875003   (1072251) от 
 
 Излом времени / A Wrinkle in Time (2018) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072251.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071776.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069705.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068681.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067607.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067606.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067605.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1061953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061953.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1059862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059862.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057157.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1057151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057151.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055035.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054071.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054070.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1054069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054069.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053058.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053057.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050767.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050719.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050601.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048653.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047852.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047851.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047554.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046387.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E12DFF9713E7C778158CA17BAF933525F1169AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601430   (1045978) от 06.01.2023
-
-Лука и волшебный театр / Kristiania Magiske Tivolitheater (2021) WEBRip [H.264/720p] (сезон 1, серии 1-24 из24) [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало 20 века. Лука, хромой мальчик из бедной семьи, знакомится с ребятами, которые живут и работают в театре в конце ярмарки, где он начинает чувствовать себя, как дома. В это же время злая, безжалостная женщина из высшего класса, находящаяся на грани банкротства, замышляет продать театр, чтобы поправить свое финансовое положение, в результате чего все работники (   Читать дальше...   )Производство: Норвегия / Monster ed ASЖанр: СемейныйРежиссер: Тонье Вореланд, Атле КнудсенАктеры: Лукас Лангмир Мабин, Мехетабель Натнаэль Хаилу, Вегард Странд Эйде, Лена Эллингсен, Гард Скагестад, Сигрид Кандал Хусьорд, Селоме Эмнету, Йон Эмиль Йергенсруд, Фроде Винтер Гуннес, Ясмин Раджа, Ингвильд Хольте Бигднес, Хокон Т. Нильсен, Ребекка Йюнге, Яннике КрусеПеревод: Многоголосый профессиональный (RuDub)Язык озвучки: Русский, норвежскийСубтитры: русские (Forced)Продолжительность: ~ 00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB6B4778F7079678CB6257E7F6E4BAFA4420293
 ```
 
 https://mybot314.ru/tekegram_catalog/

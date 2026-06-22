@@ -1,3 +1,29 @@
+###  Публикация: 1240912   (471408) от 06.09.2018
+
+Sword Legacy Omen (2018) [Ru/Multi] (1.1.1) License CODEX
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471408.jpg" />
+</div>
+
+
+###  Подробнее
+
+До золотого века короля Артура наши земли были раздроблены и находились в упадке; слепое себялюбие раздирало королевства изнутри. Британия была расколота и лишена всякой надежды. Лорд Мерсии убит, ваша возлюбленная похищена, а дом разрушен. В роли Утера, командира рыцарей, проведите свою команду товарищей по несчастью, следуя тропой, полной испытаний. Заключайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Firecast Studio, Fableware Narrative DesignЖанр: Action (TBS), Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4645531B66D0A3C47790A2F704D025C5E94F62F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958341   (466992) от 08.09.2018
 
 Hard West (2015) [Ru/Multi] (1.5/dlc) Repack R.G. Механики
@@ -6,7 +32,7 @@ Hard West (2015) [Ru/Multi] (1.5/dlc) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466992.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Battlefleet Gothic: Armada (2016) [Ru/Multi] (1.7.9962/dlc) Repack R.G. Меха
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_463502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463502.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Worms W.M.D (2016) [Ru/Multi] (1637.583366/dlc) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462822.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Winter Ember (2022) [Ru/Multi] (1.6.0_526e457) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461523.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.3.85/dlc) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448033.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (Rip/1.00.2) 2012 | Audiosl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447450.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Black and White Антология [Ru/En] (RePack) 2001-2006 | R.G. ReCoding
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_440608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440608.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Frozen Synapse: Prime (2014) [En/Multi] (upd4.1) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439545.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Final Theory (2018) [En] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_432491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432491.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_430656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430656.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_429017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429017.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.12) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427012.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ CastleStorm 2 / CastleStorm II (2020) [Ru/Multi] (1.0) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_422292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422292.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Tryst [En] (RePack) 2012 | SEYTER
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_420785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420785.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Dungeons 2: A Game of Winter (2015) [En] (1.5.1.392/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419621.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Warhammer 40,000: Deathwatch (2015) [Ru/Multi] (1.0) Repack xatab [Enhanced Edit
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_419616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419616.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Emergency 2016 (2015) [Multi] (1.0.0) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417427.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Prodigy Tactics (2017) [En/Fr] (0.8.9) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_417136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417136.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Immortal Realms: Vampire Wars (2020) [Multi] (1.01) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_415291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415291.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Trapped Dead: Lockdown (2015) [En/Multi] (18.10.2015) Repack R.G. Механик
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412922.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Nantucket (2018) [En] (1.4c/dlc) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408405.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407752.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Ancestors Legacy (2018) [Ru/Multi] (64724/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406967.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Confrontation / Confrontation: Последняя битва [Ru/En] (RePack/v.1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_406471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406471.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Total War: WARHAMMER II / Total War: WARHAMMER 2 (2017) [Ru/En] (1.0.0) Repack R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_397251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397251.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Total War: WARHAMMER II - это стратегическая игра поис�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF1662727ACA5073103A830636A40E3012A07985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252966   (387078) от 07.10.2018
-
-Eisenwald: Blood of November (2016) [Ru/Multi] (1.3) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_387078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герцог умер, не оставив наследника. Решать, кто займет его место, предстоит совету. Воспользовавшись хаосом, за корону начинают соперничать два влиятельных клана: Эйсиг и Хорн. Но и менее родовитые кланы тоже претендуют на престол. Карты сданы, а ставки слишком высоки – стороны не откажутся от притязаний. Что бы ни решил совет, начнется междоусобица. Вы единственный, (   Читать дальше...   )Тип издания: LicenseРазработчик: Aterdux EntertainmentЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B198A8965DCFA65011E20D31D3010FCC8481F6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

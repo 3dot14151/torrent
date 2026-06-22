@@ -1,3 +1,92 @@
+###  Публикация: 608393   (993249) от 25.01.2013
+
+eComStation OS 2.1  [демо-версия] (1xCD)
+
+>>Linux, Unix и другие ОС
+>>Другие ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993249.jpg" />
+</div>
+
+
+###  Подробнее
+
+eComStation (eCS) — обновлённая OEM-версия операционной системы IBM OS/2 Warp 4.5, разработанная и продвигаемая на рынке американской компанией Serenity Systems International и голландской компанией Mensys B.V.
+
+Версия eComStation отличается:
+- улучшенным графическим интерфейсом
+- обновлённой IFS JFS с поддержкой загрузки
+- драйвером ACPI
+- улучшенной программой установки
+- обновленными наборами драйверов
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353042   (992990) от 16.01.2020
+
+XigmaNAS-x64-LiveCD-12.1.0.4.7091 1xCD 12.1.0.4.7091 [amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992990.jpg" />
+</div>
+
+
+###  Подробнее
+
+XigmaNAS - свободная операционная система для сетевого хранилища. Является прямым продолжением проекта
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BCBFF73A5AAD08E6FFFAFE3C67225D9CD08830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610134   (990819) от 28.01.2013
+
+ESSPEE R3 Live DVD (Анализ безопасности, хакинг) [i386] (1xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990819.jpg" />
+</div>
+
+
+###  Подробнее
+
+26-го января Вышла новая версия ESSPEE Live DVD - Linux-дистрибутива на базе Ubuntu, который включает в себя только свободные и бесплатные программы. Дистрибутив предназначен для пентестов, восстановления данных, хакинга.
+
+Как отмечали авторы обзора Xakep.ru: "ESSPEE (Extreme Security Scanning Penetration Test & Exploitation Environment) собирается на базе BackTrack. Разработчик ESSPEE изъял оттуда «некошерные» инструменты, добавил интерфейс на Unity и произвёл некоторые другие изменения. В общем, это приятная альтернатива стандартному BackTrack"
+
+username: root; pass: toor.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971106   (988321) от 01.01.2016
 
 Calculate Linux 15.12 [x86-64] 1xCD, 6xDVD
@@ -6,7 +95,7 @@ Calculate Linux 15.12 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988321.jpg" />
 </div>
 
 
@@ -34,7 +123,7 @@ Calculate Linux 15.12 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987319.jpg" />
 </div>
 
 
@@ -62,7 +151,7 @@ Scientific Linux 6.5 Live Beta [i386, x86-64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985899.jpg" />
 </div>
 
 
@@ -90,7 +179,7 @@ JonDo/Tor-Secure-Live-DVD 0.9.88 [анонимный доступ в сети] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985681.jpg" />
 </div>
 
 
@@ -118,7 +207,7 @@ CentOS 7.2-1511 [i386] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_985398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985398.jpg" />
 </div>
 
 
@@ -144,7 +233,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [i68
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984362.jpg" />
 </div>
 
 
@@ -170,7 +259,7 @@ Manjaro Linux 15.12 (Arch + несколько рабочих столов) [x86
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_984211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984211.jpg" />
 </div>
 
 
@@ -196,7 +285,7 @@ Kerio Control Software Appliance 9.3.3 build 3634 [i386] 1xCD [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980813.jpg" />
 </div>
 
 
@@ -222,7 +311,7 @@ Kerio Operator Software Appliance 2.6.3 build 9208 [i386] 1xCD [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980807.jpg" />
 </div>
 
 
@@ -249,7 +338,7 @@ Slackware Live Beta3 (Mate, XFCE, KDE, Plasma5), Slackware64 Install DVD Current
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979977.jpg" />
 </div>
 
 
@@ -277,7 +366,7 @@ Tor Browser 5.0.7 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978814.jpg" />
 </div>
 
 
@@ -303,7 +392,7 @@ JonDo/Tor-Secure-Live-DVD 0.9.88.2 [анонимный доступ в сети]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_978741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978741.jpg" />
 </div>
 
 
@@ -331,7 +420,7 @@ Q4OS 1.4.5 Live (Легкий дистрибутив) [Trinity - форк KDE 3.
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977889.jpg" />
 </div>
 
 
@@ -359,7 +448,7 @@ Frugalware Linux 1.8 [x86_64] (5xDVD+1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977512.jpg" />
 </div>
 
 
@@ -387,7 +476,7 @@ DSL OS 4.11 rc2 [x86] (1xCD)
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974565.jpg" />
 </div>
 
 
@@ -420,7 +509,7 @@ Menuet OS 0.99.01 [x86, x86_64] (1 FDD)
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974447.jpg" />
 </div>
 
 
@@ -448,7 +537,7 @@ Slackware 14.2 Beta1 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974204.jpg" />
 </div>
 
 
@@ -476,7 +565,7 @@ Scientific Linux 6.5 Live RC1 [i386, x86-64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971711.jpg" />
 </div>
 
 
@@ -504,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971667.jpg" />
 </div>
 
 
@@ -535,7 +624,7 @@ Tails 0.22.1 RC1 [анонимный доступ в сети] [i386] 1xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_971627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971627.jpg" />
 </div>
 
 
@@ -563,7 +652,7 @@ MultiBootUSB 7.5.0 [x86, x86_64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970371.jpg" />
 </div>
 
 
@@ -589,7 +678,7 @@ Parted Magic 2016.01.06 [i686, amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_970299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970299.jpg" />
 </div>
 
 
@@ -615,7 +704,7 @@ Insofta Cover Commander 3.6.0 Repack The Hacker [x86-64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969434.jpg" />
 </div>
 
 
@@ -626,84 +715,6 @@ Insofta Cover Commander позволяет создавать профессио
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D22D8C5AD12A6F8EC664901C7B30824CAB929070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619273   (968602) от 15.02.2013
-
-Mythbuntu 12.04.2 LTS [i386, x86-64] (2xCD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновлен Mythbuntu, основанный на Ubuntu дистрибутив, целью которого является создание самостоятельной системы основанной на программе MythTV (аналоги Knoppmyth и Mythdora). Представляет собой самодостаточную мультимедийную станцую, как для просмотра, так и для вещания. В качестве рабочего окружения используется XFCE4. По умолчанию нет никаких дополнительных приложений, типа OpenOffice или Evolution, но в любой момент Mythbuntu может быть легко превращен в Ubuntu, Kubuntu, Xubuntu или любую другую *buntu систему. Для управления используется Mythbuntu Control Center, которое позволяет настроить все необходимые параметры для нормально работы MythTV, “превратить” в другие *buntu системы (доустановив необходимые пакеты), установить проприетарные драйвера или кодеки, настроить ПДУ и многое другое.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976858   (967525) от 19.01.2016
-
-KaOS Linux 2016.01 (Arch + Plasma KDE 5) [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект KaOS представил январский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. К наиболее существенным изменениям разработчики относят: модифицированный Plasma Desktop, который включает Frameworks 5.18.0, Plasma 5.5.3 and KDE Applications 15.12.1.. Plasma Wayland доступен через пункт меню менеджера входа в систему. Также (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A51925CD9CC30F97A75C0151E14B7405B97DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358992   (966007) от 10.02.2020
-
-Debian GNU/Linux 10.3.0 + nonfree Buster [i386] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET, опубликовано третье корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 94 обновления с устранением проблем со стабильностью и 52 обновления с устранением уязвимостей. Одновременно сформирован выпуск Debian 9.12, в котором предложено 70 обновлений (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9E90724DCC580AD95753F4157CBAF24E8668C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

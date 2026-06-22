@@ -1,3 +1,29 @@
+###  Публикация: 110631   (1011889) от 09.06.2021
+
+Akikan! | Пустая банка [2009, TV, 12 эп.] DVDrip 400p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несчастный японский школьник Дайти Какэру 16 лет не знал девичьей любви, компенсируя это богатым воображением и коллекционированием редких банок из-под сока. Так что когда банка с дынным лимонадом превратилась в его руках в прекрасную девушку, Дайти не удивился, решив, что попал в заветную мечту, где, как известно, твори, что пожелаешь! Лишь несколько болезненное (   Читать дальше...   )Производство: студия Brains Base / ブレインズ・ベースЖанр: комедия, романтика, эттиРежиссер: Химаки ЮдзиПеревод: Gotrics, dr.kannibal, IshtvanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4BA118F223CA6FE6899B19DFCA7B87F80944F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 131661   (1011879) от 09.06.2021
 
 Tsukuyomi: Moon Phase | Фаза Луны [2004, TV, 25 эп. + 1 SP] DVDRip 480p raw
@@ -6,7 +32,7 @@ Tsukuyomi: Moon Phase | Фаза Луны [2004, TV, 25 эп. + 1 SP] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011879.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Claymore | Клеймор [2007, TV, 26 эп.] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011875.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Eiga Sayonara Watashi no Cramer: First Touch | Farewell, My Dear Cramer: First T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011700.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011497.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой! [2018, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011411.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Shimoneta: A Boring World Where the Concept of Dirty Jokes Doesn`t Exist / Ск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011377.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Aldnoah.Zero | Альдной.Зеро [2014, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011370.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Ame-iro Cocoa in Hawaii | Rainy Cocoa in Hawaii | Какао цвета дожд
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011354.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan | Armored Trooper Votoms: Brilliantly Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011341.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Niji-iro Days | Rainbow Days | Радужные деньки [2016, TV, 24 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011340.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailse
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011337.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Vo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011335.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011333.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011331.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Брон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011328.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Брон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011325.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные вои
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011315.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Eyeshield 21 / Забрало 21 [2005, TV, 145 из 145] TVRip 480p Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011255.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Ame-iro Cocoa: Rainy Color e Youkoso / Какао цвета дождя [ТВ-2]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011251.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Kuroko no Basuke 3rd Season | Баскетбол Куроко [ТВ-3] [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011183.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011140.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Kamisama Hajimemashita | Kamisama Kiss | Очень приятно, Бог [2012
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011106.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [2012, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011026.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Jouran: The Princess of Snow and Blood | Joran: The Princess of Snow and Blood |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010886.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010674.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F29BF9FFDF67D28BB0766C54C06DFC40F38B7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461005   (1010424) от 18.06.2021
-
-Shakunetsu Kabaddi | Burning Kabaddi | Пламенное кабадди [2021, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тацуя Ёигоси — бывшая звезда футбола средних школ, ныне решивший порвать со спортом окончательно. Никакой командный спорт, а тем более футбол, ему неинтересны, и даже наоборот, вызывают отвращение. Но тут в его жизнь старшеклассника врывается непонятный, чудаковатый, но при этом интересный и захватывающий спорт — кабадди!Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: спортРежиссер: Итикава КадзуяПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4B7070097438DA25839E9098195B28C1719135
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1342285   (226073) от 01.12.2019
+
+SQLPro Studio 2019.63 (build 110616) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226073.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2019Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8F0EA406F9C7686B6484DD4B6D5D887A0120FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513351   (226059) от 28.11.2021
+
+Project Office Pro 9.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с вашим личным экспертом по диаграммам Ганта. Project Office - это полнофункциональное приложение для управления проектами, которое поможет вам управлять как простыми, так и сложными проектами на устройствах macOS.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: © 2021 DK ConsultingПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1050C0514EBE9D34528FE961EA5B205D2D3FB1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513365   (226041) от 28.11.2021
 
 Tipard Blu-ray Converter for Mac 10.0.10 [Multi/Ru]
@@ -6,7 +58,7 @@ Tipard Blu-ray Converter for Mac 10.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226041.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ NetShred X 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226040.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sublime Text 4.0 Build 4151 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226037.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Network Radar 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_226025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226025.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Network Radar 2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_226005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226005.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Mail Designer Pro 2 (2.5.2) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225995.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ BookMacster 2.12.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225981.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Antivirus Zap Pro 3.8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225977.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Sketch 70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225968.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Mactracker 7.12.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225956.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ ON1 Photo RAW 2021 v15.0.1.9794 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225945.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ QLab 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225939.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Wondershare Recoverit 8 v8.3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225938.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ PhotosBlender 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225937.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ VideoProc Converter 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225929.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225924.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ WonderPen 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225919.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ Valentina Studio Pro 11.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225903.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ NetWorker Pro 7.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225887.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ BetterSnapTool 1.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225862.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Tipard Mac Video Converter Ultimate 10.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225849.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ VisualDiffer 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225840.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ AirRadar 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225839.jpg" />
 </div>
 
 
@@ -613,75 +665,13 @@ Deponia  [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225822.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Deponia – point & click квест, главным героем которого является неприятный, злой и страдающий манией величия парень по имени Руфус, живущий на окраине небольшого поселка, расположенного в отдаленном уголке загрязненной планеты Депония. Он мечтает о лучшей жизни в одном из богатых и красивых городов, парящих над поверхностью планеты. Очередная неудавшаяся попытка запустить себя на орбиту приводит к тому, что на землю с небесного города падает девушка. Увидев шанс попасть в такое желанное место, Руфус решает вернуть девушку домой.Релиз состоялся: 2012Тип издания: MacOS X native gameЖанр: AdventureЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965458   (225812) от 14.12.2015
-
-PCalc  4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225812.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCalc  - мощный калькулятор
-PCalc - представляет собой полнофункциональный научный калькулятор для Mac OS X с поддержкой шестнадцатеричных, восьмеричных и двоичных расчетов, а также режим программируемых функций и обширный набор модулей преобразования. Очень наглядна "лента печати" выполняемых операций и получаемых значений (наподобие ленты кассового аппарата). (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 сентября 2015Разработчик: TLA Systems Ltd.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8404614C798D85C8DEFE48D8BB9AE84E63D3A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586949   (225808) от 09.12.2012
-
-TechTool Pro 6.0.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение TechTool Pro обладает следующей функциональностью:
-- Удобный и простой единый интерфейс для выполнения операций по тестированию и обслуживанию системы
-- Создание аварийного загрузочного раздела на активном системном томе (DVD не требуется)
-- Выполнение SMART-теста жёстких дисков для обнаружения изменений в состоянии или приближающемся отказе
-- Ремонт повреждённых томов, в том числе новейших SSD-дисков
-- Клонирование томов
-- Обнаружение бед-блоков на жёстком диске и восстановление записанных в них файлов
-- Восстановление прав доступа к файлам на разделе
-- Восстановление удалённых файлов и потерянных данных
-- Мониторинг конфигурации устройств для лучшего управления безопасностью в вашей локальной сети(   Читать дальше...   )Название программы: TechTool ProРелиз состоялся: 27 сентября 2012 г.Тип издания: Mac OS X SoftwareЯзык интерфейса: Английский, немецкий, французский, итальянский, японский
 
 ## Скачать торент
 ```bash

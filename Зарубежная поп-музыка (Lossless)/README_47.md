@@ -1,3 +1,90 @@
+###  Публикация: 919632   (581862) от 20.07.2015
+
+VA - Top 40 (Movies) (2014) 2CD[FLAC|tracks + .cue]<Pop, Soul, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bay City Rollers - Bye Bye Baby [2:51]
+02.Dolly Parton - 9 To 5 [2:47]
+03.Edison Lighthouse - Love Grows (Where My Rosemary Goes) [2:51]
+04.Leo Sayer - You Make Me Feel Like Dancing [3:39](   Читать дальше...   )Жанр: Pop, Soul, RockПродолжительность: 02:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914E506DC87F1A2FB8FBE2D378C03FA9BDF06FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919667   (581859) от 20.07.2015
+
+Duran Duran - Thank You (1995) [FLAC|image + .cue]<New Wave, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Lines [05:31]
+02. I Wanna Take You Higher (Version 1) [05:05]
+03. Perfect Day [03:50]
+04. Watching The Detectives [04:47](   Читать дальше...   )Жанр: New Wave, Pop-RockПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CADFDB977B89E1DA44B98FA0F34184A79CFD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302392   (581249) от 15.05.2019
+
+The Hornettes - Holiday (1994) [FLAC|Lossless|image + .cue] <Disco, Europop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_581249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hawaii (2:09)
+02. Hands Up (3:44)
+03. Pata Pata (3:21)
+04. La Bamba (2:39)(   Читать дальше...   )Жанр: Disco, Europop, LatinПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11986503D511D1FFF68B88F67F5B42E7C9323762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920265   (580964) от 21.07.2015
 
 VA - Pure... Voices (2012) Box Set, 4CD [FLAC|Track+.cue]<Pop, Jazz, Rock>
@@ -6,7 +93,7 @@ VA - Pure... Voices (2012) Box Set, 4CD [FLAC|Track+.cue]<Pop, Jazz, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580964.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Laid Back - Uptimistic Music Vol. 1 - Vol. 2 (2013) 2CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580919.jpg" />
 </div>
 
 
@@ -65,7 +152,7 @@ VA - Back To The 80s (The Long Versions) (2002) 4CD[FLAC|tracks + .cue]<Pop, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_580908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_580908.jpg" />
 </div>
 
 
@@ -94,7 +181,7 @@ Chromeo - She's In Control (2004) [FLAC|Lossless|tracks + .cue] <Electro, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580371.jpg" />
 </div>
 
 
@@ -123,7 +210,7 @@ Maarja - First In Line (1997) [FLAC|tracks+.cue]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580184.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ Sindy - Selfie (2015) [FLAC|tracks+.cue]<Pop, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_580116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580116.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Rhye - Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Sophisti-Pop, Indie-Pop, RnB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579330.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Chromeo - Head Over Heels (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Nu-Di
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579329.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Carly Rae Jepsen - Dedicated (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_579325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579325.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ VA - Bravo Hits 117 (2022) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Pop, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578799.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ VA - NRJ Total Hits 2015 (2CD)[FLAC|track+.cue]<Pop, Hip Hop, Eurodance, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578770.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Zucchero - Spirito Di Vino (1995) [FLAC|Lossless]<Pop-Rock-Blues>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578453.jpg" />
 </div>
 
 
@@ -361,7 +448,7 @@ Sandra Van Nieuwland - Breaking New Ground (2015) [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_578441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578441.jpg" />
 </div>
 
 
@@ -390,7 +477,7 @@ Ed Sheeran - = (Tour Edition) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acousti
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_577492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577492.jpg" />
 </div>
 
 
@@ -419,7 +506,7 @@ Melanie C - Northern Star (2000) [FLAC|Lossless]<Pop, Pop Rock, Dance Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576529.jpg" />
 </div>
 
 
@@ -454,7 +541,7 @@ Various Artists - Eurovision Song Contest Tel Aviv 2019 - Dare To Dream (2019) C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_576164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576164.jpg" />
 </div>
 
 
@@ -483,7 +570,7 @@ Sparks - The Seduction of Ingmar Bergman (2009) Deluxe Edition, 2022, BMG [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_575756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575756.jpg" />
 </div>
 
 
@@ -512,7 +599,7 @@ VA - Pop Decades: 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574568.jpg" />
 </div>
 
 
@@ -541,7 +628,7 @@ VA - Take On Me: 80's the Collection (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574421.jpg" />
 </div>
 
 
@@ -570,7 +657,7 @@ Ten Sharp - Everything & More: The Best Of Ten Sharp (2000) Compilation [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572528.jpg" />
 </div>
 
 
@@ -599,7 +686,7 @@ Leo Sayer - Northern Songs (2021) Sings The Beatles [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572117.jpg" />
 </div>
 
 
@@ -628,7 +715,7 @@ Sandra - Medley - Non-Stop Hit Mix 2020 (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572092.jpg" />
 </div>
 
 
@@ -657,7 +744,7 @@ Laurence Castera - Les hauts lieux (2019) [FLAC|Lossless|tracks + .cue] <French 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570968.jpg" />
 </div>
 
 
@@ -671,93 +758,6 @@ Laurence Castera - Les hauts lieux (2019) [FLAC|Lossless|tracks + .cue] <French 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CB5D5D20D1D64A5D272EBDA01B50279D00B93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043806   (570931) от 17.08.2016
-
-Lukas Graham - Lukas Graham (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 Years 03:57
-02. Take The World By Storm 03:11
-03. Mama Said 03:26
-04. Happy Home 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A5F6FA4C917AE40FC047EAFCB99DB5A0DF2323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043700   (570921) от 17.08.2016
-
-Gwen Stefani - This Is What The Truth Feels Like (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery 03:26
-02. You’Re My Favorite 02:56
-03. Where Would I Be? 03:18
-04. Make Me Like You 03:36(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8757F7673FAF611D513362E4EE648658D2EA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151679   (570703) от 20.07.2017
-
-Lee Towers - The Real… Lee Towers (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. You'll Never Walk Alone
-02. Frankie
-03. It's Raining In My Heart(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 03:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794B31FFA3E75CCAA0B6690248CDD831905D4F83
 ```
 
 https://mybot314.ru/tekegram_catalog/

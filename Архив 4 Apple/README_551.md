@@ -1,3 +1,56 @@
+###  Публикация: 1650720   (225102) от 03.08.2023
+
+SiteSucker 5.1.10 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225102.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.08.2023Разработчик: © 2001-2022 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A34515644E8CBA56B8307251474E92C9AC0A08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268619   (225099) от 12.12.2018
+
+Network Radar 1.5.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Network Radar предоставляет Вам информацию о сети к которой подключен ваш Mac . Network Radar показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. Network Radar представляет собой простой в использовании инструмент, который позволит вам получить детальную информацию о сетевых устройствах.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2018Разработчик: Daniel DienerПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C48F87557C510A5FF6A877417EC11C2B1DE39A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268566   (225091) от 12.12.2018
 
 Unclutter 2.1.16d [Multi/Ru]
@@ -6,7 +59,7 @@ Unclutter 2.1.16d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225091.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ URL Manager Pro 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225090.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ AnyTrans for Android 6.4.0 (build 20181203 ) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225075.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ Viper FTP 6.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225055.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ DirEqual 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225037.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ JetBrains IntelliJ IDEA Ultimate Edition 15.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224990.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Dynamic Wallpaper Engine 15.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224965.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ Live Wallpaper & Themes 4K Pro 17.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224948.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ Ableton Live 10 Suite v10.1.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224914.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ Quiver: The Programmer's Notebook 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224910.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Adobe Animate 2020 20.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224903.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224879.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ SketchUp Pro 2021.0 v21.0.338 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224864.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ Topaz Video AI for Mac 3.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224823.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ Things 3 v.3.17.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224817.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ Alfred PowerPack 5.1.2  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224690.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ Movavi Video Converter Premium 2020 20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224676.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ Movavi Video Editor 15 Business 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224650.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ Sublime Text 4.0 Build 4152 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_224611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224611.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ Permute 3 v3.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224539.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ Soulver 3 v3.4.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224529.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ Hype 4 Pro v4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224515.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ Nisus Writer Pro 3.1 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224507.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ iNotepad Pro 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224499.jpg" />
 </div>
 
 
@@ -632,60 +685,6 @@ iNotepad специально разработан, чтобы позволит�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03096A44CE12BF2F682CA6D356B3DDF6CA34CDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425080   (224490) от 19.11.2020
-
-Keep It 1.8.21 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 29.10.2020Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Арабский и  Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D922890B6A842335FD13951EC1B8443E3F439622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425129   (224464) от 19.11.2020
-
-Battery Health 3 v1.0.24 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
-
-Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE422C84CFC1DF79797C29BFAA9D9408B85D5F8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1248182   (446183) от 18.09.2018
+
+Luminar 2018 v1.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar первый в мире редактор фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет вас сделать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D975B343F5C9FFB154E80E6B4181F63A319573D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061772   (446136) от 11.10.2016
 
 FileMaker Pro Advanced 15.0.2.220 [Multi]
@@ -6,7 +34,7 @@ FileMaker Pro Advanced 15.0.2.220 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446136.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Nik Complete Collection by DxO 1.2.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445964.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Microsoft Office Standard 2016 v16.16.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445947.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Wirecast Pro 8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445829.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ Ableton Live Suite 9.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445787.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ Iridient Developer 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445731.jpg" />
 </div>
 
 
@@ -171,7 +199,7 @@ Parallels Desktop for Mac Business Edition 13.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445715.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ DaisyDisk 2.1.2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_445532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445532.jpg" />
 </div>
 
 
@@ -228,7 +256,7 @@ Magic Sort List 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445372.jpg" />
 </div>
 
 
@@ -256,7 +284,7 @@ PatterNodes 2 v2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445371.jpg" />
 </div>
 
 
@@ -283,7 +311,7 @@ iCollections 6 v6.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445370.jpg" />
 </div>
 
 
@@ -309,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445369.jpg" />
 </div>
 
 
@@ -335,7 +363,7 @@ Allavsoft Video Downloader Converter 3.22.9.7563 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445365.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445254.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ Mountain Duck 4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445251.jpg" />
 </div>
 
 
@@ -416,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445169.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ Temp Monitor 1.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444930.jpg" />
 </div>
 
 
@@ -469,7 +497,7 @@ aText 2.28.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444928.jpg" />
 </div>
 
 
@@ -495,7 +523,7 @@ CalcPad - Notepad and Calculator. Reinvented 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444766.jpg" />
 </div>
 
 
@@ -524,7 +552,7 @@ Permute 2.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444765.jpg" />
 </div>
 
 
@@ -551,7 +579,7 @@ BetterSnapTool 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444666.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ Red Giant Universe 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444646.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ Monodraw 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444634.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ Leaf 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444448.jpg" />
 </div>
 
 
@@ -661,7 +689,7 @@ Camtasia 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444440.jpg" />
 </div>
 
 
@@ -673,33 +701,6 @@ Camtasia for Mac - эффективное приложение для созд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:286CBB8C571CA17002A74C75B30382FBBDBB6547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944047   (444430) от 05.10.2015
-
-Winclone Pro 5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_444430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Winclone. Или как проще всего клонировать Windows на Mac..
-По непонятным  причинам стандартная Дисковая утилита не работает с Windows разделами на Mac OS X: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 сентября 2015Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FCD7E19312B5C5D4196D9F30A87C68C8736270
 ```
 
 https://mybot314.ru/tekegram_catalog/

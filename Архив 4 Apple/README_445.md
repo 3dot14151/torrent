@@ -1,3 +1,60 @@
+###  Публикация: 1075767   (318828) от 23.11.2016
+
+iSubtitle 3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318828.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSubtitle - субтитры в фильмах для iOS устройств
+iSubtitle - приложение позволяет создавать профессиональные субтитры в фильмах для мобильных устройств: iPad, iPhone (2G, 3G, 3GS, 4, 4S, 5C, 5S, 6, 6 plus), iPod (Touch, Classic, Nano), Apple TV или для любого QuickTime-плеера. iSubtitle является первым и единственным приложение, которое в полной мере использует технологию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 ноября 2016Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0071E22FDD7F5FA0909B75133F37CE5ACF830C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075713   (318819) от 23.11.2016
+
+Forecast Bar 2.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
+
+Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
+- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 ноября 2016Разработчик: Real Casual Games, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+* показания прогноза погоды можно сделать на русском (в настройках программы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A383E8B9F0F593339E5F9D5E8ECDEA1F6B713F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075786   (318817) от 23.11.2016
 
 Smultron 9.1.1 [Multi/Ru]
@@ -6,7 +63,7 @@ Smultron 9.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318817.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ iTrash 4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318670.jpg" />
 </div>
 
 
@@ -61,7 +118,7 @@ RapidWeaver 8 v 8.4.0 (build 20812) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318669.jpg" />
 </div>
 
 
@@ -89,7 +146,7 @@ Disk Xray 2.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318668.jpg" />
 </div>
 
 
@@ -118,7 +175,7 @@ Mate Translate 6.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318666.jpg" />
 </div>
 
 
@@ -146,7 +203,7 @@ Alfred 4 Powerpack 4.0.5 (1118) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318665.jpg" />
 </div>
 
 
@@ -175,7 +232,7 @@ Athentech Perfectly Clear Complete 3.8.0.1682 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318664.jpg" />
 </div>
 
 
@@ -203,7 +260,7 @@ Translatium 9 v9.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318663.jpg" />
 </div>
 
 
@@ -229,7 +286,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.32[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318662.jpg" />
 </div>
 
 
@@ -255,7 +312,7 @@ Cinch 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318661.jpg" />
 </div>
 
 
@@ -283,7 +340,7 @@ InstaBro | Instagram Browser 5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318660.jpg" />
 </div>
 
 
@@ -311,7 +368,7 @@ BetterSnapTool 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318658.jpg" />
 </div>
 
 
@@ -338,7 +395,7 @@ KCNcrew Pack 10-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318510.jpg" />
 </div>
 
 
@@ -364,7 +421,7 @@ TG Pro (Temperature Gauge Pro) 2.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318507.jpg" />
 </div>
 
 
@@ -391,7 +448,7 @@ PullTube 1.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317875.jpg" />
 </div>
 
 
@@ -417,7 +474,7 @@ Hookshot 1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317768.jpg" />
 </div>
 
 
@@ -443,7 +500,7 @@ EagleFiler 1.9.1 [Multi/Ri]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317767.jpg" />
 </div>
 
 
@@ -471,7 +528,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317766.jpg" />
 </div>
 
 
@@ -499,7 +556,7 @@ PDF Search 10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317765.jpg" />
 </div>
 
 
@@ -525,7 +582,7 @@ File List Export 2.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317758.jpg" />
 </div>
 
 
@@ -551,7 +608,7 @@ Reeder 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317757.jpg" />
 </div>
 
 
@@ -577,7 +634,7 @@ SiteSucker 3.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317756.jpg" />
 </div>
 
 
@@ -606,7 +663,7 @@ Tower 6 v6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317755.jpg" />
 </div>
 
 
@@ -633,7 +690,7 @@ Swinsian 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317752.jpg" />
 </div>
 
 
@@ -647,62 +704,6 @@ Swinsian — простой аудио плеер с функцией управ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A415517AAF65EACEB50EFB2ECF46441F51C4F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421758   (317662) от 05.11.2020
-
-Memory Clean 3 v1.0.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Clean - приложение для оптимизации памяти вашего Mac и лучше всего использовать утилиту после того как вы закончили интенсивное использование памяти (RAM) в приложении или игре.
-
-У каждого пользователя найдутся «тяжелые» приложения для работы которых не помешает небольшая уборка оперативной памяти. Даже работа с браузером порой может отнять приличное количество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EDE925546B9574C89DCA6B8EC9A88DAC333F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421610   (317648) от 05.11.2020
-
-Bootstrap Studio 5.4.3 Lifetime Edition [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Он поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B71E0E573610B52725CD970409AC0DBED88C461
 ```
 
 https://mybot314.ru/tekegram_catalog/

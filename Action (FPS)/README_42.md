@@ -1,3 +1,29 @@
+###  Публикация: 1822238   (100808) от 06.10.2025
+
+Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молчуны возвращаются в раундовом шутере с элементами выживания по мотивам отмеченного наградами британского хоррора Maid of Sker! Вас ждут орды уже знакомых и новых элитных чудовищ со сверхестественными способностями, оружие в стиле стим-панк, сменные ужасающие маски и загадочные цели.Тип издания: RepackРазработчик: Wales InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E520F1DCAF1EB561122C85CF3D35638DD677249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822082   (94588) от 05.10.2025
 
 System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack dixen18 [Remake]
@@ -6,7 +32,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack dixen18 [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_94588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94588.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ CULTIC (2022) [Ru/En] (Build 20066947/dlc) Repack Other s [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91303.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tom Clancy's Rainbow Six 3: Raven Shield и Athena Sword [Ru] (RePack) 2003 | Pi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89964.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89138.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87911.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87910.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Call of Duty: Modern Warfare 2 + All DLC + AlterIWnet [Ru] (RePack) 2009 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87079.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_87009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87009.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86871.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Painkiller: Recurring Evil / Painkiller: Абсолютное зло (2012) [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86236.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85785.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Vietcong / Вьетконг [Ru/En] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85191.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85187.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Warhammer 40 000: Fire Warrior [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84806.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84178.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Battlefield Vietnam [En/Ru] (P) 2004
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84010.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84006.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Left 4 Dead 2  [Ru/En] (Steam-Rip/2.1.0.2 build 4777) 2009 l R.G. Origins
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83397.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80222.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70609.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62728.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62385.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61684.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61625.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61583.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Bears In Space - это динамичный шутер от первого ли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7879660F5F226FCA6567337840DFE418721C928F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711375   (61352) от 30.03.2024
-
-STAR WARS: Dark Forces Remaster (2024) [Ru/En] (1.0.1308.0) Repack dixen18
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Wars: Dark Forces Remaster был воплощен в жизнь командой Nightdive Studios и полностью переработан с помощью собственного движка KEX, что позволяет игре работать на современных игровых устройствах с разрешением до 4K и частотой 120 кадров в секунду. Новым и вернувшимся игрокам понравится обновленный игровой процесс Star Wars: Dark Forces Remaster, текстуры высокого (   Читать дальше...   )Тип издания: RepackРазработчик: Nightdive Studios, LucasArtsЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E88F434781506699B739EE93CE27D41D251AC90
 ```
 
 https://mybot314.ru/tekegram_catalog/

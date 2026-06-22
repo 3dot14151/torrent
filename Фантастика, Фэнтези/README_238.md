@@ -1,3 +1,55 @@
+###  Публикация: 467512   (82092) от 14.03.2012
+
+Андрей Вербицкий | Испытания на прочность [2012] [FB2,RTF]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители Зареченска пережили перенос в новый мир и последующую за ним междоусобицу. Они испытали на себе жестокость бандитов и отразили нападение аборигенов хашш. Однако судьба не желает оставлять людей в покое и готовит очередное испытание.Далеко, там, где заканчивается степь и начинается лес, собирается армия, противостоять которой будет очень трудно. Или это только так кажется? Ведь люди не только сохранили знания, которых нет ни у одной расы в этом мире, но и приобрели новые.Формат: FB2,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59570CCB8DDCB44F03970658CE4EEA42773501B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467499   (82030) от 14.03.2012
+
+Герман Романов | Спасти Каппеля! Под бело-зеленым знаменем [2012] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришельцы из будущего в пекле 1920 года! Военно-историческая фантастика высшей пробы! Оказавшись в теле колчаковского офицера, наш современник перевел стрелку времени, и бронепоезд русской истории свернул с «запасного пути» на Транссибирскую магистраль, подарив белым шанс на победу в Гражданской войне. Теперь все в руках генерала Каппеля: если его армия устоит, а сам он не погибнет от пневмонии — не будет ни трагедии Великого Сибирского Ледяного похода, ни агонии Белого дела, ни падения России. Но прорвать фронт истории можно лишь отчаянной «психической атакой» (сами каппелевцы называли их иначе — «беспатронными»): под бело-зеленым знаменем, не кланяясь пулям, без единого выстрела — в штыки!Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED0D9C3FAAFC7AADE68E670D78D00A44FD704C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467388   (81874) от 13.03.2012
 
 Александр Беляев | "Отцы основатели. Русское пространство. Александр Беляев" Серия книг из 7 книг [2009-2010] [PDF]
@@ -6,7 +58,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81874.jpg" />
 </div>
 
 
@@ -38,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81850.jpg" />
 </div>
 
 
@@ -69,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81533.jpg" />
 </div>
 
 
@@ -99,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81512.jpg" />
 </div>
 
 
@@ -127,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_81052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81052.jpg" />
 </div>
 
 
@@ -153,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80685.jpg" />
 </div>
 
 
@@ -180,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80286.jpg" />
 </div>
 
 
@@ -206,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80266.jpg" />
 </div>
 
 
@@ -237,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80176.jpg" />
 </div>
 
 
@@ -264,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80144.jpg" />
 </div>
 
 
@@ -291,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_80044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80044.jpg" />
 </div>
 
 
@@ -317,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79227.jpg" />
 </div>
 
 
@@ -343,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79206.jpg" />
 </div>
 
 
@@ -369,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79116.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_79029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79029.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78526.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_78193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78193.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77942.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77818.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_77616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77616.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76934.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76769.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76627.jpg" />
 </div>
 
 
@@ -644,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76497.jpg" />
 </div>
 
 
@@ -655,58 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40E90886419E633364AA306C0889DD180166DF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452544   (76234) от 15.02.2012
-
-Георгий Савицкий | "Мессер" - меч небесный. Из Люфтваффе в штрафбат [2011] [FB2,RTF]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_76234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Das Ziel treffen!" ("Цель поражена!") - последнее, что слышали в эфире сбитые "сталинские соколы" и пилоты Союзников. А последнее, что они видели перед смертью, - стремительный "щучий" силуэт атакующего "мессера"… Гитлеровская пропаганда величала молодых асов Люфтваффе "Der junge Adlers" ("орлятами"). Враги окрестили их "воздушными волками". А сам они прозвали свои истребители "Мессершмитт" Bf 109 "Der himmlisch Messer" - "клинком небесным". Они возомнили себя хозяевами неба. Герои блицкригов, они даже говорили на особом "блиц-языке", нарушая правила грамматики ради скорости произношения. Они плевали на законы природы и законы человеческие. Но на Восточном фронте, в пылающем небе России, им придется выбирать между славой и бесчестием, воинской доблестью и массовыми убийствами, между исполнением преступных приказов и штрафбатом… Читайте новый роман от автора бестселлера "Штрафная эскадрилья" (   Читать дальше...   )2011Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E19383B42E42524DF9415940E466A250104285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451508   (75850) от 13.02.2012
-
-Сильва Плэт | Сложенный веер (2011) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_75850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия несравненной Сильвы Плэт «Сложенный веер» — это три клинка, три молнии, три луча — ослепительных, но жгуче-прекрасных и неповторимых. «Парадокс Княжинского», «Королевские врата», «Пыльные углы Вселенной» — не просто фэнтези. Это — книга-вызов, книга, которая открывает читателям целый мир: его обитателей хочется любить или ненавидеть, обличать или оправдывать… (   Читать дальше...   )Жанр: Боевое фэнтези, Детективное фэнтези, Эпическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE57A453A866FB41CFABB869974E2A457F9B249
 ```
 
 https://mybot314.ru/tekegram_catalog/

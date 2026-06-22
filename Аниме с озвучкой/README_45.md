@@ -1,3 +1,87 @@
+###  Публикация: 1619243   (200669) от 27.03.2023
+
+Стать любимой собачкой | Inu ni Nattara Suki na Hito ni Hirowareta. | My Life as Inukai-san's Dog [2023, TV, 12 из 12] WEBRip 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что однажды вы проснётесь и обнаружите себя в чужом теле? И даже не в человеческом, а в теле собаки! Именно это и произошло с главным героем. Очнувшись, он осознал, что оказался в теле любимого пса своей одноклассницы Карэн Инукай. В школе девушка ведёт себя очень сдержанно и безэмоционально, зато дома превращается в одержимую любительницу собак. Она (   Читать дальше...   )Производство: Япония / Студия QuadЖанр: Комедия, эттиРежиссер: Ясудо ТакасиЯзык озвучки: Русский двухголосый, закадровый; Японский
+- Cleo-chan, Nuts (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA0A63F81D7E9B92A1BD23A317B9B1155A5AAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622924   (200648) от 30.03.2023
+
+Ми-ми-ми-мишка [ТВ-1] | Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma [2020, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятнадцатилетняя Юна всевозможным делам предпочитает игру в свою любимую VRMMO. Девочка даже в школу не ходит! После одного из обновлений, ей дают овермощный костюм медведя. Юна в замешательстве: с одной стороны, костюмчик просто прелесть, а с другой... стыдно в таком ходить! Но вдруг она сама перемещается в мир игры, где ей приходится по-настоящему сражаться с монстрами. (   Читать дальше...   )Производство: Япония / Студия EMT SquaredЖанр: Приключения, комедия, фэнтезиРежиссер: Нобута ЮЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Frederica Izzard, Hoopoe, Psycho, Renie (AniLibria.TV)
+- Анна Мосолова, Татьяна Шамарина, Ирина Евтягина, Анастасия Портная (Wakanim)
+- Orru, Shaman, Indominus Rex (AniDub)Субтитры: Русские (софтсаб на надписи и полные) (YakuSub Studio)
+- Переводчик: Aero; Редактор: Minamikaze, Lulu; Оформление: AeroПродолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345A115A044FAE271D98C644985A1A23CFBBE223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619085   (200476) от 31.03.2023
+
+Старшая карта [ТВ-1] | High Card [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200476.jpg" />
+</div>
+
+
+###  Подробнее
+
+По королевству Форланд разбросаны 52 особенные карты, каждая из которых дарует своему владельцу необыкновенную способность. Король поручает корпорации «‎Пинокль» собрать все эти карты, пока они не погрузили страну в хаос.Производство: Япония / Студия Studio Hibari, TMS EntertainmentЖанр: ПриключенияРежиссер: Вада ДзюнъитиПеревод: (Crunchyroll)Язык озвучки: Русский многоголосый, закадровый; Японский
+- MacaRonin, Гусь Борис, Abe, Akemisuki, Veda (SHIZA Project)Субтитры: Русские (софтсаб на надписи и полные); Английские (софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A76278E9D862C1359F07D6F0D3C6D4DD8F56CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604239   (200465) от 31.03.2023
 
 Этот вампир постоянно умирает [ТВ-2] | Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +90,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200465.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200452.jpg" />
 </div>
 
 
@@ -59,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200372.jpg" />
 </div>
 
 
@@ -86,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200353.jpg" />
 </div>
 
 
@@ -112,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200340.jpg" />
 </div>
 
 
@@ -142,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200213.jpg" />
 </div>
 
 
@@ -168,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200045.jpg" />
 </div>
 
 
@@ -194,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199808.jpg" />
 </div>
 
 
@@ -220,7 +304,7 @@ Schwarzesmarken | Schwarzes Marken | Чёрные метки [2016, TV, 12 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199421.jpg" />
 </div>
 
 
@@ -247,7 +331,7 @@ Megaton-kyuu Musashi 2nd Season | Мегатон 2 [2022, TV, 15 эп.] HDTVRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199249.jpg" />
 </div>
 
 
@@ -274,7 +358,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198625.jpg" />
 </div>
 
 
@@ -300,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198248.jpg" />
 </div>
 
 
@@ -326,7 +410,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 2nd Season | Classroom of the El
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198215.jpg" />
 </div>
 
 
@@ -355,7 +439,7 @@ Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Неви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_197996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197996.jpg" />
 </div>
 
 
@@ -382,7 +466,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | В п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197170.jpg" />
 </div>
 
 
@@ -410,7 +494,7 @@ Black Clover: Mahou Tei no Ken | Black Clover: Sword of the Wizard King | Чёр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196944.jpg" />
 </div>
 
 
@@ -436,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196724.jpg" />
 </div>
 
 
@@ -464,7 +548,7 @@ Tsugumomo | Цугумомо [2017, TV, 12 эп.] BDRip HEVC 10-bit raw+eng+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196519.jpg" />
 </div>
 
 
@@ -494,7 +578,7 @@ Bakuman | Бакуман [ТВ-1] [2010, TV, 25] BDRip HEVC 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196312.jpg" />
 </div>
 
 
@@ -520,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196227.jpg" />
 </div>
 
 
@@ -547,7 +631,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196221.jpg" />
 </div>
 
 
@@ -574,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196201.jpg" />
 </div>
 
 
@@ -601,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196193.jpg" />
 </div>
 
 
@@ -613,87 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B5FB37335D3DF22909A1C9711951CEBABCF2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625962   (196162) от 03.07.2023
-
-Смертельная игра мёртвой горы [ТВ-1, часть 1] | Dead Mount Death Play [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная битва, на кону которой — судьба человечества. Легендарный герой, известный как Сокрушитель Бедствий, сражается против некроманта Бога-Мертвеца. В самый разгар их битвы весь мир утопает в ослепительной вспышке света... и Бог-Мертвец перерождается в современной Японии в теле шестнадцатилетнего парня по имени Шинояма Полька. Сильнейший некромант хочет лишь (   Читать дальше...   )Производство: Япония / Студия Geek ToysЖанр: Приключения, фэнтезиРежиссер: Оно МанабуЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Frederica Izzard, MefistoO, WhiteCroW (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82193E21171B5410644D308A378F9AFF5E52FAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625401   (196086) от 05.07.2023
-
-Мой глупый первый друг | Пустоголовый переведённый ученик | Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Противоположности притягиваются, и главные герои этого аниме – мальчик Такада и девочка Нишимура – хороший тому пример. За свою угрюмость и хмурый внешний вид пятиклассница Нишимура уже давно является объектом насмешек одноклассников, которые называют её «Мрачным жнецом» и считают, что на любого, кто будет с ней общаться, падёт проклятие. И, возможно, она бы так (   Читать дальше...   )Производство: Япония / Студия Studio Signpost, San Blas AnimationЖанр: Комедия, романтика, повседневностьРежиссер: Кагэяма СигэнориЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Ditaro, Hoopoe, Stasia Rem, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE0FF5F6FED325EE70317DA530E7ACCF892FC25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645904   (195870) от 12.07.2023
-
-Ускоренный мир | Accel World [2012, TV, 24 из 24] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195870.jpg" />
-</div>
-
-
-###  Подробнее
-
-2046 год. Юноша по имени Харуюки Арита чувствует, что он находится на дне школьного общества. Ему стыдно за свою жалкую жизнь, и поэтому он много времени проводит в виртуальных играх, которые помогают ему забыться. Но всё меняется, когда Черноснежка, самая популярная девушка в школе, показывает ему таинственную программу виртуальной реальности Brain Burst, окно в (   Читать дальше...   )Производство: Япония / Студия SunriseЖанр: Приключения, романтика, фантастика, школа, экшенРежиссер: Охара МасакадзуЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Itashi, Renie, WhiteCrow, Zozya (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серии по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC01EED7318BAEDE0EBD089FAB104A356880048
 ```
 
 https://mybot314.ru/tekegram_catalog/

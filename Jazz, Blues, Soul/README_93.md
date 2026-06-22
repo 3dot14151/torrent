@@ -1,88 +1,3 @@
-###  Публикация: 1103470   (885575) от 12.02.2017
-
-Dwane Dixon - Black Satin Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'd Rather Get Shot Down (3:38)
-02. Elevator Operator (4:03)
-03. 24-7 Blues (3:49)
-04. Long Way (From Loving You) (6:33)(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1819247C6E3AB867732F0FE5930F67E144FDDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103379   (885563) от 12.02.2017
-
-Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европейские поклонники блюза всегда восхищались техасским музыкантом Омаром Кентом Дайксом, чему в немалой степени способствовал его имидж, соответствовавший их представлением об американце. Высокий, в ковбойских сапогах, с глубоким голосом и южным акцентом, Омар с легкостью мог завести аудиторию. Дайкс родился в 1950 году там же где и Бо Диддли, в маленьком городке (   Читать дальше...   )CD 1 - Best Of
-CD 2 - Omar's PicksЖанр: Blues-RockПродолжительность: 02:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEAF784E64928F9E321BFE8CB8873CBE37ABE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995490   (884801) от 11.03.2016
-
-Duke Pearson - Now Hear This (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Disapproachment [05:53]
- 02.I'm Tired Cryin' Over You [03:51]
- 03.Tones For Joan's Bones [05:34]
- 04.Amanda [03:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A53DF760F56115179C4E81435A6EE95F8A7406C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995470   (884786) от 11.03.2016
 
 Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
@@ -91,7 +6,7 @@ Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884786.jpg" />
 </div>
 
 
@@ -120,7 +35,7 @@ Dr. Lonnie Smith - Spiral (2010) Palmetto Records[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884760.jpg" />
 </div>
 
 
@@ -149,7 +64,7 @@ VA - Easy Listening: 30 Best Pieces Of Beautiful Instrumental Music (2015) [MP3|
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884614.jpg" />
 </div>
 
 
@@ -178,7 +93,7 @@ Matthew Whitaker - Now Hear This (2019) [FLAC|Lossless|tracks + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884537.jpg" />
 </div>
 
 
@@ -207,7 +122,7 @@ Samantha Fish - Faster (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884454.jpg" />
 </div>
 
 
@@ -236,7 +151,7 @@ The Oscar Peterson - Big 6 At Montreux 1975 (1997) Original Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883998.jpg" />
 </div>
 
 
@@ -265,7 +180,7 @@ Benoit Lugue - Cycles (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883737.jpg" />
 </div>
 
 
@@ -294,7 +209,7 @@ Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883706.jpg" />
 </div>
 
 
@@ -323,7 +238,7 @@ Johnnie Bassett & The Blues Insurgents - I Gave My Life To The Blues (1996) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883699.jpg" />
 </div>
 
 
@@ -352,7 +267,7 @@ Johnnie Bassett & The Blues Insurgents - Cadillac Blues (1998) [FLAC|Lossless|im
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883637.jpg" />
 </div>
 
 
@@ -381,7 +296,7 @@ Cannonball Adderley - Soul Zodiac (1972) 2008, EMI Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883520.jpg" />
 </div>
 
 
@@ -410,7 +325,7 @@ The Jive Aces - Recipe For Rhythm (2008) [FLAC|Lossless|image + .cue] <Swing, Ju
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883405.jpg" />
 </div>
 
 
@@ -439,7 +354,7 @@ Orchestre Poly-Rythmo - Cotonou Club (2011) [FLAC|Lossless|tracks + .cue] <Afro-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883198.jpg" />
 </div>
 
 
@@ -468,7 +383,7 @@ Andrew Hill - Change (1966) Remaster, 2007, Blue Note[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883191.jpg" />
 </div>
 
 
@@ -497,7 +412,7 @@ Orgone - New You, Part 1 (2013) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883188.jpg" />
 </div>
 
 
@@ -526,7 +441,7 @@ Ronnie Mathews & Roland Alexander & Freddie Hubbard - (1961/1963) 2002,  Prestig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883110.jpg" />
 </div>
 
 
@@ -555,7 +470,7 @@ Oregon - Our First Record (2004) 1970 [FLAC|Lossless|tracks + .cue] <World Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883106.jpg" />
 </div>
 
 
@@ -584,7 +499,7 @@ Oregon - 45th Parallel (1989) [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883103.jpg" />
 </div>
 
 
@@ -613,7 +528,7 @@ Dave Brubeck - Plays For Lovers (2006) [FLAC|Lossless|image + .cue] <jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882966.jpg" />
 </div>
 
 
@@ -642,7 +557,7 @@ Stan Getz - Plays For Lovers (2006) [FLAC|Lossless|image + .cue] <jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882964.jpg" />
 </div>
 
 
@@ -671,7 +586,7 @@ Billy's Band - Когда был один (2013) [MP3|192 кб/с]<Rock, Jazz, S
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882856.jpg" />
 </div>
 
 
@@ -700,7 +615,7 @@ Chris Standring - Ten (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882835.jpg" />
 </div>
 
 
@@ -729,7 +644,7 @@ The Kyle Asche Organ Trio - Five Down Blues (2021) [FLAC 2.0|88/24|tracks|WEB-DL
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882269.jpg" />
 </div>
 
 
@@ -743,6 +658,93 @@ The Kyle Asche Organ Trio - Five Down Blues (2021) [FLAC 2.0|88/24|tracks|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAF7BAFE0315245CEB201C6DF2C512948D4B857B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373046   (882211) от 05.04.2020
+
+Vincent Gardner - The Good Book Chapter Three: The Book of Bebop (2012) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Talk [6:07]
+02. Another Hair-Do [7:34]
+03. I Waited for You [6:28]
+04. Compulsion [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1326B7CA0859CA3FA897FD3747CD6BE2FDA6EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103771   (881875) от 14.02.2017
+
+Maya Rae - Sapphire Birds (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close Your Eyes (3:57)
+02. Beautiful (4:18)
+03. Lullaby Of Birdland (3:12)
+04. Water Under Bridges (4:52)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600733FC2AB68A4F113ACFB6E27F0733BCC1EA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103947   (881807) от 14.02.2017
+
+Al Jarreau - Breakin' Away (1981) 1990 [WavPack|Lossless|image + .cue] <Smooth jazz, Vocal, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881807.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Closer To Your Love (3:58)
+2. My Old Friend (4:29)
+3. We're In This Love Together (3:47)
+4. Easy (5:26)(   Читать дальше...   )Жанр: Smooth jazz, Vocal, Funk, SoulПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7493EE41A7CB653DEA8E61107DB96DC02037FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

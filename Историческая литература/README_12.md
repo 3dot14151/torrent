@@ -1,3 +1,108 @@
+###  Публикация: 440721   (970409) от 22.01.2012
+
+Жак Ле Гофф | Герои и чудеса Средних веков [2011] [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга непревзойденного знатока и исследователя культуры Западной Европы продолжает знакомить читателя с интереснейшими деталями средневековой европейской жизни. Жак Ле Гофф исследует само средневековое представление о жизни, ее героях - рыцарях без страха и упрека или благородных разбойниках; о местах, с которыми у нас связано представление о Средневековье, (   Читать дальше...   )Издательство: ТекстФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC2D02E29CADADC0DE6F92B7CFE14EA3200C61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975910   (969787) от 17.01.2016
+
+Н. Грацианский | Западная Европа в Средние века. Источники социально-экономической истории (1925) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном сборнике опубликованы некоторые источники по социально-экономической истории раннего Средневековья.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0724BDA5C9DA32F270A64123141B4073224E55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976480   (969775) от 17.01.2016
+
+Анатолий Бахтин | Ковчег Завета. От Синая до Пруссии (2016) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969775.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основании анализа исторических источников и документальных свидетельств автор прослеживает историю величайшей святыни – библейского Ковчега Завета.Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C43AA212F68F8E00A5A819F72D8F524BBFE4675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358324   (969749) от 07.02.2020
+
+Владимир Малышев | Русская Атлантида. Невероятные биографии (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два «Философских парохода» доставили в Германию более 160 человек – профессоров, преподавателей, врачей, инженеров, цвет нации. Высылали еще и поездами, пароходами из Одессы и Севастополя.
+О них эта книга. Это – сборник увлекательных историй о людях, самых невероятных биографий, которых объединяет одно, – почти все они родились или жили в Петербурге и горячо любили (   Читать дальше...   )Жанр: Биографии и мемуары, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0776680F96EE75ADC31A5CEC82E755A23DC131E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975898   (969718) от 17.01.2016
 
 Яков Брафман | Еврейские братства, местные и всемирные (1868) [PDF]
@@ -6,7 +111,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969718.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969714.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969659.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968690.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968688.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_968678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968678.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_967179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967179.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966770.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966764.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966137.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966064.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965766.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965111.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_965007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965007.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964711.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964710.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964706.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964468.jpg" />
 </div>
 
 
@@ -485,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_964190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964190.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963291.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963218.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963209.jpg" />
 </div>
 
 
@@ -576,113 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B12CB672E7E9A69DAB997F7B11E6D9247F1AC42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359983   (963050) от 13.02.2020
-
-Ехезкель Котик | Мои воспоминания [2-й том]. Скитаясь и странствуя (2012) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963050.jpg" />
-</div>
-
-
-###  Подробнее
-
-От остановки к остановке в беспорядочном путешествии автора по жизни, перед взором читателя предстают и тотчас исчезают, сменяя друг друга, десятки типичных героев, родственников и друзей, цадиков и хасидов, раввинов и ученых, крестьян и шляхтичей, польских дворянок и еврейских женщин, балагул и меламедов, купцов и арендаторов, богатых и бедных, общественных деятелей (   Читать дальше...   )Жанр: Биографии и МемуарыПеревод: Майя УлановскаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15EFDF2D82377AD5789F686A7DA141D31CD9468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359940   (963042) от 13.02.2020
-
-Валентин Гнатюк, Юлия Гнатюк | Мифы и предания праславян (2019) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_963042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящие «Сказания» тесно связаны с известной «Велесовой книгой» и являются собранием устных народных преданий, повествующих о тех же временах, которые отображены в «Велесовой книге», а порой и более древних событиях, имевших место в праславянской истории.
-Книга представляет собой широчайшую панораму событий, времён и народов, сменявших друг друга на протяжении (   Читать дальше...   )Жанр: Мифы, Легенды, ЭпосФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987DD9B047FAC4AD8436035AEDC9E9B36BD7056E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359937   (962978) от 13.02.2020
-
-Николай Непомнящий | Крым. 47 сюжетов о прошлом и будущем (2014) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962978.jpg" />
-</div>
-
-
-###  Подробнее
-
-На небольшом клочке суши переплелись в сложном узоре уникальные ландшафты, исторические события, людские судьбы. Каждый найдет здесь кусочек своей родины: альпийский луг, азиатскую пустыню, среднерусское поле, таежный бурелом.
-Крым был яблоком раздора для десятков стран и империй.
-Много прошло по дорогам полуострова народов, культур, религий. И все они оставляли (   Читать дальше...   )Жанр: Общая история, ПутеводителиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CFC6F809EE6FE6D1652D1DD016DC0A8065533E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978637   (962620) от 24.01.2016
-
-Л. И. Гинцберг | Борьба немецких патриотов против фашизма, 1939-1945 (1987) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_962620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основное внимание уделено подпольной работе КПГ, сплочению всех противников фашизма, включая военнопленных и иностранных рабочих, угнанных в Германию. Подробно освещается деятельность Национального комитета «Свободная Германия» на советско-германском фронте и в лагерях немецких военнопленных в СССР. Автор раскрывает несостоятельность попыток многих западногерманских (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C8457DA4EEE493D1662BDEBB8B725FA0AC0D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

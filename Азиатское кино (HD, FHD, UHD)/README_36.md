@@ -1,3 +1,160 @@
+###  Публикация: 1545126   (616243) от 18.04.2022
+
+Психиатрическая больница Конджиам / Gonjiam: Haunted Asylum / Gon-ji-am (2018) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616243.jpg" />
+</div>
+
+
+###  Подробнее
+
+После группового самоубийства 42 пациентов и исчезновения главврача 26 октября 1979 года психиатрическую больницу Конджиам закрыли. С тех пор это место притягивает любителей пощекотать нервы, и о нём ходят легенды — якобы здание населено призраками, и никому не удалось открыть дверь в зловещую комнату 402. Видеоблогер, ведущий шоу ужасов на YouTube, набирает команду (   Читать дальше...   )Производство: Корея Южная, Hive Mediacorp, Constantin Film, ZDFЖанр: УжасыРежиссер: Чон Бом-щикАктеры: Ви Ха-джун, Пак Чи-хён, Пак Сон-хун, О А-ён, Мун Е-вон, Ю Джэ-юн, Ли Сын-ук, Пак Чи-аПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: Русский, КорейскийСубтитры: Английские, корейские (PGS)Продолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CBE85A89D6D207A12C4D27B64545861590ED48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545128   (616240) от 18.04.2022
+
+Психиатрическая больница Конджиам / Gon-ji-am / Gonjiam: Haunted Asylum (2018) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616240.jpg" />
+</div>
+
+
+###  Подробнее
+
+После группового самоубийства 42 пациентов и исчезновения главврача 26 октября 1979 года психиатрическую больницу Конджиам закрыли. С тех пор это место притягивает любителей пощекотать нервы, и о нём ходят легенды — якобы здание населено призраками, и никому не удалось открыть дверь в зловещую комнату 402. Видеоблогер, ведущий шоу ужасов на YouTube, набирает команду (   Читать дальше...   )Производство: Корея Южная, Hive Mediacorp, Constantin Film, ZDFЖанр: УжасыРежиссер: Чон Бом-щикАктеры: Ви Ха-джун, Пак Чи-хён, Пак Сон-хун, О А-ён, Мун Е-вон, Ю Джэ-юн, Ли Сын-ук, Пак Чи-аПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: Русский, КорейскийСубтитры: Английские, корейские (PGS)Продолжительность: 01:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3E8B9AD5CB4DB7AEFAF2C9B5A0C017F716DE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683702   (615900) от 30.07.2013
+
+Ип Ман: Последняя схватка / Yip Man: Jung gik yat jin / Ip Man: The Final Fight (2013) BDRip [1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615900.jpg" />
+</div>
+
+
+###  Подробнее
+
+В послевоенном Гонконге легендарный великий мастер Ип Ман вскоре после событий, связанных с, казалось бы, простым соперничеством между различными стилями кунг-фу, оказывается поневоле втянутым в тёмный и опасный преступный мир триад. Теперь, чтобы защитить жизнь и честь, ему не остаётся ничего, кроме как сразиться в последний раз…Производство: Гонконг | National Arts Films Production, Emperor Motion PicturesЖанр: Боевик, Драма, БиографияРежиссер: Херман ЯуАктеры: Энтони Вонг Чау-Санг, Гиллиан Чун, Джордан Чан, Эрик Цан, Марвел Чоу, Чжоу Чучу, Тимми Хунг, Цзянь Луи Ксиа, Синь Синь Сюн, Ип ЧунПеревод: Двуголосый закадровыйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (srt), Китайский (PGS)Продолжительность: 01:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73A73F85B56F49F51AE014C0380BC58FDBD426D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524484   (612826) от 18.07.2012
+
+Трое негодяев в скрытой крепости / Kakushi-toride no san-akunin (1958) [720p] BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средневековая Япония. Междуусобные феодальные войны. Молодая, решительная принцесса Юки, наследница Акидзуки, одного из могущественных кланов Японии, волею судьбы оказывается на вражеской территории, где на неё объявлена смертельная охота. Отец принцессы погиб, помощи ждать неоткуда. Единственными спасителями оказываются благородный военачальник клана Макабэ (Тосиро Мифунэ) и двое случайных алчных бродяг-идиотов, ослеплённых жаждой золота принцессы. Принцесса и троица укрылась в горах, в потаённой крепости, но убежище раскрыто и кольцо карателей всё уже…Жанр: Боевик, драма, приключенияРежиссер: Акира КуросаваВ ролях: Тосиро Мифуне, Миса Уехара, Такаси Симура, Минору Шиаки, Каматари Фудзивара, Изуми Нагакура, Сусуму Фудзита, Эйко Миёси, Катидзира УэдаПеревод: Многоголосый закадровый, Одноголосый закадровыйПродолжительность: 02:18:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524525   (610824) от 19.07.2012
+
+Стрела. Абсолютное оружие / Choi-jong-byeong-gi Hwal / War of the Arrows (2011) [1080p] BDRemux
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610824.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1636 году полчища манчжуров пришли на земли государства Чосон, неся с собой смерть и разорение. Во время нападения на одну из деревень враги взяли в плен Ча Ин, юную сестру лучника Нам И, и ее жениха Со Гуна. Отважный герой решает во что бы то ни стало отыскать родных и спасти их от незавидной доли рабов в чужой стране. С этой целью он, повесив на спину свой верный лук, доставшийся ему от отца, и колчан со стрелами, отправляется в Китай, преследуя отряд, напавший на его родную деревню. Вскоре слухи о выдающимся лучнике, не знающем поражения, достигают манчжурского войска. Поймать и обезвредить неуловимого Нам И поручают полководцу Джушинта и его людям.Жанр: Боевик, ПриключенияРежиссер: Ким Хан Мин / Kim Han MinАктеры: Пак Хэ Иль, Рю Сынг Рён, Мун Чхе Вон, Ким Му ЁльПеревод: Одноголосый закадровыйЯзык субтитров: русские , английскиеПродолжительность: 02:02:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230574   (610257) от 15.06.2018
+
+Новый мир / New World / Sin-se-gae (2013) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский под прикрытием Ча-сон внедрён в ряды корейской мафии и уже не первый год делает карьеру в её рядах. Со временем после смерти верховного босса у клана остается два наследника, и один из них — Чон-чхон, у которого Джа-сон ходит в команде вторым номером.
+Перед полицейским возникает дилемма — вернуться в органы и дальше работать на своего не самого приятного (   Читать дальше...   )Производство: Корея Южная / Next Entertainment World, Sanai PicturesЖанр: Криминал, Триллер, Боевик, ДрамаРежиссер: Пак Хун ДжонАктеры: Чхве Мин Сик, Хван Чжон Мин, Чан Гван, Ли Чжон-чжэ, Пак Сон-Ун, Сон Чжи ХёПеревод: Двуголосый закадровый x2Субтитры: русские (DeadSno, ClubFate)Продолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5FBBB9C62B4113A1B97417A334434DD1B68821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 319763   (609800) от 18.04.2019
 
 Синоби / Шиноби: сердце под лезвием / Shinobi / Shinobi: heart under blade (2005) BDRip [H.264/1080p] [PR]
@@ -6,7 +163,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609800.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607986.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606469.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_606118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606118.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605807.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_605804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605804.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604287.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604195.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604004.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603853.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603421.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601957.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601787.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599739.jpg" />
 </div>
 
 
@@ -370,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597082.jpg" />
 </div>
 
 
@@ -396,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596987.jpg" />
 </div>
 
 
@@ -422,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596433.jpg" />
 </div>
 
 
@@ -448,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596261.jpg" />
 </div>
 
 
@@ -474,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595790.jpg" />
 </div>
 
 
@@ -500,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593757.jpg" />
 </div>
 
 
@@ -511,162 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED7BE69BCF7D87C66B469DD2BCA103F0A8BA51CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549166   (593736) от 06.05.2022
-
-Провал / Воронка / Singkeuhol / Sinkhole (2021) WEB-DL [H.264/1080p-LQ] [МVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_593736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пак Тон-вон очень рад: он купил квартиру в новом доме и переезжает, вот только теперь он везде натыкается на неприятного соседа Чон Ман-су. И хотя тот замечает трещины в здании, а в некоторых квартирах пропадает вода, никого из жильцов это особенно не тревожит. Когда на следующее утро после вечеринки с сослуживцами в честь новоселья жена и сын Тон-вона уходят в магазин, (   Читать дальше...   )Производство: Южная Корея, Showbox, The Tower PicturesЖанр: Боевик, комедия, драмаРежиссер: Ким Джи-хунАктеры: Ким Сон-гюн, Чха Сын-вон, Ли Гван-су, Ким Хон-пха, Ко Чхан-сок, Квон Со-хён, Ким Хе-джун, Нам Да-рым, Ли Хак-чу, Ким Джэ-хваПеревод: Многоголосый любительский (STEPonee)Субтитры: Английские, польскиеПродолжительность: 01:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F76E08A360C32F7BE79EAFB331854BDB012D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549854   (592855) от 08.05.2022
-
-Твоя свадьба / На твоей свадьбе / Neoui gyeolhonsik / Neo-eui kyeol-hoon-sik / On Your Wedding Day (2018) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сын-хи и У-ён первый раз встретились ещё в старшей школе. Девушка очень нравилась У-ёну, но по семейным обстоятельствам ей пришлось уехать в другой город. Их дороги разошлись, но ещё несколько раз пересекались, и вот теперь У-ён получает приглашение на свадьбу любви всей своей жизни.Производство: Южная Корея / Filmmaker R&KЖанр: мелодрама, комедияРежиссер: Ли Сок-кынАктеры: Ким Ён-гван, Пак По-ён, Кан Ги-ён, Ко Гю-пхиль, Чан Сон-бом, Чха Ёп, Со Ын-су, Пэ Хэ-сон, Чон Бэ-су, Со Юн-аПеревод: Двуголосый любительский (JoyStudio, Храм Дорам)Язык озвучки: Русский, корейскийСубтитры: Русские, английские, китайскиеПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA34FC4C49F3199973672CDEE949E422CBF95B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300642   (592688) от 07.05.2019
-
-Ковбои / Buffalo Boys (2018) WEB-DL [H.264/1080p-LQ] [MVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_592688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Времена голландской оккупации Индонезии. Два брата, выросшие вдалеке от дома, возвращаются в родное поселение, чтобы отомстить за убийство отца...Производство: Индонезия, Сингапур / Infinite Frameworks Pte. Ltd., Zhao Wei Films (I), Infinite Frameworks StudiosЖанр: Боевик, вестернРежиссер: Майк УилуэнАктеры: Ёси Сударсо, Арио Баю, Певита Пирс, Тио Пакусодево, Рейну Буссемакер, Daniel Adnan, Хэппи Салма, Mikha Tambayong, Эль Маник, Донни АламшяПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (Forced, full)Продолжительность: 01:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA105210734483EE9CE334D34EFA493A4EC12A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551063   (590714) от 14.05.2022
-
-Дом повешенной на Больничном спуске / Byoinzaka no kubikukuri no ie (The House of Hanging) (1979) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Киндаити решил уехать за границу, ему осталось только сделать фото и оформить паспорт. Приехав в родные места, он становится невольным свидетелем нескольких убийств, которые непонятным образом связаны с фотостудией и заброшенным домом семьи Хогэн, которая владеет местной больницей. Заключительный фильм из серии детективов по романам Сэйси Ёкомидзо.Производство: Япония, Toho Company, Kadokawa Publishing Company Ltd.Жанр: Детектив, драма, криминалРежиссер: Кон ИтикаваАктеры: Кодзи Исидзака, Ёсико Сакума, Дзюнко Сакурада, Такако Ириэ, Мики Сандзё, Мидори Хагио, Тэрухико Аои, Такэси Като, Хидэдзи Отаки, Нобуто ОкамотоПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английскиеПродолжительность: 02:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F4E2EFFF5FC0BDDADC994731802F62548B7DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551058   (590700) от 14.05.2022
-
-Так я женился на антифанатке  / Suo yi, wo he hei fen jie hun le / I Married an Anti-Fan (2016) BDRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фан Мяомяо работает папарацци в женском журнале и не гнушается лезть в чужую жизнь, а иногда и приврать в статьях кое-чего о звёздах. Корейский айдол Ху Джун живёт и работает в Китае. Однажды Мяомяо фотографирует, как тот выясняет отношения с молодой актрисой, и счастливая, что поймала такой шанс, убегает с телефоном. Джун догоняет её и просит удалить фотографии, (   Читать дальше...   )Производство: КитайЖанр: мелодрама, комедияРежиссер: Ким Джэ-ёнАктеры: Шаншань Юань, Чао Сянг, Чан-Ёль Парк, СяохянПеревод: Двуголосый любительский (SoftBox)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB270537A29996536709417CFB217748DE1BA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551232   (590585) от 14.05.2022
-
-#живой / #выжить / #saraitda / #Alive (2020) BDRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_590585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек оказываются в ловушке в жилом комплексе, когда вокруг происходит прорыв зомбивирусной инфекции. Через некоторое время он замечает, что в доме напротив так же как и он прячется девушка.Производство: Корея Южная / Lotte Entertainment, Perspective Pictures (Korea), Zip CinemaЖанр: Ужасы, боевикРежиссер: Чо Иль-хёнАктеры: Ю А-ин, Пак Щин-хе, Чон Бэ-су, Ли Хён-ук, О Хе-вон, Ким Хак-сон, Со Хи-джон, Чу Бо-би, Ли Гю-хо, Пак Юн-хоПеревод: Двухголосый любительский (RealFake)Субтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87A4FA06C251AC809E182BE03D8F507158821A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

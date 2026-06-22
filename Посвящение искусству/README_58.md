@@ -1,3 +1,81 @@
+###  Публикация: 1807789   (10895) от 20.07.2025
+
+Брюс Ли: Выход клонов / Enter the Clones of Bruce (2023) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брюс Ли появился, казалось бы, из ниоткуда, и штурмом стал захватывать сначала китайскую, а затем и мировую киноиндустрию. Фильм за фильмом он становился все большей звездой, продюсеры бились за него, а деньги текли рекой. Но актер умер неожиданно для всех, всего лишь в тридцать два года. Индустрия была совсем не готова так просто отпустить восходящую звезду, и перед (   Читать дальше...   )Производство: США / Severin FilmsЖанр: документальный, боевик, историяРежиссер: Дэвид ГрегориУчастники: Брюс Ле, Брюс Лай, Драгон Ли, Брюс Люн, Christophe Champclaux, Рене Шато, Дэвид Цзян, Чи Ли, Дон Вон, Стефани ДердерьянПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: русские (forced, full)Продолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9506E4B84289BD968D9C80A55D3FCAA94B4F5CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807722   (10885) от 20.07.2025
+
+Брюс Ли: Выход клонов / Enter the Clones of Bruce (2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брюс Ли появился, казалось бы, из ниоткуда, и штурмом стал захватывать сначала китайскую, а затем и мировую киноиндустрию. Фильм за фильмом он становился все большей звездой, продюсеры бились за него, а деньги текли рекой. Но актер умер неожиданно для всех, всего лишь в тридцать два года. Индустрия была совсем не готова так просто отпустить восходящую звезду, и перед (   Читать дальше...   )Производство: США / Severin FilmsЖанр: документальный, боевик, историяРежиссер: Дэвид ГрегориУчастники: Брюс Ле, Брюс Лай, Драгон Ли, Брюс Люн, Christophe Champclaux, Рене Шато, Дэвид Цзян, Чи Ли, Дон Вон, Стефани ДердерьянПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (forced, full)Продолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73BCF99D2FE8D99208CDE6358CCF75C54D6B775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807993   (10665) от 22.07.2025
+
+Avicii. Я - Тим / Avicii - I'm Tim (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взлёте и трагическом падении шведского диджея и продюсера Тима Берглинга, известного как Avicii. В картине показаны его стремительный успех, напряжённые гастроли, проблемы со здоровьем и борьба с депрессией, вызванные переутомлением и давлением индустрии. Фильм заканчивается его уходом из музыки в 2016 году, но, к сожалению, не затрагивает его (   Читать дальше...   )Производство: Швеция / Candamo FilmЖанр: документальный, биография, музыкаРежиссер: Хенрик БурманУчастники: Авичи, Алоэ Блэк, Крис Мартин, Найл Роджерс, Филип Акессон Салем Аль Факир, Кэти Бейн, Клас Берглинг, Джон Бон Джови, Сандро КаваццаПеревод: Многоголосый любительский (Гослинг на Гусе)Язык озвучки: русский, английскийСубтитры: русские, английские (forced, SDH), немецкие, испанские, португальские, французские, украинскиеПродолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7E57AD9425EE267D5FAF589B8FE6CD24D32C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812148   (8108) от 13.08.2025
 
 С глазу на глаз: Джон и Йоко / One to One: John & Yoko (2024) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +84,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8108.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8092.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Hammer: Герои, легенды и монстры / Hammer: Heroes, Legends a
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8082.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8081.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8063.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7887.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7786.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7745.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7739.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7735.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7723.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7672.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7529.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7492.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7278.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7107.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6936.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4822.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2649.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2223.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2083.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123.jpg" />
 </div>
 
 

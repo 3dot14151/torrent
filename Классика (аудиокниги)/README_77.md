@@ -1,3 +1,55 @@
+###  Публикация: 1773960   (71590) от 18.01.2025
+
+Оноре де Бальзак | Крестьяне (2023) [MP3, Ярослав Лукашев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Крестьяне» был создан Бальзаком в последний период его творчества. Роман строится на показе широких социальных явлений, на драматическом столкновении массовых материальных интересов. Ни в одном другом своем произведении не ставил с такой мужественной правдивостью и прямотой вопрос о существовании двух наций внутри одного общества – нации господ и рабов, имущих (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 16:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50D421D08D43EC29E0207FC2C081E05D75B234D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773940   (71589) от 18.01.2025
+
+Виктор Гюго | Ган Исландец (2024) [MP3, Валерий Толков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиостудия «Ардис» предлагает вашему вниманию первый роман французского писателя Виктора Гюго «Ган Исландец», написанный в 1820 году, когда автору было 18 лет, и опубликованный спустя три года. Его главный герой ради спасения любимой отправляется в Северную Норвегию, где сталкивается с Ганом Исландцем – чудовищем в человеческом обличье.Жанр: КлассикаИздательство: АРДИСПродолжительность: 14:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F12377C74D5F1403E7EB0DC61BB8292E9F8CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773945   (71584) от 18.01.2025
 
 Вальтер Скотт | Роб Рой (2023) [MP3, Константин Днепровский]
@@ -6,7 +58,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71584.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71577.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71573.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71570.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71555.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71554.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71553.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71552.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71551.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71353.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71350.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71342.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71339.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71217.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71107.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71104.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_71000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71000.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70999.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70997.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70978.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70972.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70965.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70963.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70961.jpg" />
 </div>
 
 
@@ -640,62 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA6ED5B0C88E8B5BFEC4B6FCF95987B65A36BFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777775   (70953) от 07.02.2025
-
-Николай Гоголь, Иван Тургенев, Николай Гейнце и др. | Антология русской мистики (Том 6). Влюбленный призрак (2021) [MP3, Илья Веселов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Антология русской мистики.
-В шестом томе представлены истории о тайных обществах и кошмарных видениях, ночных путешествиях вместе с призраками, о дьявольских искушениях и превращении людей в чудовищ и, конечно, о проклятых портретах – без всего этого не обходится классика ужаса.
-
- Антология русской мистики на NoNaMe ClubЖанр: Русская литература, классика, мистика, рассказИздательство: Книжное издательство БабицкогоПродолжительность: 04:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE8F9DCF1DDB8FB0A586533D5EC7256A0341A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777772   (70937) от 07.02.2025
-
-Александр Бестужев-Марлинский и др. | Антология русской мистики (Том 4). Бледная невеста (2021) [MP3, Анастасия Стряпко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_70937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Антология русской мистики.
-В этом томе антологии собраны рассказы, в которых герои пытаются объяснить таинственные и жуткие явления с точки зрения логики. Иногда это получается и тогда страх отступает. Но лишь на мгновение. А потом слушатели снова окажутся во власти загадок и мистики. Вас ждут спиритические сеансы, на которых души умерших предсказывают (   Читать дальше...   )Жанр: Русская литература, классика, мистика, рассказИздательство: Книжное издательство БабицкогоПродолжительность: 04:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA4D89C34AC67F15A7B5CBEFE8F7F66347D0E85
 ```
 
 https://mybot314.ru/tekegram_catalog/

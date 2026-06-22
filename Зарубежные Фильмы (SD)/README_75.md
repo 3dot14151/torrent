@@ -1,3 +1,133 @@
+###  Публикация: 974789   (975298) от 12.01.2016
+
+Мохаве / Mojave (2015) WEBRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975298.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о художнике, который, чтобы пережить личный кризис, отправляется в пустыню. Там он встречает своего двойника - жестокого убийцу. С этого момента главный герой с суицидальных мыслей переключается на поиск возможностей выжить.Производство: СШАЖанр: ТриллерРежиссер: Уильям МонахэнАктеры: Оскар Айзек, Гаррет Хедлунд, Марк Уолберг, Уолтон Гоггинс, Хейли Магнус, Мэтт Джонс, Даня Рамирес, Фрэн Кренц, Кристофер Нейман, Луиз БургуанПеревод: Любительский двуголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:29:19Реклама: Присутствуют голосовые и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153CF47CEBB4FB180968A3F914439EE3D002D862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357066   (975275) от 02.02.2020
+
+Мустанг / The Mustang (2019) BDRip [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осуждённый преступник Роман Коулман, отбывающий срок в тюрьме Невады, вынужден участвовать в реабилитационной программе по приручению мустангов. Неожиданно для себя он привязывается к самой неукротимой лошади, которая помогает ему бороться с собственными демонами.Производство: Франция, США / Canal+Жанр: ДрамаРежиссер: Лор де Клермон-ТоннерАктеры: Маттиас Шонартс, Джейсон Митчелл, Брюс Дерн, Гидеон Адлон, Конни Бриттон, Джош Стюарт, Томас Смитл, Кейт Джонсон, Ноэль Гульеми, Джеймс МакфарландПеревод: Профессиональный многоголосый (Online Cin.)Субтитры: ОтсутствуютПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E437012616965E84D77A730D3438BB3ED49B7313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357159   (975176) от 02.02.2020
+
+Мустанг / The Mustang (2019) HDRip [H.265] [10-bit] [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осуждённый преступник Роман Коулман, отбывающий срок в тюрьме Невады, вынужден участвовать в реабилитационной программе по приручению мустангов. Неожиданно для себя он привязывается к самой неукротимой лошади, которая помогает ему бороться с собственными демонами.Производство: Франция, США / Canal+, Cine+, Legende FilmsЖанр: ДрамаРежиссер: Лор де Клермон-ТоннерАктеры: Маттиас Шонартс, Джейсон Митчелл, Брюс Дерн, Гидеон Адлон, Конни Бриттон, Джош Стюарт, Томас Смитл, Кейт Джонсон, Ноэль Гульеми, Джеймс МакфарландПеревод: Профессиональный многоголосый (Онлайн кинотеатр)Субтитры: Русские, английскиеПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63CDA34D6F4D35069C89993377A7940B633BF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357174   (975170) от 02.02.2020
+
+Боль и слава / Dolor y gloria (2019) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый кинорежиссер на закате своего творческого пути оглядывается в прошлое, и на него обрушивается поток ярких воспоминаний. Нежные чувства к матери, любовь и расставание, поиски счастья и успеха. Всё это приводит творца к важным размышлениям о жизни и искусстве — боли и славе.Производство: Испания / Canal+, Cine +, El DeseoЖанр: ДрамаРежиссер: Педро АльмодоварАктеры: Антонио Бандерас, Пенелопа Крус, Леонардо Сбаралья, Асьер Эчеандиа, Сесилия Рот, Рауль Аревало, Хульета Серрано, Нора Навас, Розалия, Агустин Альмодовар, Сесар Висенте, Асьер Флорес, Суси СанчесПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0F569ACF483364DAE3A22161F683C251DD709A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357115   (975166) от 02.02.2020
+
+Рождество на двоих / Last Christmas (2019) BDRip [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кейт работает в магазине рождественских товаров, злоупотребляет выпивкой и давно бросила переживать из-за собственной жизни. Но всё меняется после знакомства с милым и очаровательным Томом...Производство: США, Великобритания / Calamity Films, Feigco Entertainment, Perfect World PicturesЖанр: драма, мелодрама, комедияРежиссер: Пол ФигАктеры: Эмилия Кларк, Генри Голдинг, Мишель Йео, Эмма Томпсон, Ребекка Рут, Лидия Леонард, Пэтти ЛюПон, Мэдисон Инголдсби, Борис Исакович, Люси МиллерПеревод: Дублированный (Онлайн кинотеатр)Субтитры: отсутствуютПродолжительность: 01:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5DFC93189A43ACD6C0D7B588BFF24BAF1CCBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357179   (975093) от 02.02.2020
 
 Маяк / The Lighthouse (2019) BDRip [H.265] [10-bit]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975093.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975088.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975087.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975055.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975054.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975030.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_975027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975027.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974977.jpg" />
 </div>
 
 
@@ -220,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974799.jpg" />
 </div>
 
 
@@ -246,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974759.jpg" />
 </div>
 
 
@@ -272,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974746.jpg" />
 </div>
 
 
@@ -298,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974741.jpg" />
 </div>
 
 
@@ -324,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974715.jpg" />
 </div>
 
 
@@ -350,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974668.jpg" />
 </div>
 
 
@@ -376,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974664.jpg" />
 </div>
 
 
@@ -402,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974656.jpg" />
 </div>
 
 
@@ -428,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974651.jpg" />
 </div>
 
 
@@ -454,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974576.jpg" />
 </div>
 
 
@@ -481,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974573.jpg" />
 </div>
 
 
@@ -507,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974568.jpg" />
 </div>
 
 
@@ -533,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974522.jpg" />
 </div>
 
 
@@ -546,136 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029F760874C100BB4D2E2809D476B71952930987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616842   (974517) от 10.02.2013
-
-Заложница 2 / Taken 2 (2012) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брайану Миллсу придется расхлебывать последствия своих действий. Спасая свою дочь, он убил главаря банды, у которого — сюрприз! — есть отец по имени Мурад. Мурад жаждет отмщения и описывается как человек, отдающий приказы, но сам никогда никому не подчиняющийся. Мурад берет в заложники Миллса с супругой, и тут уже Ким Миллс нужно будет спасать своих родителей.Жанр: Боевик, Триллер, КриминалРежиссер: Оливье МегатонПродюсер: Люк Бессон, Дилой Гюлюн, Мишель МандавилльАктеры: Лиам Нисон, Мэгги Грэйс, Фамке Янссен, Лиленд Орсер, Джон Грайз, Д.Б. Суини, Люк Граймс, Раде Шербеджия, Кеворк Маликян, Ален ФиглажПеревод: ДублированныйПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB402EA4403314A4C6396CDA701AF6218DF396A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616447   (974512) от 10.02.2013
-
-Замуж на 2 дня / Un plan parfait (2012) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изабель мечтает о свадьбе. Но на её семье лежит проклятие. Все первые браки неминуемо заканчиваются разводами. Поэтому, когда ее парень делает ей предложение, Изабель решает перехитрить судьбу. Она отыскивает первого попавшегося лузера, влюбляет его в себя и: вместо того, чтобы развестись, случайно влюбляется сама.Производство: Франция / Quad Productions, TF1 Films Production, Scope PicturesЖанр: мелодрама, комедия, приключенияРежиссер: Паскаль ШомельАктеры: Дайан Крюгер, Дэни Бун, Алис Поль, Робер Планьоль, Джонатан Коэн, Бернадетт Ле Саше, Этьен Шико, Лорэ Кэлами, Мэлонн Левана, Оливье КлавериПеревод: Дублированный (Лицензия) + Украинский (Профессиональный многоголосый)Продолжительность: 01:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5BF5D4E42C67CEF0779E77BA26346FFE4D5CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975122   (974471) от 13.01.2016
-
-Миссис Чудо в Манхэттене / Call Me Mrs. Miracle (2010) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974471.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о сказочной няне по прозвищу «Миссис Чудо» продолжается. Эмили Меркл переезжает в Бруклин к новому воспитаннику. Пока отец героя служит в горячей точке планеты, мальчик вынужден коротать дни в большом доме своей тёти, мечтая поскорее встретить Рождество. Но после знакомства с леди Меркл ему больше не придётся скучать. Добрая няня не только исполнит заветные (   Читать дальше...   )Производство: США, КанадаЖанр: Фэнтези, драма, комедияРежиссер: Майкл СкоттАктеры: Дорис Робертс, Джуэл Стэйт, Эрик Джонсон, Куинн Лорд, Том Батлер, Патрисия Майен-Салазар, Лорен Холли, Жослин Ловен, Мэри Блэк, Шон КэриПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C3833A9B28F1CC8346E1B8970C300484949ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975156   (974410) от 13.01.2016
-
-Чудо Рождества / Northpole (2014) HDTVRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебный город Санта-Клауса всегда существовал благодаря магической силе рождественских торжеств, доброте и любви, переполняющей сердца. Однако люди стали слишком заняты своими проблемами и перестали праздновать Рождество. Городу Санты грозит исчезновение. Мальчику по имени Кевин нужно сделать все возможное, чтобы возродить дух Рождества и спасти волшебный город (   Читать дальше...   )Производство: КанадаЖанр: ФэнтезиРежиссер: Дуглас БаррАктеры: Тиффани Тиссен, Джош Хопкинс, Бэйли Мэдисон, Макс Чарльз, Кэндис Гловер, Джонатан Поттс, Ричард Фицпатрик, Стефани Бакстон, Фрэнк Скорпион, Джилл Ст. ДжонПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC92A3BB21470091550A26999306A6E6DC920B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974956   (974400) от 13.01.2016
-
-Восхождение пехотинца / Rise of the Footsoldier (2007) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_974400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвышение пехотинца следует за повышением по службе Карлтона Лича от одного из генералов. Фильм рассказывает о трёх десятилетиях его жизни, когда он был футбольным хулиганом, вышибалой и о его причастности к криминальным элементам, с помощью которых он пришёл к власти.Производство: Великобритания / Carnaby Films PLC, 	Hanover FilmsЖанр: Драма, Криминал, БиографияРежиссер: Джулиан ДжилбиАктеры: Риччи Харнетт, Терри Стоун, Крейг Фаирбрасс, Роланд Манукян, Фрэнк Харпер, Билли Мюррэй, Нил Мэскелл, Йен Вирго, Корали Роуз, Кирстон ВэрэйнгПеревод: Многоголосый закадровый, профессиональный (R5)Язык субтитров: ОтсутствуютПродолжительность: 01:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40790905576839E328C50F6EA414564A16CAF0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

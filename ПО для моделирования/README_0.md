@@ -1,3 +1,55 @@
+###  Публикация: 1856996   (1059222) от 03.03.2026
+
+Pepakura Designer 6.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет программ, адресованных моделистам, которые изготавливают свои модели из бумаги. Программы предназначены для просмотра, создания и редактирования выкроек (разверток) бумажных моделей. Выкройки генерируются на основе готовых моделей, ранее созданных в программах трехмерного моделирования. Поддерживаются многие популярные форматы: 3DS, DXF, MQO, LWO, OBJ, STL, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F97AA93CA6ED17AE38F7CB97941D158360AC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854372   (1057174) от 17.02.2026
+
+Room Arranger 10.3.6.748 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7304BB4180072989C1C41F282A26F3FDCBA88D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853578   (1056793) от 13.02.2026
 
 Room Arranger 10.3.6.748 [Multi/Ru]
@@ -6,7 +58,7 @@ Room Arranger 10.3.6.748 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1056793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056793.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ AMS Ландшафтный Дизайн 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055658.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Room Arranger 10.3.4.743 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055535.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Room Arranger 10.3.3.741 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053426.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Room Arranger 10.3.2.739 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051123.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ SketchUp Pro 2026 26.1.189 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050540.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ AMS Дизайн Интерьера 3D 14.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050243.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050177.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Luxion KeyShot Enteprise 2025.3 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049590.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ SketchUp Pro 2026 26.1.185 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048144.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Room Arranger 10.3.1.736 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047556.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Autodesk FBX Review 1.5.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045146.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ MeshBoolean v1.8 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041405.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Nitro4D NitroSolo v1.07 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040069.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Nitro4D NitroVertex v1.04 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040065.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040062.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Nitro4D NitroMoFracture v1.06 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040061.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Nitro4D NitroDraw v1.25 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040059.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Nitro4D NitroBoxTool v1.07 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040058.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Nitro4D NitroBake3 v3.02  for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040052.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Nitro4D NitroEdgeDeformerTool v1.05 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040050.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ C4DZone QuadCaps v1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040040.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Laubwerk SurfaceSPREAD v2.0.4 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040037.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Sitni Sati FumeFX 5.0.4 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040003.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ FumeFX - это мощный плагин гидродинамики для Maxo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E15F129FF656AF7447599C92D240E201045D6DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439207   (1039999) от 12.01.2021
-
-Ornatrix v2 2.0.10.26200 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Ephere выпустила новую версию своего плагина Ornatrix для создания волос, меха и перьев, что позволяет генерировать волосы из частиц. Софт можно использовать для моделирования, анимации и визуализации волос, меха, перьев и даже растительности. Он разработан, чтобы обеспечить интуитивный художественный контроль над волосами, используя при этом неразрушающий (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F745842E645EA7EA76A43D04426F2A2B5D5603D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439202   (1039995) от 12.01.2021
-
-TurbulenceFD v1.0 build 1465 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1039995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин для создания огня и дыма в Cinema 4D. Реалистичная симуляция дыма в анимированных сценах. TurbulenceFD делает качественное моделирование огня, дыма, пыли и других газообразных явлений доступных непосредственно в CINEMA 4D. TurbulenceFD исключительно проста в использовании.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C227C4AFDF9D0D73E7D65496EA5E454FFEF14353
 ```
 
 https://mybot314.ru/tekegram_catalog/

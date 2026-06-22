@@ -1,177 +1,3 @@
-###  Публикация: 1201221   (792824) от 24.01.2018
-
-Devil's Disciples - The Devil Plays Guitar (2006) [MP3|256 Kbps] <Instrumental Blues Rock, Instrumental Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Possession
-02. Judgement Day
-03. Bad Reputation
-04. The Sorcerer(   Читать дальше...   )Жанр: Instrumental Blues Rock, Instrumental BluesПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB73ED8E1E352232114503613843F71AB4995809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509901   (792770) от 14.11.2021
-
-Eric Clapton - The Lady In The Balcony: Lockdown Sessions (2021) Live [FLAC 2.0|96/24|tracks|WEB-DL] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nobody Knows You When You're Down And Out 03:05
-02 - Golden Ring 03:24
-03 - Black Magic Woman 04:21
-04 - Man Of The World 03:07(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C0547711D16ADB1331D12AEAC6C71146AA3371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509708   (792728) от 14.11.2021
-
-Tony Bennett & Lady Gaga - Love For Sale (2021) Deluxe [FLAC 2.0|96/24|tracks|WEB-DL] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's De-Lovely (2:53)
-02. Night And Day (3:42)
-03. Love For Sale (3:41)
-04. Do I Love You (4:48)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA16903357CC0CE32F0095349D2411249C9996F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387022   (792711) от 31.05.2020
-
-Walt Dickerson - Four Classic Albums 1961 - 1962 (2016) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792711.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Time [6:30]
-02. Elizabeth [5:07]
-03. The Cry [7:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA04F533418111C9C713F9E617286256E72160F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387031   (792689) от 31.05.2020
-
-Glenn Miller And The Army Air Force Band - Rare Broadcast: Performances from 1943-1944 (1990) LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Valley Jump [2:20]
-02. I Got Rhythm [3:39]
-03. Rhapsody in Blue [3:01]
-04. My Blue Heaven [1:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C337547A2C3C5D0D9BC600EDFD91D542B78A0B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387028   (792645) от 31.05.2020
-
-Wayne Shorter - The All Seeing Eye 1965 (1994) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The All Seeing Eye [10:33]
-02. Genesis [11:46]
-03. Chaos [6:58]
-04. Face of the Deep [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29B56EFD36DC21B0C27275C992E8C5871B8338B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123349   (792533) от 07.04.2017
 
 Pauline Alpert - Keyboard Wizards Of The Gershwin Era, Volume I (1943, 1944) 1995, Pearl [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
@@ -180,7 +6,7 @@ Pauline Alpert - Keyboard Wizards Of The Gershwin Era, Volume I (1943, 1944) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792533.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Valery Ponomarev & Benny Golson meet Jazz Old Trio - Mission In Siberia (1997) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792529.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Dave Fields - Unleashed (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792528.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Jason Barnhouse - The Wounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792524.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ The Delta Saints - Bones (2015) [FLAC|Lossless|tracks + .cue] <Delta Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792522.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Vainoras and the altar of the drill - Self titled (2017) [FLAC|Lossless|Web-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792498.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ The Yardbirds - Birdland (2003) [APE|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792489.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Scott Bradlee's Postmodern Jukebox - Fake Blues (2017) [FLAC|Lossless|Web-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792377.jpg" />
 </div>
 
 
@@ -413,7 +239,7 @@ Art Pepper - Goin' Home (1984) Victor [FLAC|Lossless|image + .cue] <Post-Bop, Pi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792276.jpg" />
 </div>
 
 
@@ -442,7 +268,7 @@ Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792275.jpg" />
 </div>
 
 
@@ -471,7 +297,7 @@ Kenne Cramer - All Day Long (2017) [MP3|320 Kbps] <Blues, Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792267.jpg" />
 </div>
 
 
@@ -500,7 +326,7 @@ David "Fathead" Newman - Lone Star Legend: Still Hard Times • Resurgence! (198
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792265.jpg" />
 </div>
 
 
@@ -529,7 +355,7 @@ Elsie Bianchi - The Sweetest Sound (1965) 2016, MPS [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792264.jpg" />
 </div>
 
 
@@ -558,7 +384,7 @@ Caterina Valente - The Jazz Singer (1954, 1955) 2017, Jazzhaus [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792260.jpg" />
 </div>
 
 
@@ -587,7 +413,7 @@ Moondog Howlers - Misbehavin' (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792248.jpg" />
 </div>
 
 
@@ -616,7 +442,7 @@ Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792231.jpg" />
 </div>
 
 
@@ -645,7 +471,7 @@ Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792230.jpg" />
 </div>
 
 
@@ -674,7 +500,7 @@ Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792209.jpg" />
 </div>
 
 
@@ -703,7 +529,7 @@ Art Farmer - Silk Road (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792207.jpg" />
 </div>
 
 
@@ -732,7 +558,7 @@ Red Norvo And His Orchestra - 1945 - 1947 (2005) Classics [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792196.jpg" />
 </div>
 
 
@@ -746,6 +572,180 @@ Red Norvo And His Orchestra - 1945 - 1947 (2005) Classics [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:707023EF1B46E13F0F557DD51584CED5E0B91369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510024   (792144) от 15.11.2021
+
+Pat Metheny - Side-Eye NYC (V1.IV) (2021) [FLAC|Lossless|tracks + .cue] <Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Starts When We Disappear (Metheny) - 13:48
+02. Better Days Ahead (Metheny) - 5:26
+03. Timeline (Metheny) - 7:12
+04. Bright Size Life (Metheny) - 5:34(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347FB241303F2BB720A1810E6E4A18075445C098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201604   (792097) от 25.01.2018
+
+Tramp - Put A Record On (1974) Remastered, 2007, Air Mail Archive,  Spark Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792097.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Too Late For That Now
+2. Now I Aint A Junkie Anymore
+3. What You Gonna Do
+4. Like You Used To Do(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2234158F40C7BD4774E60A85EBB9A6C87DC1E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387284   (791855) от 01.06.2020
+
+Tony Bennett - Here's To The Ladies (1995) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People [4:45]
+02. I'm in Love Again [3:52]
+03. Somewhere over the Rainbow [3:59]
+04. My Love Went to London [5:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ED9ACC00AFDF56F13593C96281009C66925E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274972   (791718) от 09.01.2019
+
+Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791718.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 John Coltrane - Giant Steps:
+01. Giant Steps [4:47]
+02. Cousin Mary [5:50]
+03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201744   (791677) от 26.01.2018
+
+Al Hirt - Bourbon Street Parade (1993) MCMXCIII Intersound [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bourbon Street Parade [04:41]
+02. That's a Plenty [05:04]
+03. Cotton Candy [02:02]
+04. Sugar Blues [02:17](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18127D01F663760866400F30E68D5819B5D97A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201697   (791625) от 26.01.2018
+
+Margo Rey - The Roots Of Rey / Despacito Margo (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude To Angel Eyes (1:25)
+ 02. Angel Eyes (3:35)
+ 03. This Masquerade (4:13)
+ 04. The Nearness Of You (4:20)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBA10F03D422FFDA655DBB9DE5E6A4DCBD7B3CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

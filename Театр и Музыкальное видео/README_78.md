@@ -1,3 +1,254 @@
+###  Публикация: 230830   (510970) от 29.08.2010
+
+Сурганова и Оркестр - Чужие как свои (видеоряд) [Rock ] WebRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный видеоряд к альбому Чужие как свои.
+Это НЕ КОНЦЕРТНАЯ ЗАПИСЬ!
+Некоторые элементы данного видеоряда были использованы при создании компиляции
+ Светлана Сурганова и Оркестр - Концерт в БКЗ Октябрьский, СПб (13.11.2009)01. Апрельская
+02. Далеко (слова О.Алексеевой, Е. Костягиной и Светланы Сургановой)
+03. Полет на дельтаплане (музыка Э. Артемьева, слова Н. Зиновьева)
+04. Этот мир (музыка А. Зацепина, слова Л. Дербенева)(   Читать дальше...   )Жанр: VIP-Punk-DecadenceПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931763   (510784) от 27.08.2015
+
+Ирина Круг - Моя королева (2006) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирина Круг – вдова известного российского певца и композитора Михаила Круга, родилась в Челябинске, в 1976 году, в семье военного.С детства занималась творчеством в театральном кружке местного ДК. Мечтала стать артисткой. Окончила ТГУ в 2005 году. В декабре 1999 года, на концерте у друзей, в Челябинске, она познакомилась с Михаилом Кругом. Через три месяца Михаил (   Читать дальше...   )01. Дорога от души к душе (дуэт с Л. Телешевым)
+02. Встретились глаза (дуэт с М. Кругом)
+03. Поле зеленое
+04. Боль о тебе(   Читать дальше...   )Производство: Россия / "Master Sound Records"Жанр: МузыкаПеревод: ОтсутствуетСубтитры: нетПродолжительность: 02:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FC2CEC528D7E0021B5D4129813FD4AAB645AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931910   (509859) от 28.08.2015
+
+Ирина Круг - Лучшие песни. Видеоальбом (2015) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тебе моя последняя любовь
+02. Шанель
+03. Я прочитаю в глазах твоих
+04. Букет из белых роз(   Читать дальше...   )Производство: РоссияЖанр: МузыкаПеревод: ОтсутствуетСубтитры: нетПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9139B3BFFF1A0D9391BD900F95771E16DE121568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536711   (509723) от 23.08.2012
+
+Alex Gaudino & Taboo - I Don't Wanna Dance (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B1A13451C6AEE1F80FCC32175EBB90EC2C9B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538215   (509720) от 23.08.2012
+
+Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20664FA32F15F0ABE8D307119C2BB21827F38D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537924   (509693) от 23.08.2012
+
+Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59117D2670C996059562B2FF76F66E815B953E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537920   (509642) от 23.08.2012
+
+Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73BF4239372819909194FA784A0925981A78BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 231791   (508987) от 31.08.2010
+
+The Beatles at Shea Stadium (1965) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о концерте The Beatles в городе Нью-Йорк 15 августа 1965 года на Стадионе Ши.
+Это был первый случай в истории музыки, когда стадион был использован для рок-концерта! Концерт смотрело 55600 зрителей, что стало новым мировым рекордом посещаемости музыкального шоу.
+Группа сыграла на концерте 12 дежурных песен за 30 минут и помахав на прощание разгоряченной (   Читать дальше...   )01.Arthur Fiedler Introduction
+02.Shea Stadium
+03.I'm Down
+04.Setting Up, Murray the K(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:25:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538218   (508303) от 24.08.2012
+
+Кабаре / Crazy Horse (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный Crazy Horse, оставшийся непревзойденным в течение половины столетия в качестве радикального новшества, которое преподносит женское тело как средство художественного выражения. Более 5 миллионов человек побывали на шоу Crazy Horse в прекрасно оборудованном театре на проспекте George V, находящимся рядом с Домом Balenciaga и напротив Ив Сен Лоран. В 2001 году было открыто постоянное шоу Crazy Horse в Лас-Вегасе, в MGM Grand Hotel and Casino. Дита фон Тиз, признанная королева бурлеска, впервые была приглашена в качестве гостя Crazy Horse Paris в октябре 2006 года. В феврале 2009 Дита вернулась, чтобы представить три чувственных и эффектных номера, которые она любезно подарила Crazy Horse Paris.Жанр: Мьюзикл, МузыкаРежиссер: Филипп НоэльАктеры: Дита Фон Тиз, Alexa Phocea, Azy Nenuphar, Baby Light, BagiraПеревод: ОтсутствуетПродолжительность: 0:55:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 375727   (508079) от 19.08.2011
 
 Эпоха застолья. Ресторанные хиты на все времена (2011) SATRip
@@ -6,7 +257,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_508079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508079.jpg" />
 </div>
 
 
@@ -36,7 +287,7 @@ Gary Clark Jr. - Rock in Rio USA (2015) WEBRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_507170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507170.jpg" />
 </div>
 
 
@@ -65,7 +316,7 @@ VA - Летний марафон № 186 / Видеоклипы (Самые Та
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506906.jpg" />
 </div>
 
 
@@ -94,7 +345,7 @@ Diplo feat. Lazerdisk Party Sex - Set It Off (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_506662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506662.jpg" />
 </div>
 
 
@@ -120,7 +371,7 @@ Heaven and Hell - Radio City Music Hall Live! (2011) BDRip 1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505415.jpg" />
 </div>
 
 
@@ -155,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_505278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505278.jpg" />
 </div>
 
 
@@ -182,7 +433,7 @@ Lady Gaga - Yoü And I  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504452.jpg" />
 </div>
 
 
@@ -208,7 +459,7 @@ Gary Moore - Live at Montreux (2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504157.jpg" />
 </div>
 
 
@@ -237,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_504152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504152.jpg" />
 </div>
 
 
@@ -263,7 +514,7 @@ Dash Berlin feat. Emma Hewitt - Like Spinning Plates (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503709.jpg" />
 </div>
 
 
@@ -289,7 +540,7 @@ Chris Parker - Symphony (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503400.jpg" />
 </div>
 
 
@@ -315,7 +566,7 @@ U.D.O. - Navy Metal Night (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503258.jpg" />
 </div>
 
 
@@ -344,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_503062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503062.jpg" />
 </div>
 
 
@@ -373,7 +624,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502318.jpg" />
 </div>
 
 
@@ -402,7 +653,7 @@ Gary Moore - Blues for Jimi (2007/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502152.jpg" />
 </div>
 
 
@@ -431,7 +682,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502149.jpg" />
 </div>
 
 
@@ -460,7 +711,7 @@ Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502136.jpg" />
 </div>
 
 
@@ -473,261 +724,6 @@ Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10FFDA01B7B4DCD47B4B9895CDB89CA850EF4666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317210   (502114) от 30.07.2019
-
-Rammstein - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая рок-группа Rammstein даст два масштабных концерта в России: 29 июля 2019 года – Москва, Большая Спортивная Арена «Лужники», 2 августа 2019 года – Санкт-Петербург, Стадион «Газпром Арена».Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B301F3CF588F1A58BBE2AFB42608FC02FF519801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541202   (502093) от 30.08.2012
-
-Валерия: Русские романсы и золотые шлягеры XX века (2012) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастическое качество изображения и звука обеспечил формат Blu-ray новому альбому Валерии, на котором запечатлен юбилейный концерт в Кремле «Русские романсы и золотые шлягеры ХХ века», посвященный двадцатилетию творческой деятельности певицы. Это уникальное коллекционное издание, изысканно внешне оформленное, порадует и внутренним содержанием. На концерте Валерия спела 25 композиций: лучшие романсы и нестареющие хиты ХХ века, которые певица исполнила вместе со специальными гостями: маэстро Раймондом Паульсом, Давидом Тухмановым, Игорем Крутым и Иосифом Кобзоном. Последний, кстати, обучал певицу эстрадному мастерству в академии им. Гнесиных. Это шоу Валерии впечатлило всех изысканной утонченностью, потрясающим репертуаром, неподражаемым, живым звуком и атмосферой романтического торжества...01. П.И. Чайковский - Полонез из оперы "Евгений Онегин"
-02. Как хороши те очи
-03. Хризантемы
-04. Оправдаешь ли ты
-05. Небо звездами (За роялем Д. Тухманов)
-06. Напрасные слова (За роялем Д. Тухманов)
-07. Нищая
-08. Подруга
-09. Ноктюрн (Дуэт с И. Кобзоном)
-10. Была любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540889   (502016) от 30.08.2012
-
-Король и Шут - Праздник скоморох (1997) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_502016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Внезапная голова
-02. Ели мясо мужики
-03. Холодное тело
-04. Бродяга и старик(   Читать дальше...   )Жанр: Punk, Horror, RockПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4186C4D8AFD46BFA7016CD98174F35D2352AD58B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541018   (501967) от 30.08.2012
-
-Король и Шут - Страшные Истории. Томъ 1 (2003) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501967.jpg" />
-</div>
-
-
-###  Подробнее
-
-На DVD "Страшные Истории. Том 1", помимо известных клипов, представлены эксклюзивнейшие материалы из истории группы, а также ролики, которые никогда не показывались по ТВ. Этот DVD - первый из серии историй про группу "Король и Шут", которые рассказывает сама группа.01. Камнем по голове
-02. Дурак и молния
-03. Блуждают тени
-04. Садовник(   Читать дальше...   )Жанр: Punk, Horror, RockПродолжительность: 01:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DD7AFAD5CCE2CA33A21EE3AB683B83901E66E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317268   (501113) от 31.07.2019
-
-Легенды Ретро FM полная версия (2018) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_501113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера международного музыкального фестиваля Легенды Ретро FM 201801. Дмитрий Харатьян и Домисолька - Мы к вам заехали на час
-02. Ottawan - D.I.S.C.O.
-03. Ottawan - Shalala Song
-04. Ottawan - Hands Up(   Читать дальше...   )Телекомпания: 1 канал (Россия)Жанр: PopСубтитры: отсутствуютПродолжительность: 04:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C900124478B67F6290F3841286FB14489C07689C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380006   (500890) от 26.08.2011
-
-Pet Shop Boys - Pandemonium (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:38:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541534   (500874) от 31.08.2012
-
-Валерия: Русские романсы и золотые шлягеры XX века (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500874.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале декабря прошлого года Валерия праздновала в Государственном Кремлевском дворце 20-летие своей творческой деятельности. По ее собственному признанию, певица не любит никаких юбилеев, «потому что юбилей предполагает взгляд назад». В связи с этим Валерия отказалась от идеи устроить ретроспективу своих хитов за отчетный период и подготовила специальную программу (   Читать дальше...   )01. П.И. Чайковский - Полонез из оперы "Евгений Онегин"
-02. Как хороши те очи
-03. Хризантемы
-04. Оправдаешь ли ты(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540336   (500871) от 31.08.2012
-
-Сборник клипов - VA -Top 37 evropa plus + bonus (2011-2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 02:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0BCA02CF8622C61C9A63FD94DB8E571753B691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379910   (500778) от 26.08.2011
-
-Леонид Филатов - "Сказ про Федота - Стрельца, удалого молодца" (1988) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_500778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Театр одного актёра, авторское исполнение!Режиссер: З. АлиеваПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5713E89CBB72A19BBAB3A47B04818666B9766C
 ```
 
 https://mybot314.ru/tekegram_catalog/

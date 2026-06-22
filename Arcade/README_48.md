@@ -1,3 +1,55 @@
+###  Публикация: 1740675   (47982) от 03.08.2024
+
+Tomba! (2024) [Multi] (1.0) Scene TiNYiSO [Special Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomba! Special Edition предлагает ностальгический побег. Возрождая классический 2,5D-платформер, эта игра переносит геймеров в яркие миры, наполненные причудливыми персонажами. Адвенчура может похвастаться улучшенным геймплеем без ущерба для очарования своего пиксельного предшественника. Она рассчитана на самую разную аудиторию. Пользователи управляют Томбой, юным (   Читать дальше...   )Тип издания: SceneРазработчик: Limited Run GamesЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98224BE2CACFD467C45A9EDF8B4C3BF501D2661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740888   (47909) от 04.08.2024
+
+DAISY THE SWIMMER (2024) [Ru/Multi] (1.0.4) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47909.jpg" />
+</div>
+
+
+###  Подробнее
+
+DAISY THE SWIMMER переносит пользователей в яркое подводное царство острова Паранг Блю. Дейзи, главная героиня игры, перемещается по этой водной площадке в поисках пропитания. Рыба - макрель, тунец, камбала - населяет глубины, служа как добычей, так и наградой. Однако за идиллическими пейзажами скрывается зловещее подводное течение. Ниндзя из Бездны, банда гнусных (   Читать дальше...   )Тип издания: RepackРазработчик: nStarcubeЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3167047073CE5537A116927D6F89BD6675846471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741103   (47743) от 05.08.2024
 
 Neon White (2022) [Ru/Multi] (1.0.740.0) Scene Dinobytes
@@ -6,7 +58,7 @@ Neon White (2022) [Ru/Multi] (1.0.740.0) Scene Dinobytes
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47743.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Get To The Top (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47683.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Motordoom (2024) [Ru/Multi] (Build 15256500) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47499.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ MARS 2120 (2022) [Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47289.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47285.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Aerial_Knight's We Never Yield (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47268.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Cassette Beasts (2023) [Multi] (1.6.2/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46971.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (20240621) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46737.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ UFO Taxi (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46139.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Frontiers Reach (2020) [En] (Chapter 3) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45788.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Super Antonio (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45780.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Phantom Spark (2024) [Multi] (1.0.0:3004) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45653.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Golf Club Wasteland / Golf Club Nostalgia (2021) [Ru/Multi] (1582) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45184.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Action SuperCross (1997) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44952.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44885.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44854.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44803.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44666.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Akimbot (2024)[Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44629.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44551.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44541.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44525.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Spyro: Enter the Dragonfly (2002) [Ru/Multi] (1.2) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44261.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Plank Builders (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43816.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Plank Builders (2024) [Ru/Multi] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:373AB47D1110CA8A72DE092A0CEB932DF94E7BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748941   (43802) от 12.09.2024
-
-Nickelodeon All-Star Brawl 2 (2023) [Multi] (1.12.0/dlc) Scene Rune
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nickelodeon All-Star Brawl 2 - продолжение оригинальной аркады 2021 года, которое объединяет набор персонажей из любимых шоу, создавая кроссовер-файтинг, ориентированный как на поклонников классической анимации телеканала, так и на любителей жанра файтинга. Реализовано 32 бойца, каждый из которых обладает собственным набором уникальных приемов и способностей. Можно (   Читать дальше...   )Тип издания: SceneРазработчик: Fair Play LabsЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C14939CCB3116C588E2692B7EFD9DEC5716462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615071   (43741) от 13.09.2024
-
-Spyro the Dragon (1998) [Ru/Multi] (2.0) Repack Ma2012ks
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spyro the Dragon - первая игра от Insomniac Games о драконе Спайро начавшая серию Spyro the Dragon. Злой волшебник Гнасти Гнорк (Gnasty Gnorc) заколдовал королевство драконов. Вся надежда на маленького Спайро. Он призван освободить своих сородичей и смежные миры от гнёта тёмных сил, а также спасти все украденные яйца драконов.Тип издания: RepackРазработчик: Insomniac GamesЖанр: Платформер, Аркада, 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36542CF52D358C5B2C29F8B250993DBD30190A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

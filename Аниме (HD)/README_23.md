@@ -6,7 +6,7 @@ Hanamonogatari / История Цветов [2014, SP] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551081.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Seikaisuru Kado | Seikai Suru Kado | Kado: The Right Answer | Правильны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548741.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548389.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nobunaga-sensei no Osanazuma | Nobunaga Teacher's Young Bride | Молодая �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547560.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Overman King-Gainer / Король Гэйнер [2002, TV, 26 из 26] BDrip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547341.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546776.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Shoumetsu Toshi | Afterlost | Исчезнувший город [2019, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545969.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545907.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai / Ao-chan Can't Study! / Похотли�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_545067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545067.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dragon Crisis! / Драконий кризис! [2011, TV, 12] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540702.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Namu Amida Butsu! Utena | Да здравствует Амитабха [2019, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539625.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_539488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539488.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 OVA / Konosuba OVA 2 / Этот зам�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538693.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Reikenzan: Eichi e no Shikaku / Гора Священного меча: Банк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538481.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538350.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Sin: Nanatsu no Taizai / Прегрешение: Семь смертных гр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538325.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Dog Days | Жаркие деньки | Собачья жизнь [ТВ-1] [2011,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_538024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538024.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537680.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. Heart | Наука влюбле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_537056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537056.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Kill Me Baby | Убей меня, детка [ТВ] [2012, TV, 13 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536320.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dog Days' | Жаркие деньки | Собачья Жизнь [ТВ-2] [2012
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536309.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Dance Dance Danseur | Танцуй, танцуй, танцор [2022, TV, 11 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535352.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Junketsu no Maria | Непорочная Мария [2015, TV, 12 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534443.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kubikiri Cycle: Aoiro Savant to Zaregotozukai | Обезглавливающий
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_534283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534283.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533967.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Otomege Sekai wa Mob ni Kibishii Sekai Desu / Trapped in a Dating Sim: The World
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_533284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533284.jpg" />
 </div>
 
 

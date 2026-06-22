@@ -1,3 +1,29 @@
+###  Публикация: 1797566   (18008) от 17.05.2025
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Штаб-квартиры секретной службы Kingsman уничтожены, весь мир оказывается в заложниках у неизвестных, а британские суперагенты обнаруживают, что в один день вместе с их организацией была создана американская разведка Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему врагу, чтобы спасти мир — то есть заняться тем, что для Эггси (   Читать дальше...   )Производство: Великобритания, США / 20th Century Fox Film Corporation, Marv Films, Shangri-La Entertainment, TSG EntertainmentЖанр: боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Колин Фёрт, Тэрон Эджертон, Эдвард Холкрофт, Гордон Александр, Марк Стронг, Ханна Альстрём, Кэлвин Демба, Томас Тургус, Тоби Бакаре, Джулианна МурПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (forced, full)Продолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D379C20BF02325DB57BD437120BF9B8803D7231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797619   (17998) от 17.05.2025
 
 Искупление / Atonement (2007) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17998.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17996.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17993.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17984.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17927.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17921.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17914.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17902.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [AV1/2160p] [4K, HDR, 1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17870.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17869.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17866.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17865.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17864.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17842.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17841.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17837.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17836.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17821.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17819.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17818.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17816.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17804.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17784.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17737.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17682.jpg" />
 </div>
 
 
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F9AF5F69BCC24DC9D3C108B7580262A8AA08A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798121   (17681) от 20.05.2025
-
-Неудержимые / The Expendables (2010) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отряд профессиональных наёмников и отчаянных парней во главе с Барни Россом получает непростое задание - любой ценой найти и уничтожить кровавого тирана-диктатора, нагнетающего страх на мирное население и сеющего хаос в южноамериканской стране.
-Отправляясь на выполнение нелёгкой миссии, закалённые огнём и водой, прошедшие не одну войну, люди Росса попадают в самое (   Читать дальше...   )Производство: США, Болгария, Испания, Германия / Millennium Films, Nu-Image Films, Rogue MarbleЖанр: боевик, приключения, триллерРежиссер: Сильвестр СталлонеАктеры: Сильвестр Сталлоне, Джейсон Стэйтем, Джет Ли, Дольф Лундгрен, Эрик Робертс, Рэнди Кутюр, Стив Остин, Дэвид Зайас, Жизель Итье, Чаризма Карпентер, Гэри Дэниелс, Терри Крюс, Микки Рурк, Эмин Джозеф, Хэнк Амос и др.Перевод: Дублированный (Пифагор, REN-TV)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английскиеПродолжительность: 01:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DB5EE0AABD32D5476E0C05C81269C578C48765
 ```
 
 https://mybot314.ru/tekegram_catalog/

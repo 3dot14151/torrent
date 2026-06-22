@@ -1,3 +1,107 @@
+###  Публикация: 1665926   (180911) от 02.10.2023
+
+Сибирская Благозвонница | Богородичное правило и пяточисленные молитвы (2018) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богородичное правило – собрание молитв ко Пресвятой Богородице. Молитвы эти, как дыхание души, обладают благотворной жизненной силой, умиротворяющей и оздоровляющей молящихся, всех тех, кто искренно, от всего сердца, просит Небесную Заступницу о помощи. Кроме того, сборник содержит Пяточисленные молитвы, так любимые великим подвижником Божиим святителем Димитрием (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E294FC3D0DDA18E098E35D9DC541D525280BE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593476   (180484) от 27.11.2022
+
+Святитель Николай Сербский | Избранное (2021) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Николай (Велимирович), епископ Охридский и Жичский, — самое крупное имя в сербской духовной литературе XX века, один из известнейших мыслителей Сербской Церкви, вдохновенный и глубокий проповедник и богослов. Подлинный носитель святоотеческого Православия, подвижник, миссионер, учёный, владыка Николай объяснял глубочайшие истины христианской веры просто (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61463D774A00A9547C55BCC48AA6117318055FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665929   (180326) от 03.10.2023
+
+Благовест | Блаженны милостивые. По творениям святителя Иоанна Златоуста (2015) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой сборник изречений святителя Иоанна Златоуста о милосердии, взятых из его многочисленных творений. Святитель именует добродетель милосердия «царицей добродетелей», а его собственная жизнь дает нам подлинный идеал деятельной христианской любви, которая исходит от живой и глубочайшей веры. Само понятие «милосердие» в творениях святителя (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6967461D79CD0A3926720F56D5F130016B7A92C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428556   (179332) от 03.12.2020
+
+А.И. Плюснин (сост.) | Сила христианской веры. По творениям преподобного Ефрема Сирина (2017) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой сборник назидательных поучений преподобного Ефрема Сирина, относящихся к христианской вере, избранных из всех его творений. В них святой Ефрем учит нас, как нужно правильно верить в Бога по учению Христа и Его Святой Церкви, в чём заключается животворность и сила нашей веры и как наша христианская вера должна проявляться в повседневной (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F65A598CE6D98283EEA46EBFC1B08394C249B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666599   (179029) от 05.10.2023
 
 Благовест | Таинство Елеосвящения (Соборование) (2014) [PDF, FB2, EPUB, MOBI, TXT]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179029.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179026.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178995.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178993.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_178967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178967.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178404.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177871.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177656.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177615.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177563.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176764.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175961.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175259.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175204.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174749.jpg" />
 </div>
 
 
@@ -410,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174737.jpg" />
 </div>
 
 
@@ -436,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_174725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174725.jpg" />
 </div>
 
 
@@ -462,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174548.jpg" />
 </div>
 
 
@@ -488,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174048.jpg" />
 </div>
 
 
@@ -514,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_173961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173961.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173250.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173243.jpg" />
 </div>
 
 
@@ -579,110 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCF56944F497D870D38505E3874AE176910E9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668807   (173242) от 14.10.2023
-
-Архимандрит Наум (Байбородин) | Философия духа отцов «Добротолюбия» (2018) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателя предлагается книга известного в России и далеко за ее пределами духовника и старца, недавно почившего архимандрита Троице-Сергиевой лавры о. Наума (Байбородина) (1927–2017), о внутреннем аскетическом делании христианина и достижении на этом пути духовного совершенства. Умение управлять своей душой святые отцы называли наукой из наук и высшей премудростью. (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FE2D5E3CCBD82DA36C087C6B36BE19C597BFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668810   (173230) от 14.10.2023
-
-Сибирская Благозвонница | Святой Николай (2022) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173230.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге повествуется о святых мужах, носящих сколь древнее, столь и красивое имя – Николай, которое восходит к древнегреческому «Николаос» и переводится как «победитель народов». В числе носителей этого имени рабы Божии разных сословий и происхождений, из древних родов и простолюдины, деятели Церкви и миряне, жившие много веков назад и по историческим меркам (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA2BFA838EF4360149126E5E9ABC76A025777A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669024   (173218) от 14.10.2023
-
-Протоиерей Григорий Чельцов | Закон Божий для семьи и школы в вопросах и ответах (2015) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами книга, которая в начале ХХ века была учебником по Закону Божию в народных училищах, средних учебных заведениях, церковно-приходских школах. Несмотря на то что сборник о. Григорием (протоиереем Григорием Васильевичем Чельцовым, духовным писателем, магистром Санкт-Петербургской духовной академии, 1840–1916) был составлен более ста лет назад, до сегодняшнего (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632D4A5F8252D0FF96F26E2190E692CF0CDB1FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669027   (173217) от 14.10.2023
-
-Монах Симеон Афонский | Искусство борьбы с помыслами (2016) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга монаха Симеона Афонского является своего рода «духовным завещанием». Эта книга обращена прежде всего к монахам, практикующим «умную молитву». В ней раскрываются секреты духовной борьбы с помыслами, очищения сердца от страстей и даются ориентиры в дальнейшем пути к Богу. Глубокая укорененность в святоотеческую традицию служит признаком подлинности духовного (   Читать дальше...   )Жанр: ПравославиеИздательство: ИндрикФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DAB7C4FD26281ABBAD324F6B4CCB7656CE8408
 ```
 
 https://mybot314.ru/tekegram_catalog/

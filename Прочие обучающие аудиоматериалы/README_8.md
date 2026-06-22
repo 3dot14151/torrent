@@ -1,3 +1,116 @@
+###  Публикация: 599048   (998744) от 08.01.2013
+
+Виктор Орлов и Азамат Ушанов | Твоя Харизма Онлайн [2010] [mp3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш успех заключается в одном коротком волшебном и циничном слове:
+ПЛЮНЬТЕ!
+-на чтение книг по копирайтингу;
+-на изучение сложностей РНР;
+-на головоломные секреты раскрутки;
+-на долгое и тяжкое изучение того как создать свою рассылку, как покорить джумлу или вордпресс;
+
+Плюньте, ибо это от вас никуда не уйдет...
+Все что вам сейчас нужно - этот первый в рунете курс о том, как свести к минимуму чтение умных книг и максимально увеличить выхлоп от своей деловой активности...Жанр: Психология, инфобизнесПродолжительность: 06:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C75F945FF4F965BFDF8CB2C0828BB6738E70A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162106   (989304) от 04.01.2010
+
+Юрий Лотман | Беседы о русской культуре [1993] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989304.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Беседы о русской культуре" принадлежат перу блестящего исследователя русской культуры Юрия Михайловича Лотмана. В свое время автор заинтересованно откликнулся на предложение "Искусства—СПб" подготовить издание на основе цикла лекций, с которыми он выступал на телевидении. Работа велась им с огромной ответственностью: уточнялся состав, главы расширялись, (   Читать дальше...   )Жанр: Литературоведение, культурология, история
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355832   (981039) от 28.01.2020
+
+Георг Гегель | Лекции по истории философии. [2 книги] (2006) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Гегель Георг Вильгельм Фридрих (1770—1831) – один из величайших мыслителей Европы. Творчество Гегеля является вершиной развития немецкой классической философии и одной из поворотных точек развития европейской философии в целом.«Лекции по истории философии» Гегеля остаются и сегодня одним из тех трудов, без знакомства с которыми невозможно понимание истории (   Читать дальше...   )Жанр: ФилософияПродолжительность: 51:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B9562ECD77BE6005805AB75B78DB48616B5AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356067   (980527) от 29.01.2020
+
+Георг Гегель | Лекции по истории философии. [Книга 3] (2009) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Гегель Георг Вильгельм Фридрих - один из величайших мыслителей Европы. Творчество Гегеля является вершиной развития немецкой классической философии и одной из поворотных точек развития европейской философии в целом.
+"Лекции по истории философии" Гегеля остаются и сегодня одним из тех трудов без знакомства с которыми невозможно понимание истории (   Читать дальше...   )Жанр: ФилософияПродолжительность: 51:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D083B904E93B9EE007AD2848B17A8527008DFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 164938   (979841) от 12.01.2010
 
 Диоген Лаэртский | Жизнеописания великих философов [2006] [MP3]
@@ -6,7 +119,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_979841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979841.jpg" />
 </div>
 
 
@@ -34,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_969049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969049.jpg" />
 </div>
 
 
@@ -60,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966768.jpg" />
 </div>
 
 
@@ -87,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966753.jpg" />
 </div>
 
 
@@ -113,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_966560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966560.jpg" />
 </div>
 
 
@@ -139,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_959589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959589.jpg" />
 </div>
 
 
@@ -165,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_952474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952474.jpg" />
 </div>
 
 
@@ -192,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_949640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949640.jpg" />
 </div>
 
 
@@ -218,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940262.jpg" />
 </div>
 
 
@@ -246,7 +359,7 @@ TomasLC | Обольщение и соблазнение [2010] [MP3]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_940198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940198.jpg" />
 </div>
 
 
@@ -272,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_939252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939252.jpg" />
 </div>
 
 
@@ -300,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_937236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937236.jpg" />
 </div>
 
 
@@ -326,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_936446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936446.jpg" />
 </div>
 
 
@@ -352,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_935447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935447.jpg" />
 </div>
 
 
@@ -378,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930834.jpg" />
 </div>
 
 
@@ -404,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_930477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930477.jpg" />
 </div>
 
 
@@ -430,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_929286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929286.jpg" />
 </div>
 
 
@@ -457,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928675.jpg" />
 </div>
 
 
@@ -483,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_928635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928635.jpg" />
 </div>
 
 
@@ -509,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925906.jpg" />
 </div>
 
 
@@ -535,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925738.jpg" />
 </div>
 
 
@@ -561,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924905.jpg" />
 </div>
 
 
@@ -572,110 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:935D8BF74D03C9DBCCB10114D9BE2D56AD1C7AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986956   (924237) от 18.02.2016
-
-Мирзакарим Норбеков | Мастерская успеха - Новосибирск (2008) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастерская успеха - это уникальная возможность получить свой секрет успеха лично от академика Мирзакарима Норбекова. Это шанс повернуть жизнь в том направлении, которое Вам нужно. Возможность реализовать свои скрытые таланты. Заработать свой первый и последующие миллионы, стать участником Российского Клуба Миллионеров, основателем которого является Норбеков.Жанр: Саморазвитие, Бизнес, ИнтуицияПродолжительность: 35:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87A1FDFE0C4A5652ADC89DECB876ED5CF0C880D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095239   (920776) от 23.01.2017
-
-Генри Вейл Оуэн | Жизнь Высших миров (2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920776.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этих посланиях не только красочно описаны тонкие миры, однако и дано теоретическое обоснование действительного положения вещей в нашем мире, показана связь миров и та неоценимая помощь, что неустанно, несмотря на наше неверие, оказывают нам граждане Высших миров, даны практические советы по преображению жизни, показана цель и смысл существования на земле и в высших (   Читать дальше...   )Жанр: Эзотерика, философияПродолжительность: 25:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29C1446078DF9B4F0DF9D4E4F5BCF27A3D3B1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366825   (920089) от 13.03.2020
-
-Либо Либо | Истории русского секса (2019) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_920089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждую неделю Екатерина Кронгауз разговаривает с людьми разных поколений, разных сексуальных пристрастий и интересов, о том, как они занимаются или занимались сексом. Мы пытаемся понять, как менялись наши представления о теле, об удовольствии и о себе, как мы говорим или молчим об этом. Как общество и политика влияют на секс, а секс – на общество и политику. В первых (   Читать дальше...   )Жанр: ПодкастыПродолжительность: 05:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D292F689DAE0AA055E42649768CFC0ACAE214B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368060   (911048) от 19.03.2020
-
-С.И. Радциг | История древнегреческой литературы (2000) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_911048.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассматривается литература и культура четырёх больших периодов: античного, византийского, периода турецкого ига и новогреческого. Наряду с анализом художественных произведений учебник содержит большой материал, относящийся к вопросу влияния античного наследства на литературу последующих эпох.Жанр: Учебники гуманитарной тематикиПродолжительность: 41:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40CEDDA5AEA44900C031423C7E7E06D61D1467C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1797236   (18216) от 15.05.2025
+
+Stive Morgan - Part 2 Compilation (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Above the Heavens (Part 1)
+02 - Amazonia
+03 - Last Haven in Space
+04 - Life Simulator(   Читать дальше...   )Жанр: ElectronicПродолжительность: 06:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B262FF442A8655ABC5327675E06D8BB66B19B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797849   (17764) от 19.05.2025
+
+VA - Compilation Part 162 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Riltim - Luveluv
+02 - A-Sultan - Rebel Night
+03 - Riltim - Don't Wait for Me
+04 - Dndm - Real Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAF5AD00924CFCFF2DCAA9325B4B74EAAFEE8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791978   (17621) от 21.05.2025
+
+VA - Mixed by DJ Юrkanik (2025) [MP3|320 Kbps] <Progressive House, Trance, Drum & Bass> [Обновляемая]
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown - Summer Party (Original Mix)
+02. Block & Crown, Devante - We Are The Players
+03. Malive - Quintal (Emanuel Satie, Tim Engelhardt Remix)
+04. MIDI Maxi Efti - Bad Bad Boys (DJ Golden Love & Igor Frank Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Drum & Bass, House, Nu Disco, Melodic...Продолжительность: 19:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886F9F101D0CD4E9FC1E915606A5878FCFADFF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810105   (17481) от 03.08.2025
+
+VA - Compilation Part 180 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Akmalov & Dilmurat Oglu - Continue
+02 - Jumanov - Charger
+03 - Azimov - Echo Drift
+04 - Jumanov - Single Girl(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593E5664626E4806F4DB9A90E2CD1A5F7F7D9CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810104   (17480) от 03.08.2025
+
+VA - Compilation Part 179 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rodle - Sound of Me
+02 - Kasimoff - You Lied
+03 - Jambeats - Reste Mon Amour
+04 - Riltim - Amber Pulse(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40F2EFD2D55E6DB794B739045A0BDDC3A3F71C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798874   (17132) от 24.05.2025
+
+VA - DOWN LOW 8 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HEDEGAARD, Matt Hawk - Nias in Paris (4:06)
+02. AKIAL - Hypnosis (3:50)
+03. Bou, Haribo - Overthinking (3:44)
+04. Butch U - Get Low (3:41)(   Читать дальше...   )Жанр: Bass House, Bass Progressive, OtherПродолжительность: 02:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7562D8400BCDF6D5CF2232883D86198D237BA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798940   (17091) от 24.05.2025
+
+VA - Assorted Compilation Part 7 (2025) [MP3|320 Kbps] <Electronic, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Noirwave - Electric Waves
+02 - Suleymer - Passion
+03 - Noirwave - Track 1 (Enigmatic Music for Relax and Work )
+04 - Suleymer - Eternity(   Читать дальше...   )Жанр: Electronic, Easy listeningПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4173364C0BDD8EE73F857A69E594CD3492BD2FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799052   (16988) от 25.05.2025
+
+VA - Record Super Chart 24.05.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AY YOLA - Homay (4:04)
+02. David GuettaSia - Beautiful People (3:07)
+03. Zerb feat Ty Dolla Sign, Wiz Khalifa - Location (2:28)
+04. Misha Miller feat. Alex Velea - Bam Bam (2:30)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD86182C1F86A36502BDF95BD349EC6582B33F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799013   (16857) от 26.05.2025
 
 VA - Compilation Part 163 Electronic (2025) [MP3|320 Kbps] <Electronic>
@@ -6,7 +238,7 @@ VA - Compilation Part 163 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16857.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ VA - Techno Bunker 5 (2025) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16367.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ VA - Compilation Part 166 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15852.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Rainshow - Old and New Compilation (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15659.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ VA - AFTERLIFE ANYMA The End of Genesys (2025) [MP3|320 Kbps] <Melodic House & T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15487.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ VA - Hypnotic Hologram (2025) [MP3|320 Kbps] <Psy, Goa, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15247.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ VA - Organic Chill House (2025) [MP3|320 Kbps] <Deep, Chill, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15235.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ VA - History of... (mixed by Юrkanik) (2010-2013) [MP3|320 Kbps] <Techno, Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15095.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ VA - Compilation Part 167 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14824.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ VA - Compilation Part 168 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14733.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ VA - Assorted Compilation Part 10 (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14513.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ VA - Compilation Part 169 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14189.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ VA - Compilation Part 170 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13601.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ VA - Contact 3: People & Machines (2025) [MP3|320 Kbps] <Minimal, Tech House, Ot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13354.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ VA - Vocal Trance NNM 5 (2025) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13045.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ VA - Record Super Chart 28.06.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13036.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ VA - Compilation Part 171 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12845.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ VA - Deep House Summer Mix (2025) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12598.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ VA - Deep House Summer Mix (2025) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AFCF7A1F3E21BA0D6F3152A1D1CDD3A6CA7D668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805364   (12474) от 05.07.2025
-
-VA - Oriental Deep 6 (2025) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murat Uyar - The Secret of Cappadocia (6:25)
-02. DJ Pantelis - Dle Yaman (6:27)
-03. Ahmet Çeğil, Yıldırım Erşahin - Night Story (3:26)
-04. Sharake, JKC - W'oud (5:19)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC55088226B6C16403C1E03DADAAEE9AEC29A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805655   (12163) от 08.07.2025
-
-VA - Compilation Part 172 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_12163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jumanov - Emma
-02 - Natisa Gogol & Umar Keyn - I Miss You So
-03 - A-Sultan - Neon Fever
-04 - Jumanov - Think(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2238EEA6C5B58782039BB1B568BEF39ED447ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806529   (11594) от 13.07.2025
-
-VA - Compilation Part 173 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_11594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Imazee - Something True
-02 - Imran - I Couldn’t Breathe
-03 - Kasimoff - It’s My Life
-04 - Jumanov - Go(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB4C05366B8C2CC92E6C7C4C9BB348B41C675D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807637   (10874) от 20.07.2025
-
-Dova Music - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Name in My Dream
-02 - Alone
-03 - I Loved You
-04 - Midnight Mirage(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB34679BEBA106A972350BFA1F7885578DE78AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807937   (10791) от 21.07.2025
-
-Stive Morgan - Transformation Of Consciousness (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Star Legion
-02 - The Sound of the Earth
-03 - The Iron Phoenix
-04 - I'll Come to You in a Dream(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30122F993F89A060CBB3654B819AC97A50372245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808567   (10366) от 25.07.2025
-
-VA - Compilation Part 176 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hamidshax - Love
-02 - Muvi - Encore
-03 - Jumanov - Passed
-04 - Jam Music - Monodrive(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942DA00FB431AF3046B547C35B1D350DCBD61D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808610   (10356) от 25.07.2025
-
-VA - Compilation Part 177 Electronic (2025) [MP3|320 Kbps] <Electronic, Easy listening. Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music, Unavarage Gang - Rooked Smile
-02 - Limora - Flower
-03 - Jambeats - Jamais Sans Toi
-04 - Umar Keyn - My Love From the Past(   Читать дальше...   )Жанр: Electronic, Easy listening. VocalПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16406855CA226C088A53CA9460F83F5FC70351F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809135   (9961) от 29.07.2025
-
-VA - Compilation Part 178 Electronic (2025) [MP3|320 Kbps] <Electronic, Easy listening, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hamidshax - Alone
-02 - Umideep - Love Like Fire
-03 - Dova Music - Only You
-04 - Umideep - Love(   Читать дальше...   )Жанр: Electronic, Easy listening, VocalПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B5A29140A5F6A24C0B62ABAD0AB40460D40F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

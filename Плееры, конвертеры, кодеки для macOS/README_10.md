@@ -6,7 +6,7 @@ HD Video Converter Movavi 22.1.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250086.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246153.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_246151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246151.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bigasoft QuickTime Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246045.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MediaHuman Video Converter азк Mac 2.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246011.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TurnTable 4.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245889.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ FoneLab Video Converter Ultimate 9.2.30 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245314.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Apeaksoft Blu-ray Player for Mac 1.1.70 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245166.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Aiseesoft Mac Blu-ray Player 6.6.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245055.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ AnyRec Video Converter for Mac 1.0.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244450.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ WALTR PRO 4.0.115 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_244193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244193.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AnyMP4 DVD Copy 3.1.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_240206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240206.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Filmage Converter-ConvertVideo 1.2.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_239342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239342.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_238285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238285.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Bigasoft WTV Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_237124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237124.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ AudFree Tidable Music Converter 2.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236691.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ iDealshare VideoGo for Mac 6.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236681.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ AudKit Tidal Music Converter 2.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_236654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236654.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_234829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234829.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Aiseesoft HD Converter for Mac 9.2.26 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_232855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232855.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tipard Blu-ray Converter for Mac 10.0.56 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232406.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AnyMP4 Blu-ray Ripper for Mac 9.0.36 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232399.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tipard DVD Ripper for Mac 10.0.52 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232357.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ AnyMP4 DVD Ripper for Mac 9.0.58 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_232349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232349.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Aiseesoft DVD Creator 5.2.38 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_231454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231454.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ HitPaw Video Object Remover for Mac 1.2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_230934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230934.jpg" />
 </div>
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1043727   (571184) от 17.08.2016
+
+Гандбол. Олимпийские игры 2016. Женщины. 1/4 финала. Россия - Ангола (2016.08.16) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571184.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 августа 2016 года, среда. 02:30 МСК
+Женщины. 1/4 финала. Россия - Ангола
+Арена: Фьюче Арена (Рио-де-Жанейро, Бразилия)Телекомпания: Матч Игра HDЖанр: СпортПродолжительность: 01:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7A9B4C9A65B63F57CA55CA8020F483DB7390A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043475   (571183) от 17.08.2016
 
 Синхронное плавание. Олимпийские игры 2016. Дуэты. Техническая программа. Квалификация (15.08.2016) IPTV [H.264/1080i]
@@ -6,7 +34,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571183.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571182.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571180.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571177.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_571174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_571174.jpg" />
 </div>
 
 
@@ -150,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_571133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_571133.jpg" />
 </div>
 
 
@@ -176,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571062.jpg" />
 </div>
 
 
@@ -205,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571060.jpg" />
 </div>
 
 
@@ -232,7 +260,7 @@ MotoGP 2011 / Этап 8 из 18 / Италия / Гонка / 125сс + "Кор
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571006.jpg" />
 </div>
 
 
@@ -258,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570904.jpg" />
 </div>
 
 
@@ -287,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570877.jpg" />
 </div>
 
 
@@ -313,7 +341,7 @@ BBC: Мир природы. Исчезнувшие острова / Natural Worl
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_570845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_570845.jpg" />
 </div>
 
 
@@ -339,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570838.jpg" />
 </div>
 
 
@@ -368,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570836.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570730.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570712.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570567.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570550.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570045.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570041.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569574.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569488.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569364.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569321.jpg" />
 </div>
 
 
@@ -667,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569277.jpg" />
 </div>
 
 
@@ -681,35 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4A2DFB627361308B18DC23606F28EDADD66BAF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044044   (569276) от 18.08.2016
-
-Баскетбол. Олимпийские игры 2016. Мужчины. 1/4 финала. Хорватия - Сербия (17.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569276.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 августа 2016 года, четверг. 04:15 МСК.
-Баскетбол. Мужчины. 1/4 финала.
-
-Арена: Кариока Арена 1 (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Роман Скворцов)Продолжительность: 01:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68410735D4315AD0622E9E320A1F87FA34DE5CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1031280   (668520) от 03.07.2016
+
+Футбол. Чемпионат Европы 2016. 1/4 финала. Германия - Италия (02.07.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668520.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 июля 2016, суббота. 22:00 МСК
+ 1/4 финала
+Стадион:  Матмут-Атлантик (Бордо, Франция) , 38764 зрителя (90 % при вместимости 43000)
+Главный судья:  Виктор Кошшои (Татабанья, Венгрия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: русский (Артем Шмельков (превью), Юрий Розанов, Денис Казанский)Продолжительность: 03:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162F448861B5A754683F1C949E7C01FF2E2DA809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031379   (668510) от 03.07.2016
 
 Формула 1. Гран-При Австрии. Гонка (2016) HDTVRip [H.264/720p] [hand made 50fps]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668510.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668442.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668244.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668242.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668238.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668236.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668234.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ PBS Nature: Собаки, которые изменили мир. Рождени
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668228.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668192.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668168.jpg" />
 </div>
 
 
@@ -289,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668003.jpg" />
 </div>
 
 
@@ -318,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668002.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668001.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_668000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668000.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667993.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667943.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ Monster Energy Nascar All-Star Race, Гонка Звезд - Charlotte (2017) HD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667941.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667455.jpg" />
 </div>
 
 
@@ -519,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667426.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667354.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667293.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_667284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667284.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ Nat Geo Wild: Захватчики. Армия койотов [5 серия] / T
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667268.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667237.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667193.jpg" />
 </div>
 
 
@@ -697,32 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F686FEDD1D74645D626A77B90515045742C5792A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509103   (667096) от 16.06.2012
-
-Nat Geo Wild: Захватчики. Нашествие лосей [4 серия] / The Invaders: Moose Rampage (2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_667096.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Захватчики" ("The Invaders")- встречайте существ, чьи поразительные способности адаптироваться к новой среде, позволило им процветать в новых районах, а также создать проблемы проживающим там другим видам животных, а главное людям. Эти животные не остановятся в попытках доминировать в новых для них условиях.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D74AA2FEB8A78201A8793C581C63C33C173F38
 ```
 
 https://mybot314.ru/tekegram_catalog/

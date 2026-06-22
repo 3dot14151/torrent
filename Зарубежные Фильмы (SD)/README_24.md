@@ -1,3 +1,133 @@
+###  Публикация: 1444771   (1034099) от 03.02.2021
+
+Дьявол в деталях / The Little Things (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заместителя шерифа округа Керн Джо Дикона по прозвищу Дики отправляют в Лос-Анджелес – обычная командировка для сбора улик. Но там его привлекают к поискам серийного убийцы, который терроризирует город. Охоту на маньяка возглавляет Джим Бэкстер, сержант департамента шерифа Лос-Анджелеса. Его впечатляет полицейское чутье Дики, и он неофициально привлекает его к расследованию. (   Читать дальше...   )Производство: США / Gran Via, Warner BrosЖанр: Детектив, криминал, триллерРежиссер: Джон Ли ХэнкокАктеры: Дензел Вашингтон, Рами Малек, Джаред Лето, Кристофер Бауэр, Майкл Хайатт, Терри Кинни, Натали Моралес, Изабель Арраиса, Джорис Джарски, Гленн МоршауэрПеревод: Профессиональный многоголосый (MVO HDRezka Studio)Субтитры: Русские (отдельно)Продолжительность: 02:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305FCA8CDCAC9E01CFB20BC28B5593EE4CA3C44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444802   (1034085) от 03.02.2021
+
+Дэвид Боуи. Человек со звезды / Stardust (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034085.jpg" />
+</div>
+
+
+###  Подробнее
+
+1971 год. Яркая музыка, яркая мода… Дэвид Боуи уже выпустил свой знаменитый хит «Space Oddity», однако следующий его альбом оказывается непонятым широкой публикой. Находясь в творческом поиске, Боуи прилетает в США. Именно путешествие через Америку вдохновляет его на создание образа Зигги Стардаста, пришельца, который прилетел на Землю с космически-популярной группой (   Читать дальше...   )Производство: Великобритания / Salon Pictures, Wildling Pictures, Film ConstellationЖанр: Драма, биография, музыкаРежиссер: Гэбриел РэнджАктеры: Джонни Флинн, Джена Мэлоун, Марк Мэрон, Аарон Пул, Энтони Флэнеган, Джулиан Ричингс, Моника Паркер, Райан Блэйкли, Горд РэндПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15BDFA297DE3AC85F586F4C8DDB691573C438CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444818   (1034064) от 03.02.2021
+
+Дьявол в деталях / The Little Things (2021) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заместителя шерифа округа Керн Джо Дикона по прозвищу Дики отправляют в Лос-Анджелес – обычная командировка для сбора улик. Но там его привлекают к поискам серийного убийцы, который терроризирует город. Охоту на маньяка возглавляет Джим Бэкстер, сержант департамента шерифа Лос-Анджелеса. Его впечатляет полицейское чутье Дики, и он неофициально привлекает его к расследованию. (   Читать дальше...   )Производство: США / Gran Via, Warner BrosЖанр: Детектив, криминал, триллерРежиссер: Джон Ли ХэнкокАктеры: Дензел Вашингтон, Рами Малек, Джаред Лето, Кристофер Бауэр, Майкл Хайатт, Терри Кинни, Натали Моралес, Изабель Арраиса, Джорис Джарски, Гленн МоршауэрПеревод: Профессиональный многоголосый, любительский одноголосыйСубтитры: Русские, украинские, английскиеПродолжительность: 02:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9048B73F0451CB1E14947F4DFBF7C88AD011AF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444857   (1034049) от 03.02.2021
+
+Дьявол в деталях / The Little Things (2021) WEB-DLRip [H.265] [10-bit] [MVO]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заместителя шерифа округа Керн Джо Дикона по прозвищу Дики отправляют в Лос-Анджелес – обычная командировка для сбора улик. Но там его привлекают к поискам серийного убийцы, который терроризирует город. Охоту на маньяка возглавляет Джим Бэкстер, сержант департамента шерифа Лос-Анджелеса. Его впечатляет полицейское чутье Дики, и он неофициально привлекает его к расследованию. (   Читать дальше...   )Производство: США / Gran Via, Warner BrosЖанр: Детектив, криминал, триллерРежиссер: Джон Ли ХэнкокАктеры: Дензел Вашингтон, Рами Малек, Джаред Лето, Кристофер Бауэр, Майкл Хайатт, Терри Кинни, Натали Моралес, Изабель Арраиса, Джорис Джарски, Гленн МоршауэрПеревод: Многоголосый, профессиональный (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 02:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCE2C7AF55CCC0C2C3CB61D1939A886312C9F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618324   (1034032) от 11.03.2023
+
+Марлоу / Marlowe (2022) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неприятности в делах и одиночество частного детектива Филипа Марлоу не сулят в будущем ничего хорошего. Но появляется ослепительная блондинка, которая просит найти ее бывшего. Поиск возлюбленного прекрасной незнакомки оказывается лишь малой частью большой загадки.Производство: Ирландия, Испания, Франция / Aperture Media Partners, Davis-Films, Elipsis Capital, H2L Media Group, Hills Productions AIE, Irish Film BoardЖанр: триллер, криминал, детективРежиссер: Нил ДжорданАктеры: Лиам Нисон, Дайан Крюгер, Джессика Лэнг, Адевале Акинойе-Агбаже, Колм Мини, Даниэла Мелшиор, Алан Камминг, Дэнни Хьюстон, Шана Керслэйк, Франсуа АрноПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), испанскиеПродолжительность: 01:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FE48A029E0E9B7437E2DD9FC62DF8E91D87E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437001   (1033870) от 04.02.2021
 
 Ветреная река / Wind River (2017) BDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033870.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033854.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033837.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033819.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033818.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033805.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033649.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033645.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033642.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033603.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033597.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033582.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033578.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033433.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033426.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033407.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033395.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033382.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033379.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033377.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033371.jpg" />
 </div>
 
 
@@ -538,137 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EABE57070DF69B90B26CA0A4026110F77C3EE33F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445550   (1033369) от 06.02.2021
-
-Никому не говори / Don't Tell a Soul (2020) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033369.jpg" />
-</div>
-
-
-###  Подробнее
-
-В попытках помочь маме, два брата грабят дом и их замечает охранник. В погоне он падает в яму и ломает ногу. Братьям придется разобраться в себе и решить – помогать ли охраннику или нет.Производство: США, Mangano Movies & MediaЖанр: Триллер, драма, криминалРежиссер: Алекс МаколиАктеры: Финн Уайтхед, Джек Дилан Грейзер, Мена Сувари, Рэйн Уилсон, McKenna Christine Poe, Shannon Cogan, Kate Duncan, Эбигейл Эсмена Фроле, Ричард Файк, Грэхэм ЛютесПеревод: Любительский двухголосый (FOCS) ненормативная лексикаСубтитры: Русские (отдельным файлом) (присутствует ненормативная лексика)Продолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5E150CE855E9082856BEA5F6F16CCD18CE6050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445648   (1033345) от 06.02.2021
-
-Пустой человек / The Empty Man (2020) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033345.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1995 году, путешествуя по горам Бутана, один из четырёх американских туристов провалился в странную пещеру и как будто впал в оцепенение. Судьба его товарищей была печальна. В 2018 году в штате Миссури бывший полицейский Джеймс Ласомбра, тяжело переживающий гибель жены и маленького сына, берётся разыскивать пропавшую старшеклассницу Аманду. Он выясняет, что недавно (   Читать дальше...   )Производство: США, ЮАР, Великобритания, Boom! Studios, Out of Africa EntertainmentЖанр: Детектив, ужасыРежиссер: Дэвид ПрайорАктеры: Джеймс Бэдж Дэйл, Стивен Рут, Джоэл Кортни, Марин Айрлэнд, Раснит Каур, Аарон Пул, Роберт Арамайо, Саманта Логан, Эван Йоникит, Адам Фергюсон, Роберт Коуттс, Роберт Ли Дэвис, Коннер Даудс, Джессика Маттен, Рон КэнадаПеревод: Многоголосый профессиональный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full,SDH)Продолжительность: 02:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F350C36166FB51C19CC0DA80D03121F3CFB88E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438070   (1033178) от 07.02.2021
-
-Мышиная охота / Mousehunt (1997) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Ларс и Эрни Шмунц не придают особого значения унаследованному ими старому полуразрушенному особняку до тех пор, пока они не узнают, что их ветхая недвижимость стоит миллионы. Но есть одна проблема.
-Чтобы продать дом, братья должны избавиться от его единственного и упрямого обитателя - маленькой, но очень цепкой мыши. То, что поначалу кажется детской игрой, (   Читать дальше...   )Производство: США / Dreamworks PicturesЖанр: Комедия, СемейныйРежиссер: Гор ВербинскиАктеры: Натан Лейн, Ли Эванс, Вики Льюис, Мори Чайкин, Эрик Кристмас, Майкл Джитер, Кристофер Уокен, Дебра Кристофферсон, Камилла Сёэберг, Йен ЭберкромбиПеревод: Дублированный, МногоголосыйСубтитры: Русские (full), Английские (full)Продолжительность: 01:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40F6117DDAAAA4DA4D3EB08BC39CD8A08660248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619252   (1033165) от 15.03.2023
-
-Братья Систерс / The Sisters Brothers (2018) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий основан на одноимённом романе Патрика Девитта. Середина XIX века. США. Некто Командор отправляет братьев Систерс, наёмных убийц, в погоню за человеком по имени Уорм; кроме того, за Уормом уже следует разведчик Моррис, который сообщает братьям о перемещениях Уорма. Пока братья нагоняют Уорма и Морриса, Моррис узнаёт, что Уорм открыл вещество, помогающее при (   Читать дальше...   )Производство: Франция, Испания, Румыния, США, Бельгия, Why Not Productions, Page 114, Annapurna Pictures...Жанр: драма, криминал, вестернРежиссер: Жак ОдиарАктеры: Джон С. Райлли, Хоакин Феникс, Джейк Джилленхол, Риз Ахмед, Ребекка Рут, Эллисон Толман, Рутгер Хауэр, Кэрол Кейн, Патрис Коссоно, Зак ЭбботтПеревод: дублированный, профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E79B633B7D0A6195309D645781A96A53B99B33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438012   (1033139) от 07.02.2021
-
-Основатель / The Founder (2016) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как создавалась самая известная в мире сеть ресторанов Макдоналдс? Зрителю предстоит узнать яркую и загадочную историю Рэя Крока, который из продавца-неудачника превратился в миллиардера и легенду.Производство: США, Греция / The Weinstein Company, The Combine, FilmNation EntertainmentЖанр: Биография, ДрамаРежиссер: Джон Ли ХэнкокАктеры: Майкл Китон, Ник Офферман, Джон Кэрролл Линч, Линда Карделлини, Б.Дж. Новак, Лора Дерн, Джастин Брук, Кэти Нилэнд, Патрик Уилсон, Грифф ФерстПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7516DBF8ADB27FD34168080D3CBA49D4074082
 ```
 
 https://mybot314.ru/tekegram_catalog/

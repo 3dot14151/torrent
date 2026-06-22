@@ -1,3 +1,159 @@
+###  Публикация: 1335700   (285657) от 03.11.2019
+
+Worlds Align: Beginning / Слияние миров: Начало (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую увлекательную игру. Миры легенд о призраках, шоу марионеток и других известных вам игр объединяются, и их обитатели решают призвать на помощь человека из реального мира - вас. Вам предстоит встретиться со старыми друзьями и противостоять старым врагам. Помогите спасти игровой мир от уничтожения. Удастся ли вам найти причину бедствия и предотвратить (   Читать дальше...   )Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F35EC37D18A236929917D196B54821EAB0C55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186688   (285647) от 25.11.2017
+
+Phantasmat 9: Insidious Dreams / Фантазмат 9: Коварные видения (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285647.jpg" />
+</div>
+
+
+###  Подробнее
+
+После аварии вы страдаете амнезией. К счастью, муж может вам помочь, и вас перевозят в неизвестный дом. Однако что-то страшное появляется в странном доме. Вам приходится сражаться с призраками за свою жизнь. Сможете ли вы раскрыть опасную тайну и спасти себя?Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5497270D61E56B5382B185CCCD4204EF897BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081017   (285414) от 08.12.2016
+
+Sacred Almanac: Traces of Greed / Священный Альманах: Следы жадности (2016) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственное исчезновение главного инженера Джонатана Финча прерывает строительство железной дороги. Строительная компания была вынуждена заморозить все работы. Руководитель компании посылает киноматериал с места событий одному старинному другу Ричарду Стоуну. Внимание Ричарда привлекает один интересный факт - каменный монумент, его происхождение становится загадкой (   Читать дальше...   )Тип издания: LicenseРазработчик: Far MillsЖанр: Adventure, Casual, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDD0F8A76A4D43C6F5E7101AD2005FFA66869CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263867   (284198) от 21.11.2018
+
+Paranormal Files 2: The Tall Man / Секретные досье 2: Верзила (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городские легенды уже давно стали частью местного фольклора, а привычка западной молодежи пугать друг друга разными страшилками или лазить ночами по заброшенным домам и полуразрушенным фабрикам, стала второй натурой (если не самой первой!) и превратилась в обязательный элемент элитных тусовок с причудливыми молодежными забавами местной богемы.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE91CC2FCFFE86E34BADFAFFE8F33E0D7F6C0BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081293   (284136) от 09.12.2016
+
+9 Clues 2: The Ward / 9 Улик 2: Безумие (2015) [Ru/Multi] (1.0.3324) License PROPHET
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284136.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Безумие" – это вторая часть серии про 9 улик, в которой молодая сыщица и ее помощник откликаются на тревожный звонок из психиатрической лечебницы, расположенной на изолированном острове. Ледяные воды, окружающие остров, постоянно штормит. Сразу после прибытия детективов на остров один из врачей лечебницы разбивается на смерть, выпав из окна.Тип издания: LicenseРазработчик: Tap It GamesЖанр: Logic (Puzzle, Hidden objects)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341DAEA731F66F655F6B14E673AFB74A2E064910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081299   (284128) от 09.12.2016
+
+Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая глава (2016) [Ru/Multi] (1.0.665249) License PROPHET
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцать лет назад, в страшном бою, Доун Харлок не дала Архидемону Рагнару сойти в этот мир. Но, как оказалось, на этом приключения и мрачные тайны не закончились. Приемный отец Доун, профессор Эшмор, погиб при попытке предотвратить схождение демона на землю.Тип издания: LicenseРазработчик: Brave Giant LTDЖанр: Logic (Puzzle, Hidden objects)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B154B8AE150EC6E56768AC75B7E51245DDB38EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964204   (283334) от 10.12.2015
 
 The Last Dream (2015) [Ru/En] License Specialbit Studio [Developer's Edition]
@@ -6,7 +162,7 @@ The Last Dream (2015) [Ru/En] License Specialbit Studio [Developer's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_283334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283334.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Imbroglio (2019) [Ru/Multi] (1.0) Repack Butter_
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_281798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281798.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Whispered Secrets 10: Dreadful Beauty (2019) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279061.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Halloween Stories 3: Horror Movie / Хеллоуинские истории 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278947.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Haunted Hotel 17: Beyond the Page / Проклятый отель 17: За пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278944.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Surface 10: Virtual Detective  / Внешние пределы 10: Виртуа�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278403.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Rite Of Passage 6: Deck Of Fates / Обряд посвящения 6: Карты
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277119.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Surface: Return to Another World / За гранью. Возвращение в 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277027.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Dark Tales: Edgar Allan Poes Metzengerstein / Темные истории. Эд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276932.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Grim Tales 10: The Heir / Мрачные истории 10. Наследник (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276829.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Secrets of Great Queens 2: Regicide / Тайны великих королев 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_276413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276413.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Rite of Passage 9: Bloodlines (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274746.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274598.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Lost Lands 4: The Wanderer / Затерянные земли 4: Скиталец
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274495.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Mystery Case Files 18: The Countess (2018) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274067.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Haunted Hotel 10: The X Collector's Edition / Проклятый отель 10. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273394.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: Под маской (2015)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273381.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Adam Wolfe: Blood of Eternity / Adam Wolfe: Кровь вечности (2016) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_273167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273167.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Secret City 3: The Human Threat / Тайный город 3: Неотврати�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_271438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271438.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ Spirit Legends: The Forest Wraith (2018) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270960.jpg" />
 </div>
 
 
@@ -512,162 +668,6 @@ Spirit Legends: The Forest Wraith (2018) [En] (1.0) Unofficial [Collector's Edit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B8E1329A5241E39EE8B12AD2D3C4DA3B8EADB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338275   (270448) от 14.11.2019
-
-Royal Detective 6: The Last Charm (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сказочной детективной серии игр Royal Detective. Вашу дочь похищают и уносят в волшебное царство! Никто не знает, как это королевство скрывалось или почему камни падают с неба, но одно можно сказать наверняка - горожане обвиняют вас в разрушении их домов! Можете ли вы выяснить, кто на самом деле стоит за хаотичным разрушением этого мира, и вернуться в (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03410202EB9C0DD369C816C44A2F6A03AE5A172F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338184   (270444) от 14.11.2019
-
-Labyrinths of the World 10: Fool's Gold / Лабиринты Мира 10: Золото Глупцов (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фантастической серии игр Labyrinths of the World. Вместе с экспертом по ирландской мифологии вы отправляетесь в Ирландию - посетить только что открытый музей лепреконов. Но в одно мгновение приятная экскурсия превращается в смертельно опасное приключение, когда через горшок с золотом эксперт переносится в мир лепреконов. Вам предстоит выяснить, кто использует (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B874F2E6560CF6A6E9BA14407B27480AA95E08D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338750   (268837) от 16.11.2019
-
-Redemption Cemetery 15: The Stolen Time (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amax Interactive представляет новейшую главу в серии Redemption Cemetery! После ужасного несчастного случая вы просыпаетесь, чтобы оказаться в другом мире! Перед вами не обычный склеп, а Храм Времени. Опасное существо угрожает разрушить конструкции самого времени, унося человечество во тьму вместе с ним! Только у вас есть сила, чтобы остановить их, спасая души и (   Читать дальше...   )Тип издания: UnofficialРазработчик: AMAX InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E965F8F5BFCF936F5AA89395F31CC60F00847C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338615   (268834) от 16.11.2019
-
-Ghost Files 2: Memory of a Crime / Дело призрака 2: След преступления (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268834.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается с болезненного пробуждения детектива Артура Кристи в темном подвале в компании с неизвестной жертвой убийства и катастрофическими провалами в памяти. Спустя мгновение здание заполняет вой полицейских сирен. Да, день начался весьма паршиво, и улучшений не предвидится... Герою приходится начать собственное расследование, попутно стремясь доказать (   Читать дальше...   )Тип издания: UnofficialРазработчик: Brave GiantЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2474668A12D64DE0CB7EFF3748B325D7D90F3DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190099   (268565) от 08.12.2017
-
-Christmas Stories 6: A Little Prince /Рождественские истории 6: Маленький Принц (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_268565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказочное продолжение рождественских приключений Christmas Stories. Под Рождество вы получили приглашение на свадьбу. Однако вместо веселого празднования вам предстоит сражение со злой ведьмой, наложившей заклятие на молодоженов и их гостей! Помогите разрушить чары злобной колдуньи и освободить Маленького Принца и его возлюбленную! Только Вы можете снять чары. Хватит (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF7E2ED5C76F715629780F0DA1B7236C3355D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339014   (267979) от 17.11.2019
-
-Dark City 3: Vienna / Мрачный Город 3: Вена (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_267979.jpg" />
-</div>
-
-
-###  Подробнее
-
-«4 Friends Games» представляет вам следующую волнующую главу в серии «Темный город»! Когда нападавший в маске сеет хаос в Венском театре, Вы быстро приезжаете расследовать это дело и обнаруживаете, что это не обычный преступник. Опасный призрак опустился на местный оперный театр, обещая быстрое правосудие за прошлые ошибки! Этот театр наполнен историей и секретами. (   Читать дальше...   )Тип издания: UnofficialРазработчик: 4Friends GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54FC321DBF84423B457799C9C789A38B99F2A93
 ```
 
 https://mybot314.ru/tekegram_catalog/

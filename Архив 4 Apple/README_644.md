@@ -1,3 +1,59 @@
+###  Публикация: 1434352   (152052) от 24.12.2020
+
+URL Manager Pro 5.5.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152052.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2020Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387156DA81E499E632B9D8D6F2C839014D21FB9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270377   (152021) от 22.12.2018
+
+Luminar 3 3.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: SkylumПоддерживаемая ОС: MacOS 10.11Язык интерфейса: Английский, Немецкий и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892FC757685159A7EF944A225305D0195AFE9CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434528   (152006) от 24.12.2020
 
 Cisdem Duplicate Finder 5.6.0 [En]
@@ -6,7 +62,7 @@ Cisdem Duplicate Finder 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152006.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ MovieSherlock 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151971.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ Duplicate Finder and Remover 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151940.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ Noizio — focus, relax, sleep 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151879.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ PDF Merge & PDF Splitter + 6.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151858.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ Airtool 2 v2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151848.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ Hands Off! 4.4.1 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151826.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ Stockfolio - Stocks, Real-Time Stock Portfolio 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151805.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ NCH PhotoPad Image Editor Pro 6.74 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151792.jpg" />
 </div>
 
 
@@ -246,7 +302,7 @@ Movavi Screen Recorder 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151681.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151563.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ Downie 4 v4.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151528.jpg" />
 </div>
 
 
@@ -326,7 +382,7 @@ Dash 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151502.jpg" />
 </div>
 
 
@@ -352,7 +408,7 @@ Movavi Video Editor Plus 2020 20.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151486.jpg" />
 </div>
 
 
@@ -378,7 +434,7 @@ Typora 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151412.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ PopDo 2021.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151379.jpg" />
 </div>
 
 
@@ -430,7 +486,7 @@ Blackmagic Design Fusion Studio 17.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151324.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ Pixelmator Pro 2.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151259.jpg" />
 </div>
 
 
@@ -483,7 +539,7 @@ Beamer 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151214.jpg" />
 </div>
 
 
@@ -511,7 +567,7 @@ Movavi Video Suite for Mac 2022 v22.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_151098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151098.jpg" />
 </div>
 
 
@@ -537,7 +593,7 @@ Sensei 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150954.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ TechSmith Snagit 2019.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150942.jpg" />
 </div>
 
 
@@ -589,7 +645,7 @@ App Cleaner & Uninstaller Pro 6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150921.jpg" />
 </div>
 
 
@@ -618,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150898.jpg" />
 </div>
 
 
@@ -630,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:551AAB9838A37FCD88CD0B9077FA3B029F1F0C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518993   (150867) от 22.12.2021
-
-Movavi Video Converter 22 Premium 22.2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Converter - конвертер видео и аудио файлов. Конвертируйте видео и аудио на вашем Mac. Сохраняйте видео для просмотра на портативном устройстве. Извлечение саундтреков из видео. И многое другое…Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641D0DE0C929116F00A7B2CBDC4B5E0937AAD4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519051   (150789) от 22.12.2021
-
-Movavi Video Editor Plus 2022 v22.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_150789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этом приложении есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов. Попробуйте утилиту прямо сейчас.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: © 2021 Movavi Software LimitedПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCF3508EE6EFB0B154EFF7346AA593B4D2D26D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

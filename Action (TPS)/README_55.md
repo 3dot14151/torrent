@@ -1,3 +1,159 @@
+###  Публикация: 1794038   (5478) от 29.08.2025
+
+Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Wanterlude [Remastered]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Days Gone рассказывает историю Дикона Сент-Джонса. Бывший член мотоклуба "Бешеные псы" страдает от потери супруги и скитается по практически уничтоженному эпидемией открытому миру. Его населяют оставшиеся группы мирных людей, мародеры, безумные культисты, дикие животные и фрикеры. Последние являются подобием зомби. Однако это не ожившие мертвецы, а живые (   Читать дальше...   )Тип издания: RepackРазработчик: Bend StudioЖанр: Action, Adventure, SurvivalЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Корейский, Чешский и другиеЯзык интерфейса: Русский, Английский, Корейский, Чешский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931872450376BF56399988CF6073935312E219F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776357   (5308) от 30.08.2025
+
+The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/En] (1.1.4.0/dlc) Repack Wanterlude [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5308.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Last of Us Part I – игра для ПК от 3-го лица, представлена в жанре action-adventure с элементами survival horror. В мире все стало неспокойно. Много лет назад случилась глобальная катастрофа. Неизвестный вирус поразил большую часть Земли и превратил людей в различных зомби. Людям, которые сумели пережить это, теперь приходится бороться за свою жизнь, чтобы не (   Читать дальше...   )Тип издания: RepackРазработчик: Naughty Dog LLCЖанр: Action, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A629C08E0304299718AF68489F7ADBEDB93233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815418   (5295) от 30.08.2025
+
+Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997/1.0.1.3725653 Update 1) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокрушите угрозу Саранчи в том самом культовом оригинальном шутере от третьего лица. Прошло 14 лет после вторжения безжалостных подземных монстров. Планета лежит в руинах. Заключенного по имени Маркус Феникс, когда-то оставленного умирать, освобождает лучший друг и бывший товарищ по отряду Доминик Сантьяго.Тип издания: RepackРазработчик: The CoalitionЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51487E9E36873F1E78A638B91A50ADE3D99CBB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815882   (4879) от 01.09.2025
+
+Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Let'sРlay [Digital Deluxe]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды американская армия внезапно закрыла на карантин мирный городок Вилламетт в штате Колорадо. Журналист-фрилансер Фрэнк Уэст почуял неладное и проник в единственный торговый центр города. Увы, торговый центр превратился в настоящий ад, буквально кишащий зомби. Помощь прибудет через 3 дня, а за это время Фрэнку предстоит узнать, кто же виноват в случившемся.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD67FE848764A8543D2789F0E41D7BF1439BCFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815519   (4510) от 04.09.2025
+
+Gears of War Reloaded (2025) [Ru/En] (1.0.1.3725653) Repack Other s
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокрушите угрозу Саранчи в том самом культовом оригинальном шутере от третьего лица. Прошло 14 лет после вторжения безжалостных подземных монстров. Планета лежит в руинах. Заключенного по имени Маркус Феникс, когда-то оставленного умирать, освобождает лучший друг и бывший товарищ по отряду Доминик Сантьяго.Тип издания: RepackРазработчик: The CoalitionЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FB2028DD4E05184DC587129A0EBC2744AE9ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816607   (4195) от 06.09.2025
+
+Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Wanterlude
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды американская армия внезапно закрыла на карантин мирный городок Вилламетт в штате Колорадо. Журналист-фрилансер Фрэнк Уэст почуял неладное и проник в единственный торговый центр города. Увы, торговый центр превратился в настоящий ад, буквально кишащий зомби. Помощь прибудет через 3 дня, а за это время Фрэнку предстоит узнать, кто же виноват в случившемся.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112AACFF3DD9F327CB94D2A42C66897F420D3C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807765   (3820) от 08.09.2025
 
 Mindseye (2025) [Ru/Multi] (5302548/dlc) Repack Let'sРlay
@@ -6,7 +162,7 @@ Mindseye (2025) [Ru/Multi] (5302548/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3820.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3/dlc) Repack Wanterl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3684.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-5/dlc) Repack Let'sРlay [Enhan
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3535.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Ready or Not (2023) [Ru/Multi] (94572/dlc) Repack Let'sРlay [LSPD Bundle]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2855.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50.9_15:1:60) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2427.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Echoes of the End (2025) [Ru/Multi] (1.05) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2271.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Daemon X Machina (2020) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Complete]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2238.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ El Paso, Elsewhere (2024) [En] (2025.p1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2235.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3 Build 19869727/dlc)
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1937.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack seleZen [Digi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1717.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1648.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3781977) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1514.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Echoes of the End (2025) [Ru/Multi] (1.05) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1507.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Orcs Must Die! Deathtrap (2025) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1401.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1252.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ METAL GEAR SOLID Δ SNAKE EATER (2025) [Ru/Multi] (1.1.4/dlc) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_1116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1116.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_922.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.15) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_915.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) License GOG [Definitiv
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_658.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) License GOG [20 Year Cel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_649.jpg" />
 </div>
 
 
@@ -511,32 +667,6 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) License GOG [20 Year Cel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30FF322BEEDB978E2769B394B9C29D2181AC134E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820307   (622) от 27.09.2025
-
-Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.4/dlc) Repack Decepticon
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Римейк выпущенной в 2004 году игры METAL GEAR SOLID 3: SNAKE EATER. Та же захватывающая история и увлекательный мир, но с абсолютно новой графикой и трёхмерным звуком, которые ещё лучше передают атмосферу джунглей. Вас ждёт невероятное сочетание выживания, экшена и стелса.Тип издания: RepackРазработчик: KONAMIЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9D2DD43F9F1610AD9918D62C4B402EA43830A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

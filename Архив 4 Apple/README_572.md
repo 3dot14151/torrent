@@ -1,3 +1,56 @@
+###  Публикация: 1655435   (204225) от 26.08.2023
+
+Dash 7.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2023Разработчик: © 2023 Bogdan PopescuПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7AA81A29A808A610CED6EB01AD62ECD19B89018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604165   (204148) от 12.01.2023
+
+ACDSee Photo Studio 9 v.9.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ACDSee Photo Studio — одно из лучших решений для работы с графическими изображениями в среде Mac. Качественная обработка фотоснимков, оптимизация всех аспектов рабочего процесса, экономия времени, усилий и финансов пользователей — все это обеспечивает ACDSee Photo Studio.
+Интерфейс программы позволяет проводить удобную для работы настройку. Его ориентация (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2023Разработчик: © 2021 ACD Systems International Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D0939B9378C9C55972564CD2EE2F16F256F1EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604109   (204141) от 12.01.2023
 
 Little Snitch nightly 5.5 [Multi]
@@ -6,7 +59,7 @@ Little Snitch nightly 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_204141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204141.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Cookie 6.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204054.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ YT Saver Video Downloader & Converter for Mac 7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204049.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Magic Disk Cleaner 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204037.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Musify for Mac 3.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204034.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204030.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Boxy SVG 4.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_204014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204014.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ SponsorBlock for YouTube 5.4.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203810.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ GraphicConverter for Mac 12.0.4 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203770.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ SimpleMind − Mind Mapping 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203760.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ GrandTotal 8.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203727.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Softorino YouTube Converter PRO for Mac 5.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203717.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ JixiPix Artista Impresso Pro 1.8.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203715.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ MediaInfo for Mac 23.07 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203713.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ JetBrains PhpStorm for Mac 2023.1.2 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203608.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Allavsoft Video Downloader Converter 3.25.8.8640  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203559.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ Squeezer 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203555.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ Data Guardian 7 v.7.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203551.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ Dropzone 4 Pro 4.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203546.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ Final Draft 12 v.12.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203535.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203533.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ Reader for Mac 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203423.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Pixelmator Pro 3.3.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203405.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ Commander One PRO Pack 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203392.jpg" />
 </div>
 
 
@@ -632,59 +685,6 @@ Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B352342564DDAEFBB31EE58647C1331CCB9ECB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656330   (203380) от 30.08.2023
-
-Feeder 4 v.4.5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
-С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.08.2023Разработчик: © 2004 - 2022 Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B002AC5FBDFF48A745DFF8A2A78C6FA326C1E95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656329   (203347) от 30.08.2023
-
-Dynamic Wallpaper Engine 15.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_203347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Wallpaper Engine позволяет использовать живые обои на рабочем столе/экранной заставке. Он предоставляет тысячи живых обоев в Мастерской, потребляя при этом как можно меньше системных ресурсов. Это движок обоев для Mac.Тип издания: macOS SoftwareРелиз состоялся: 24.08.2023Разработчик: © 2020 WHBALZAC IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48271CFCE583DD542F759E5562AA0553B503F12
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_888083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888083.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wolfgang Amadeus Mozart - The Violin Concertos (1999) [FLAC|Lossless|image + .cu
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887867.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [MP3|320 кб/с]
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887778.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_887421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887421.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886364.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ferenc Liszt - Complete Symphonic Poems - Arpad Joo (1994) [FLAC|Lossless|tracks
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886328.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Klara Min - Scriabin: Piano Works (2016) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886143.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sviatoslav Richter - Beethoven Piano Sonatas № 8, 23, 8 Bagatelles, Choral Fan
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886125.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ronald Brautigam - Mozart: Piano Concertos No 19 & 23 (2013) [FLAC|96/24|WEB-DL|
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886023.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ronald Brautigam - Mozart: Piano Concertos No 20 & 27 (2013) [FLAC|96/24|WEB-DL|
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_886003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886003.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Alisa Weilerstein - Solo (2014) [FLAC|96/24|WEB-DL|tracks] <Classical, Chamber>
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885978.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tchaikovsky - Sym No. 4, No. 5, No. 6 (Mravinsky, Leningrad Symphony Orchestra) 
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885866.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ George Frideric Handel - The Masterworks (40 CD) (2004) [MP3|320 кб/с] <class
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885735.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Luciano Pavarotti - Mamma (1984) [FLAC|Lossless|image + .cue] <Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885551.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ TCHAIKOVSKY - Francesca da Rimini • Symphony No.6 "Pathetique"  Moscow Radio O
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885547.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tina Guo - Game On! (2017) [MP3|320 Kbps] <Classical Crossover, Soundtrack>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_885334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885334.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Julia Lezhneva/Юлия Лежнева - Handel - Arias (2015) [FLAC 2.0|96/24|t
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884184.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Romantic Collection - Classic For Love (2000) [FLAC|Lossless|image + .cue] 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_884110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884110.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Ballet Masterpieces: The World's Favorite Ballets and Ballet Suites (2009) 
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_883932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883932.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ V.A. - Старинная музыка для органа и трубы (2002) 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_882857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882857.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Nevermind - Quentin & Guillemain: Conversations (2016) [FLAC|Lossless|tracks] <C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_882701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_882701.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Allan Pettersson - Symphony No. 6 (Nordiska Musikförlaget) (2012) [FLAC|96/24|W
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880638.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Netrebko, Quasthoff, Terfel, Garanca, Pape - The Mozart Album (2006) [MP3|320 к
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880635.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Schubert - Piano Works for Four Hands (Jeno Jando & Ilona Prunyi) (1994) [MP3|32
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_880634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880634.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Jenny Oaks Baker - Classic - The Rock Album (2014) [FLAC|Lossless|tracks + .cue]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878902.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Giuseppe Verdi - Un ballo in maschera (2014) [FLAC 2.0|96/24|Lossless|tracks] <C
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_878769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878769.jpg" />
 </div>
 
 

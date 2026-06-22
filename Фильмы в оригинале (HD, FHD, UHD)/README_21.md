@@ -1,3 +1,133 @@
+###  Публикация: 1213738   (767166) от 18.03.2018
+
+Астрал 4: Последний ключ / Insidious: The Last Key (2018) WEBRip [H.264/1080p-LQ] [EN / RU, EN, KOR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая глава истории об экстрасенсе, которая умеет разговаривать с мертвыми. На этот раз в жизнь воплощается ее самый страшный кошмар: сущности из потустороннего мира проникают в ее собственный дом.Производство: США, Канада / Blumhouse Productions, Entertainment One, LStar CapitalЖанр: Ужасы, Детектив, ТриллерРежиссер: Адам РобителАктеры: Лин Шэй, Ли Уоннелл, Энгус Сэмпсон, Кирк Асеведо, Кейтлин Джерард, Спенсер Лок, Джош Стюарт, Тесса Феррер, Алек Рид, Ава Колкер ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (Notabenoid), Английские, Корейские (вшитые, не отключаемые)Продолжительность: 01:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ED35CC39A3CFA2EBC1632168F95575353D2DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279346   (765833) от 29.01.2019
+
+Суспирия / Suspiria (2018) BDRip [H.264/1080p] [En / Ru, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая американка приезжает в Берлин, чтобы присоединиться к знаменитой танцевальной труппе. Однако в стенах студии девушка внезапно обнаруживает нечто зловещее и сверхъестественное. Вскоре она понимает, что станет следующей жертвой, если не успеет раскрыть тайну проклятия, которое окутало легендарную танцевальную академию.Производство: Италия, США / Frenesy Film Company, Videa, First Sun, MeMo Films, Mythology Entertainment, Amazon StudiosЖанр: Фэнтези, Ужасы, Триллер, ДетективРежиссер: Лука ГуаданьиноАктеры: Дакота Джонсон, Тильда Суинтон, Дорис Хик, Малгоша Бела, Хлоя Грейс Морец, Миа Гот, Ангела Винклер, Ванда Каприоло, Алек Век, Джессика Батю, Елена ФокинаПеревод: ОтсутствуетСубтитры: Русские, Английские (full, SDH)Продолжительность: 02:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B3FC356D52CD3F5152E4524821C306889EC49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279330   (765824) от 29.01.2019
+
+Экстаз / Climax (2018) BDRip [H.264/1080p-LQ] [Fr / Fr, EN Sub] [PR]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рождение и смерть — невероятный опыт, а жизнь — ускользающее наслаждение. Выпускники академии современного танца решают устроить прощальную вечеринку. Однако таинственным образом под нарастающий ритм музыки их всех охватывает эйфория, которой невозможно сопротивляться. Теперь балом правит зловещий хаос и спасение можно найти, только отдав свою душу танцу. Для одних (   Читать дальше...   )Производство: Франция, Бельгия, США / Rectangle Productions, Wild Bunch Company, Arte France and otherЖанр: Драма, Ужасы, Музыкальный, ТриллерРежиссер: Гаспар НоэАктеры: София Бутелла, Ромен Гийермик, Сухейла Якуб, Смайл Кидди, Клод Гаян Малл, Жизелль Палмер, Тейлор Кастл, Теа Карла Шотт, Шерлин Темпл, Леа Вламос и др.Перевод: ОтсутствуетСубтитры: Французские (forced), АнглийскиеПродолжительность: 01:36:25Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D41D780AFA3F16EA3EBB10F5EE25B59D77DA325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126538   (764324) от 19.04.2017
+
+Золото / Gold (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764324.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Кенни Уэллса — современного золотоискателя, хваткого дельца и мечтателя, который отчаянно ждёт шанса переломить судьбу. Оставшись без особых вариантов, Уэллс находит себе такого же неудачливого напарника — геолога, чтобы реализовать грандиозный план: найти золото в неизведанных индонезийских джунглях.Производство: США, Black Bear Pictures, Boies / Schiller Film Group, Hwy61, Living FilmsЖанр: Приключения, Драма, ТриллерРежиссер: Стивен ГейганАктеры: Мэттью МакКонахи, Эдгар Рамирес, Брайс Даллас Ховард, Кори Столл, Тоби Кеббелл, Билл Кэмп, Джошуа Харто, Тимоти С. Саймонс, Крэйг Т. Нельсон, Мэйкон Блэр ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1814896904736324EDE6197142614CC797BA26E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394268   (764208) от 04.07.2020
+
+Форпост / The Outpost (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764208.jpg" />
+</div>
+
+
+###  Подробнее
+
+A small team of U.S. soldiers battle against hundreds of Taliban fighters in Afghanistan.Производство: США, Болгария / Millennium Media, York FilmsЖанр: Боевик, военный, драма, историяРежиссер: Rod LurieАктеры: Orlando Bloom, Scott Eastwood, Caleb Landry Jones, Milo Gibson, Bobby Lockwood, Jacob Scipio, Jack Kesy, Celina Sinden, Taylor John Smith, Alexander ArnoldПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: English (Full, SDH)Продолжительность: 02:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F041C16F572B93C6A6F30A544FD527068D3D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126530   (764149) от 19.04.2017
 
 Собачья жизнь / A Dog's Purpose (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +136,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764149.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763332.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762828.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761028.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759642.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758650.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758200.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757360.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_757326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757326.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756648.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756002.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_755606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755606.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755145.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754917.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754481.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754378.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754373.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754168.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752815.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752103.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_751640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751640.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CF79AF9A60A7974ABAB6D83E815782F29EBF305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019535   (749967) от 23.05.2016
-
-Теперь добавьте мёд / Now Add Honey  (2015) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нормальная жизнь семьи, живущей в пригороде, меняется, когда к ним приезжает двоюродная сестра.Производство: Австралия, GristmillЖанр: комедияРежиссер: Уэйн ХоупАктеры: Люси Фрай, Порша де Росси, Энгус Сэмпсон, Эдди Бару, Бен Лосон, Робби Магасива, Дэвид Филд, Филиппа Култхард, Эрик Томсон, Хамиш Блейк, Робин Батлер, Люк МакГрегорПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95773D41C2185221606E29FDE148E97FAA65694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523534   (749668) от 12.01.2022
-
-Вечные / Eternals (2021) WEB-DL [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечные — представители расы генетически улучшенных суперлюдей, тайно живущих на Земле. Наделённые невероятными суперспособностями, на протяжении тысячелетий они скрывались от человеческой цивилизации, втайне защищая людей от монструозных девиантов. Однако, последние события и действия Таноса заставили их выйти на свет.Производство: Великобритания, США / Marvel Studios, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Хлоя ЧжаоАктеры: Джемма Чан, Ричард Мэдден, Анджелина Джоли, Сальма Хайек, Кит Харингтон, Кумэйл Нанджиани, Лиа МакХью, Брайан Тайри Генри, Лорен Ридлофф, Барри КеоганПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868FF94786BB82D9AF035F8408C97B111781BE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523547   (749558) от 12.01.2022
-
-Вечные / Eternals (2021) WEB-DL [H.264/1080p] [EN / EN, ES Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечные — представители расы генетически улучшенных суперлюдей, тайно живущих на Земле. Наделённые невероятными суперспособностями, на протяжении тысячелетий они скрывались от человеческой цивилизации, втайне защищая людей от монструозных девиантов. Однако, последние события и действия Таноса заставили их выйти на свет.Производство: США / Marvel Studios, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Хлоя ЧжаоАктеры: Джемма Чан, Ричард Мэдден, Анджелина Джоли, Сальма Хайек, Кит Харингтон, Кумэйл Нанджиани, Лиа МакХью, Брайан Тайри Генри, Лорен Ридлофф, Барри КеоганПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (Full, SDH), испанские (Forced, Full)Продолжительность: 02:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D277D21A61B4D8DA0B57D5FCC221D76E8D0AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281873   (747822) от 10.02.2019
-
-Нимфоманка: Часть 2 / Nymphomaniac: Vol. II (2013) BDRip [EN / RU, EN Sub] [H.265/1080p] [10-bit] [Director's Cut] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории нимфоманки по имени Джо, чья жизнь была полна множества эротических переживаний, впечатлений и опытов. Она рассказывает о себе немолодому одинокому холостяку Селигману, который наткнулся на нее, избитую и находящуюся в полубессознательном состоянии, в переулке, доставил к себе домой и выходил…Производство: Дания, Германия, Франция, Бельгия, Великобритания / arte France Cinéma, ARTE G.E.I.E, aviar Films, Film i Väst, Groupe Grand AccordЖанр: Драма, ЭротикаРежиссер: Ларс фон ТриерАктеры: Шарлотта Генсбур, Стеллан Скарсгард, Шайа ЛаБаф, Джейми Белл, Стэйси Мартин, Уиллем Дефо, Миа Гот, Жан-Марк Барр, Майкл Пас, Конни НильсенПеревод: ОтсутствуетСубтитры: Русские (Blu-Ray), английскиеПродолжительность: 02:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182C5F2CB09AE04D4E83D88BA62E6D737ADBB16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523735   (747640) от 13.01.2022
-
-Вечные / Eternals (2021) WEB-DL [H.264/1080p] [IMAX Edition] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечные — представители расы генетически улучшенных суперлюдей, тайно живущих на Земле. Наделённые невероятными суперспособностями, на протяжении тысячелетий они скрывались от человеческой цивилизации, втайне защищая людей от монструозных девиантов. Однако, последние события и действия Таноса заставили их выйти на свет.Производство: Великобритания, США / Marvel Studios, TSG EntertainmentЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Хлоя ЧжаоАктеры: Джемма Чан, Ричард Мэдден, Анджелина Джоли, Сальма Хайек, Кит Харингтон, Кумэйл Нанджиани, Лиа МакХью, Брайан Тайри Генри, Лорен Ридлофф, Барри КеоганПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 02:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DEAC4B622F412444602FB3B64049A4A0A2EC88
 ```
 
 https://mybot314.ru/tekegram_catalog/

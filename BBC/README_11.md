@@ -1,3 +1,29 @@
+###  Публикация: 709777   (723966) от 05.06.2016
+
+BBC. Horizon. Откуда берутся гении? / Horizon. What Makes a Genius? (2011) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откуда берутся гении? Как Уильям Шекспир писал свои гениальные пьесы, которые спустя несколько веков все также тревожат наши сердца и умы? Как Исаак Ньютон стал человеком, который открыл закон всемирного тяготения? Чем отличался мозг Альберта Энштейна, Наполеона II, композитора Георга Генделя и многих других гениев? Родился ли Джон Леннон с талантом писать песни? (   Читать дальше...   )Жанр: Документальный, научно-популярныйПеревод: Двухголосый закадровый (профессиональный, Ред Медиа)Язык субтитров: английскийПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB63627133EA52E3E0575081E0F963140601C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984772   (723433) от 05.06.2016
 
 BBC: Третья мировая война: взгляд из командного пункта / World War Three: Inside the War Room (2016) HDTVRip [H.264/720p] [EN]
@@ -6,7 +32,7 @@ BBC: Третья мировая война: взгляд из командно�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_723433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723433.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719930.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719875.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC. Horizon. Эволюционируем ли мы сейчас? / BBC. Horizo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719872.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) HDT
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719722.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC Earth. Чудо-яйца с Дэвидом Эттенборо / Attenborough
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718724.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ BBC. Кухня против науки. Кулинарный вызов / Chef 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718722.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_718642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718642.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC: Horizon. Жизнь без старости / Don't Grow Old (2009) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717775.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC. Horizon. Играя роль Бога / Horizon. Playing God (2012) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717761.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC. Умные обезьяны / Clever Monkeys (2008) HDTVRip [H.264/720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717627.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ BBC: Горизонт - Как убить человека / Horizon - How to Ki
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717475.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716719.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716707.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ BBC: Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716431.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_716226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716226.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ BBC. Horizon. Миссия на Марс / Horizon. Mission To Mars (2012) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713535.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ BBC. Как вырастить планету / How to Grow a Planet (2012) BDRe
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712862.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712462.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ BBC. Замки: История укреплений Британии / Castles:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712282.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ BBC. Horizon. Почему мы говорим? / Horizon. Why Do We Talk? (2009
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707631.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ BBC: Horizon. Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706595.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ BBC. Как устроена природа / How Nature Works (Secrets of Our L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705063.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705052.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ BBC. Horizon: Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702814.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ BBC. Horizon: Закат Солнечной системы / The End of The Sola
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB69EC36D7350C356292378D8E0F6B017AC425D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132214   (702398) от 08.05.2017
-
-BBC. Horizon: Проект "Гринглоу". В поисках контроля гравитации / Project Greenglow The Quest for Gravity control (2016) HDTVRip [H.264/1080i-LQ] (Сезон 52, эпизод 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже 200 лет человечество мечтает покорить гравитацию. В середине 90-х британский концерн запустил программу «Зеленое мерцание», которая привела к созданию фантастических технологий. В то же время НАСА начала свою программу исследования возможности путешествий со скоростью больше скорости света и создания двигателей деформации пространства. Подчинится ли человеку (   Читать дальше...   )Производство: Великобритания, ВВС Science Production LondonЖанр: Документальный, научно-популярныйРежиссер: Ник ЯнгПеревод: Двуголосый закадровый, профессиональный (студия "Позитив")Продолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635A00330EE1C172055BC862460EDCCBE5023C42
 ```
 
 https://mybot314.ru/tekegram_catalog/

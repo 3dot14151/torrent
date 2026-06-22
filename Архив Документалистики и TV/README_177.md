@@ -1,3 +1,32 @@
+###  Публикация: 1040495   (586551) от 05.08.2016
+
+Футбол. Олимпийские игры 2016. Мужчины. Группа C. 1-й тур. Фиджи - Южная Корея (04.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586551.jpg" />
+</div>
+
+
+###  Подробнее
+
+05 августа 2016, пятница. 02:00 МСК
+Группа C. 1-й тур
+
+Стадион: Арена Фонте-Нова - Отавиу Мангабэйра (Салвадор, Бразилия) , вместимость: 52048(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Серов)Продолжительность: 01:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024A41B747F80C8E4F4A69B34E4B34B10599B06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040417   (586550) от 05.08.2016
 
 Футбол. Олимпийские игры 2016. Женщины. Группа F. 1-й тур. Канада - Австралия (03.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [POR]
@@ -6,7 +35,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586550.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586546.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586545.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586544.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ XXIX Летние Олимпийские игры (Олимпиада-2008). П�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586483.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586338.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586290.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586224.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586214.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ History Channel: Летающий авианосец / The flying aircraft carri
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_586068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586068.jpg" />
 </div>
 
 
@@ -284,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_586065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_586065.jpg" />
 </div>
 
 
@@ -310,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585571.jpg" />
 </div>
 
 
@@ -339,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585570.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585569.jpg" />
 </div>
 
 
@@ -397,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585540.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585480.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585477.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585470.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585368.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585363.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585356.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ XXXI Летние Олимпийские игры в Рио (Олимпиада-
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585337.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585297.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585266.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585144.jpg" />
 </div>
 
 
@@ -689,32 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8FA3FC2066F9CDC57E0AE603F0466C1FBC56AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358097   (585143) от 03.07.2011
-
-Дикая Австралия. Какого пола? / Wild Australia. Which Sex? (1993) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_585143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна Болейн, вторая жена Генриха VIII была обезглавлена из-за того, что не смогла родить ему сына. Теперь мы знаем то, чего не знал Генрих. Женщина ничего не может сделать для того, чтобы родить ребенка определенного пола. Пол ребенка зависит только от сперматозоида отца. В порции спермы 300 000 000 сперматозоидов, но только несколько тысяч из них достигнут яйцеклетки матери, и только один из них сможет дать жизнь новому человеку. Так что пол каждого из нас - это биологическая игра случая. Но некоторые из живых существ могут сами задавать пол своего потомства...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79DD8C35322F732508D9D8249FABD5F5BDC0711
 ```
 
 https://mybot314.ru/tekegram_catalog/

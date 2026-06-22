@@ -1,3 +1,29 @@
+###  Публикация: 655462   (821534) от 12.05.2013
+
+Mouryou Senki Madara / Мадара [1991, OVA, 2 ep.] DVDRip raw +eng
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рождённый в неизвестности, Мадара рос и и воспитывался как подмастерье кузнеца. Встреча с демоническим Моки раскрывает ему его судьбу и вынуждает его отправиться в путешествие. Мадара воюет ради мести. Его цель — победить собственного брата и свергнуть своего отца, тирана Мироку.Жанр: приключения, фэнтезиРежиссер: Морияма Юдзи / Moriyama YujiПеревод: GreymanЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (2 эп.), 60 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007432   (821051) от 15.04.2016
 
 Gekijouban Aoki Hagane no Arpeggio: Ars Nova - Cadenza / Мелодия воронёной стали, фильм второй [2015, MV] BDrip 720p raw
@@ -6,7 +32,7 @@ Gekijouban Aoki Hagane no Arpeggio: Ars Nova - Cadenza / Мелодия воро
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821051.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Time Travel Shoujo: Mari Waka to 8-nin no Kagakusha-tachi | Девушки, пу
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_821018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821018.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Strike the Blood III | Удар крови [OVA-3] [2018, OVA, 10 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820609.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Himouto! Umaru-chan R | Двуличная сестрёнка Умару - 2 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_820418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820418.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Mewkledreamy | Мяу, исполняющая мечты [ТВ-1][2020, TV, 48 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819482.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] HDTV 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_818296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818296.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Love Live! School Idol Project / Живая любовь! Проект "школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817985.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Love Live! Superstar!! / Живая любовь! Суперзвёзды!! [2021
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817211.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Kingdom 3 / Царство [TB-3] [2020, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_817203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817203.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Kaitouranma: The Animation | Samurai: Hunt for the Sword | Самурай в п�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816328.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Honoo no Tenkousei | Blazing Transfer Student | Огненный новичок 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_816258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816258.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Darker Than Black: Ryuusei no Gemini | Darker Than Black: Gemini of the Meteor |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815892.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ Bishoujo Senshi Sailor Moon | Pretty Soldier Sailor Moon | Красавица-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815710.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Ikkitousen / Ikki Tosen / Школьные войны (сезон первый) 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_815086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815086.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Ikkitousen: Extravaganza Epoch | Школьные войны Эпоха феер
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814975.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ Love Live! School Idol Project (2014) / Love Live! 2 / Живая Любовь! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814551.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_814307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814307.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Kero-chan ni Omakase! | Предоставьте это Кэро! [2000, Movie] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813878.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Cardcaptor Sakura: Clear Card Hen | Card Captor Sakura: Clear Card Hen | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813734.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Cardcaptor Sakura | Card Captor Sakura | Сакура - собирательни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813601.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ Just Because! / Да просто так! [2017, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_813341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813341.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812754.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Rosario to Vampire Capu2 / Вампир + крестик 2 [2008, TV, 13] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812645.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / Завет Дь�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812497.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Circuit Angel Ketsui no Starting Grid / Ангел гоночных трасс [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811796.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Circuit Angel Ketsui no Starting Grid / Ангел гоночных трасс [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9448CA22B1E2DEFFEBAACF2632F8AC259432854E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118802   (811081) от 26.03.2017
-
-Okusama ga Seitokaichou! Plus! / My Wife is the Student Council President+! / Моя жена - президент учсовета! Плюс! [2016, TV, 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_811081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Студия Seven / セブンЖанр: комедия, эттиРежиссер: Сасаки ТокиёсиПеревод: AOS (лирика Shaman Anime)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 8 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1808A1BFEFB251A1217A76EDDF758545323194
 ```
 
 https://mybot314.ru/tekegram_catalog/

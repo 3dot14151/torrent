@@ -1,3 +1,107 @@
+###  Публикация: 1288665   (691734) от 13.03.2019
+
+NGW: Потерянные акулы острова Пасхи / Lost sharks of easter island (2011) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энрик Сала, как и его команда, наслышаны о многочисленных легендах про остров Пасхи. Герои документального проекта преодолевают ряд преград, чтобы лично проверить распространенные гипотезы и теории. Вскоре участники экспедиции выяснят, что реальность оказалась совершенно не такой, как представлялось после изучения множества доступных источников. Некоторые факты стали (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Хосе Антонио АррибасПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37493C716C6AEC12264336AC2C191C412C9041BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288002   (691732) от 13.03.2019
+
+N.G. Нацистские тайны Второй мировой / Nazi weird war two (2016) HDTVRip [H.264/1080p] (серии 1-4, 6 из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691732.jpg" />
+</div>
+
+
+###  Подробнее
+
+70 лет с момента окончания Второй мировой войны... По мере того, как память о тех днях тускнеет, из ее темных уголков всплывают различные невероятные истории. Английский историк, доктор Сэм Уиллис и исследователь городов, американец корейского происхождения Роберт Джо, объединили свои таланты, чтобы отправиться на поиски правды.Производство: Сингапур, Infocus Asia PTE, National GeographicЖанр: Документальный, история, исследованияРежиссер: Саймон ЭверсонПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AC0C960B23BAC7D84C17F4161A68B5B4E4F602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028227   (690769) от 22.06.2016
+
+Жизнь необычной птицы / Strangest Bird Alive (2005) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая крупная птица на земле, африканский страус, бьёт все рекорды среди пернатых: быстрее всех бегает, у него самые длинные ноги и самые крупные яйца. Но жизнь у него не сахар. Быстрые страусы более 70 миллионов лет бегают по пустыне Намибии. Главная задача для них - подобрать нужный момент для размножения.Телекомпания: Австрия, A Terra Mater Factual Studios & Mike Birkhead Associaters Ltd. Production For National Geographic ChannelЖанр: Документальный, флора, фаунаРежиссер: Майк Бикхиад, Мартин КолбекПеревод: ДублированныйПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993DD6FF443A41AA8CE1490E20267FBB5A0EADD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019496   (689954) от 22.06.2016
+
+Суперсооружения Третьего рейха / Nazi Megastructures (Megastructures: Nazi Mega Weapons) - 3 (2016) SATRip (3 сезон, 6 серий из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689954.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стремлении к мировому господству нацисты построили некоторые из самых амбициозных и прогрессивных образцов боевой техники, а также разработали самые злодейские технологии в истории; создали продвинутые машины террора, огромные оборонительные системы и оружие массового уничтожения, чтобы завоевать континент и выиграть войну. Этот сериал о Второй Мировой войне рассказывает (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, война, историяПеревод: ДублированныйПродолжительность: 6 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC7F188BB9CC6FD8320D3F9F9989AA05FC49740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222106   (689553) от 27.04.2018
 
 NGW: Воздушное сафари. Австралия / Sky Safari. Australia (2015) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: Воздушное сафари. Австралия / Sky Safari. Australia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689553.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Дикая природа Китая. Царство дикой приро�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689423.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Глубоководные гиганты (Гиганты синей без
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689316.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Фантастические существа Мадагаскара / Mada
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_689315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689315.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Удивительные пауки / Incredible spiders (2015) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687353.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Дикая природа Филиппин / Untamed Philippines (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_687011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687011.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG. Осушить океан: глубокое погружение. Сокро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_686238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686238.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685472.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685171.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685158.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685157.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NGW: Амазонская электрическая рыба / Amazon's electri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685054.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685048.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_685033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685033.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_684945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684945.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG: Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_681681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681681.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NGW: Животные года / Animals of the year (2017) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679277.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NGW: Путешествие короля джунглей / The jungle king (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679257.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NGW: Самые опасные животные Америки / America's deadl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679248.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NGW: Уцелевшая природа Европы / Europe's last wilderness (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679183.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NGW: Море надежды. Подводные сокровища Америк
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679173.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679171.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE5792F9E40C11D25A69CB00480468C5797434AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223037   (679163) от 02.05.2018
-
-NGW: Джейн Гудолл. Спасение рая / Jane Goodall: Saving Paradise (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три острова недалеко от берегов Танзании оказались под защитой от уничтожения на них дикой природы благодаря невероятным усилиям нескольких замечательных людей.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Алан МиллерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EEFA8BC09438B0C56B8FE691154B1C6A35C815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223100   (679151) от 02.05.2018
-
-NGW: Год диких животных. Сибирь / Siberia's wild year (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_679151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только наиболее сильные и выносливые животные способны выжить в неимоверно сложных климатических условиях Сибири.Производство: Новая Зеландия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид ХэйПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8B2444614BE3777368A6DED975FA9E64398F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223036   (678998) от 02.05.2018
-
-NGW: Бесплодные земли / Badlands hard rock - tough lives (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678998.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом сердце Среднего Запада США раскинулся ландшафт, представляющий собой бесплодные земли, на которых пышные луга прорезают горные вершины и остроконечные скалы.Производство: Австрия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Майк БиркхедПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA24ECC0149FE1D9A97507AC2624579A626C502A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135600   (678449) от 20.05.2017
-
-NG: Подъем Атлантиды (Открытая Атлантида) / Atlantis rising (2017) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_678449.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет, люди задаются вопросом, где была легендарная Атлантида. Недавние находки могут стать прорывом в подсказках, ведущих к решению этой сложной головоломки.
-Джеймс Кэмерон и Симча Джакобовиси отправились в путешествие, чтобы найти потерянный город Атлантиду, используя труды греческого философа Платона в качестве виртуальной карты сокровищ.Производство: Канада, Associated ProducersЖанр: Документальный, научно-популярный, исследования, историяРежиссер: Симча ДжакобовисиПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D27CBE310CFFB4D6D207B2A7605C4898439EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

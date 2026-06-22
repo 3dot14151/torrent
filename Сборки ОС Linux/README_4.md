@@ -1,59 +1,3 @@
-###  Публикация: 1744238   (46257) от 20.08.2024
-
-Ubuntu KDE Plasma by spb_user 22.04.4 [amd64] 1xDVD (август 2024) [Авторская раздача]
-
->>След.
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка Ubuntu 22.04.4 LTS, DE - KDE Plasma 5.27.11, ядро - 6.8.0-38-generic.
-В отличие от Kubuntu отсутствует kubuntu-desktop и его зависимости.
-Изменены состав пакетов, оформление, некоторые настройки.
-Большее количество виджетов Plasma, тем, шрифтов.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85754085E0C2F0FFC11CBEA4598732D60DAAA7A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708268   (43406) от 16.09.2024
-
-Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4AFFA74EAA424299124D1A2511AD73F2E8CF576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708256   (43397) от 16.09.2024
 
 Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
@@ -62,7 +6,7 @@ Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43397.jpg" />
 </div>
 
 
@@ -89,7 +33,7 @@ GFI Kerio Control 9.4.4 build 8434 [x86_64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_38540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38540.jpg" />
 </div>
 
 
@@ -115,7 +59,7 @@ MiniOS (все редакции) v3.3.4 [amd64, i386] 10xCD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_37423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37423.jpg" />
 </div>
 
 
@@ -141,7 +85,7 @@ MiniOS (все редакции) v4.1.2 [amd64, i386] 4xDVD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24106.jpg" />
 </div>
 
 
@@ -167,7 +111,7 @@ UALinux CyberPack FaP 22.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_20745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20745.jpg" />
 </div>
 
 
@@ -193,7 +137,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9820.jpg" />
 </div>
 
 
@@ -220,7 +164,7 @@ Ubuntu GamePack 22.04 (июль 2025) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9814.jpg" />
 </div>
 
 
@@ -247,7 +191,7 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9803.jpg" />
 </div>
 
 
@@ -274,7 +218,7 @@ Ubuntu ServerPack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9800.jpg" />
 </div>
 
 
@@ -301,7 +245,7 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9798.jpg" />
 </div>
 
 
@@ -328,7 +272,7 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9797.jpg" />
 </div>
 
 
@@ -355,7 +299,7 @@ Ubuntu*Pack 22.04 Cinnamon (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9796.jpg" />
 </div>
 
 
@@ -382,7 +326,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9793.jpg" />
 </div>
 
 
@@ -409,7 +353,7 @@ Ubuntu*Pack 22.04 LikeWin (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9791.jpg" />
 </div>
 
 
@@ -436,7 +380,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9787.jpg" />
 </div>
 
 
@@ -463,7 +407,7 @@ Ubuntu*Pack 22.04 DDE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_8733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8733.jpg" />
 </div>
 
 
@@ -482,60 +426,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739422   (7568) от 16.08.2025
-
-Ubuntu*Pack 24.04 LikeWin (июль 2025) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2B225DD1EDCF1902554431FB60FFF64B25C205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739473   (7560) от 16.08.2025
-
-Ubuntu*Pack 24.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AA0670CDCB1A53543C1455332D8C104793A720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739388   (7549) от 16.08.2025
 
 Ubuntu*Pack 24.04 (июль 2025) [amd64] 1xDVD
@@ -544,7 +434,7 @@ Ubuntu*Pack 24.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7549.jpg" />
 </div>
 
 
@@ -563,26 +453,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739414   (7546) от 16.08.2025
+###  Публикация: 1815306   (5404) от 29.08.2025
 
-Ubuntu*Pack 24.04 GNOME (июль 2025) [amd64] 1xDVD
+LinuxPHB 12.25.0002 (Debian 12 Bookworm) [x86, amd64] 2xDVD
 
 >>Linux, Unix и другие ОС
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+Компактный портативный Linux дистрибутив на базе Debian 12 Bookworm предназначенный для тестирования, обслуживания ПК, ноутбуков.
+Позволяет проверить/продемонстрировать работоспособность оборудования, нагрузить процессор и видеокарту, мониторить температуру, проверить SMART HDD и NVMe SSD.
+
+В состав входят такие приложения, как CPU-X, GSmartControl, GParted, Partimage, (   Читать дальше...   )Разработчик: gumanzoyЯзык интерфейса: Английский + Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BC7D236B2694423574BE505D7926472B0D995FF
+magnet:?xt=urn:btih:69C0B8174D486ACB500BD6D48CED8DFE022FFDBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,107 +482,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739460   (7544) от 16.08.2025
+###  Публикация: 1817542   (3381) от 11.09.2025
 
-Ubuntu*Pack 24.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903A62F0DD801D3C37D529C696F16E62BC7B1618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739417   (7539) от 16.08.2025
-
-Ubuntu*Pack 24.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
+Ubuntu Game*Pack 24.04 (сентябрь 2025) [amd64] DVD
 
 >>Linux, Unix и другие ОС
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+Это операционная система, которая включает в себя инструменты и средства для гарантированного запуска более чем 100 тысяч игр, как специально разработанных для Linux, так и разработанных для Windows, DOS, различных игровых приставок Sega, Nintendo, PSP, Sony PlayStation, ZX Spectrum и много других.
+Дистрибутив основан на операционной системе Ubuntu*Pack 24.04 (LikeWin), (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EFD7053309C91656E3A417B71760B4EDEBC7F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739467   (7537) от 16.08.2025
-
-Ubuntu*Pack 24.04 MATE (июль 2025) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828DDF9ADCE79FF16CEC5C1966604ABA79D77A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739400   (7535) от 16.08.2025
-
-Ubuntu*Pack 24.04 Cinnamon (июль 2025) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE179A565284101FE285A8B576861E3C4ADCB9C
+magnet:?xt=urn:btih:FB3E518132E636B798C4AE4B346B60578665E09E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554912.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554499.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554480.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_554049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554049.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_552397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552397.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_551657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551657.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_550437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550437.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_549740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549740.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_548822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548822.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_547549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547549.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546677.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_546005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546005.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544579.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544524.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_544515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544515.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_543733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543733.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_542017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542017.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_540495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540495.jpg" />
 </div>
 
 
@@ -471,6 +471,58 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366152   (539241) от 22.07.2011
+
+Журнал | АвтоЗвук №7 [2011] [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "АвтоЗвук" - общепризнанно самый компетентный в России журнал по автомобильной электронике. Журнал проводит тестирование техники на базе собственной лаборатории силами авторитетных экспертов и, благодаря этому, пользуется непререкаемым авторитетом как источник объективной информации об автомобильной аудиотехнике не только в кругах любителей, но и среди импортёров аудиотехники и профессионалов-установщиков.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366159   (539154) от 22.07.2011
+
+Журнал | АвтоЗвук №8 [2011] [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_539154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "АвтоЗвук" - общепризнанно самый компетентный в России журнал по автомобильной электронике. Журнал проводит тестирование техники на базе собственной лаборатории силами авторитетных экспертов и, благодаря этому, пользуется непререкаемым авторитетом как источник объективной информации об автомобильной аудиотехнике не только в кругах любителей, но и среди импортёров аудиотехники и профессионалов-установщиков.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 697226   (536674) от 05.09.2013
 
 Журнал | Автомир [Украина] №36 [сентябрь 2013] [PDF]
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536674.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536595.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536506.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536504.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536501.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_536500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536500.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAB62B944D8E2948D0F25DF47E14E7025CDF624F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819253   (535435) от 06.09.2014
-
-Журнал | За рулем [Россия] №9 (999) (сентябрь 2014) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535435.jpg" />
-</div>
-
-
-###  Подробнее
-
-«За рулем» — популярный советский журнал об автомобилях и автомобилестроении. Первый номер вышел в апреле 1928 года, журнал издаётся по сей день. До 1989 года был единственным автомобильным периодическим изданием в СССР. Как всегда много информации из автомобильного и околоавтомобильного мира.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A959706C010B9E95F900BDBD1939DDC96640E496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239691   (535103) от 07.08.2018
-
-Журнал | 5 Колесо №8 (304) (август 2018) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_535103.jpg" />
-</div>
-
-
-###  Подробнее
-
-"5 колесо" - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей.В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB1BD1D36EBBE36DBB59EF4338996CBD820B0BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

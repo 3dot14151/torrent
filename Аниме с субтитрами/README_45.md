@@ -1,3 +1,29 @@
+###  Публикация: 1174695   (750926) от 30.03.2018
+
+Roku de Nashi Majutsu Koushi to Akashic Records | Акашийские хроники худшего преподавателя магии | Никчёмный учитель магии и Хроники Акаши [2017, TV, 12 эп.] BD-rip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучаться магии куда сложнее, чем любому другому делу. К этому нужно подходить со всей ответственностью. Маги обладают невероятными способностями и изучают тайны мироздания. Академический городок Феджит как раз занимается обучением лучших магов. Здесь учатся Систи и Люмия - трудолюбивые и целеустремлённые волшебницы. Но недавно их настигла печальная новость - их (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: приключения, комедия, фэнтезиРежиссер: Кадзуто МинатоПеревод: Jarly & ZabrЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC26096CF5B94A70D22DDEFEAF07535FF0A3F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152466   (750923) от 30.03.2018
 
 Беседы с девушками-монстрами | Деми хотят поболтать | Demi-chan wa Kataritai | Interviews with Monster Girls [2017, TV, 13 эп.] BDrip 1080p raw
@@ -6,7 +32,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_750923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750923.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Juushinki Pandora | Last Hope | Небесная машина Пандора [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_749452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749452.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Obey Me! | Повинуйся мне! [2021, ONA, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_749412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749412.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Marmalade Boy (1995) | Marmalade Boy Movie | Мальчик-мармелад - �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748615.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Marmalade Boy | Мальчик-мармелад [1994, TV, 76 из 76] BDRip 960
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_748609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_748609.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Island | Остров [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748303.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_748055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748055.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Fate/Extra: Last Encore | Судьба: Дополнение [2018, TV, 13 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747952.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Ramen Daisuki Koizumi-san | Ms. Koizumi Loves Ramen Noodles | Коизуми-с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747485.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Hakata Tonkotsu Ramens | Тонкоцу рамен из Хакаты [2018, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747396.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Ano Natsu de Matteru | AnoNatsu | Waiting in the Summer | Ждём тебя ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_747000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747000.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746848.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_746213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746213.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ To Heart 2 | ToHeart 2 | Для сердца 2 (TV 2) [2005, TV, 13 + 1 эп.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745567.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ ToHeart2 | To Heart 2 OVA | Для сердца 2 OVA-1 [2007, OVA, 3 эп.] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745564.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ To Heart | ToHeart | Heart To Heart | Для сердца (TV 1) [1999, TV, 13 +
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745561.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Gekijouban Card Captor Sakura|Fuuin Sareta Card / Cardcaptor Sakura: The Movie|T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_745350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745350.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Overman King Gainer | Король Гэйнер [2002, TV, 26 из 26] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_744072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744072.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ ReLIFE | ReLIFE Kanketsuhen | Повторная жизнь [2016, 2018, TV+OVA,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743128.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743054.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ Dagashi Kashi 2 | Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743044.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Miira no Kaikata | How to Keep a Mummy | Как ухаживать за муми
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743043.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ Fate/EXTRA Last Encore | Судьба: Дополнение - Последний
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_743042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743042.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь Святых Добр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742978.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ Eldlive | Эль Драйв [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742731.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ Eldlive | Эль Драйв [2017, TV, 12 из 12] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2FBEAFDD0FE8FD99E41C35C088AC5832386E807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396953   (742728) от 18.07.2020
-
-Circlet Princess | Диадема принцессы [2019, TV, 12 из 12] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_742728.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ближайшем будущем передовая технология AR, известная как система смешанной реальности, получила широкое распространение и представила миру новый вид спорта - Битву Диадем. Битва Диадем особенно популярна среди учениц старших классов, где успешные игроки достигают общенациональной славы. Сасаки Юка только что перешла в Академию Святого Союза, но сможет ли она возродить (   Читать дальше...   )Производство: Silver LinkЖанр: повседневность, боевые искусстваРежиссер: Татибана ХидэкиПеревод: Just_Adik, Zuten, MeLarie, OsEncantos, Jelly_IceЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6B0914CB1760241392F8CFF5EB63EFEBBDBD83
 ```
 
 https://mybot314.ru/tekegram_catalog/

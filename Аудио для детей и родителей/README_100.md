@@ -1,3 +1,87 @@
+###  Публикация: 387629   (116958) от 18.02.2024
+
+Андрей Усачёв | Иван – Коровий сын (Аудиоспектакль) (2009) [MP3, Николай Фоменко]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Жемчужины детской литературы.
+Андрей Усачёв, не будучи в преклонном возрасте, уже стал классиком детской литературы. Он уникален. Усачев общается с детьми на понятном им языке, не придуманном. В хорошей сказке как в жизни должно быть намешано все: волшебство и подвиги, дружба и любовь, смех и грусть и, конечно, вдохновение.
+Каждый день в течение месяца, (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Би СмартПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D06CBE65279784938DB0223E7E74C2B97E687E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387635   (116953) от 18.02.2024
+
+Андрей Усачёв | Баба-Яга - Золотая нога (Аудиоспектакль) (2005) [MP3, Лев Дуров и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116953.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Баба-Яга — Золотая нога» — аудиоспектакль по сказке замечательного детского писателя Андрея Усачёва. Это удивительная история о том, как Баба-Яга отправилась в Москву — подлечить костяную ногу — и так увлеклась балетом, что стала примой театра.
+Талантливая работа режиссера, блестящая игра актеров, великолепная музыка, и, конечно, добрые, прекрасные стихи Андрея (   Читать дальше...   )Жанр: Русская литература для детей, сказкаВ ролях: Лев Дуров, Елена Миллиоти, Галина Иванова, Ольга Васильева и др.Издательство: 1С-ПаблишингПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500A082484917338DE0076C4DE6A59A046F04F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701839   (116158) от 22.02.2024
+
+Виктор Мари Гюго | Козетта (1981) [MP3, Юрий Яковлев, Евгений Весник и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Виктор Мари Гюго (1802–1885) французский поэт, прозаик, эссеист, драматург и драматург романтического направления.
+Вашему вниманию предлагается радиоспектакль из золотого фонда Гостелерадио по роману Виктора Гюго «Отверженные».
+Трогательная история маленькой Козетты никого не оставит равнодушным. Это новая Золушка, только (   Читать дальше...   )Жанр: Зарубежная литература для детей, классикаИздательство: МФГУП «Фирма Мелодия», ГостелерадиофондПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD703D9898995923F10E33633AEDB4338AC4FBB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 333621   (116114) от 23.02.2024
 
 Сергей Козлов | Трям! Здравствуйте! (2010) [MP3, Александр Бордуков]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116114.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_116111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116111.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115969.jpg" />
 </div>
 
 
@@ -85,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115967.jpg" />
 </div>
 
 
@@ -111,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115319.jpg" />
 </div>
 
 
@@ -139,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_115270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115270.jpg" />
 </div>
 
 
@@ -167,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114984.jpg" />
 </div>
 
 
@@ -194,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114977.jpg" />
 </div>
 
 
@@ -222,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114970.jpg" />
 </div>
 
 
@@ -250,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114915.jpg" />
 </div>
 
 
@@ -277,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114788.jpg" />
 </div>
 
 
@@ -304,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114583.jpg" />
 </div>
 
 
@@ -331,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114575.jpg" />
 </div>
 
 
@@ -358,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114484.jpg" />
 </div>
 
 
@@ -385,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114462.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114282.jpg" />
 </div>
 
 
@@ -438,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114253.jpg" />
 </div>
 
 
@@ -466,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114227.jpg" />
 </div>
 
 
@@ -493,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114074.jpg" />
 </div>
 
 
@@ -521,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114029.jpg" />
 </div>
 
 
@@ -548,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114012.jpg" />
 </div>
 
 
@@ -576,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114009.jpg" />
 </div>
 
 
@@ -604,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_114007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114007.jpg" />
 </div>
 
 
@@ -618,92 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43DFF2CF2C313840AB077AE7D30420143832C391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705124   (113951) от 07.03.2024
-
-Оскар Уайльд и др. | Сказки английских писателей. Кентервильское привидение (2013) [MP3, Татьяна Телегина и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Предлагаем вашему вниманию произведения знаменитых английских писателей Оскара Уайльда и Редьярда Киплинга, сказки известного собирателя фольклора Джозефа Джекобса, а также Джулии Кавана, Джорджа Макдональда, Уиды (Луизы де ла Раме), Эдит Несбит.
-
- Оскар Уайльд на NoNaMe Club (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 11:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22B85C131B25F7E5C1A0204A072617A7B22A63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705143   (113944) от 07.03.2024
-
-Оскар Уайльд | Звёздный мальчик (Аудиоспектакль) (2006) [MP3, Георгий Тараторкин и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Любимые сказки.
-Оскар Уайльд (1854–1900) – ирландский писатель и поэт.
-Замечательная сказка Оскара Уайльда о маленьком мальчике с холодным сердцем, в котором не было ни капли жалости. История о том, как важно научиться любить и жертвовать собой ради близкого человека. Потому что только любовь способна превратить кусочек льда в горячее человеческое сердце... (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: ВимбоПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9B629732A84E3C51F5BAB3B60DF895CD415A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705909   (113763) от 10.03.2024
-
-Владимир Короленко | Чудная. Сказки и рассказы (2014) [MP3, Аркадий Бухмин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика.
-В этот сборник одного из величайших русских  детских писателей Владимира Галактионовича Короленко (1853–1921) вошли следующие рассказы и сказки:
-1.	 Чудная
-2.	 Необходимость(   Читать дальше...   )Жанр: Русская литература, классика, детская прозаИздательство: МедиаКнигаПродолжительность: 06:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2600C66B3F7059BB8193B77E2D4D9667F7638F55
 ```
 
 https://mybot314.ru/tekegram_catalog/

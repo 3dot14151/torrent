@@ -1,3 +1,32 @@
+###  Публикация: 1064281   (428060) от 19.10.2016
+
+KeyFlow Pro 1.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Личный Asset Management и многое другое
+KeyFlow Pro является простым, но мощным приложением для управления медиа-активами для одного пользователя и малых рабочих групп. KeyFlow Pro сохраняет все свои активы в Интернете, для поиска, редактирования, и легкого совместного использования.
+
+ KeyFlow Pro обеспечивает плавный рабочий процесс с Final Cut Pro X , а также с (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 октября 2016Разработчик: Malgn Technology CO, LTDПоддерживаемая ОС: OS X 10.9.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE64C3C794F453F7242808F940519EF43DC6B15D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064386   (428055) от 19.10.2016
 
 Polarr Photo Editor 3.2 [Multi/Ru]
@@ -6,7 +35,7 @@ Polarr Photo Editor 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_428055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428055.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Coda 2.5.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427908.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ iMazing 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427763.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427644.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ PhoneClean Pro 4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427499.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ Remote Desktop Manager Enterprise 2020.2.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427346.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ BlueHarvest 6.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427302.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ Unibox 1.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427254.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ Bartender 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427251.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Downcast 2.9.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427199.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Temp Monitor 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427192.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ SnippetsLab 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427188.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ PDFelement Express 0.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427184.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ SQLPro Studio 1.0.302 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427182.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Butler 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_427115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427115.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Pixellu SmartAlbums 2 v2.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426985.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Espresso 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426977.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ Folx Downloader Pro 5 v5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426976.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ ChronoSync 4.8.0 & ChronoAgent 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426917.jpg" />
 </div>
 
 
@@ -519,7 +548,7 @@ TechSmith Snagit 2018.2.3  (90457)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426883.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ Rhinoceros 5 v5.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426875.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ Cocktail Sierra Edition 10.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426795.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ SteerMouse 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426794.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ CloudTV 3.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426665.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Photomatix Pro 6.1.1 Standalone Program + Plugin for Lightroom[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426445.jpg" />
 </div>
 
 
@@ -665,34 +694,6 @@ Photomatix может автоматически создавать HDR изоб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:601AA125CA80A5CACEB4834C69D2E4F646EE8F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064592   (426390) от 20.10.2016
-
-BusyContacts 1.1.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_426390.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 октября 2016Разработчик: BusyCal, LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F08D862FF6D88AD7086DF00D544D8C5E228F5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

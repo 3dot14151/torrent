@@ -1,29 +1,3 @@
-###  Публикация: 249092   (388208) от 24.10.2010
-
-Paws & Claws: Pet Resort / Мои пушистые питомцы. Отель "Сахарная косточка" {8-12} (L) [Ru] (2008)
-
->>Детские PC Игры
->>Детские Игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_388208.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мои пушистые питомцы» — новая серия игр для детей, посвященная уходу за разнообразными животными, дрессировке и ветеринарному делу. Ребенок научится заботиться о братьях наших меньших, узнает много нового о повадках диких и домашних животных, а также получит массу удовольствия от общения с забавными зверятами. Юный игрок получает в распоряжение настоящий отель для домашних животных, который расположился на берегу речки, рядом с сосновым бором. Его постояльцы требуют постоянной заботы и тщательного ухода. Чтобы получить звание лучшего отеля для животных в мире, придётся постараться: регулярно делать покупки в соседнем городке, делать более уютными и комфортными вольеры и, конечно, окружить зверюшек заботой и любовью, уделяя им максимум внимания, — следить за их здоровьем, играть и дрессировать, не забывая, что у каждого из них свой характер, привычки и нужды.Тип издания: ЛицензияЖанр: Детские, Развивающие, О животныхЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 722085   (362522) от 15.11.2013
 
 Spidi Calculates / Гав! Два! Три! (2004) [Ru] (L) [4+]
@@ -32,7 +6,7 @@ Spidi Calculates / Гав! Два! Три! (2004) [Ru] (L) [4+]
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362522.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ JumpStart Advanced Preschool: StoryLand [5+ лет] (2013) [En] (3.2.0.61061) Un
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_362241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362241.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Biotopia / Биотопия [5+] (L) [Русский] (2003)
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_336058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336058.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Over the Hedge / Лесная братва [10+ лет] (RePack) [Ru] (2006) | R
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_318991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318991.jpg" />
 </div>
 
 
@@ -131,34 +105,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 255140   (308095) от 04.12.2010
-
-Лунтик учит цифры [3+ лет] (P) [Ru] (2008)
-
->>Детские PC Игры
->>Развивающие Игры для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_308095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любознательный Лунтик приглашает девочек и мальчиков на веселые уроки счета!
-Вместе с Лунтиком в эпицентре невероятных событий окажутся и другие персонажи мультфильма «Лунный гость»: кузнечик Кузя, червяк Корней Корнеич и два хулигана – гусеницы Пупсень и Вупсень.
-Любимые герои предложат ребенку выполнить серию забавных заданий, чтобы продемонстрировать знание цифр. Если у малыша не получится выдержать испытание, ему предстоит другое, более простое.Тип издания: PЖанр: Детские развивающиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 270659   (285284) от 15.12.2010
 
 Asterix & Obelix XXl / Астерикс и Обеликс XXL (Р) [7+ лет] [Ru/En] (2004)
@@ -167,7 +113,7 @@ Asterix & Obelix XXl / Астерикс и Обеликс XXL (Р) [7+ лет] [
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_285284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285284.jpg" />
 </div>
 
 
@@ -193,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277049.jpg" />
 </div>
 
 
@@ -221,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274417.jpg" />
 </div>
 
 
@@ -247,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265195.jpg" />
 </div>
 
 
@@ -273,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265192.jpg" />
 </div>
 
 
@@ -299,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_264560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264560.jpg" />
 </div>
 
 
@@ -327,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258169.jpg" />
 </div>
 
 
@@ -353,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257322.jpg" />
 </div>
 
 
@@ -379,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257011.jpg" />
 </div>
 
 
@@ -405,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256436.jpg" />
 </div>
 
 
@@ -431,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255855.jpg" />
 </div>
 
 
@@ -457,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255827.jpg" />
 </div>
 
 
@@ -483,7 +429,7 @@ Peppa Pig: World Adventures [6+] (2023) [Multi] (1.0) Scene Tenoke
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244614.jpg" />
 </div>
 
 
@@ -509,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_229683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229683.jpg" />
 </div>
 
 
@@ -535,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_227933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227933.jpg" />
 </div>
 
 
@@ -563,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191990.jpg" />
 </div>
 
 
@@ -589,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189083.jpg" />
 </div>
 
 
@@ -615,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155310.jpg" />
 </div>
 
 
@@ -641,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_130099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130099.jpg" />
 </div>
 
 
@@ -667,7 +613,7 @@ Shark Tale / Подводная братва [3+] (L) [Ru] (2005)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_101698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101698.jpg" />
 </div>
 
 
@@ -678,6 +624,58 @@ Shark Tale - трехмерная аркадная игра, созданная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1E81E85BB7FCEEF786C62821932E764748EA31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485225   (89953) от 21.04.2012
+
+Мадагаскар / Madagascar [3+] (RePack) [Ru] (2005)
+
+>>Детские PC Игры
+>>Детские Игры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кросс-платформная игра Madagascar, основана на новом мультипликационном фильме с таким же названием. Вступите в веселый мир четырех животных, живущих в Нью-Йоркском зоопарке, с помощью игры Madagascar от студии DreamWorks Animation.. Отправляйся на поиски приключений вместе Алексом, Марти, Мелманом, Глорией и хитроумными пингвинами. Знакомься с новыми персонажами и путешествуй по местам, которых не было в фильме. Проверь себя на живучесть. Рычи, скачи и крутись, как можешь, если хочешь выжить в джунглях МадагаскараТип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD6F532DD03FB35A3EF4FBE6180FD3A331DEF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484967   (89519) от 19.04.2012
+
+Английский язык от А до Z. Часть 1. Миссия: Шпион [5-10 лет] (L) [Ru] (2003)
+
+>>Детские PC Игры
+>>Развивающие Игры для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть для тех, кто только начинает изучать английский язык. Секретные задания для настоящего шпиона превратят изучение языка в увлекательное занятие. Полученные знания Вы освоите в 11 играх, также тренирующих память, сообразительность и быстроту реакции.Тип издания: ЛицензияРазработчик: Руссобит-М/GFI (ООО «Бествей»)Жанр: ОбучающаяЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D99493F04DF5B96CAFFE80B2808DCDCE76EBD39
 ```
 
 https://mybot314.ru/tekegram_catalog/

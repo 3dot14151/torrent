@@ -6,7 +6,7 @@ Sky Calendar 2021 v1.1.8 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010129.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Unscripted v3.3.7 [En] - Posing Guide for Photographers
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009126.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Baby Sleep Instant 3.8 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008987.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ FX Player Pro 2.9.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008931.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Hi Locker Pro 2.0.9 + 1.8.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008574.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ ibis Paint X 9.0.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1008550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008550.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ RainViewer: Метео Радары и Прогноз Погоды 2.7.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007985.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Speedtest от Ookla 4.6.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007869.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ GPS Локер Prime v2.3.1a [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007717.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Revo Uninstaller Mobile v2.3.260G [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007526.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ J2ME Loader v1.7.0-play [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1007263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007263.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ CCleaner Pro: ПО для очистки 5.6.2 + 4.14.1 Lite-Mod by Balatan [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006956.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Easy Voice Recorder Pro / Простой диктофон - Про 2.7.7 [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1006869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006869.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005389.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Flamingo Animator v2.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004553.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Display Tester Pro v4.28 Mod [En/Ru] - тестирование LCD/OLED  экр
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003901.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Bottom Quick Settings v6.0 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003896.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ WeNote v2.46 [Ru/Multi] - заметки, задачи, напоминания �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003115.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ DestroyPix Pro 1.5.3 (build 7) [En] - Изменение фотографий
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002717.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ ROME: Total War - Alexander 1.13RC15-android [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001516.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Reigns v1.17 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001254.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Five Nights at Freddys Quadrology [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001245.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Farming Simulator 20 v0.0.0.52 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001240.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Warhammer 40,000: Freeblade v5.6.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001239.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Need for Speed: Hot Pursuit v2.0.28 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001218.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ The White Door v1.1.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001014.jpg" />
 </div>
 
 

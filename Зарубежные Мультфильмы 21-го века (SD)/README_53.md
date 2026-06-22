@@ -1,3 +1,29 @@
+###  Публикация: 1347763   (148135) от 24.12.2019
+
+Клара и волшебный дракон (2019) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один раз в тысячу лет в сказочном мире появляется волшебный дракончик. Из-за исключительной редкости дракончика похищают силы зла, чтобы использовать его волшебство. По случайности они теряют дракончика. Его находят двое друзей — жизнерадостный енот и ворчливый гном. Друзья отправляются в дальний путь, чтобы вернуть дракончика домой. На своем пути их ждет встреча (   Читать дальше...   )Производство: Украина / "Image Pictures"Жанр: Комедия, ПриключенияРежиссер: Александр КлименкоАктеры: Вероника Лукьяненко, Александр Погребняк, Дмитрий Завадский, Сергей Солопай, Олег Лепенец, Дмитрий Гаврилов (II), Матвей Николаев, Кирилл Никитенко, Вячеслав Дудко, Дмитрий Викулов, Юрий Сосков, Екатерина Башкина, Демьян ШиянПеревод: Профессиональный (дублированный) | iTunesСубтитры: ОтсутствуютПродолжительность: 01:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B41CE5FC9DD5364C8C74DBB532FE4DCBC0F663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969009   (146233) от 27.12.2015
 
 Монстры на каникулах 2 / Hotel Transylvania 2 (2015) WEB-DLRip [H.264]
@@ -6,7 +32,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_146233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146233.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145504.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_145110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145110.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_144532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144532.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143980.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_143050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143050.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_142134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142134.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141201.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_141146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141146.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140835.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_140187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140187.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_138496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138496.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_137861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137861.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135812.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135557.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_135122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135122.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_133314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133314.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_132165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132165.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_129657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129657.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_128756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128756.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127156.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127120.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_127105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127105.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126532.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_126294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126294.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F0CF360006391DE54729D6499A5242A77BE353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689487   (124701) от 02.01.2024
-
-Кентервильское привидение / The Canterville Ghost (2023) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_124701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья Отисов приобретает старинный дом в английском поместье и переезжает туда. Но в доме уже 300 лет живет призрак мистера Саймона, который считает дом своим. Все новые владельцы, что заезжали в дом до них, сбегали оттуда через три дня. В этот раз все пошло не так. Отисы, и особенно их дочь Вирджиния, не только не боятся призрака Саймона, но и пытаются ему помочь (   Читать дальше...   )Производство: Великобритания / Toonz Media Group, Sprout PicturesЖанр: мультфильм, комедияРежиссер: Ким Бёрдон, Роберт ЧандлерАктеры: Ким Бёрдон, Роберт ЧандлерПеревод: Дублированный (Баритон)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF8B7279B5EE068BD7BC2C9275F8AE441AC3231
 ```
 
 https://mybot314.ru/tekegram_catalog/

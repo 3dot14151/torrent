@@ -1,3 +1,32 @@
+###  Публикация: 1014354   (776481) от 07.05.2016
+
+Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If (2:52)
+02. Song From Secret Garden (2:59)
+03. Make It With You (3:21)
+04. First Of May (4:05)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014512   (776152) от 08.05.2016
 
 Deuter - Ocean Waves (2012) [FLAC|Lossless|tracks] <New Age, Meditative>
@@ -6,7 +35,7 @@ Deuter - Ocean Waves (2012) [FLAC|Lossless|tracks] <New Age, Meditative>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776152.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Brian Crain - Piano and Night (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776083.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Greg Butler - Whispering Yiruma (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776058.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ John Camacho - Morning Calm (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Medit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775791.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Yoga Music Session 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775010.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Relaxation Collection 2 - Cool Breeze (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774299.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Relaxation Collection 1 - Mirror Pond (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774298.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sverre Knut Johansen - Earth From Above (2016) [FLAC|Lossless|tracks + .cue] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774273.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kenio Fuke - Relaxing Melodies of Nature (2011) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773395.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_773092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773092.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771997.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Geoff McGarvey, Graeme Keavney - Dusk (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771934.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ David Arkenstone - Frontier (2000) [FLAC|Lossless]<New Age, Soundtrack>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769755.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Nadama - Waves of Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769637.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_768403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768403.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_765432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765432.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764479.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_764330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764330.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ David Wright & Carys - Prophecy (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763173.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_763124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763124.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Snatam Kaur - Beloved (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_761465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761465.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native amer
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759607.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Greg
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_756349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756349.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755677.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_755290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755290.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C5D8775CA3C33A72661F9E90A502B86C4A6075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663023   (754996) от 31.05.2013
-
-Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manschoud (6:31)
-02. Timeless (3:46)
-03. Safi (5:46)
-04. People (7:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C040631310DA7E4BDE5E2AD372563A042AD30F9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,166 @@
+###  Публикация: 1106987   (867434) от 22.02.2017
+
+Оля Полякова - Большой сольный концерт Stereo Plaza (2015) WEB-DL [1080p]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый, большой концерт Всея-Блондинки Украины в Киеве. Весело, задорно! Живой вокал, красивые наряды, задорные танцы и атмосфера дружбы и веселья.01. Вступление "Жила-была, черная дыра..."
+02. "Russian Style (Пум-Пум)"
+03. Разговор с залом
+04. "Мальчикам ЭТО нравится"(   Читать дальше...   )Производство: УкраинаЖанр: Музыкальный, концертРежиссер: Елена АлексееваАктеры: Оля ПоляковаСубтитры: НетПродолжительность: 01:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EF30CD90098FB5A4236B8C7BF8220786D37358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644421   (867127) от 17.04.2013
+
+Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Горизонтальная анаморфная стереопара 3D]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрывайтесь по-полной в 3d-клипе с «Gangnam Style»  — синглом южнокорейского исполнителя и автора песен PSY! Песня в 2012 году стала первой в рейтинге Gaon Chart, а её видеоклип на YouTub сделал певца миллионером. В 3d ролике  комически танцующий PSY,  в двух местах в Каннамгу (район в Сеуле) и в восьми, которые находятся в Инчхоне и провинции Кёнгидо. В 3д-видеоклипе PSY задействовано много корейских актёров, а девушка – корейская певица Хёна.Жанр: Музыка, Dance, PopПеревод: ОтсутствуетПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B42D7985B869CC4A45DEB4BCBED6FF2B1A97BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766413   (867087) от 16.03.2014
+
+Демонстрационный DVD-Video диск #2. Dolby Digital 6.1, DTS Multichannel Sound 6.1 [DVD5]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDA5F313A85175D4B1C3F56BEFA9CDDEB97EE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375037   (867033) от 13.04.2020
+
+Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torrential Rain - Home AloneЖанр: Electronic MetalcoreПродолжительность: 00:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA4F979839B1A4144235FF3BB0107EECAE334FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 302073   (866889) от 01.03.2011
+
+Кипелов - Жить вопреки (Бонус-DVD) (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка / Heavy MetalПродолжительность: интервью: 00:37:53
+фотогалерея: 00:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D8F662B568624635B918850F994158FEC493DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998921   (865722) от 21.03.2016
+
+Сплин - Сигнал Из Космоса (Концерт в ДК им. Горбунова) (02.04.2010) DVB
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа "Сплин" в представлении не нуждается. Уже легенда, еще не ветераны. В их песнях нет дидактики. Они ничему не учат, не наставляют и не заставляют. Они напрочь лишены морали в общепринятом значении этого слова. Новый материал на каждом концерте. Новый состав - новые люди. В каком настроении выйдет на сцену Александр Васильев - всякий раз неизвестно, (   Читать дальше...   )01. Выхода нет
+02. Шато Марго
+03. Добро пожаловать!
+04. Чердак(   Читать дальше...   )Производство: Первый каналЖанр: Музыка, КонцертРежиссер: Первый каналАктеры: Александр Васильев, Алексей Мещеряков, Дмитрий Кунин, Вадим Сергеев, Николай РостовскийПродолжительность: 01:02:10Реклама: в отдельных кадрах присутствует реклама (бегущая строка)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC926C136D32608A6E5CFFE180A7F2D3B6E3CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 645345   (865656) от 18.04.2013
 
 Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p]
@@ -6,7 +169,7 @@ Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865656.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865575.jpg" />
 </div>
 
 
@@ -58,7 +221,7 @@ A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864656.jpg" />
 </div>
 
 
@@ -87,7 +250,7 @@ We Blame The Empire - Updraft (2020) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863867.jpg" />
 </div>
 
 
@@ -113,7 +276,7 @@ Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863763.jpg" />
 </div>
 
 
@@ -140,7 +303,7 @@ Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863761.jpg" />
 </div>
 
 
@@ -169,7 +332,7 @@ Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863609.jpg" />
 </div>
 
 
@@ -198,7 +361,7 @@ Mike Oldfield - Tubular Bells II and III Live (1999) 2*DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863578.jpg" />
 </div>
 
 
@@ -224,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863534.jpg" />
 </div>
 
 
@@ -250,7 +413,7 @@ Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863376.jpg" />
 </div>
 
 
@@ -279,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861819.jpg" />
 </div>
 
 
@@ -305,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861692.jpg" />
 </div>
 
 
@@ -334,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861417.jpg" />
 </div>
 
 
@@ -360,7 +523,7 @@ Caro Emerald - Montreux Jazz Festival 2015 (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860581.jpg" />
 </div>
 
 
@@ -390,7 +553,7 @@ Metallica - The Videos 1989-2004 (2006) DVD9 [ISO]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860545.jpg" />
 </div>
 
 
@@ -420,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860457.jpg" />
 </div>
 
 
@@ -449,7 +612,7 @@ Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Meta
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860380.jpg" />
 </div>
 
 
@@ -478,7 +641,7 @@ Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860370.jpg" />
 </div>
 
 
@@ -507,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860364.jpg" />
 </div>
 
 
@@ -534,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860312.jpg" />
 </div>
 
 
@@ -546,175 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE114C2029C67B1061010BB47667AC09ABB04F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376542   (858545) от 18.04.2020
-
-Квартирник НТВ у Маргулиса. Гарик Сукачёв (17.04.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858545.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса один из самых неординарных рок-музыкантов России Гарик Сукачёв. Он всегда шел своей дорогой, благодаря чему получил особую популярность у почитателей русского рока. Сукачёва либо любят, либо ненавидят, либо восхищаются им, либо критикуют, но его невозможно не заметить, а песню «Моя бабушка курит трубку» не слышал, пожалуй, только глухой. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78064896A1084A13D9AD0D66F6E39C57B8C05943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304994   (858331) от 06.03.2011
-
-8 марта в Большом городе (2011.03.05) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_858331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известные мужчины Украины и России поздравили всех представительниц прекрасной половины человечества с 8 марта и исполнили для них лучшие "женские" хиты.
-В концерте приняли  участие Николай Басков, Иосиф Кобзон, Дмитрий Дюжев, Сосо Павлиашвили, Валерий Сюткин, Сергей Зверев, Василий Вирастюк, Влад Яма, Дмитрий Коляденко, Михаил Поплавский, Сергей Писаренко, (   Читать дальше...   )01.Заслуженный академический ансамбль песни и танца Вооруженных Сил Украины - Лучшие хиты
-02.Олег и Родион Газмановы - Опять метель
-03.Василий Вирастюк, Влад Яма и Евгений Кошевой – За четыре моря
-04.Михаил Поплавский - Мрій про мене мрій(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E60AF3D5E9BC5BB9BF0C015926A50C6DD6719D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498322   (857673) от 26.09.2021
-
-Квартирник НТВ у Маргулиса. На четверть наш народ (25.09.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857673.jpg" />
-</div>
-
-
-###  Подробнее
-
-На НТВ — камерный концерт, посвященный 30-летию восстановления дипломатических отношений между Россией и Израилем. Вклад евреев в музыкальную сокровищницу России, продолжающийся последние две сотни лет, трудно переоценить. Музыкальная общность культур двух стран продолжается и в наши дни. На сцене квартирника выступили оркестр Игоря Бутмана, хор Soprano под управлением (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C865124978828FE43053364A5CC5078D47CD58BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498140   (857505) от 26.09.2021
-
-Сборник зарубежных видеоклипов (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка видеоклипов зарубежных исполнителей.1. ABBA - I Still Have Faith In You
-2. Anitta - Loco
-3. Ava Max - Everytime I Cry
-4. Becky G - Green light go(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D41678E7154DA8528587B52DF4119383AF910B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873598   (857390) от 06.03.2015
-
-ABBA - The Definitive Collection (1974-1982) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857390.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Waterloo
-2 Ring Ring
-3 Mamma Mia
-4 SOS(   Читать дальше...   )Жанр: Pop, DiscoРежиссер: Лассе Халльстрём, Челль СундвалльПродолжительность: 02:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D18401F94B87159FDA3C363B79AD463511553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000641   (857298) от 26.03.2016
-
-Квартирник у Маргулиса - Би-2 (2016) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса группа Би-2 . Дата эфира: 06.02.2016.1. Хипстер
-2. И корабль плывет
-3. Варвара
-4. Серебро(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D536FBCCE7733A5193C9914E0A74341D3C9624F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

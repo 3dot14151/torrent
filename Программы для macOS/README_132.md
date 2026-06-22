@@ -1,3 +1,108 @@
+###  Публикация: 1342205   (225997) от 01.12.2019
+
+SQLEditor 3 v3.6.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225997.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLEditor - визуальный инструмент для разработки SQL БД и связей объектов (ERD). Приложение полностью заменяет ручную запись SQL-комманд. Если у вас уже есть созданные базы данных, то SQLEditor может помочь вам визуализировать картину всей БД, со всеми межтабличными связями. Приложение поддерживает экспорт дизайна баз данных для MySQL, Postgres, Oracle и других БД.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2019Разработчик: MalcolmhardieПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666DC139FBA1388F6383B9FF9AB9D7FC1FC74038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650291   (225963) от 02.08.2023
+
+ImageRanger Pro Edition 1.9.4.1874 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225963.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 30.07.2023Разработчик: © 2023 XtSense GmbHПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79FCE0046246B764C3B35B75F0CD2A042E58C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650664   (225932) от 02.08.2023
+
+SweetScape 010 Editor for Mac 14.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225932.jpg" />
+</div>
+
+
+###  Подробнее
+
+010 Editor — комплексное программное приложение, предназначенное для редактирования текста и шестнадцатеричного кода любого файла, диска или процесса. В первую очередь оно предназначено для пользователей с минимальным опытом работы с такими инструментами. Приложение имеет чистый интерфейс с профессионально выглядящим макетом, где вы можете использовать файловый браузер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.07.2023Разработчик: © 2002-2023 SweetScape Software Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1847C5B694306BE4CA99EE5B02C65D2081A35ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513383   (225875) от 28.11.2021
+
+SubsMarine 1.3.0 fix [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найти субтитры для видео и телевизионных шоу. SubsMarine - полезная утилита, которая самостоятельно сможет найти субтитры для фильма или ТВ-сериала. SubsMarine просканирует указанные пользователем папки на наличие видео файлов, и найдет и скачает нужные субтитры.
+Благодаря этой малютке можно забыть о долгом и утомительном поиске подходящих субтитров. В настройках (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2018Разработчик: CocoaWithChurrosПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7AC70AE308C5E352DDBA7FEDA6CB1508D56344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513306   (225864) от 28.11.2021
 
 Chaotica 2.0.36 fix [En]
@@ -6,7 +111,7 @@ Chaotica 2.0.36 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225864.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ MiniCAD 4.4.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225759.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Easy MP3 Splitter 5.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225586.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ SnippetsLab 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_225082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225082.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224839.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Adobe DNG Converter 11.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224603.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Nisus Writer Pro 3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224547.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224038.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ MacClean360 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224035.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Aimersoft DVD Ripper 4.2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_224021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224021.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ DetectX Swift 1.0982 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223979.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ Aimersoft Video Converter 6.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223965.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ iNotepad Pro 5.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223961.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ iCompta 6.0.68 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223512.jpg" />
 </div>
 
 
@@ -378,7 +483,7 @@ Concealer 1.3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_223412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223412.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ Nik Complete 3 Collection by DxO v3.3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223352.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ Smith Micro Poser Pro v11.0.1.31230 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223315.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ Movie Edit Pro 3.7.3 (3.7.4) [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223246.jpg" />
 </div>
 
 
@@ -487,7 +592,7 @@ Red Giant Trapcode Suite 16.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223100.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ LogTail 4.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222814.jpg" />
 </div>
 
 
@@ -542,7 +647,7 @@ iTubeDownloader 6 v6.5.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222784.jpg" />
 </div>
 
 
@@ -570,7 +675,7 @@ Blocks 3.6.0 (RapidWeaver plugin) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222704.jpg" />
 </div>
 
 
@@ -581,111 +686,6 @@ Blocks привносит в RapidWeaver макет произвольной ф�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24E1141D2AFD996D80F6393E93524EE5CD600D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513709   (222688) от 30.11.2021
-
-oneSafe 2.4.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_222688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пытаетесь помнить все эти имена пользователей и пароли к банковским счетам, электронным почтам и социальным сетям? Расслабьтесь, oneSafe позаботиться об этом.
-На самом деле, oneSafe не только надежно хранит все ваши пароли и другую конфиденциальную информацию, но и синхронизирует все данные между вашими Mac, iPhone и iPad, так что вы можете иметь их под рукой, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2021Разработчик: © 2021 Lunabee Pte. Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3587D981313360A3542AB746D1234446C4F9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651482   (222349) от 06.08.2023
-
-Performance Index 64 Pro 4.2.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Performance Index 64 предназначено для сравнения вашего Mac с другими устройствами macOS и оценки производительности и эффективности различных конфигураций.Тип издания: macOS SoftwareРелиз состоялся: 17.04.2023Разработчик: © 2021 EcoComputers, JSCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F919779E88EA81BEBE77590F7366BE54B0FBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651307   (222108) от 06.08.2023
-
-WonderPen 2.3.4 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222108.jpg" />
-</div>
-
-
-###  Подробнее
-
-WonderPen - приложение для как для профессиональных, так и для писателей любителей. WonderPen - простой в использовании текстовый редактор с поддержкой Markdown с поддержкой полноэкранного режима. Документы могут быть экспортированы в качестве Image, PDF, HTML и т.д. WonderPen поддерживает автоматическое сохранение при редактировании, возможность добавления заметок (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.08.2023Разработчик: © 2022 atominn.comПоддерживаемая ОС: macOS 10.13.0 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FBA723BB105795B98E6F985CB89D0CDA4CB5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651357   (221845) от 06.08.2023
-
-calibre 6.24 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_221845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calibre — это утилита с набором функций, необходимых владельцам и читателям электронных книг. В ее состав входит инструментарий для управления библиотекой, модули преобразования файлов электронных книг из одного формата в другой, интегратор новостей, модуль синхронизации данных с электронной читалкой и, конечно же, хороший просмотрщик. Простой, незамысловатый интерфейс (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2023Разработчик: © KOVID GOYALПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A9BA81834F212270905E8668F03B01EC6031B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

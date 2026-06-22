@@ -1,3 +1,107 @@
+###  Публикация: 376525   (507006) от 20.08.2011
+
+Доктор Кто Тем временем в ТАРДИС, Видеодневники, Неудачные дубли / Doctor Who Meanwhile in the TARDIS, Video Diaries, Outtakes (2010) DVDRip (6 эпизодов, 3 части) [En]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_507006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бонусные эпизоды из 5 сезона сериала Доктор Кто, включенный в официальный двд.Жанр: Фантастика, Комедия, ПриключенияРежиссер: Стивен МоффатАктеры: Мэтт Смит / Matt Smith (The Eleventh Doctor), Карен Гиллан / Karen Gillan (Amy Pond)Перевод: ОтсутствуетЯзык субтитров: Русские (Little_Squirrel)Продолжительность: ~00:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316655   (503896) от 28.07.2019
+
+Пацаны / The Boys (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) [EN / RU, EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в мире, где существуют супергерои. Именно они являются настоящими звездами. Их все знают и обожают. Но за идеальным фасадом скрывается гораздо более мрачный мир наркотиков и секса, а большинство героев — в жизни не самые приятные люди. Для контроля за супергероями ЦРУ создает специальный отряд, неофициально известный как «Пацаны», (   Читать дальше...   )Производство: США / Amazon Studios, Original Film, Sony Pictures TelevisionЖанр: фантастика, боевик, комедия, криминалРежиссер: Филип Сгриккиа, Дэниэл Эттиэс, Дженнифер ФангАктеры: Карл Урбан, Чейс Кроуфорд, Доминик МакЭллигот, Нэйтан Митчелл, Эрин Мориарти, Джек Куэйд, Элизабет Шу, Энтони Старр, Джесси Ашер, Лас АлонсоПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: русские, английские, арабские, китайские, датские, немецкие, испанские, финские, французские, хинди, индонезийские, итальянские, корейские, норвежские, голландские, польские, португальские, шведские, тамильские, телугу, турецкиеПродолжительность: 8 х ~ 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4FD498B2776F2E8D1961B1336210ABCD538BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567002   (478418) от 31.07.2022
+
+Дне8ники / Di4ri (2022) WEB-DL [H.264/720p] (сезон 1, серии 1-15 из 15)
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые увлечения, первые поцелуи, веселье с друзьями — и вражда с соперниками. В коридорах средней школы Галилео Галилея каждый день полон сюрпризов!Производство: ИталияЖанр: комедия, семейныйРежиссер: Алессандро ЧеллиАктеры: Андреа Арру и др.Перевод: ОтсутствуетЯзык озвучки: Итальянский, английскийСубтитры: Русские, итальянские, английские и др.Продолжительность: ~00:52:00 серия 1, 2-15 серии ~00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87915F13CFEB8D9AD5569ECF360824D4AED3A153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672753   (475964) от 18.09.2013
+
+Под куполом / Under the Dome (Сезон 1, серии 01-13 из 13) (2013) HDTV [720p] [EN / EN, RU Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ФантастикаРежиссер: Джек БендерАктеры: Майк Фогель, Колин Форд, Аиша Хиндс, Александр Кох, Рашель Лефевр, Натали Мартинез, Дин Норрис, Джолин Парди, Бриттани Робертсон, Николас СтронгПеревод: СубтитрыЯзык субтитров: Русские (Notabenoid с доп.обработкой)+Оригинальные английские (начиная с 04 серии)Формат: MKVПродолжительность: серия ~ 00:43:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545507   (471547) от 16.09.2012
 
 Крепкий орешек Джейн / Убившая боль Джейн / Painkiller Jane (2007) DVDRip (Сезон 1, серии 1-22 из 22) [EN]
@@ -6,7 +110,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471547.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471537.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_462012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462012.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459203.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459135.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459122.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459028.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459026.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459025.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459024.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457028.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453212.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448195.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448124.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_439405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_439405.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439197.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438300.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438294.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438186.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_436712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436712.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_421455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421455.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_416070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416070.jpg" />
 </div>
 
 
@@ -569,113 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2859B40233999988D4C3840D6808E45465422F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392573   (400013) от 13.10.2011
-
-[EN]Гавайи 5-0 / Полиция Гавайев / Hawaii Five-0 (сезон 2 серии 1-4(2011)) HDTVRip
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_400013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк некогда популярного шоу семидесятых годов.
-Hawaii Five-O (TV Series 1968–1980)
-Детектив Стив МакГаррет возвращается в родной город для расследования убийства своего отца. Это должно было стать его единственным делом, но губернатор штата Гавайи уговаривает МакГаррета возглавить новую команду. И все ради одной цели — поймать самую крупную «дичь» в городе. Волею (   Читать дальше...   )Жанр: Драма, детективРежиссер: Len WisemanПеревод: русские субтитры notabenoidФормат: AVIПродолжительность: ~  00:42 :00 минуты серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949896   (372056) от 25.10.2015
-
-CSI: Бессмертие / CSI: Immortality (2015) HDTV [H.264/720p-LQ] [EN / RU, EN Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_372056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завершающий фильм сериала «CSI: Место Преступления / CSI: Crime Scene Investigation».
-Лас Вегас... Своими яркими неоновыми огнями, сотнями игровых клубов и казино он манит всё новых и новых людей. Но далеко не все из них оказываются добропорядочными гражданами. В огромном людском потоке частенько прячутся преступники всех мастей. Они убеждены, что их злодеяния останутся (   Читать дальше...   )Производство: СШАЖанр: криминал, драмаРежиссер: Луис Шоу МилитоАктеры: Марг Хельгенбергер, Уильям Петерсен, Элизабет Арнуа, Тед Дэнсон, Мелинда Кларк, Кэти Стивенс, Джоржа Фокс, Эрик Шманда, Пол Гилфойл, Уоллес Лэнгэм и др.Перевод: отсутствуетЯзык озвучки: английскийЯзык субтитров: русский, английскийПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872D41C53761E7E53D9D2BD58AC36768B8ACD582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 835434   (371046) от 28.10.2014
-
-Под кодовым именем «Хантер» / Kodenavn Hunter (2007) DVDRip [сезон 1, серии 1-6 из 6] [NOR / RU Sub]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_371046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автозак, который должен был перевезти заключённого Ариана Алуши, подвергается жестокому вооружённому нападению. В ходе столкновения гибнет брат Бьёрна Рённингена Вегард. Задача Бьёрна и его коллег - найти сбежавшего преступника. В ходе расследования выясняется, что полиция имеет дело с крупной международной преступной группировкой, которая готова пойти на всё, чтобы (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Ярл Эмселль ЛарсенАктеры: Ане Дал Торп , Кристоффер Йонер, Мадс Оусдал, Ян Сэлид, Александра Рапапорт, Лайла Гуди, Андрине Сэтер, Петронелла Баркер, Вера Руди, Ким Хауген и др.Перевод: ОтсутствуетЯзык субтитров: русскийПродолжительность: 6x00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B92E42B2B7DE33715F454EB4741B8E00B24303
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574952   (369926) от 14.11.2012
-
-Остаться в живых / Lost [сезон 1, 25 серий из 25] (2004) [720p] BDRip [EN]
-
->>Зарубежные сериалы
->>Сериалы без перевода
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_369926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавец-лайнер, совершающий полет из Сиднея в Лос-Анджелес, неожиданно терпит крушение. 48 пассажиров, оставшихся в живых, оказываются на пустынном острове посреди океана. Люди в панике. Надежда быть найденными довольно призрачна. Поэтому остается только одно: собраться с силами и постараться выжить на острове, начиненном множеством опасностей…Жанр: Фантастика, Триллер, ПриключенияРежиссер: Джек Бендер, Стивен Уильямс, Таккер Гейтс, Грег Яйтанс, Кевин Хукс, Джей Джей АбрамсАктеры: Мэттью Фокс, Эванджелин Лилли, Джош Холлоуэй, Терри О’Куинн, Нэвин Эндрюс, Хорхе Гарсиа, Майкл Эмерсон, Эмили де Рэйвин, Дэниэл Дэ Ким, Ким Юн Джин, Доминик Монахэн, Генри Йен Кьюсик, Хэролд Перрино, Элизабет Митчелл, Кен ЛюнПеревод: ОтсутствуетПродолжительность: 25 x ~00:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

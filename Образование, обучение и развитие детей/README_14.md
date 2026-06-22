@@ -1,3 +1,109 @@
+###  Публикация: 649103   (1018230) от 01.05.2021
+
+Ирина Пигулевская | 365 полезных и вкусных блюд для детского питания (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заветная мечта родителей – видеть, как их чадо растет здоровым и энергичным. А чтобы эта мечта стала реальностью, малышу необходимо полноценное и разнообразное питание.
+С помощью нашей книги вы приготовите множество самых различных блюд: от нежных пюре, супчиков и соков до вторых блюд и восхитительных десертов. Питаясь правильно, ваше чадо будет счастливым и абсолютно (   Читать дальше...   )Жанр: детское развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF71F7C7450AD72BFB72F7DEBD72FEA9BCBD5281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507476   (1018205) от 01.05.2021
+
+Е.С. Железнова | А под пальмой краб сидит... (2008) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книжка предназначена для детей от 2 до 4 лет. Она помогает развить мелкую моторику пальчиков, знакомит детей с новыми понятиями и с подражательными движениями, активизирует речь и, конечно, дарит малышам много положительных эмоцийЖанр: Пальчиковые игрыФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA984C4686FC654C9B5D29D8A14D34E38A8034B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679436   (1018170) от 01.05.2021
+
+Т.А. Круглова | Литературное чтение: итоговая аттестация за курс начальной школы: типовые тестовые задания (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит 10 вариантов типовых тестовых заданий итоговой аттестации за курс начальной школы. Назначение пособия — отработка практических навыков учащихся по подготовке к экзамену в 4-м классе по литературному чтению. Ответы к заданиям всех вариантов являются материалами для учителя, а потому даны в середине пособия и могут быть легко изъяты, что повышает объективность (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8881322C98D40A072261615E1AAFDDC1B5D970DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416468   (1018158) от 01.05.2021
+
+М.М. Левицкий | Увлекательная химия. Просто о сложном, забавно о серьезном (2008) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018158.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведены интересные примеры того, как ход рассуждений исследователя, логические построения в сочетании с экспериментом помогают установить строение веществ, а также позволяют находить различные закономерности.
+В книге рассказано о некоторых драматичных, а, порой, забавных поворотах судьбы как самих открытий, так и их авторов. Сочетание химии с гуманитарными (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BC2A133BB1ED6CEC56AB051160037B5BAA22BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457342   (1018146) от 01.05.2021
 
 Андрей Маниченко | Умница. Обучение с пеленок [5 книг] (2007) [DOC, PDF, HTML]
@@ -6,7 +112,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018146.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018145.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018028.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018015.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017850.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017704.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017639.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017632.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017628.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017371.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017362.jpg" />
 </div>
 
 
@@ -302,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015945.jpg" />
 </div>
 
 
@@ -331,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1015392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015392.jpg" />
 </div>
 
 
@@ -358,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012707.jpg" />
 </div>
 
 
@@ -384,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1011271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011271.jpg" />
 </div>
 
 
@@ -410,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1009688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009688.jpg" />
 </div>
 
 
@@ -436,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005602.jpg" />
 </div>
 
 
@@ -462,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1005584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005584.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004547.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003282.jpg" />
 </div>
 
 
@@ -540,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002291.jpg" />
 </div>
 
 
@@ -566,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001654.jpg" />
 </div>
 
 
@@ -577,113 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC780F2CE264FF93752E93B1BC9E6F2323891AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351833   (1001582) от 12.01.2020
-
-С.Ю. Курганов и др. | Универсальный справочник школьника: Все предметы (5-11 классы) (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001582.jpg" />
-</div>
-
-
-###  Подробнее
-
-В универсальном справочнике школьника представлена полная информация по основным школьным предметам: русскому языку, истории, английскому языку, математике, физике, химии и биологии. Издание подготовлено в соответствии с современными требованиями школьной программы. Весь теоретический материал изложен кратко, логично (по классам) и снабжен наглядными примерами, схемами (   Читать дальше...   )Жанр: Литература для школьниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349F41E3DB4A3258EA9813EAF39D94260A32F676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352210   (1001282) от 13.01.2020
-
-Антон Долин | Как смотреть кино (2020) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга задумывалась как детская, но получилась книгой для всех.
-Самое важное и интересное о безбрежном и сложном мире кинематографа вы узнаете в кратчайший срок.
-Антон Долин, один из самых известных российских кинокритиков, разобрал главные вопросы о кино и постарался дать на них простые и внятные ответы.
-Можно ли застраховать себя от разочарования?(   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Кинематограф / театрФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C13B3022B8BDFC68A096EB508EBE134D3A8A198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352464   (1000953) от 14.01.2020
-
-Сергей Куринный | Разработка веб сайтов для начинающих. HTML, CSS, Jаvascript (2020) [PDF, RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000953.jpg" />
-</div>
-
-
-###  Подробнее
-
-У фирмы Mozilla на сайте есть руководство по HTML, CSS и jаvascript. Мне нужно было сделать небольшую методичку, чтобы было удобно распечатывать и читать детям. Я не автор текста, просто взял информацию с разных страничек сайта Mozilla и оформил красиво. Эта методичка хорошо идет для школьников, которым я преподаю.Жанр: Программирование, Веб-дизайнФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D2CE775DC9343A6DF9237C5D156CA65B6ED894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352835   (1000872) от 15.01.2020
-
-Эдуард Вартаньян | Из жизни слов (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Эдуарда Вартаньяна «Из жизни слов» откроет тайну многих крылатых слов и выражений – фразеологизмов – и расскажет, когда, при каких обстоятельствах они появились в языке и есть ли у них автор. Из этой книги читатель узнает, кого зовут «вороной в павлиньих перьях», почему говорят «пуститься во все тяжкие», что такое «филькина грамота»… и многое-многое другое!Жанр: Детская познавательная и развивающая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303407F7DFBC69438BF1F8D9AA8A0696308F43F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

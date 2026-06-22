@@ -6,7 +6,7 @@ Stanley Turrentine - The Look Of Love (1968) Remaster, 2014, Universal[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927986.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ronnie Foster - Cheshire Cat (1975) Remaster, 2013, EMI Music[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927983.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cedar Walton - Eastern Rebellion 3 (1979) Remaster, 2015, Solid Records[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927979.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dr Ernest Ranglin - Ska Wey Dat (2003) 2 CD, Album [FLAC|Lossless|tracks] <Soul-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927967.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Richard Wyands Trio - Get Out Of Town (1996) SteepleChase[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927943.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Donald Byrd - And 125th Street, N.Y.C. (1979) Remaster, 2013, Warner[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927942.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Modern Jazz Quartet / John Lewis & Svend Asmussen - The Legendary Profile & Euro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927895.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pierre Bertrand - Joy (2016) Cristal Records[FLAC|Lossless|tracks + .cue] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927796.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Claude Bolling Big Band - A Drum Is A Woman (1996) Milan Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927482.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ella Fitzgerald - Two Sides of Ella: Her Early Recordings (2000) Vocalion [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927480.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ella Fitzgerald - Brighten The Corner 1967 (1990) Capitol Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927434.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Veronica Swift - Confessions (2019) Mack Avenue Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927412.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Simply Late Night Jazz (2008) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_927078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927078.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ray Bryant - Alone With the Blues (1958) 1996, Original Jazz Classics[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926299.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Dave Bailey Sextet - Gettin' Into Somethin' (1960) Remaster, 2015, Sony Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926291.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dick Katz - Piano & Pen (1959) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926281.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Modern Jazz Quartet - For Ellington (1988) 2005, Atlantic[APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926279.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Donald Byrd And 125th Street, N.Y.C. - Words, Sounds, Colours & Shapes (1982) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926278.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Herbie Hancock - Quartet (1981) Remaster, 2014, Sony Music[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926223.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ray Anderson Lapis Lazuli Band - Funkorific (1998) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926208.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Breathe: The Relaxing Jazz Piano (2007) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_926204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926204.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ella Fitzgerald - Hallelujah! 1938 - 1941 (1995) Milan Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925849.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Necks - Three (2020) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925848.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Big Bad Voodoo Daddy - Big Bad Voodoo Daddy (1994) [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925752.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Rod Tate - Back Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_925545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925545.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Dodo Marmarosa - Dodo's Back! (1961) Remaster, 2007, Universal[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_924646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924646.jpg" />
 </div>
 
 

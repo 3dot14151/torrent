@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161699.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161684.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ V.A. - Как Молоды Мы Были - Песни Александры Па�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161674.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161647.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161605.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161593.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161591.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161579.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160941.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160940.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - " Золотой фонд эстрады " - Главное, ребята, 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160939.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160935.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160925.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160922.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160918.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160911.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160910.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160908.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160906.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160904.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ V.A. - Комсомольская Юность Моя (2008) [FLAC|Lossless]<Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160902.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160897.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ V. A. - Russian Collection (Лучшие Песни 1969-89) Vol. 3-6 (1995-1997
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160891.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160883.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ VA - Сделано в С.С.С.Р. 10xCD (2007-2010) [FLAC|Lossless] <Retro, Po
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160881.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160730.jpg" />
 </div>
 
 

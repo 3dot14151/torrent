@@ -1,3 +1,81 @@
+###  Публикация: 542195   (496947) от 04.09.2012
+
+Asa Made Jugyo Chu! / С утра и до заката мы учимся разврату! [2012, OVA, 1 эп.] BDrip 720 raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496947.jpg" />
+</div>
+
+
+###  Подробнее
+
+При переводе в новую школу по ошибке главного героя приняли за девушку и поселили в женском общежитии, тут то его приключения и начались.Жанр: комедия, эттиРежиссер: Канадзава ХиромицуПродолжительность: OVA (1 эп.), 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4F5E0FF68A093D7B7E11E5C93A9742925B0899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936072   (495645) от 11.09.2015
+
+Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDrip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит на далеком острове, где в местной средней школе уже вовсю начали готовиться к культурному фестивалю. В это же время некогда всерьез увлеченный бейсболом мальчик, который почти половину жизни провел на поле, бросает игру и ссорится с лучшим другом. Но затем вместе они встречают загадочную девушку по имени Норда, как раз в тот момент, когда (   Читать дальше...   )Производство: Studio ColoridoЖанр: ПриключенияРежиссер: Арай ЁдзироПеревод: TimecraftСубтитры: ASSФормат: MKVПродолжительность: 00:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DFC01F5DF75A8D3FFFD9756BDBF14C475E98E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201475   (493379) от 26.08.2018
+
+Toji no Miko / Katana Maidens / Жрицы с мечами [2018, TV, 24 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493379.jpg" />
+</div>
+
+
+###  Подробнее
+
+История повествует о группе юных девушек, верно стоящих на страже человеческого мира. С древних времён нашему миру то и дело угрожают странные существа "Аратама”, но вы можете продолжать сохранять спокойствие, ведь отважные девушки, известные как "Тоджи” всегда нас защитят. Они практически ничем не отличаются от нас, так же ходят в школу, делают уроки и (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Какимото КодайЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184DAC8B2A7ADA1D83369AA15B4D5590AC97DC3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 699179   (490807) от 11.09.2013
 
 Suzumiya Haruhi no Shoushitsu / The Disappearance of Haruhi Suzumiya / Исчезновение Харухи Судзумии [2010, MV] BDRip Hi10p 720p Raw+Rus x2
@@ -6,7 +84,7 @@ Suzumiya Haruhi no Shoushitsu / The Disappearance of Haruhi Suzumiya / Исче�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490807.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Shigatsu wa Kimi no Uso / Your Lie in April / Твоя апрельская ло
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_485110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485110.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484681.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Taboo-Tattoo / Запретная татуировка [2016, TV, 12] HDTV 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482795.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Toaru Hikuushi e no Tsuioku | The Princess and the Pilot | Воспоминан�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482564.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Soukihei MD Geist | MD Geist | Опаснейший Гейст [1986, OVA] LDRip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482052.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481269.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Big Order | Приказ свыше [2016, TV, 10] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476684.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Canaan | Ханаан [2009, TV, 13 из 13 эп.] BDRip 1080p Hi10P raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476390.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Aho Girl | Дурочка [2017, TV, 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474786.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Macross Plus / Макросс Плюс [1994, OVA,  4 эп.] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_474374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474374.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли нашу л
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470008.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Shinmai Maou no Testament / The Testament of Sister New Devil / По велен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468179.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467924.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Saikin, Imouto no Yousu ga Chotto Okashiinda ga. / ImoCho / Сейчас моя 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_464239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464239.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Hyakka Ryouran: Samurai Bride / Буйство цветов (ТВ-2): Самур
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461583.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Grisaia no Kajitsu / The Fruit of Grisaia / Натюрморт в серых т�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461582.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ Saenai Heroine no Sodatekata / Saekano: How to Raise a Boring Girlfriend / Ка�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461579.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461457.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ Handa-kun / Ханда-кун [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_461258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461258.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ Haikyuu!! / Волейбол!! [2014, TV, 25 ep] WEBRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_459536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459536.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ Charlotte / Шарлотта [2015, TV, 13] HDTVRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457072.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ Orange / Апельсин [2016, TV, 13 ep] HDTVRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456652.jpg" />
 </div>
 
 
@@ -597,86 +675,6 @@ Orange / Апельсин [2016, TV, 13 ep] HDTVRip 720p Raw+Rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A187009603903682B6F184DCBC3EE51B28DDB4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640139   (456640) от 06.10.2016
-
-Devil Survivor 2 The Animation / Выжившие среди демонов 2 [2013, TV, 13 ep] HDTV Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычным воскресным днем 18-летний Хибики Кудзэ возвращался с пробного экзамена, и тут лучший друг Дайти Сидзима рассказал про сайт «Никея», что рассылает мастерски смонтированные ролики, в которых твои знакомые якобы гибнут страшной смертью. ИТ-прогрессу давно никто не удивляется, да и друга надо уважить, потому у сайта появился новый подписчик. Вот только Хибики (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Киси СэйдзиПеревод: IndiСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE92C135200EFA202508787AF20F674910847E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704669   (455487) от 27.09.2013
-
-Muv-Luv Alternative: Total Eclipse / Total Eclipse / Полное затмение [2012, TV, 24] BDrip Hi10p 720p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455487.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1967 году лунная экспедиция впервые встретила «братьев по разуму». Огромные пришельцы перебили астронавтов, потом сокрушили лунную базу и в 1973 году оказались на Земле. Только крайним напряжением сил врагов, получивших имя БЕТА, удалось сдержать на границах Евразии, причем главную роль сыграли спешно созданные 20-метровые боевые роботы. Островная Япония, конечно, выиграла: теперь она, наряду с США и Россией - ведущая военная держава. Но что с того? В конце XX века стало ясно, что земляне лишь защищаются, и поражение – вопрос времени. Тем временем в Киото, в элитной школе пилотов учится Юй Такамура – наследница древнего самурайского рода, приближенного к Императору...
-
-Неизбежное случилось – БЕТА ворвались в Японию и стремительно двинулись к столице. Курсанты, еще не завершившие обучение, попали на фронт – в истории такое бывало множество раз. Такамура одна из немногих сумела выжить, в буквальном смысле не угодить в пасть захватчикам, обрести опыт и мастерство. И вот боевые успехи (и родственные связи) привели (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Инагаки ТакаюкиПродолжительность: ТВ, 24 серии по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D279A29D859630ED7F2F7C599C93420562D4D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941895   (454968) от 30.09.2015
-
-Sakigake!! Otokojuku / Charge!! Men's School / Мужская школа, в атаку! [1988, TV, 34] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Otokojuku – школа для мальчиков. В нее вступают ученики с суровым нравом, хулиганы и те, кого выгнали из других школ. Таких обычно называют отбросами общества. Учителя школы во главе с Эдадзима Хеихати (Heihachi Edajima) воспитывают своих учеников в духе феодальной Японии, их цель – сделать из подопечных настоящих мужчин. Здесь все как в армии: подъем, «питательная» (   Читать дальше...   )Производство: Япония / Toei AnimationЖанр: комедия, школаРежиссер: Нисидзава НобутакаЯзык субтитров: Русский (отключаемый)Продолжительность: 34 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7E47729F8780B5F4D3A4480966A1AB55C5B4DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

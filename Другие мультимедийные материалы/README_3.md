@@ -1,3 +1,31 @@
+###  Публикация: 1055525   (57114) от 09.05.2024
+
+Магазин проектов | Каталог готовых проектов домов и коттеджей. 3000 проектов домов (2011) [ISO]
+
+>>Мультимедийные материалы
+>>Другие мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший выбор типовых проектов в Украине! Все дома на одном сайте - более 2500 готовых проектов загородных домов от украинских, российских и польских архитекторов, с которыми Вы можете ознакомиться при помощи нашего каталога «Магазин проектов», диска или непосредственно на этом сайте.
+
+ARCHON | 444 проекта котеджей (2011)Жанр: Электронный каталогФормат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03BAE9D3E8C50BC1F997A7CDB009959E365F512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785831   (24366) от 17.03.2025
 
 Nezabudka  cake | Трайфлы  (2020) [PDF]
@@ -6,7 +34,7 @@ Nezabudka  cake | Трайфлы  (2020) [PDF]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_24366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24366.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_23880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23880.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_22307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22307.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_13501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13501.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2065.jpg" />
 </div>
 
 

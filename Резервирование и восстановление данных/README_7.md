@@ -6,7 +6,7 @@ GoodSync 9.9.30.5 Enterprise + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454974.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MEGAsync 4.3.4 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453281.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Acronis Backup Advanced 11.7.50242 + BootCD [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452049.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MiniTool Power Data Recovery 11.3 Business Technician Portable by AlexYar [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449097.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio Network Edition 8.11.Build.175351 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448187.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ R-Studio Technician 9.1 Build 191029 Portable by JooSeng [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447002.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DocumentsRescue PRO 6.16.1045 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446056.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MediaRescue PRO 6.16.1045 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445929.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PhotoRescue PRO 6.16.1045 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_445831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445831.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ FileRescue for FAT 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_439058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439058.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FileRescue for NTFS 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438931.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FileRescue Pro 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438924.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Comfy Photo Recovery 5.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438327.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Comfy File Recovery 5.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438224.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Comfy Partition Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_438080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438080.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Hetman Office Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435963.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Hetman Word Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435818.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Hetman Excel Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_435801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435801.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Hetman Uneraser 5.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433743.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Hetman Photo Recovery 5.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_433464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433464.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hetman FAT Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431635.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Hetman NTFS Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431546.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Hetman Partition Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_431300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431300.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Macrium Reflect v7.3.5925 x64 Home [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_425110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425110.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Acronis Backup 12.5.16363 BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413137.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ DiskGenius Professional 5.0.0.589 RePack by WYLEK [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407619.jpg" />
 </div>
 
 

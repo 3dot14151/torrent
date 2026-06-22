@@ -6,7 +6,7 @@ Curtis Salgado & Terry Robb - Hit It 'n Quit It (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98445.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ The Blues Band - Be My Guest (2003) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98436.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Carl Martin - Crow Jane Blues (1997) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98430.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98081.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98077.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98057.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98052.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_98040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98040.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ The Lefty Collins Band - The Lost and Found (2012) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96820.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_96320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96320.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_95619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95619.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Terry Quiett Band - Just My Luck (2011) [APE|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_95022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95022.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93712.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93555.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93550.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Groundhogs - Muddy Waters Songbook (1999) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93428.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Jimmy Witherspoon - The Very Best Of (2004) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93319.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Kingtone - Law of the Jungle (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_93299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93299.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_91421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91421.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_89372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89372.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Houston Person - In A Sentimental Mood (2000) [FLAC|Lossless]<Hard-Bop, Post-Bop
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_86079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86079.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Mario Biondi And The Unexpected Glimpses - Due (2011) [FLAC|Lossless]<Jazz, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85880.jpg" />
 </div>
 
 
@@ -763,7 +763,7 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_85253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85253.jpg" />
 </div>
 
 
@@ -798,7 +798,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_84489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84489.jpg" />
 </div>
 
 
@@ -833,7 +833,7 @@ VA - We Got The Funk (2002) [FLAC|Lossless]<Funk, Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_83850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83850.jpg" />
 </div>
 
 
@@ -868,7 +868,7 @@ Contino - Back Porch Dogma (2012) [WavPack|Lossless]<Modern Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_82808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82808.jpg" />
 </div>
 
 

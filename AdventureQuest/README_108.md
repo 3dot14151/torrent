@@ -1,3 +1,133 @@
+###  Публикация: 1797211   (18182) от 15.05.2025
+
+Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс Колфилд, временная преподавательница фотографии в престижном Каледонском университете, находит в снегу тело своей близкой подруги Сафи. Девушку убили. В надежде спасти её Макс пытается вернуться в прошлое, хотя уже много лет не перематывала время. Вместо этого она находит способ перемещаться в параллельный мир, где Сафи жива и ей всё так же грозит опасность. (   Читать дальше...   )Тип издания: RepackРазработчик: Deck Nine GamesЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72572706997214463CC8DB362E1656C5B72BB2EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797434   (18150) от 16.05.2025
+
+The Sinking City (2019) [Ru/Multi] (ms6 58246 s mc2 4/dlc) License GOG [Remastered Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18150.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Sinking City - это приключенческий детектив, созданный по мотивам произведений Говарда Филлипса Лавкрафта, настоящего мастера жанра ужасов. Отправьтесь в 1920-е годы и возьмите на себя роль частного детектива, измучившегося искателя истины, который угодил в приключение куда большего масштаба, чем его собственные цели и убеждения. Оказавшись в западне посреди (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9582B17C5DA53673217DF8CD3966095CA4FE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797478   (18134) от 16.05.2025
+
+Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправься в бескрайний мир, где ты можешь изменить каждую планету, каждую систему и каждый миг. Исследуй вселенную, полную жизни, древних тайн и нетронутых красот. Дай отпор Красной тьме, собирая ресурсы и создавая инструменты, оружие и транспорт, без которых не обойтись в этой одиссее. Объединись с друзьями и сразись с гигантскими противниками, чтобы подарить надежду (   Читать дальше...   )Тип издания: RepackРазработчик: Atypical GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66300E6DEA93FB65083560E60914B20AB95FC892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797438   (18130) от 16.05.2025
+
+Outer Wilds (2019) [Ru/Multi] (1.1.16/dlc) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outer Wilds – приключенческий экшен от первого лица, основанный на популярной тематике «Дня сурка». События происходят на вымышленной планете Камелёк, которая уничтожается взрывом звезды уже через 22 минуты после начала игры. Но история на этом только начинается. Пользователь попадает в «петлю времени», которая позволяет постепенно развивать сюжет, путешествовать (   Читать дальше...   )Тип издания: RepackРазработчик: Mobius DigitalЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7ACDD16496A4C7B192704583A7691AD714AF45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797504   (18046) от 17.05.2025
+
+Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18046.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что начиналось как обычное расследование, вскоре превращается в падение в темноту. Его называют Manivore. Он больше, чем просто убийца… Он хладнокровный, умный и манипулятивный. Он не просто убивает своих жертв. Он стирает их следы, разлагает их тела и оставляет только отвратительное произведение искусства. Для него смерть - это не побег, а последняя деталь тщательно (   Читать дальше...   )Тип издания: RepackРазработчик: FarkasInteractiveЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A79E2AD0C04CAF72B9C1D7EC31C1BA1E819051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797138   (17942) от 18.05.2025
 
 EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
@@ -6,7 +136,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17942.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Beholder: Conductor (2025) [Ru/Multi] (1.0.4.278) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17849.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Undying Flower (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17711.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17475.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17370.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Duck Detective: The Ghost of Glamping (2025) [Multi] (2.2.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17152.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Deliver At All Costs (2025) [Multi] (250331-143608) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17043.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Deliver At All Costs (2025) [Multi] (250331-132937) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_17001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17001.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Psychoscopy (2022) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16253.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16217.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16187.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16152.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16126.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Kathy Rain 2: Soothsayer (2025) [Multi] (1.0.3.4089) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16018.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16015.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_16013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16013.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Brassheart (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15988.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15895.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15884.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15882.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15875.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C153662468831E1532897AE00AD553F30FF8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800430   (15786) от 03.06.2025
-
-Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте тайны забытого мира на краю Млечного Пути. В Star Mission: Remote Sectors вы играете за космического исследователя, направленного на изучение гравитационной аномалии на далёкой инопланетной планете. То, что начинается как научная миссия, быстро превращается в путешествие полное открытий, загадок и странных явлений.Тип издания: RepackРазработчик: Ralph SchaedlerЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC65CAE55AC28AF2163E95AEFE964C344B16346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797586   (15612) от 05.06.2025
-
-Last Vanguard (2025) [Multi] (1.0.3) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Last Vanguard - шутер-платформер в жанре метроидвания с элементами ролевой игры и нарисованной от руки покадровой анимацией. Исследуйте потрясающий мир, созданный вручную, опустошенный войной и управляемый злым тираном. Сражайтесь с самыми разными врагами , настраивая свою стратегию , меняя оружие и открывая активные и пассивные способности. Создавайте неожиданные (   Читать дальше...   )Тип издания: RepackРазработчик: Cool Tapir StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800694   (15588) от 05.06.2025
-
-Kaodi (2025) [Multi] (1.0.1) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaodi - это короткая история о шрамах, которые война оставляет как на мире, так и в сердце. Баррен сыграл решающую роль в победе над Республикой Шан и теперь ему предстоит вернуться домой через путь, наполненный сожалениями, травмами, сомнениями, разрушенной дружбой и нарушенной верностью. Взаимодействуйте с разнообразными персонажами, каждый из которых предлагает (   Читать дальше...   )Тип издания: RepackРазработчик: Outlander GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Испанский, Японский, ТурецкийЯзык интерфейса: Английский, Испанский, Японский, Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B140767A757DADAAA742E6CBA8DECC670DAF71E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800860   (15513) от 06.06.2025
-
-Moroi (2025) [Ru/Multi] (1.10) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moroi предлагает геймплей, включающий сражения, где важны скорость и реакция, головоломки, требующие поэтапного решения, и сюжет с несколькими поворотами и персонажами, выходящими за рамки привычных образов. Окружение сочетает юмор, рожденный в тяжелых обстоятельствах, с контентом для взрослой аудитории. Центральная цель для управляемого игроком персонажа - побег (   Читать дальше...   )Тип издания: SceneРазработчик: Violet SaintЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45449E45445431911E4E488303DD7D0945CBD110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555656   (15420) от 07.06.2025
-
-Unexplored 2: The Wayfarer's Legacy (2022) [En] (1.7.35) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unexplored 2 создаёт для вас огромный, богатый фэнтезийный мир. Главная особенность здесь в том, что смерть необратима: ваш персонаж может умереть, но мир останется прежним. Вам предстоит амбициозная процедурная ролевая игра - никакого однообразия, опыта и золота. Вместо этого история полностью посвящена вашему выбору и его последствиям по мере развития сюжета. Ваш (   Читать дальше...   )Тип издания: LicenseРазработчик: LudomotionЖанр: Приключение, Ролевая играЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DB2815A7F96AECE50C134EC70EA947873AAB97
 ```
 
 https://mybot314.ru/tekegram_catalog/

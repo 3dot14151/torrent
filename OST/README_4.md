@@ -1,3 +1,87 @@
+###  Публикация: 1104121   (881710) от 14.02.2017
+
+VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black (07:32)
+02. Your Greatest Enemy (02:42)
+03. The Arrival of Robin (02:52)
+04. Joker Crashes the Party (01:33)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893E9EC4D66D227258C3F473F851FEBBB1AB149A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996523   (878978) от 14.03.2016
+
+Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с] <Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Lie (03:48)
+02. Their War Here (04:37)
+03. The Red Capes Are Coming (03:33)
+04. Day of the Dead (04:03)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8196549792A5932D30BF855D84B46F10788612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186871   (878432) от 27.03.2010
+
+V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 09:20:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106359   (873516) от 19.02.2017
 
 VA - Притяжение (Официальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +90,7 @@ VA - Притяжение (Официальный Саундтрек) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_873516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873516.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871220.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ Photek - Need for Speed (EA Games Soundtrack) (2016) [MP3|320 кб/с] <Electron
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_871135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871135.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_869820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869820.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865724.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860759.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854726.jpg" />
 </div>
 
 
@@ -215,7 +299,7 @@ Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854699.jpg" />
 </div>
 
 
@@ -244,7 +328,7 @@ John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854654.jpg" />
 </div>
 
 
@@ -279,7 +363,7 @@ Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_850242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850242.jpg" />
 </div>
 
 
@@ -308,7 +392,7 @@ Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846600.jpg" />
 </div>
 
 
@@ -337,7 +421,7 @@ Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846599.jpg" />
 </div>
 
 
@@ -366,7 +450,7 @@ Atom Music Audio - Dystopia (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846538.jpg" />
 </div>
 
 
@@ -395,7 +479,7 @@ Atom Music Audio - Heroes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_846537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846537.jpg" />
 </div>
 
 
@@ -424,7 +508,7 @@ Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Sco
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_845012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845012.jpg" />
 </div>
 
 
@@ -453,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_844668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_844668.jpg" />
 </div>
 
 
@@ -482,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842302.jpg" />
 </div>
 
 
@@ -508,7 +592,7 @@ Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840196.jpg" />
 </div>
 
 
@@ -537,7 +621,7 @@ Harry Manfredini - House & House II: The Second Story / Дом & Дом 2: Пр�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838395.jpg" />
 </div>
 
 
@@ -566,7 +650,7 @@ Jesper Kyd - Assassin's Creed: Brotherhood OST (2010) [MP3|320 kbps]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837304.jpg" />
 </div>
 
 
@@ -601,7 +685,7 @@ The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837216.jpg" />
 </div>
 
 
@@ -636,7 +720,7 @@ Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836890.jpg" />
 </div>
 
 
@@ -665,7 +749,7 @@ Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836786.jpg" />
 </div>
 
 
@@ -679,93 +763,6 @@ Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1878B8ABDB884145E00CC2324CB0EE02D3AF2071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114430   (831961) от 15.03.2017
-
-Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Pacific (00:36)
-02. The Beach (01:28)
-03. Project Monarch (02:02)
-04. Packard's Blues (01:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC72C160C14135BF6F7180B79B1FECDCA621AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380592   (831567) от 04.05.2020
-
-Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_831567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syberia 3 Main Theme
-02. Thrill of Nature
-03. Dark Force in Motion
-04. Call of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381165   (829743) от 05.05.2020
-
-Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_829743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klayman Shuffle
-02. Olley Oxen Free
-03. Everybody Way Oh
-04. Rock'n'Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E6C3377A2FD3DA8294985027BC93EF7E193FB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

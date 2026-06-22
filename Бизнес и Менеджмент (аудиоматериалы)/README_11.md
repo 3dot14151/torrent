@@ -1,3 +1,55 @@
+###  Публикация: 1654092   (205346) от 19.08.2023
+
+Елена Тамазова | Ты стоишь больше (2023) [MP3, Люба Петрова]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите повысить свой доход, не меняя работы, и не нагружая себя дополнительными обязанностями? Вложитесь в свою профессиональную репутацию. Сделайте так, чтобы вас знали и ценили не только внутри компании, но и за ее пределами. Повысьте свою капитализацию на рынке труда. В основе программы Елены Тамазовой, бизнес-тренера и коуча с 15-летним опытом работы в сфере (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 07:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D3D4C1B9E16E06F1FC4C438F021D298B08332A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656534   (203096) от 31.08.2023
+
+Патрик Ленсиони | Пять пороков команды (2020) [MP3, Игорь Сергеев]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава одной высокотехнологичной компании подал в отставку, поскольку работа компании при нем разваливалась на глазах. «Менеджеры достигли совершенства в искусстве подставлять друг друга. Команда утратила дух единства и товарищества, его сменила нудная обязаловка. Любая работа затягивалась, качество падало». Через некоторое время в компанию приходит новый руководитель (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 04:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4926D30C6AFE33E7788646356E2F475EB73BF9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619058   (201284) от 14.03.2023
 
 Максим Ильяхов | Ясно, понятно (2020) [MP3, Максим Ильяхов]
@@ -6,7 +58,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_201284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201284.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199153.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198293.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_197239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197239.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193935.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192880.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192560.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192102.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191949.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190917.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_190608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190608.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_190498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190498.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190179.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189897.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189868.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188454.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188435.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187779.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187425.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187146.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_186352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186352.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186220.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185358.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_183724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183724.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ED0963BE1234406491263FC34B186D70AB59AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594915   (176571) от 03.12.2022
-
-Олег Тиньков, Максим Ильяхов | Бизнес без MBA (2019) [MP3, Кирилл Радциг]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176571.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бизнес без MBA» – первая в России книга, которая закрывает разрыв между сухой теорией и голым вдохновением. Здесь собраны практические советы для тех, кто только начинает или уже начал своё дело – торговлю, разработку или услуги, в сегменте B2B или B2C. Здесь описаны самые важные вещи, которые помогут предпринимателю на старте: финансы, маркетинг, переговоры, клиентский (   Читать дальше...   )Жанр: О бизнесе популярноПродолжительность: 05:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C93BC12220272F00CB0F2AF4B548DF4C25258CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595780   (174390) от 07.12.2022
-
-Адам Смит | Исследование о природе и причинах богатства народов (2007) [MP3, Евгения Абрамова]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя великого шотландца Адама Смита равно чтится всеми современными учеными-экономистами, сколь бы различных точек зрения они не придерживались. Книга «Исследование о природе и причинах богатства народов» (1776 г.) стоила ему девяти лет полного отшельничества и принесла славу «отца экономической науки».
-На CD диске представлены первые две книги его бессмертного труда (   Читать дальше...   )Жанр: БизнесПродолжительность: 09:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A686CAE35C0689240ADA88E7CFD1AA889454EB30
 ```
 
 https://mybot314.ru/tekegram_catalog/

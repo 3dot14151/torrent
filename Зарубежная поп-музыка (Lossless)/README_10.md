@@ -1,3 +1,119 @@
+###  Публикация: 1484777   (1005821) от 22.07.2021
+
+Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break My Heart Myself (feat. Travis Barker)
+02. Sabotage
+03. Trust Fall
+04. Better Mistakes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B70F5718B576FA6E73490D435C3181EBFA6BE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485049   (1005708) от 23.07.2021
+
+VA - July 2021 Hits [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trinidad Cardona - Dinero (02:40)
+02. OneRepublic - Apologize (03:28)
+03. Imagine Dragons - Believer (03:24)
+04. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (04:49)(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BCDE7B624CEE981ED50AF4E13E74202CD21D5D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485447   (1005292) от 26.07.2021
+
+VA - Disco Summer (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SG Lewis - Time (4:19)
+02. ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (4:52)
+03. The Trammps - Disco Inferno (3:33)
+04. Disclosure, Gwen McCrae - Funky Sensation (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F1DBDF4EE818FFC5948F6CA5062B87D6589BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349675   (1004266) от 02.01.2020
+
+Robbie Williams - The Christmas Present (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Winter Wonderland
+02. Merry Xmas Everybody (feat. Jamie Cullum)
+03. Let It Snow! Let It Snow! Let It Snow!(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C657B23E6469EB3409219C3F5D6D7CEE10B2085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350264   (1003518) от 05.01.2020
 
 Lucio Dalla - Lucio Dalla 40th Legacy Edition (2019) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -6,7 +122,7 @@ Lucio Dalla - Lucio Dalla 40th Legacy Edition (2019) [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003518.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - 100 Greatest American Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003445.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - 80s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003327.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Billie Eilish - Happier Than Ever (2021) [FLAC|Lossless|tracks + .cue] <Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003053.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Pink (P!NK) - Greatest Hits... So Far 2019!!! (2010/2019) Japanese Edition [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002935.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ a-ha - Minor Earth | Major Sky (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002683.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - 100 Hits Number 1's (2018) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002493.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002425.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Georgia - Seeking Thrills (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1002188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002188.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Acoustic 90s and 00s Covers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acou
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001916.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ a-ha - East Of The Sun West Of The Moon (2015) 2CD, Deluxe Edition, RE. RM. [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1001638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001638.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ a-ha - Memorial Beach (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000869.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Acoustic 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000866.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - 100 Greatest Singalong Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000852.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1000721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000721.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Veronique Jannot - Le Meilleur De Veronique Jannot (2002) [FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_993320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993320.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Morgan Myles - Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_992687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992687.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ a-ha - Stay On These Roads (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990699.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Halsey - Manic (2020) [FLAC|Lossless|tracks] <Indie, Pop, Alternative>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990698.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Now 100 Hits Party (2019) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_990607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990607.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988480.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988477.jpg" />
 </div>
 
 
@@ -629,119 +745,6 @@ Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB45FAEAB22CDB38866E7DC56228A5479E0BF20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970626   (988406) от 01.01.2016
-
-VA - Radio 538 Hitzone Christmas 2015 (2015) [FLAC|Lossless|image+.cue] <Pop, Rock, Holiday, Christmas>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_988406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Have Yourself A Merry Little Christmas - 2:49
-02. Justin Bieber & Mariah Carey - All I Want For Christmas Is You (SuperFestive!) (Album Version) - 4:01
-03. The Common Linnets - Christmas Around Me - 3:01
-04. Coldplay - Christmas Lights - 4:04(   Читать дальше...   )Жанр: Pop, Rock, Indie, Electronic, R&B, Soul, Folk, Country, Holiday, ChristmasПродолжительность: 02:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5816155FB79A721D743941B086B01CCAE8838B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689430   (987893) от 22.01.2020
-
-Demis Roussos - Forever And Ever (1973) /2000 Philips/ [APE|Lossless]<Pop, Pop Folk, Prog Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop Folk, Prog RockПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E641D1A8BAC50B3A6721692F528725276B7745C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719577   (987829) от 22.01.2020
-
-ABBA - Ring Ring (1973) 2013 Remastered Deluxe Edition [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ring Ring [3:05]
-02. Another Town, Another Train [3:12]
-03. Disillusion [3:06]
-04. People Need Love [2:46](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DF78F1068EDD80E42F1D59718E3A0293EC736F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586222   (987770) от 22.01.2020
-
-Dan Balan - Freedom. Part 1 (2012) [FLAC|Lossless]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_987770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chica Bomb [3:29]
-02. Freedom [3:33]
-03. 24th Letter [4:23]
-04. Lonely [3:11](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038EC327FB266AC745B4ABF5DE4ACC88135C027E
 ```
 
 https://mybot314.ru/tekegram_catalog/

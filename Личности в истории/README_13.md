@@ -1,3 +1,29 @@
+###  Публикация: 1624382   (200362) от 05.04.2023
+
+Никола Тесла. Видение современного мира / Nikola Tesla-Visionary of Modern Times (2012) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никола Тесла - гениальный физик, инженер, изобретатель в области электротехники и радиотехники. Он вполне серьёзно утверждал, что может расколоть Землю, нужен только подходящий вибратор и точный расчёт времени... Однажды он привёл своими опытами в ужас жителей Нью-Йорка. Многие считают, что "Тунгусский метеорит" - дело его рук. Он уверял, что нашёл бесплатный, (   Читать дальше...   )Производство: Германия / Rich & Famous FilmsЖанр: Документальный, биографияРежиссер: Michael KrauseПеревод: Двуголосый профессиональный (Видеопродакшн)Язык озвучки: РусскийПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4AE3927B9EE0CF1EA3C481589703A61309CAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625813   (200022) от 12.04.2023
 
 Илон Маск: Настоящий железный человек / Elon Musk: The Real Life Iron Man (2018) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_200022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200022.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199307.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_198272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198272.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195909.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195430.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194761.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192570.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191029.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190493.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190437.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188174.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187710.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186424.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_185882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185882.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_184104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184104.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179829.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179486.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172584.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_168569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168569.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ NG: Становление Кусто / Becoming Cousteau (2021) WEB-DL [H.264/1
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161537.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156944.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155396.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154760.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154182.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154119.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28BCDF3D1F8B5EBCDFDAD5031CF6431D155CB052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921559   (152696) от 24.12.2015
-
-Бобби Фишер против всего мира / Bobby Fischer Against the World (2011) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая полнометражная попытка исследовать жизнь Бобби Фишера — человека, которого многие называют самым гениальным шахматистом всех времен и народов. Приняв участие в своем первом турнире в десять лет, Фишер с годами все больше и больше отдалялся от окружающего его мира, уделяя все свое внимание любимому занятию. Фишер выигрывал все состязания, в которых участвовал, (   Читать дальше...   )Телекомпания: США, Великобритания, HBO Documentary Films, LM Media Production, Moxie Firecracker FilmsЖанр: Документальный, Биография, История, СпортПеревод: Многоголосый закадровый, профессиональный (Первый канал)Продолжительность: 01:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596186A32EBA38DCA4CDD122B8AC195C92427371
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1661091   (188690) от 14.09.2023
+
+Raiden III x MIKADO MANIAX (2023) [Multi] (1.0/dlc) Scene Tenoke [Deluxe Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взлетайте ввысь в Raiden III x MIKADO MANIAX, захватывающей игре классической серии аркадных шутеров! Настройте свою музыку, обои, игровой режим и многое другое, прежде чем отправиться в захватывающие воздушные сражения! В то время как инопланетная раса, известная как Кристаллы, начинает очередную атаку на Землю, вам предстоит положить конец их нападению! Raiden (   Читать дальше...   )Тип издания: SceneРазработчик: MOSSЖанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE4573D070D0182CFD8037A78D03B90506D2403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662683   (187556) от 18.09.2023
+
+Ugly (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187556.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой мрачной и безумной сказке все не то, чем кажется. Вдумчивая головоломка-платформер погрузит тебя в глубины больного разума аристократа, где поджидают комнаты с хитрыми загадками и огромные враги. С помощью оригинальной зеркальной механики ты сможешь создавать свое отражение и меняться с ним местами для решения головоломок и продвижения по запутанному миру (   Читать дальше...   )Тип издания: SceneРазработчик: Team UglyЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA31DA147080696FAC34F7523CDF0A14DAF92E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663313   (186686) от 21.09.2023
 
 Gunbrella (2023) [Ru/Multi] (1.0.3) Scene Tenoke [Deluxe Edition]
@@ -6,7 +58,7 @@ Gunbrella (2023) [Ru/Multi] (1.0.3) Scene Tenoke [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186686.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Gunbrella (2023) [Ru/Multi] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186664.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Summum Aeterna (2023) [Ru/Multi] (1.0.004) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186660.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ BIT.TRIP BEAT (2009) [En] (2.0.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_182311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182311.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ BIT.TRIP Presents... Runner2: Future Legend of Rhythm Alien (2013) [En] (2.0.0.3
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_182212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182212.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ BIT.TRIP RERUNNER (2023) [Multi] (20230927) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_181886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181886.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Skeleton Crew (2022) [En] (1.1.3) License FLT
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177561.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ New Joe & Mac Caveman Ninja (2022) [Ru/Multi] (2022112301) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_176938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176938.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Iron Dungeon (2023) [Ru/En] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_176346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176346.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.513/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176218.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Bish Bash Bots (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_172023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172023.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.04) Scene Tenoke [Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171831.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Castle on the Coast (2021) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169938.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Togges (2022) [Ru/Multi] (1.03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169439.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.10) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165714.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ INMOST (2020) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165696.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.1) Repack Bu
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163309.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Rusty Rabbit (2025) [Ru/Multi] (Build 18177047) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162407.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Firegirl: Hack 'n Splash Rescue (2021) [Ru/Multi] (1.017) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161804.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ YesterMorrow (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_161705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161705.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Tiny Thor (2023) [Multi] (6125) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160710.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Molten Horn (2023) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_159487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159487.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Disney Classic Games Collection: Aladdin, The Lion King, The Jungle Book (2021) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156147.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154752.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23890AA3ECF1B54B9118974E4BECB09B97963671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518338   (154680) от 19.12.2021
-
-Webbed (2021) [Ru/Multi] (1.04b) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перепрыгивайте с дерева на дерево, плетите липкую паутину и знакомьтесь с другими насекомыми! Станьте очаровательным паучком своей мечты! "Пау!" - это история весёлой паучихи, которая отправляется в путешествие, чтобы спасти своего возлюбленного от большой и страшной птицы-шалашника. Во время исследования опасных зарослей Вы можете положиться только на (   Читать дальше...   )Тип издания: LicenseРазработчик: Sbug GamesЖанр: Приключение, Головоломка, ПлатформерЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0234D9722DD513555336A57032EEA531CAD8043B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854099   (153383) от 27.12.2014
-
-Braid (2009) [Ru/Multi] (1.0) SteamRip Let'sPlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Braid — это выполненный в живописном стиле платформер-головоломка, который дает вам возможность управлять течением времени множеством странных и необычных способов. Начав с городского особняка, вы посетите разнообразные миры и разгадаете множество головоломок, спасая похищенную принцессу. В каждом мире вы по-своему влияете на поведение времени, и природа головоломок (   Читать дальше...   )Тип издания: SteamRipРазработчик: Number NoneЖанр: Arcade (Platform) / LogicЯзык озвучки: -//-Язык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5544175AE8A376A5B0436AC67D321BF7028A184
 ```
 
 https://mybot314.ru/tekegram_catalog/

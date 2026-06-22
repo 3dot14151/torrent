@@ -6,7 +6,7 @@ Halloween - Psy-Ko (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69236.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rioghan - Kept (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69211.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dead Rabbitts, Judge & Jury, Escape the Fate - Redefined (2025) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69208.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dorothy - The Way (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69157.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Combust - Belly of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69151.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Imminence - The Return of The Black (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69149.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Heathen - Bleed the World (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Spe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69129.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Obscura - A Sonication (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69127.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ GRIMA - Nightside (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Blac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69124.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ River of Magma - Into the Unknown (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69101.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Defile The Crown - Tooth And Nail (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69093.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_69000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69000.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tears For Fears - Songs For A Nervous Planet (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68994.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68975.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ IOTUNN - Kinship (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68966.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ IOTUNN - Access All Worlds (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progres
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68965.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Occult Witches - Sorrow's Pyre (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68958.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wheels Of Fire - All In (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68957.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lordi - Limited Deadition (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68954.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Pop Evil - What Remains (2025) [FLAC 24/48, 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68934.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Selena Gomez - I Said I Love You First (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68924.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ A Day To Remember - Big Ole Album Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68913.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Greer - Big Smile (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68911.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Cat Empire - Bird in Paradise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68902.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mia Morgan - Silber (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deutschrock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68879.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Diamond Construct - Angel Killer Zero (2024) Deluxe Edition, 2025, Greyscale Rec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_68857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68857.jpg" />
 </div>
 
 

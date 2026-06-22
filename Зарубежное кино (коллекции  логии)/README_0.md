@@ -1,3 +1,56 @@
+###  Публикация: 1442138   (1036477) от 25.01.2021
+
+Дивергент / Divergent (2014, 2015, 2016) BDRip [H.264/720p] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036477.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антиутопическом Чикаго будущего существует общество, члены которого придумали способ избегать конфликтов и поддерживать вокруг незыблемый порядок. Каждый человек по достижении 16 лет должен определить, к чему лежит его душа, и в зависимости от своих личностных качеств присоединиться к одной из пяти фракций – Искренность, Бесстрашие, Эрудиция, Дружелюбие или Отречение. (   Читать дальше...   )Производство: США / Summit Entertainment, Red Wagon EntertainmentЖанр: фантастика, детектив, боевик, мелодрамаРежиссер: Нил Бёргер, Роберт ШвенткеАктеры: Шейлин Вудли, Тео Джеймс, Джай Кортни, Кейт Уинслет, Зои Кравиц, Майлз Теллер, Эшли Джадд, Тони Голдуин, Мэгги Кью, Рэй Стивенсон, Наоми Уоттс, Октавия Спенсер, Джефф ДэниелсПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:19:30 / 01:58:59 / 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E7CB48D6457A26B7093295912CACB18F1D0D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442811   (1035884) от 27.01.2021
+
+Властелин колец: Трилогия / The Lord of the Rings: Trilogy (2001, 2002, 2003) UHD BDRip [H.264/1080p] [Расширенная версия]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cказания о Средиземье - это хроника Великой войны за Кольцо, войны, длившейся не одну тысячу лет. Тот, кто владел Кольцом, получал власть над всеми живыми тварями, но был обязан служить злу.
+Тихая деревня, где живут хоббиты. Волшебник Гэндальф, придя на 111-й день рождения к своему старому другу Бильбо Бэггинсу, начинает вести разговор о кольце, которое Бильбо нашел (   Читать дальше...   )Производство: США, Новая Зеландия / New Line Cinema, WingNut Films, The Saul Zaentz CompanyЖанр: Фэнтези, приключения, драмаРежиссер: Питер ДжексонАктеры: Элайджа Вуд, Иэн Маккеллен, Шон Эстин, Вигго Мортенсен, Билли Бойд, Доминик Монахэн, Джон Рис-Дэвис, Орландо Блум, Шон Бин, Иэн Холм, Лив Тайлер, Кейт Бланшетт, Бернард Хилл, Кристофер Ли, Энди Серкис, Миранда ОттоПеревод: Дублированный (Мосфильм + Позитив), многоголосый профессиональный (Позитив)Субтитры: Русские (Forced, full), английские (Full, SDH)Продолжительность: 03:48:18 | 03:55:32 | 04:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB00783FA6A3FDB1A1AB8CCCA485B35408F3B484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582133   (1033591) от 05.02.2021
 
 Бэтмен / Batman: The Complete 7-Film Collection (1989-2012) 9*Blu-ray [VC-1/1080p] [Коллекция]
@@ -6,7 +59,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033591.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033126.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033102.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032851.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032404.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032242.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032009.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031953.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029105.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1028593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028593.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1025054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025054.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024974.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024477.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024121.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1022847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1022847.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1020732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020732.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019371.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019185.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019041.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1019006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019006.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018847.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018676.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018670.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018665.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9310A24BCA37086808B14BC44CAE9A79DA06C19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356908   (1018314) от 30.04.2021
-
-Джейсон Борн / Bourne: The Ultimate Collection (2002, 2004, 2007, 2012, 2016) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018314.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Джейсон Борн» — серия фильмов-боевиков, состоящая из пяти частей, выпущенных с 2002 по 2016 год, основанная на романах Роберта Ладлэма. Серия фильмов состоит из тетралогии («Идентификация Борна», «Превосходство Борна», «Ультиматум Борна» и «Джейсон Борн», где главную роль играет Мэтт Дэймон) и спин-оффа серии «Эволюция Борна», где главную роль играет Джереми Реннер.Производство: Германия, США, Чехия, Франция, Испания, Япония, Китай / Universal Pictures, The Kennedy/Marshall Company, Motion Picture THETA Produktionsgesellschaft mbH & Co. KGЖанр: Боевик, триллер, детективРежиссер: Даг Лайман, Пол ГринграссАктеры: Мэтт Дэймон, Джереми Реннер, Франка Потенте, Крис Купер, Клайв Оуэн, Брайан Кокс, Адевале Акинойе-Агбаже, Гэбриел Манн, Джулия Стайлз, Тим Даттон, Уолтон Гоггинс, Скотт Гленн, Кори ДжонсонПеревод: Дублированный, Двуголосый профессиональный, АвторскийСубтитры: русские, английскиеПродолжительность: 01:58:37 / 01:48:26 / 01:55:20 / 02:15:03 / 02:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97EDC3C88FC02BA8BAB706B44FB99D2231586D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316469   (1016181) от 13.05.2021
-
-Тёмный рыцарь / The Dark Knight (2005, 2008, 2012) BDRip [H.264/720p] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве юный наследник огромного состояния Брюс Уэйн оказался свидетелем убийства своих родителей, и тогда он решил бороться с преступностью. Спустя годы он отправляется в путешествие по миру, чтобы найти способ восстановить справедливость. Обучение у мудрого наставника боевым искусствам дает ему силу и смелость. Вернувшись в родной город, Уэйн становится Бэтменом (   Читать дальше...   )Производство: США, Великобритания / Warner Bros., Syncopy, DC ComicsЖанр: боевик, приключения, фантастика, драмаРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Кэти Холмс, Майкл Кейн, Киллиан Мёрфи, Том Уилкинсон, Лиам Нисон, Кэн Ватанабэ, Гари Олдман, Морган Фриман, Рутгер Хауэр, Хит Леджер, Аарон Экхарт, Мэгги Джилленхол, Эрик Робертс, Том Харди, Энн Хэтэуэй, Джозеф Гордон-Левитт, Марион КотийярПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторский (одноголосый)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 02:20:03 / 02:32:13 / 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DF1E17BE64910E236F93D5FE3EF52E7CFB30A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

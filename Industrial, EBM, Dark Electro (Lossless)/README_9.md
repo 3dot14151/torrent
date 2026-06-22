@@ -6,7 +6,7 @@ Device Noize - Reflejos (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66557.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Extize - DeLorean 666 (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, EBM, Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66414.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Danse Macabre Sampler (Q1 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkw
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_66411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66411.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Last Grasp - Southern Malaise (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Po
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65946.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Der Bote - Abbitte (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, NDH>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65750.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Metropolit - 3 Albums (2024-2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Post-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65606.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Midnight Darkwave - Among Bones and Corpses (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_65337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65337.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Combichrist - 3 EP (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Techno, Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_62756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62756.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Corvin's Breed - 2 Albums (2019-2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_61920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61920.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Acylum - Zuchthaus (2024) Bonus Version [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58755.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dawn of Ashes - Reopening The Scars (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwa
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57922.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kmfdm Vs. Pig - Sin Sex & Salvation (1994) Deluxe 2024, Armalyte Industries [FLA
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56792.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Terminal - 2 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_49077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49077.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dark Chisme - Dark Chisme (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkpop, Darkwav
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_48171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48171.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Freakangel - Serenity To The Stars, Beauty To The Broken (2024) [FLAC|Lossless|W
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44704.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bill Leeb - Model Kollapse (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM \ Electro \
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43670.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kodeseven - Dystopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33455.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Megafauna - I Owe This Land a Body (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Am
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_31896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31896.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Psyclon Nine - And Then Oblivion (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark-Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_21011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21011.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Knorkator - Weltherrschaft für alle! (2025) [FLAC|Lossless|WEB-DL|tracks] <Indu
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2602.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Igorrr - Amen (2025) [FLAC|Lossless|Web-DL|tracks] <Avantgarde Metal, Breakcore,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_2288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2288.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Igorrr - Сollection (2006 - 2025) 8 CD [FLAC|Lossless|tracks + .cue] <IDM, Brea
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_845.jpg" />
 </div>
 
 

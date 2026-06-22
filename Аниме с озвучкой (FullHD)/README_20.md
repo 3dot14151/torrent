@@ -6,7 +6,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [TV-1] [2017, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_262645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262645.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257549.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256544.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255491.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_255462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255462.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250244.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_250129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250129.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247535.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247493.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Kuma Kuma Kuma Bear Punch! | Ми-ми-ми-мишка [TV-2] [2023, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247475.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World With My Smartphone 2 | В 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247436.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247434.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247411.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247406.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247215.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247135.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_247050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247050.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246784.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246744.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Perfect blue / Истинная грусть [1998] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_246706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246706.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245201.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_245058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245058.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244887.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_244866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244866.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_242285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242285.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_241821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241821.jpg" />
 </div>
 
 

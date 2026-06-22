@@ -6,7 +6,7 @@ Royal Philharmonic Orchestra - Rock Classics 11 851 (1995) [FLAC|Lossless|image 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335351.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Royal Philharmonic Orchestra - Rock Classics (1995) Music Digital, 11 852[FLAC|L
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_335332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335332.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Zewski - Classic on the rocks (1992) [FLAC|Lossless|image + .cue] <Instrumental,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334700.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jordi Savall, Hesperion XXI, Le Concert des Nations - Venezia Millenaria (Venice
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_334531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334531.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Handel - Renee Fleming. Renee Fleming/Orchestra of the Age of Enlightenment. Har
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333784.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Various Composers - Italiane Baroque (Chiara Banchini & Amandine Beyer) (7CDs) (
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333782.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Anna Netrebko - Opera Arias (2003)/Wiener Philarmoniker Noseda, Deutshce Grammop
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_333776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333776.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Baby's First Classics (1999) 2 СD [FLAC|Lossless|image + .cue] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_332433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332433.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Anna Netrebko & Rolando Villazon - Duets (2007),Deluxe Limited-Edition, Deutsche
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_331131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331131.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bach - Concertos, Toccata, Partita (Elena Kuschnerova) (2001) [FLAC|image +.cue]
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329361.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ravel - Complete Piano Works - (Begona Uriarte, Karl-Hermann Mrongovius) (Vol.1)
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329360.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sviatoslav Richter - Tchaikovsky, Mussorgsky - Piano Works (1994) [FLAC|image +.
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329323.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mozart - Requiem (Jordi Savall) (2000) [FLAC|image +.cue]<Classical, Classical P
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_329318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329318.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tchaikovsky, Scriabin - Piano Concertos (Solomon) (2002) [FLAC|image +.cue]<Clas
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326660.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Schubert - Impromptus, Moments musicaux, Sonatas D960 & D664 (Wilhelm Kempff) (2
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326600.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Chopin - Horowitz Plays Chopin (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Cla
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_326592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326592.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Brahms - Symphonies nos.3 & 4 (Carl Schuricht & Orchestra) (2004) [FLAC|image +.
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323934.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lena Natalia - Sundays in Paris (2015) [MP3|320 кб/с]<Classical, Neo-Classica
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323881.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Handel - Complete Organ Concertos (Simon Preston) (3CDs) (2002) [FLAC|image +.cu
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323880.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323774.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Great Overtures (1989) [FLAC|Lossless|tracks + .cue] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323258.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Andrea Bocelli - Romanza: 20th Anniversary Edition (2016) [FLAC|Lossless|image +
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322828.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Modern Sound[s] Orchestra - The Symphonic Album - Live! (2013) [FLAC|Lossless|im
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322645.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Wolfgang Amadeus Mozart - The Great Piano Concertos (4CD) (1994) [FLAC|Lossless]
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_322575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322575.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Vanessa-Mae - Virtuoso Album (2000) [FLAC|Lossless|image + .cue] <Classical, Cla
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321770.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Pop Classics Volume 1-3 (1990) 3 СD [FLAC|Lossless|image + .cue] <Instrume
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321546.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1524812   (742000) от 17.01.2022
+
+Непутёвый ученик в школе магии: Воспоминания (спэшл) | Mahouka Koukou no Rettousei: Tsuioku Hen | The Irregular at Magic High School: Reminiscence Arc [2021, ТВ-спэшл] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апрель 2095 года. Минуло столетие с тех пор, как магия была признана полноценной технологией. Брат и сестра вместе поступают в престижное учебное заведение, больше известное как Старшая школа магии при Национальном магическом университете. Тацуя, старший брат, очень хорош в теории магии, но слаб на практике. Миюки, его младшая сетра, напротив, очень талантива. Глядя (   Читать дальше...   )Жанр: Приключения, мистикаРежиссер: Ёсида РисакоЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B368189683765F2BF2259C3C99CB420DE4690D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524709   (741886) от 17.01.2022
+
+Евангелион: 3.0+1.01: Как-то раз | Shin Evangelion Gekijouban:|| | Evangelion: 3.0+1.0 Thrice Upon a Time [2021, Movie] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставшись после Четвёртого удара без своих Евангелионов, Синдзи, Аска и Рей находят убежище в одном из редких очагов человечества, которые всё ещё существуют на полуразрушенной Земле. Там каждый из них живёт своей жизнью, совсем не похожей на ту, которая была у них, когда они были пилотами Евы. Однако опасность для мира не миновала. На горизонте маячит новый Удар (   Читать дальше...   )Жанр: Приключения, фантастикаРежиссер: Анно ХидэакиЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 155 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E573B09B02C501CB0D3A800486B179ED94C0801E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397214   (741088) от 19.07.2020
+
+Nakitai Watashi wa Neko wo Kaburu | Сквозь Слёзы я Притворяюсь Кошкой [2020, Movie] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миё Сасаки по прозвищу «Мугэ» — активная и яркая девушка, по уши влюблённая в одноклассника Кэнто Хинодэ. Все попытки Миё привлечь внимание юноши заканчиваются провалом, однако ситуация меняется, когда та находит магическую маску, позволяющую превращаться в «Таро» — милую белую кошку, которую так любит Кэнто. Ход событий кажется заманчивым, но со временем граница (   Читать дальше...   )Производство: Studio Colorido, ЯпонияЖанр: ПриключенияРежиссер: Сато ДзюнъитиОзвучка: Двуголосая, Многоголосая закадроваяЯзык озвучки: Японский и РусскийСубтитры: Надписи, ПолныеЯзык субтитров: РусскийПродолжительность: 01:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCE0BAF380FCBBF9E59566E20962AC51B819383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283549   (739431) от 17.02.2019
 
 Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, Movie] BDRip 1080p rus
@@ -6,7 +84,7 @@ Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739431.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738312.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738293.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Naruto Shippuuden / Наруто Ураганные Хроники [2007, 1-302 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737848.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737717.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sola | Sky | Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_737495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737495.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736302.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735496.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot | Fate/Grand Order -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732610.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Dimension W / Измерение W [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730206.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Tales of Zestiria: The X / Сказания Зестирии [2016, TV, 13 эп.
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_728086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728086.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Argento Soma / Аргенто Сома [2000, TV, 26 эп.] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727896.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ Tokyo Ghoul:Re | Токийский гуль: Перерождение [ТВ-3] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_727285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727285.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [ТВ-1]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_722229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722229.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ Tales of Zestiria the Cross / Сказания Зестирии [ТВ-2] [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_717874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717874.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ Straight Jacket / Смирительная рубашка [2007, OVA, 3 из 3] 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_715405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715405.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712597.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru / NouCo
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_709686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709686.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ Selector Infected Wixoss / Заражённый селектор WIXOSS [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707125.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Coluboccoro / Колубоккоро [2007, Movie] BDRip 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_706225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706225.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_704683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704683.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703852.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ Yuuki Yuuna wa Yuusha de Aru / Yuuki Yuna is a Hero / Герой Юки Юна (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702845.jpg" />
 </div>
 
 
@@ -605,84 +683,6 @@ Yuuki Yuuna wa Yuusha de Aru / Yuuki Yuna is a Hero / Герой Юки Юна (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6FDFA072C4C1C63EA60A9E05B3D82732C57BA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533943   (700885) от 26.02.2022
-
-Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | Добро пожаловать в класс превосходства [ТВ-1] [2017, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киётака Аянокодзи только что поступил в Токийскую центральную углублённую старшую школу, которая славится тем, что 100% выпускников поступают в университет или находят работу. Правда, ему не повезло попасть в класс Д, куда направляют всех проблемных учеников. К удивлению поступивших оказалось, что каждый месяц школа начисляет ученикам баллы общей стоимостью на 100 (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: драма, повседневностьРежиссер: Киси СэйдзиЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B8E12B3F71930A0B0D9F19297AA945CC9D92B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132740   (698579) от 10.05.2017
-
-Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDRip 1080р raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коконоцу Шикада — юный наследник семейного бизнеса: магазинчика сладостей в небольшой провинциальной деревушке, в отношении которого отец лелеет большие надежды, что тот займет его место. Однако парень отказывается от наследства.  Шикада просто метит выше: он хочет стать известным сёдзё-мангакой! Сможет ли добиться парень своей мечты, пройдя все испытания юной любительницы-соблазнительницы (   Читать дальше...   )Производство: Япония/feel.Жанр: комедия, повседневность, пародияРежиссер: Такаянаги Сигэхито (Takayanagi Shigehito)Язык озвучки: Русский (Anidub/AniLibria/Onibaku)Субтитры: Русские, встроенные, полные+вспомогательные (YakuSub Studio)Продолжительность: 12 эп., ~24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0443A2CBDB25000E0C6047F4D92EC54FECEE3497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178716   (698283) от 22.04.2018
-
-Sangatsu no Lion (2017) / Мартовский лев [ТВ-2] [2017, TV, 22 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи совсем ребёнком, Рэй Кирияма потерял всю семью в страшной автокатастрофе. Его отец любил играть в сёги со своим другом, поэтому Рэй, жаждая внимания отца, начал проявлять интерес к этой игре, а позже и показывать в ней немыслимые результаты. После смерти отца, его друг забирает Рэя к себе в семью, чтобы развивать талант мальчика, и относится к нему даже лучше, (   Читать дальше...   )Жанр: повседневность, драма, сэйнэнРежиссер: Симбо АкиюкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 22 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8707B1B658F0BD3E563504CA0B1FAAB7191045
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1794016   (20082) от 27.04.2025
+
+Н.М. Коняев | Генерал Власов. Анатомия предательства (2024) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20082.jpg" />
+</div>
+
+
+###  Подробнее
+
+В истории Великой Отечественной войны сложно найти более неоднозначно противоречивую оцениваемую фигуру, чем генерал-лейтенант А. А. Власов.
+
+Долгое время практически все материалы, связанные с генералом Власовым, были засекречены, а на их месте воздвигался пропагандистский миф о генерале, задумавшем едва ли не с колыбели изменить Родине и ставшем в результате ее (   Читать дальше...   )Жанр: Историография. Биографии военных деятелей. Документальная литератураИздательство: ВечеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8458052B0652561327F5FA777FD76627140B85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794906   (19674) от 01.05.2025
+
+А.Н. Поляков | Киевская Русь как цивилизация|Образование Киевской Руси [2 книги] (2016, 2020) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19674.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Монография является с одной стороны обоснованием новой теории цивилизации, с другой ‒ применением данной теории и методологии в конкретно-историческом исследовании. Настоящий труд посвящён истории Киевской Руси от её возникновения до монгольского нашествия. На основе выработанного метода исследования цивилизации определяются типологические черты древнерусского (   Читать дальше...   )Жанр: История. МонографияИздательство: Оренбургский государственный университетФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3114255A181C3F31CC290F815D6D048E1CDC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796476   (18342) от 14.05.2025
+
+Б.А. Рыбаков | Ремесло Древней Руси (1948, 2020) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18342.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу «Ремесло Древней Руси». вошло одно из важнейших сочинений выдающегося русского историка, археолога и знатока культуры Древней Руси академика Б.А. Рыбакова. Сочинение представляет собой докторскую диссертацию Рыбакова (защита прошла в 1942 г.) и фактически знаменует «рождение» выдающегося ученого. Оно вышло в свет в 1948 г. и было удостоено Сталинской премии. (   Читать дальше...   )Жанр: монография, история РоссииИздательство: Академия Наук СССР, Академический проектФормат: PDF, FB2Качество: Изначально электронное (ebook), OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736E10F8F8DE20017E7140B7D0179270370C4C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797809   (17871) от 18.05.2025
+
+В.А. Невежин (ред.) | Застольные речи Сталина. Документы и материалы (2003) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17871.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике впервые собраны воедино источники, зафиксировавшие застольные речи И. В. Сталина 1930-х — начала 1950-х гг. Помимо уже публиковавшихся материалов в него вошли выявленные составителем ранее неизвестные архивные документы. В их числе — уникальные по содержанию стенографические записи с собственноручной правкой, внесённой вождем. Всего в сборник включено (   Читать дальше...   )Жанр: история СССР, государственные и партийные деятели, документальная литератураИздательство: АИРО-XX; Дмитрий Буланин. Институт русской литературы РАНФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C3218DDD116E4F3F8A5BF8DA7FD3CF0619E1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800009   (15965) от 01.06.2025
 
 Дж. Бейклесс | Америка глазами первооткрывателей (1969) [DJVU, PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15965.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15899.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15476.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_15369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15369.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_14082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14082.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10283.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_10162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10162.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9990.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9870.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9843.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9346.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_9330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9330.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_7924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7924.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_6659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6659.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4154.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4128.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4126.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4123.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_4121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4121.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3757.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_3746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3746.jpg" />
 </div>
 
 

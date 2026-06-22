@@ -1,3 +1,58 @@
+###  Публикация: 1379380   (840685) от 28.04.2020
+
+Вика Старикова - Три желания (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоклип Виктории Стариковой — «Три желания».
+Русская версия небезызвестной детской песенки — «Лягушка и три желания»
+Автор – Фрэнсис Лемарк (Francis Lemarque).
+Русский текст - Самюил Болотин.Производство: Serghey Grey ProductionЖанр: ПопРежиссер: Serghey GreyАктеры: Виктория СтариковаПродолжительность: 00:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BFC578AB563C01F17C5B505BD37D83A63D06E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193789   (839910) от 19.04.2010
+
+Дискотека Авария - Лето всегда! (OST ''Любовь в большом городе 2'')  (2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:04:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499778   (839819) от 07.10.2021
 
 The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
@@ -6,7 +61,7 @@ The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839819.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839585.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839236.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_838986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838986.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837993.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_837870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837870.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ Crematory - Greed (2004) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836561.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_836559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836559.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ Wax Audio (видеография) (2004-2007) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_819998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819998.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812889.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_812614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812614.jpg" />
 </div>
 
 
@@ -302,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_810968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810968.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_809615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809615.jpg" />
 </div>
 
 
@@ -361,7 +416,7 @@ Chris Isaak - Best of Chris Isaak (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_808881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808881.jpg" />
 </div>
 
 
@@ -387,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_807589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807589.jpg" />
 </div>
 
 
@@ -414,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_804002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804002.jpg" />
 </div>
 
 
@@ -443,7 +498,7 @@ Behemoth - Lucifer (Director's Cut) (2011) [H.264/720p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803681.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_803299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803299.jpg" />
 </div>
 
 
@@ -498,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_802121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802121.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801633.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_801042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801042.jpg" />
 </div>
 
 
@@ -579,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_796792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796792.jpg" />
 </div>
 
 
@@ -605,7 +660,7 @@ The Beatles 1962-1970 (2015) BDRip [H.264/720p] [handmade AI colored]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792681.jpg" />
 </div>
 
 
@@ -632,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_792661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792661.jpg" />
 </div>
 
 
@@ -646,64 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91728DA1CB05333D3B6A4BDC3E7F8410E7F04166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185433   (791949) от 25.01.2018
-
-Сборник клипов - Русские 2000-2016 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_791949.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот сборник я включил самые достойные и хитовые поп клипы от музыкантов с постсоветского пространства с 2000 по 2016 год. Это 2 часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Интро
-061 Валерий Меладзе - Иностранец
-062 Ани Лорак - Обними меня
-063 Группа 101 - Дай мне время(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EF177AF121F36BBA49F79F32F8B2A22ED94300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202378   (790354) от 28.01.2018
-
-Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 4)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_790354.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-151 Def Leppard - Let's Get Rocked
-152 Offspring - Gotta Get Away
-153 Bonfire - Sweet Obsession(   Читать дальше...   )Жанр: Rock, MetalФормат: MKVПродолжительность: 03:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A949033D46F89CAE3086CBFA53A9062AF511AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1259946   (316404) от 05.11.2018
+
+Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последнем путешествии [2017, TV, 12 эп. + 12 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступил конец цивилизации. Лишь две девочки — Чито и Юури — остались в живых, и теперь они бороздят руины погибшего мира на своём гусеничном мотоцикле «Кеттенкрад» в поисках топлива и еды. Но пока они вместе, даже подобное тоскливое существование несёт в себе маленькие радости, будь то плошка супа или найденная исправная запчасть. Лишь общие опыт и чувства придают (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Одзаки ТакахаруПеревод: TimecraftЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 12 SP по 2 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF76F1159266F4C7F7F10ECF752C79DAC449CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259953   (316399) от 05.11.2018
 
 Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Стальная тревога! IV [2018, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +32,7 @@ Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316399.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316308.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Hi no Tori: Uchuu Hen | Phoenix: Space Chapter | Жар-птица: Глава �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316277.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Hi no Tori 2772: Ai no CosmoZone | Phoenix 2772: Cosmos Zone of Love | Жар-п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316269.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316022.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Mini Pato / Mobile Police Patlabor Minimum / Миниатюрная Полици
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315978.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Kidou Keisatsu Patlabor Reboot / Mobile Police Patlabor: Reboot / Полиция
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315662.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Choujikuu Seiki Orguss | Super Dimension Century Orguss | Оргусс [1983, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315294.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Choujikuu Seiki Orguss 02 | Super Dimension Century Orguss Two: Orguss 02 | Ор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315228.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Rinne no Lagrange: Kamogawa Days / Сердца твоего цветы [OVA][20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_315166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315166.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Tales of Vesperia: The First Strike / Сказания Весперии: Пер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_315060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315060.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Miss Monochrome The Animation / Мисс Монохром [2013, TV, 13] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314925.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Scryed / Скрайд [2001, TV,  26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314918.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ RahXephon TV / Ра-Зефон [ТВ] [2002, TV 26 эп. ] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314916.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Phantom ~Requiem for the Phantom~ / Фантом: Реквием по Призр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314802.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Noragami / Бездомный бог [2014, TV, 12 + 2 OAD] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314795.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Minori Scramble! | Переполох Минори! [2012, OVA] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314362.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Joshi Kausei | Беспечные старшеклассницы [2019, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_314238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314238.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313986.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12 эп.] BDRip 1080 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313984.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Strike the Blood II | Удар крови [OVA-2] [2016, OVA, 8 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313663.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] HDTV 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313186.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313079.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312978.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ To Aru Majutsu no Index / A Certain Magical Index / Индекс Волшебс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312503.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ To Aru Majutsu no Index / A Certain Magical Index / Индекс Волшебс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3E820AE085D9162BFEC9B8BBF7871532D0836F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183024   (312196) от 12.11.2017
-
-A Channel+smile: Nabe wo Tabeyou | A-Channel+smile: Let's Eat Hot Pot | A Channel: поедим горяченького [2017, OVA, 1] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312196.jpg" />
-</div>
-
-
-###  Подробнее
-
-бонусный эпизод на BD-переиздании всей серии.Производство: MBSЖанр: комедия, повседневность, школаРежиссер: AniplexПеревод: KrasialexЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 23 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3E021E2C5F0C636E642581E69CF6997A5AE9D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

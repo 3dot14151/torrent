@@ -1,3 +1,32 @@
+###  Публикация: 1405252   (485006) от 29.08.2020
+
+DaVinci Resolve Studio 16 v16.2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
+В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
+
+Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.08.2020Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9079125815BFC27FF014D0DC4C67100C98FB2CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566373   (484623) от 28.07.2022
 
 Integrity Pro 12.3.16 [En]
@@ -6,7 +35,7 @@ Integrity Pro 12.3.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484623.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Integrity Plus 12.3.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484622.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ Posterino 3 v3.11.10[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484619.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ Allavsoft Video Downloader Converter 3.24.9.8244 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484618.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ PatterNodes 3 v3.0.8 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484617.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484550.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ App Tamer 2 v2.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484547.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ OmniPlayer Pro - Media Player 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484532.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ future.dj pro - mix everything 1.11.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484521.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Be Focused Pro - Focus Timer 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484424.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484423.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ RAR Extractor Max-Unzip Winrar 9.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484420.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ iStat Menus 6 v6.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484406.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Canvas X Draw 7.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484331.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Luminar Neo 1.2.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484325.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ Xversion 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484259.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484199.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ TotalFinder 1.9.7 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484155.jpg" />
 </div>
 
 
@@ -487,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484103.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ Currencier 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484092.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484006.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ Alfred Powerpack 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_484005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484005.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ Capture One Pro 11 v11.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483866.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ SuperDuper! 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483747.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Cookie 6.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483687.jpg" />
 </div>
 
 
@@ -662,33 +691,6 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3723FCE53992A6E8F19EDE94ACEA1E558F0AC6B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938033   (483630) от 17.09.2015
-
-Boom 2 v1.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boom делает звук объемнее и качественней.
-Если вы часто испытываете проблемы с громкостью звука при просмотре фильмов или роликов в интернете, общении в аудио-чатах, или простом прослушивании музыки, Boom то, что вам требуется. В первую очередь Boom подойдет обладателям MacBook и MacBook Air, так как штатная акустика у портативных устройств оставляет желать лучшего. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14.09.2015Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600C32BDA137844E4E7CAE4A2316F50EE749A936
 ```
 
 https://mybot314.ru/tekegram_catalog/

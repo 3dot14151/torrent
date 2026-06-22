@@ -1,3 +1,133 @@
+###  Публикация: 1746638   (44956) от 01.09.2024
+
+Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последний поезд в Лунное ущелье (2005) [Ru] (1.0) License Новый Диск
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nancy Drew: Last Train to Blue Moon Canyon - детективная игра про молодую девушку-сыщика по имени Нэнси Дрю. Квест выступает 13-й частью в одноименной серии. Изменения коснулись геймплейных аспектов, а также поменялся интерфейс. Отныне экран разделен не на три, а на две части. Верхняя отведена под основной геймплей - обзор локации, диалоги с персонажами и т.д., а (   Читать дальше...   )Тип издания: LicenseРазработчик: HeR InteractiveЖанр: Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1610B7704BDEF3910C0AFDA1D7ACD26CD6A78C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746893   (44859) от 02.09.2024
+
+NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры разворачивается в неизведанной японской деревне, игроки раскрывают тайну деревни Нарибики, обнаруженной в 2000 году после того, как тайфун вскрыл скрытый туннель. Атмосфера игры навеяна заброшенными японскими зданиями и деревнями, что позволяет получить незабываемые впечатления. Игра рассчитана на 2-3 часа и сосредоточена на исследовании и сборе подсказок, (   Читать дальше...   )Тип издания: RepackРазработчик: DorsalFin StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6757824FA21496FDB24F7A79A23E47442AC1387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746945   (44851) от 02.09.2024
+
+No Return (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психологический хоррор от первого лица, действие которого происходит в современном Китае, разработанный компанией BlameTech. Игроки берут на себя роль главного героя, который возвращается домой и обнаруживает, что он превратился в бесконечный, кошмарный лабиринт коридоров. Игра сочетает в себе элементы китайского фольклора и хоррора в стиле dreamcore, создавая глубокую (   Читать дальше...   )Тип издания: RepackРазработчик: BlameTechЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: КитайскийЯзык субтитров: Английский, Японский, Корейский и другиеЯзык интерфейса: Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651630BE8AAFB5667C1E9BD2EB01DA544EF8C1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746820   (44810) от 02.09.2024
+
+Bewitching Sinners (2024) [En] (1.9.8.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bewitching Sinners бросает вас в хаотичный фантастический мир. В один момент вы оказываетесь в своей квартире, а в другой - переноситесь в страну магии и хаоса. Здесь ведьмы жаждут вашей крови, а ваш двойник находится в бессознательном состоянии. Добро пожаловать в новую жизнь, Пальмира! Этот мрачный комедийный симулятор знакомств не стесняется высоких ставок. Ваш (   Читать дальше...   )Тип издания: RepackРазработчик: Miss XeroЖанр: Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83BD9FF67AD54BB37702BEE4E5EB07DC6041B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747004   (44801) от 03.09.2024
+
+Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетание RPG и симулятора с открытым миром, действие которого происходит на Диком Западе. Ковбои, колонисты и стрелки. Приготовьтесь исследовать, выживать, строить на Диком Западе и написать свою собственную историю! Сумеете ли вы построить империю на Диком Западе или кончите свои дни на виселице?Тип издания: RepackРазработчик: Moon Punch StudioЖанр: Симулятор, Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F791E7B2FE33F523C07D4235F9E88F7CB8C206D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747044   (44775) от 03.09.2024
 
 3 Minutes to Midnight - A Comedy Graphic Adventure (2024) [Multi] (1.0.4) Repack FitGirl
@@ -6,7 +136,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44775.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ I Wani Hug that Gator! (2024) [Ru/Multi] (1.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44755.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Date Z (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44697.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44689.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Sunset Hills (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44631.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ Sunset Hills (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44624.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44557.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Perennial Order (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44309.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Don't Stare (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44289.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44250.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44184.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44179.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43709.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43697.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Repack FitGirl [Digital Collec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43638.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ LUNARiA -Virtualized Moonchild- (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43586.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Everlasting Flowers - Where there is a will, there is a way (2024) [Multi] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43582.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43533.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.2.1474/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43444.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43416.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Granny Remake (2023) [Ru/Multi] (3.5.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43398.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ Granny Remake - это игра-ужастик, в которой вам пре�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1826E251ABE1E0EC4FA1E102A42FB377EC21D384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750026   (43310) от 17.09.2024
-
-Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43310.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пятом эпизоде ​​Fears to Fathom вы играете за Сидни Харпер, 23-летнюю девушку, работающую в консалтинговой фирме, которая планирует провести выходные в арендованном доме в Вудбери со своими друзьями из колледжа. Они и представить себе не могли, что произойдет во время их пребывания. Сидни выжила, потому что приняла правильный выбор. Эта игра в первую (   Читать дальше...   )Тип издания: RepackРазработчик: Rayll StudiosЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7920D7C3884E5E3929DE6D69C1D4EBCAA13C9353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750139   (43196) от 18.09.2024
-
-Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и песок (2024) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abnormal1999:The Compass and the Sand - это загадочная головоломка, в которой геймеры погружаются в роль Энн, персонажа, изгнанного мистическим компасом. Тут юзерам предстоит раскрыть секреты изгнанной земли и активировать компас, чтобы спастись. Повествование разворачивается в далекой и незнакомой стране, где Энн движет непоколебимая решимость найти дорогу назад.Тип издания: SceneРазработчик: QZQ StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Китайский, Французский и другиеЯзык интерфейса: Русский, Английский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EA3732CCE2A4619266FF8E36B2161B3FC8E657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750294   (43099) от 19.09.2024
-
-The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Scene DOGE
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43099.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Plucky Squire - это очаровательная экшен-адвенчура, действие которой разворачивается в мире сказок. Игроки берут на себя роль Йота, героя книги сказок, которого выгнал из своей книги злобный Хамгрумп. Протагонист и его друзья открывают трехмерный мир и должны перемещаться между 2D и 3D царствами, чтобы спасти своих товарищей и восстановить хороший финал истории. (   Читать дальше...   )Тип издания: SceneРазработчик: All Possible FuturesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE67F1C338BD3DD073322AE365EF1BAD5EBE6EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750278   (43023) от 19.09.2024
-
-The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.10.3) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43023.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Plucky Squire - это очаровательная экшен-адвенчура, действие которой разворачивается в мире сказок. Игроки берут на себя роль Йота, героя книги сказок, которого выгнал из своей книги злобный Хамгрумп. Протагонист и его друзья открывают трехмерный мир и должны перемещаться между 2D и 3D царствами, чтобы спасти своих товарищей и восстановить хороший финал истории. (   Читать дальше...   )Тип издания: RepackРазработчик: All Possible FuturesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83529A12474F7D9DF867014E1D9AEBC7BAB5BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750450   (43010) от 20.09.2024
-
-Subnautica (2018) [Ru/Multi] (71288) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subnautica – это своеобразная и удивительная компьютерная игра, выполненная в инновационном жанре, который состоит из частей песочницы, кинематографической игры, исследовательской адвенчуры и неповторимого квеста, что в целом и составляет эту игру. Кроме того, разработкой игры занимались титулованные и именитые игроделы из студии под названием Unknown Worlds. Поэтому, (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Adventure (Survival), 1st Person, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B667279723F520ED36A99128B1D85D758B4F5278
 ```
 
 https://mybot314.ru/tekegram_catalog/

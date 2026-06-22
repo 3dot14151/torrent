@@ -1,3 +1,116 @@
+###  Публикация: 1330691   (338987) от 11.10.2019
+
+Oblivion - Voyage To Discovery (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fasten Seat Belts (Intro) (01:07)
+02. A Voice Of The Universe (06:46)
+03. Dreams Come True (05:42)
+04. Into Another Galaxy (04:34)(   Читать дальше...   )Жанр: Disco, SpacesynthПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD5530CB1BC6FB94B3A13D032794874DF7A76DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 411091   (338561) от 16.11.2011
+
+Gianni Morandi - Questa E' La Storia (1994) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Italo-popПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330934   (336380) от 12.10.2019
+
+V.A. - Italo Disco 80's (Best Of Collection) (2016) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert One - Turbo Diesel
+02. Gazebo - I Like Chopin
+03. Tom Hooker - Feeling OK
+04. Den Harrow - Catch the Fox(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8241B0673799A799AFAEACEEDFD38AB1757CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580508   (330609) от 01.10.2022
+
+Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Daddy Cool (00:03:28)
+02 - Sunny (00:03:58)
+03 - Rivers Of Babylon (00:04:17)
+04 - El Lute (00:04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185EE91DE06C35666C98888E8C80358EA09B27A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 261307   (328843) от 22.11.2010
 
 Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
@@ -6,7 +119,7 @@ Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_328843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_328843.jpg" />
 </div>
 
 
@@ -41,7 +154,7 @@ Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323617.jpg" />
 </div>
 
 
@@ -70,7 +183,7 @@ Boney M. - Diamonds (2015) 40th Anniversary Edition [FLAC|Lossless]<Disco, Euro 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_323178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323178.jpg" />
 </div>
 
 
@@ -99,7 +212,7 @@ Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_321266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321266.jpg" />
 </div>
 
 
@@ -128,7 +241,7 @@ VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_320877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320877.jpg" />
 </div>
 
 
@@ -157,7 +270,7 @@ VA - Rare80 Records - Rare80 Volume 1 (2012) 2CD, Unofficial Release [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317475.jpg" />
 </div>
 
 
@@ -186,7 +299,7 @@ VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_317474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317474.jpg" />
 </div>
 
 
@@ -215,7 +328,7 @@ VA - Sunlover Records Compilation Vol.1 - Italo Disco is Back! (2014) [FLAC|Loss
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_316947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316947.jpg" />
 </div>
 
 
@@ -244,7 +357,7 @@ VA - Rare80 Records - Rare80 Volume 3 (2013) 2CD, Unofficial Release [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313048.jpg" />
 </div>
 
 
@@ -273,7 +386,7 @@ Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_308789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308789.jpg" />
 </div>
 
 
@@ -302,7 +415,7 @@ Italoconnection - Remixes (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_304465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304465.jpg" />
 </div>
 
 
@@ -331,7 +444,7 @@ Fancy - Greatest Hits (2004) [FLAC|image + .cue]<Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_303087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303087.jpg" />
 </div>
 
 
@@ -360,7 +473,7 @@ VA - Tony Hendrik: Bad Boys BlueS & Disco Projects (2003) 2CD, Unofficial [FLAC|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301258.jpg" />
 </div>
 
 
@@ -389,7 +502,7 @@ Bad Boys Blue - Top Hits Collection (2017) Compilation [FLAC|Lossless|WEB-DL|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301141.jpg" />
 </div>
 
 
@@ -418,7 +531,7 @@ VA - Disco 80's Rare & Special Versions Vol. 1 (2016) Compilation [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298587.jpg" />
 </div>
 
 
@@ -447,7 +560,7 @@ Silicon Dream  - Greatest Hits (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297808.jpg" />
 </div>
 
 
@@ -476,7 +589,7 @@ Boney M. - Worldmusic For Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Christ
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_297030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_297030.jpg" />
 </div>
 
 
@@ -505,7 +618,7 @@ Radiorama - Greatest Hits & Remixes (2015) 2CD, Compilation [FLAC|Lossless|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296656.jpg" />
 </div>
 
 
@@ -534,7 +647,7 @@ Ricchi E Poveri - The Collection (1998) [FLAC|tracks+.cue]<Italo-Disco, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294718.jpg" />
 </div>
 
 
@@ -563,7 +676,7 @@ Al Bano & Romina Power - The Collection (1998) [FLAC|tracks+.cue]<Vocal, Ballad,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_294583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294583.jpg" />
 </div>
 
 
@@ -592,7 +705,7 @@ VA - Space Sound Records Presents: Italo Euro Disco Vol. 1 (2010) [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284402.jpg" />
 </div>
 
 
@@ -621,7 +734,7 @@ VA - Italo Eurobeat Collection Vol. 1 (2019) 2CD [FLAC|Lossless|tracks + .cue] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_284261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284261.jpg" />
 </div>
 
 
@@ -635,122 +748,6 @@ VA - Italo Eurobeat Collection Vol. 1 (2019) 2CD [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB54783102FAA7657D63610937907224E9EC199F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186689   (284243) от 26.11.2017
-
-Martinelli - Voices (1987) Compilation, Unofficial [APE|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_284243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cinderella (7:48)
-02. Voice (In The Night) (8:41)
-03. Summer Lover (5:45)
-04. Orient Express (6:52)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0225034460C54D0A2644430FD602A82BC780A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337385   (274802) от 10.11.2019
-
-VA - Another Side of Mike Mareen Part Two (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amadeus Liszt - The Devil Wins (Maxi Version) (5:56)
-02. Laurent Antony - Flies (Remix) (4:42)
-03. DJ's Project - Vision of Love (Maxi Version) (7:49)
-04. Gayle Robertson - Africa (Maxi Version) (5:27)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Synth-popПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460ED1B829C8894F07A3C062F1A1F7DCB2911B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337382   (274752) от 10.11.2019
-
-VA - Another Side of Mike Mareen Part One (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Optimal - Monoton (Maxi Version) (8:31)
-02. DJ's Project - How Are You (Maxi Version) (7:36)
-03. Rocco Caruso & Children's Voice - Tirami Su (Maxi Version) (6:16)
-04. Luisa - Parole (Maxi Version) (7:28)(   Читать дальше...   )Жанр: Disco, Euro-Disco, Synth-popПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875E85ABDC533E96C014C63C412C5FAA2BC6972C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337387   (274620) от 10.11.2019
-
-VA - Another Side of Mike Mareen Part Three (2016) Italo Box Music, 2019, Remastered [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_274620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Mareen - Love-Spy (The Badman-Mix) (6:29)
-02. Shipra - Blinded by the Light (Maxi Version) (6:03)
-03. DJ's Project - Birthday Girl (DJ-Dance-Mix) (6:09)
-04. Andy Anderson - Golden Hits of Soulful Dynamics (Alternative Maxi Version) (6:45)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC948900FEA83F45B9694365581A9D30F97320B
 ```
 
 https://mybot314.ru/tekegram_catalog/

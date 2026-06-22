@@ -1,3 +1,107 @@
+###  Публикация: 517812   (647793) от 01.07.2012
+
+В лосином краю / In the Land of the Moose (2010) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно лосиху постигло несчастье – ее маленького лосенка загрыз медведь. Уже весной ей предстоит произвести на свет новое потомство, если, конечно, она выдержит тяготы и лишения холодной зимы. Как молодая мать она будет яростно защищать своего беззащитного детеныша от хищников и обучит его навыкам выживания. Этот документальный фильм рассказывает незабываемую историю путешествия матери-лосихи, которой пришлось столкнуться с немалыми трудностями на пути создания семьи.Жанр: Документальный, Научно-ПознавательныйПеревод: ДублированныйПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B2CA74149DA88A36F42785758AA46A7591FBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701169   (647618) от 06.07.2016
+
+Происхождение океана / Ocean origins (2001) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в мир обитателей морей: от самых мизерных – простейших микроорганизмов до сложнейших форм жизни. В фильме представлена эволюция обитателей подводного мира, которая протекала в течение последних четырех миллиардов лет.Жанр: Документальный, научно-познавательный, природаПеревод: Одноголосый закадровый (профессиональный, Владимир Курдов)Субтитры: вшитые отключаемыеЯзык субтитров: русский, английскийПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10D2BD780DBEE7A157031C2D4DC82F157E1BB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906017   (647140) от 07.06.2015
+
+Nat Geo Wild: Мафия кобр / Cobra Mafia (2014) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кобры, с их смертельным укусом и агрессивными повадками, считаются самыми опасными змеями Африки и Азии. Они-гроза подпольного мира рептилий. Убийцы в капюшонах, профессионалы с искусными орудиями смерти. Более 270 видов этих змей принадлежат к семейству аспидов. Их террор простирается на два континента где одно упоминание о них вселяет панику и страх. В их ряды (   Читать дальше...   )Телекомпания: National Geographic Television, Earth Touch USAЖанр: Документальный, природа, флора, фаунаРежиссер: Эшли ХоппинПеревод: Одноголосый закадровый, профессиональный, озвучено на студии "Велес", текст читал Олег БеловПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11004B6AAD9DE82C3B998EE8F661D3A0425D54C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905974   (647139) от 07.06.2015
+
+Nat Geo Wild: Дикая Колумбия / Wild Colombia [серии 1-3 из 3] (2014) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647139.jpg" />
+</div>
+
+
+###  Подробнее
+
+На западном побережье Колумбии находится один из уголков земли поражающий биологическим разнообразием. Странные виды, которые обитают только здесь, борются за выживание в тени Анд, а в густых джунглях жизнь кипит в лесном пологе. Омываемые водами Тихого и Атлантического океанов, эти девственные берега и тропические острова таят секреты над поверхностью воды и в её (   Читать дальше...   )Телекомпания: Fence of Blue ant Media, National Geographic ChannelsЖанр: Документальный, природа, флора, фаунаРежиссер: Andrew MoorwoodПеревод: Одноголосый закадровый, профессиональный, озвучено на студии "Велес", текст читал Олег БеловПродолжительность: 3x~00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF28E602BD7DF9FBC97BAA369804967F5CEE8B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905798   (647128) от 07.06.2015
 
 Растения под микроскопом / Invisible Nature (2012) SATRip (серии 1-3 из 3)
@@ -6,7 +110,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_647128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647128.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_645844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645844.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_644985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644985.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_643052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643052.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_639690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639690.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_638932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638932.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Viasat Nature: Подземный мир саванны / Six Feet under the Sav
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637202.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_637190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637190.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_636874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636874.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_636419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636419.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ NG: Жизнь среди больших кошек / Living with Big Cats (2007
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635617.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635470.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ BBC. Мир природы. Бабочки / Natural World. Butterflies (2010) H
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635420.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_635174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635174.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634982.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_634978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634978.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633226.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_633136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633136.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_631416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631416.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_628513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628513.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627562.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_627439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627439.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD2895517166675C8334B0B62E27B5D23F0C0D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521627   (626747) от 11.07.2012
-
-Nat Geo Wild: Созданные убивать: Большая белая акула / Build For The Kill: Great White Sharks (2011) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_626747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый документальный сериал от National Geographic расскажет Вам, как животные эволюционировали в хитрых и жестоких убийц. Мы станем свидетелями, как из слепых и беспомощных они вырастают в сильных и беспощадных хищников.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26907CC18DAD3F142F7FF0F924E23ED6859F51AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 700127   (620851) от 20.07.2016
-
-Горбатые киты. Из огня в лёд / Humpbacks. From Fire to Ice (2008) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самка горбатого кита и ее детеныш... Это рассказ о них. Повесть о первом годе жизни новорожденного кита. У детеныша есть 12 месяцев, чтобы узнать премудрости жизни, 12 месяцев, чтобы научиться выживать в этом полном опасностей подводном мире. Мы проследуем за самками и детенышами горбатых китов во время сезонной миграции через северную часть Тихого океана - от вулканов, (   Читать дальше...   )Жанр: Документальный, видовой, научно-познавательный, исследования, природа, флора, фаунаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D8E304A1DC94C15EEC09C72CE58E1CE210EA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097705   (617876) от 27.06.2017
-
-Эхо джунглей / Echoes from the Jungle (2006) SATRip (серии 1-11 из 13)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617876.jpg" />
-</div>
-
-
-###  Подробнее
-
-35 летний опыт, отмеченный многочисленными наградами, три года изнурительного и кропотливого исследования дикой природы Индии увенчали грандиозные усилия известных режиссеров Нареша и Раджеша Беди мировым успехом созданного ими документального сериала «Эхо джунглей».Производство: ИндияЖанр: Документальный, природа, флора, фаунаРежиссер: Раджеш БедиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 11 x ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1C1AB9AA162498DB67B92A8F0265B3E90046CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910993   (617808) от 22.06.2015
-
-NG. Анаконда: Тихий убийца / Anaconda: Silent Killer (2014) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте правду об одной из крупнейших и при этом самых скрытных змей на Земле. Оригинальное поведение и неожиданные открытия, запечатлённые камерой, станут штрихами в поразительном и пленительном портрете настоящей анаконды, который опровергнет множество популярных неверных представлений о «гигантских змеях-киллерах» и покажет ошеломляющие новые факты о мирной и (   Читать дальше...   )Телекомпания: NAT GEO WILD HDЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBB2C27462A0F50C14AACA91A97FE49DE194D00
 ```
 
 https://mybot314.ru/tekegram_catalog/

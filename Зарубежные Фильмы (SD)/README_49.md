@@ -1,3 +1,133 @@
+###  Публикация: 1486380   (1004825) от 30.07.2021
+
+Последний наемник / Le dernier mercenaire / The Last Mercenary (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осуждённый тайный агент вынужден вернуться во Францию, чтобы спасти своего сына, которого подставила международная террористическая организация.Производство: Франция / Forecast Pictures, Other Angle PicturesЖанр: Боевик, комедияРежиссер: Давид ШаронАктеры: Жан-Клод Ван Дамм, Альбан Иванов, Самир Декацца, Асса Силла, Эрик Жюдор, Миу-Миу, Патрик Тимси, Валери Каприски, Мишель Кремадес, ДжимоПеревод: Дублированный (Пифагор) NetflixЯзык озвучки: РусскийСубтитры: Русские (forced, full) - отдельноПродолжительность: 01:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5D9F07BD487B24D4E01AE24517C562B9C6A819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486238   (1004809) от 30.07.2021
+
+Пороховой коктейль / Gunpowder Milkshake (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть киллером — весело и просто. Особенно для Сэм, которая от матери унаследовала талант к заказным убийствам. Но когда девушке приходится пойти наперекор собственному боссу, она становится мишенью целой армии головорезов. К счастью, мама и её бывшие напарницы готовы помочь угостить недоброжелателей своим фирменным «пороховым коктейлем»Производство: Франция, Германия, США / StudioCanal, The Picture Company, Studio BabelsbergЖанр: Боевик, триллер, приключенияРежиссер: Навот ПапушадоАктеры: Карен Гиллан, Лина Хиди, Карла Гуджино, Мишель Йео, Анджела Бассетт, Пол Джаматти, Джо Бобин, Фрейя Аллан , Эд Бирч, Ралф АйнесонПеревод: Дублированный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full) - отдельно, Английские (SDH) - отдельноПродолжительность: 01:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80004C36B5F53F930DC37C993CC50BDC25B9140C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486340   (1004801) от 30.07.2021
+
+Последний наемник / Le dernier mercenaire / The Last Mercenary (2021) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осуждённый тайный агент вынужден вернуться во Францию, чтобы спасти своего сына, которого подставила международная террористическая организация.Производство: Франция / Forecast Pictures, Other Angle PicturesЖанр: боевик, комедияРежиссер: Давид ШаронАктеры: Жан-Клод Ван Дамм, Альбан Иванов, Патрик Тимси, Самир Декацца, Асса Силла, Эрик Жюдор, Миу-Миу, Валери Каприски, Мишель Кремадес, ДжимоПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: русские (форсированные, полные)Продолжительность: 01:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD20A4378C67538BB507AF222C3FB8BDBA98587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486401   (1004784) от 30.07.2021
+
+Последний наёмник / Le dernier mercenaire / The Last Mercenary (2021) WEB-DLRip [H.265] [10-bit]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осуждённый тайный агент вынужден вернуться во Францию, чтобы спасти своего сына, которого подставила международная террористическая организация.Производство: Франция / Forecast Pictures,Other Angle PicturesЖанр: Боевик, комедияРежиссер: Давид ШаронАктеры: Жан-Клод Ван Дамм, Альбан Иванов, Самир Декацца, Асса Силла, Эрик Жюдор, Миу-Миу, Патрик Тимси, Валери Каприски, Мишель Кремадес, ДжимоПеревод: Дублированный (Пифагор, Postmodern)Язык озвучки: Русский, украинскийСубтитры: Русские (Forced, Full), английские, украинские (Forced, Full)Продолжительность: 01:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733433CFC59E91E336981F1A9715BFCDE366E160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479464   (1004699) от 31.07.2021
+
+Колумнистка / De kuthoer / The Columnist (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колумнистку и писательницу Фемке Бот невзлюбили интернет-пользователи — она регулярно получает угрозы, оскорбления и пожелания смерти в своей адрес. И если раньше она всегда стремилась к мирному разрешению конфликтов, то теперь её терпению настал конец.Производство: Нидерланды / NL Film & TVЖанр: Комедия, криминал, триллерРежиссер: Иво ван АартАктеры: Генио Де Грот, Катя Херберс, Рейн Хоффман, Bram van der Kelen, Claire Porro, Харри ван Рейтховен, Сено Север, Antoin Peeters, Matthijs van Nieuwkerk, Merel WestrikПеревод: Профессиональный многоголосый (iTunes)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06115F3BBE9CADEBB84754552581A45FA1189893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486372   (1004644) от 31.07.2021
 
 Последний наемник / Le dernier mercenaire / The Last Mercenary (2021) WEB-DLRip [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004644.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004622.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004542.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004541.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004513.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004501.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004405.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004403.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004396.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004244.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004198.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004196.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004195.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1004187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004187.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003970.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003932.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003924.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003919.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003914.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003908.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003903.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD8816E094CA0403F4D19E42D39FE299E2C3DC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349884   (1003902) от 03.01.2020
-
-Гемини / Gemini Man (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первоклассный киллер Генри Броган становится мишенью таинственного оперативника, который, кажется, знает наперёд каждый его шаг.Производство: США, Китай / Skydance Media, Jerry Bruckheimer Films, Fosun Group Forever PicturesЖанр: Боевик, фантастикаРежиссер: Энг ЛиАктеры: Уилл Смит, Мэри Элизабет Уинстэд, Клайв Оуэн, Бенедикт Вонг, Дуглас Ходж, Теодора Вулли, Ральф Браун, Линда Эмонд, Андреа Суч, Илья ВолохПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB92D2034FED3B8DFD3C9AD0C9BDF2DF9D2DD0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349762   (1003899) от 03.01.2020
-
-Курьер / The Courier (2019) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003899.jpg" />
-</div>
-
-
-###  Подробнее
-
-На первый взгляд, она — всего лишь курьер на черном мотоцикле, стремительно пронзающем ночной Лондон. Но даже в огромном мегаполисе красотке удается ускользнуть от уличных камер, и ее имя невозможно найти ни в одной базе данных. Именно она, дерзкая и неуловимая, бросит вызов могущественному криминальному боссу. И ему лучше не знать, кто на самом деле эта взрывная (   Читать дальше...   )Производство: Великобритания, США / Rollercoaster Angel Productions, Signature FilmsЖанр: Боевик, триллер, драмаРежиссер: Закари АдлерАктеры: Ольга Куриленко, Гэри Олдман, Амит Шах, Алисия Агнесон, Грег Орвис, Крэйг Конуэй, Уильям Моусли, Дермот Малруни, Гордон Александр, Нил ЧапелоуПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FF539CDD7206B98DA18BC3D51929F156F0DD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350139   (1003659) от 04.01.2020
-
-Малефисента: Владычица тьмы / Maleficent: Mistress of Evil (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит через несколько лет после того, как Малефисента наложила злые чары на принцессу Аврору. Фильм рассказывает про сложную взаимосвязь между тёмной феей и будущей королевой, о новых союзниках и противниках в деле защиты волшебного леса и магических существах, которые в нем обитают.Производство: США, Великобритания / Roth Films, Walt Disney PicturesЖанр: Фэнтези, приключения, семейныйРежиссер: Хоаким РоннингАктеры: Анджелина Джоли, Элль Фэннинг, Харрис Дикинсон, Мишель Пфайффер, Сэм Райли, Чиветел Эджиофор, Эд Скрейн, Роберт Линдсей, Дэвид Гяси, Дженн МюррэйПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH), английскиеПродолжительность: 01:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B3959A6A746D841B7E92E76A05D117F0A1E410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350143   (1003658) от 04.01.2020
-
-Дождливый день в Нью-Йорке / A Rainy Day in New York (2019) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — из состоятельной семьи Нью-Йорка, она — из небольшого городка в Аризоне. Выросший на Манхэттене юноша мечтает показать ей свой любимый город. Судьба дает ему шанс, когда девушку отправляют взять интервью у известного режиссера. Однако этот дождливый день изменит их жизнь навсегда. В проливной суете мегаполиса он встретит свою давнюю подругу, а девушку затянет (   Читать дальше...   )Производство: США / Gravier Productions, Perdido ProductionsЖанр: Мелодрама, комедияРежиссер: Вуди АлленАктеры: Тимоти Шаламе, Эль Фаннинг, Селена Гомес, Джуд Лоу, Диего Луна, Лив Шрайбер, Сюзанн Смит, Оливия Борхэм-Уинг, Бен Уорхейт, Гриффин НьюманПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6223AF29CABA8BD4E097AB8FF46B3F843470E609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349647   (1003636) от 04.01.2020
-
-Собаки не носят штанов / Koirat eivat kayta housuja / Dogs Don't Wear Pants (2019) WEB-DLRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1003636.jpg" />
-</div>
-
-
-###  Подробнее
-
-После трагической смерти жены мужчина начинает посещать доминатрикс.Производство: Финляндия, Латвия, Helsinki-Filmi, Tasse FilmЖанр: ДрамаРежиссер: Юкка-Пекка ВалькеапяяАктеры: Пекка Странг, Криста Косонен, Илона Хухта, Яни Воланен, Уна Айрола, Иирис Анттила, Эстер Гейслерова, Эллен Карппо, Армандс Рейнис, Самуэль ШипвейПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A20EC470EF30BC76C18031AE055FF97435A6428
 ```
 
 https://mybot314.ru/tekegram_catalog/

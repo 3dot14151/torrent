@@ -1,3 +1,107 @@
+###  Публикация: 1716154   (59746) от 14.04.2024
+
+Beat Slayer (2024) [Multi] (1.1.14) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beat Slayer - гибрид из упрощенного рогалика и ритм-игры, где требуется двигаться в такт динамичным саундтрекам. Мастерица и ярая любительница музыки Мия решает дать отпор коррумпированному, состоящем преимущественно из роботов, правительству Берлина 90-х годов. Сопроводите ее в этом насыщенном приключении и осваивайте все новые приемы, чтобы эффективно разбираться (   Читать дальше...   )Тип издания: SceneРазработчик: ByteRockers' GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский, Японский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCB5E1472C78BDAA2C91CAE4A29C03EEDA4F707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716281   (59744) от 14.04.2024
+
+The Thaumaturge (2024) [Ru/Multi] (71.135/dlc) Repack Decepticon [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59744.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Thaumaturge - изометрическая ролевая игра с глубоким сюжетом, уникальной тактической системой боя, развитием персонажа, детективными элементами и непростыми моральными дилеммами в мире загадочных потусторонних сил и таинственных существ, салюторов. Варшава, 1905 год. Город живет под гнетом Российской империи. На его улицах сталкиваются люди множества судеб, взглядов (   Читать дальше...   )Тип издания: RepackРазработчик: Fool's TheoryЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0210DF705F642340EDB37A8AB4A81D7CBDC7273C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716569   (59554) от 16.04.2024
+
+Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pathfinder: Gallowspire Survivors, созданная по мотивам популярной настольной ролевой игры Pathfinder, - это ролевая игра на выживание, то есть приключенец будет сталкиваться со случайно генерируемыми уровнями, врагами и предметами, а в случае гибели ему придется начинать все сначала. Действие игры происходит в мире Голариона, богатом и разнообразном фэнтезийном (   Читать дальше...   )Тип издания: RepackРазработчик: BKOM StudiosЖанр: Экшены, Казуальные игры, Ролевые игрыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A21DF9B461D6BE7CF6B502AD94C732055B3762F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716531   (59529) от 16.04.2024
+
+Acolyte of the Altar (2024) [En] (1.0.69) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acolyte of the Altar - это адвенчура в жанре roguelike deckbuilder. В этой постапокалиптической пустоши вы путешествуете по безлюдным ландшафтам, сражаясь с колоссальными зверями в стратегических битвах. Эти твари не из пушистых - они адаптируются во время боя, заставляя вас думать на ходу и корректировать тактику. Суть заключается в создании колоды заклинаний и (   Читать дальше...   )Тип издания: RepackРазработчик: Black Kite GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CA43EC1CEC9F09A21FE3E6272B5951AA7793E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716510   (59521) от 16.04.2024
 
 Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Scene Tenoke
@@ -6,7 +110,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59521.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ INSPIRE (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59456.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Shanghai Summer (2024) [Ru/Multi] (1.6.20.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59451.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59426.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59364.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Sword Art Online: Last Recollection (2023) [Ru/Multi] (1.21/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59237.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Our Adventurer Guild (2024) [En] (1.071) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59070.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_59004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59004.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58946.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58922.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58909.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Mato Anomalies (2023) [Multi] (rc3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58884.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58852.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack dixen18 [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58835.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Kingsgrave (2024) [Ru/Multi] (1.0.0.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58827.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Bloody Spell (2022) [Multi] (20240414/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58739.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.3(4)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58729.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58723.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Tamarak Trail (2024) [Ru/Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58695.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Eclipse: Echo of Dimension (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58623.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Life Eater (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58601.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Crimson Tactics: The Rise of The White Banner (2023) [En] (1.0.0b) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58577.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Crimson Tactics: The Rise of The White Banner - пошаговая тактич�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F570AD3779FDCC39604C4CDAACEB19AB2C029720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714335   (58489) от 26.04.2024
-
-Sons of Valhalla (2024) [Ru/Multi] (1.0.21/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sons of Valhalla - приключенческий сайд-скроллер с элементами стратегии. Играть предстоит за героя по имени Торальд Олавсон. Он - сын ярла и могущественный викинг. Ему предстоит отправиться на завоевание Англии. Параллельно он преследует личную цель - спасти возлюбленную. Игровой процесс опирается на исторические события. Некогда викинги совершали набеги на христианскую (   Читать дальше...   )Тип издания: LicenseРазработчик: Pixel ChestЖанр: Экшены, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E052A47EB3FC9EFE97ADC3B43E8CC7BE47EB64C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718726   (58452) от 26.04.2024
-
-Royal Order (2024) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Royal Order - это вселенная, пропитанная интригами, вероломством и угрозой гибели. В зачарованном роду королевств игрокам предстоит распутать запутанный клубок альянсов и вражды, встретившись лицом к лицу с опасностью, надвигающейся от Свалов, зловещих морских разбойников, держащих в страхе континент Игрит. Тройка стран испрашивает поддержки у всемогущего Высшего (   Читать дальше...   )Тип издания: SceneРазработчик: Nifty VisualsЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E404C31787568E0935C5FCD6549AE3E10D24E140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719121   (58272) от 28.04.2024
-
-Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в пустынный мир, где и люди, и демоны страдают от острой нехватки воды, - SAND LAND. Познакомьтесь с дьявольским принцем Вельзевулом, его сопровождающим Вором и бесстрашным шерифом Рао и отправляйтесь вслед за командой в необычное приключение на поиски легендарного источника, спрятанного в пустыне. Конец - это только начало, ведь за пределами этой засушливой (   Читать дальше...   )Тип издания: SceneРазработчик: ILCA, Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AD49D21378D05C98657A3F2F759BC88326A233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719123   (58242) от 28.04.2024
-
-SaGa Emerald Beyond (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58242.jpg" />
-</div>
-
-
-###  Подробнее
-
-SaGa Emerald Beyond - это новейшая отдельная игра в серии SaGa. Объединяя все лучшие элементы этой популярной серии, она предлагает каждому игроку собственное уникальное приключение. Используйте фирменную систему блеска и серии приемов в захватывающих сражениях. Встречайтесь с разнообразными персонажами, среди которых есть монстры, роботы и вампиры. Творите свою (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: RPG, Turn-Based, 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3379A6070A9F8E3ABC33D7C6A277DDC612EF875
 ```
 
 https://mybot314.ru/tekegram_catalog/

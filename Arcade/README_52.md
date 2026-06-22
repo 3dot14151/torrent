@@ -1,3 +1,55 @@
+###  Публикация: 1761577   (36634) от 21.11.2024
+
+Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36634.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом мир был практически захвачен зомби. Вы будете играть роль командира оставшегося лагеря выживших, чтобы найти надежду для последних выживших товарищей, собрать и назначить свой специальный полицейский отряд, чтобы исследовать этот мир после апокалипсиса... В этой игре вы будете играть выжившего, путешествуя по руинам городов, захваченных зомби, исследуя (   Читать дальше...   )Тип издания: RepackРазработчик: Tan HaoxiangЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE27F9DDB8E131E9AEC91ADF82763F05A9CCA163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761647   (36621) от 21.11.2024
+
+The Devil Within: Satgat (2024) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36621.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Devil Within: Satgat предлагает погрузиться в атмосферу разрушенного мира и стать последней надеждой для человечества. Ты будешь играть за загадочного восточного воина, Rip Kim, которому удалось выжить после инфекции демонической кровью. В его задачу входит найти потерявших человечность душ и помочь им покоиться в мире, но чтобы это сделать, ему придется столкнуться (   Читать дальше...   )Тип издания: SceneРазработчик: Newcore GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Английский, КорейскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE79E7745E029B6C7989DB5C45371A1435CA5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761583   (36601) от 21.11.2024
 
 Bullet Runner (2024) [En] (1.2.0) License GOG
@@ -6,7 +58,7 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36601.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36532.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.1.4/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36531.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36424.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36368.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36321.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36287.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36268.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ It's Only Money (2023) [En] (1.0.0-9254/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36164.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36123.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Beat Hazard Ultra (2010) [Multi] (1.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36036.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_36022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36022.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35767.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35650.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35381.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ South Park: Snow Day! (2024) [Multi] (1.0.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_35282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35282.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (1.0.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34974.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Chasm (2018) [Multi] (1.093) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34762.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34575.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Tales of Kenzera: ZAU (2024) [Multi] (1.5.45551) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34249.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34139.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_34089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34089.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33810.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Tekken 8 (2024) [Ru/Multi] (1.10.01/dlc) Repack FitGirl [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33622.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Tekken 8 - продолжение культового файтинга, нап�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34C891649802945251E92451FFB946B1B62CE853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740320   (33534) от 21.12.2024
-
-Ashes of the Union (2024) [Ru/Multi] (0.3.5 Hotfix 2) Repack FitGirl
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит исследовать разрушенные советские села и города на вооруженной до зубов технике в поисках полезных ресурсов и информации. Уничтожать насекомых-мутантов встречающихся на пути, преодолевать сложные ландшафты и препятствия. В середине 20 века, когда мир стоял на пороге новых открытий и перемен, Советский Союз столкнулся с невиданным ранее испытанием.Тип издания: RepackРазработчик: 700 Games StudioЖанр: Экшены, Инди, ГонкиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B984BE60C4990A7F714A40B31D5607CCE72C36A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757217   (33218) от 24.12.2024
-
-Kong: Survivor Instinct (2024) [Multi] (1.0.4) Scene Rune
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_33218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kong: Survivor Instinct - это 2.5D экшен-платформер, действие которой происходит в городе, опустошенном внезапным нападением титанов. Игрок будет играть за Дэвида, отца, который бродит среди руин в поисках своей пропавшей дочери Стейси и ему придется много работать, чтобы выжить как с враждебными людьми, так и с близкими столкновениями с монстрами.Тип издания: SceneРазработчик: 7LevelsЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263970F52CAEA6B9D23E0CB2EFD19C8354CA3A26
 ```
 
 https://mybot314.ru/tekegram_catalog/

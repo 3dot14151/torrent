@@ -1,3 +1,107 @@
+###  Публикация: 1845674   (1050929) от 02.01.2026
+
+Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack CoronerLemur [Game of the Year Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fallout 4 - это продолжение знаменитой постапокалиптической серии, события которой развиваются спустя несколько лет после окончания Fallout 3. Протагонистом игры становится единственный выживший из Убежища 111, которое находилось неподалеку от Бостона. Волей судьбы главному герою предстоит покинуть свой дом, чтобы пуститься в полное опасностей приключение, где на (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67A911FE57133696463A31C810C456CAAED39A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845746   (1050906) от 03.01.2026
+
+Lovely Lady RPG (2025) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lovely Lady RPG начинается с пробуждения героини по имени Призрак под пробитым потолком, с космической сферой в груди и полным отсутствием воспоминаний. События разворачиваются в альтернативной версии Первой мировой войны, где ее будни посвящены попыткам выстроить жизнь заново с этой странной отправной точки. Повествование следует за ней во время странствий и взаимодействия (   Читать дальше...   )Тип издания: SceneРазработчик: DAS POPPY UND MIA KUNSTKOLLEKTIVЖанр: Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9122F261FAB1F002C3C2C79813B6B8E3C2F3397F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845282   (1050580) от 30.12.2025
+
+STAR OCEAN THE DIVINE FORCE (2022) [Ru/Multi] (01.01 Build 23063/dlc) Repack Let'sРlay [Digital Deluxe]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Ocean: The Divine Force - это JRPG с элементами экшена от разработчиков Tri-Ace и издателя Square Enix, шестая часть основной серии, вышедшая в 2022 году, которая предлагает динамичные трехмерные бои и исследование открытого мира с возможностью летать, а также затрагивает темы фэнтези и научной фантастики, сосредотачиваясь на приключениях двух героев, встретившихся (   Читать дальше...   )Тип издания: RepackРазработчик: Square Enix, tri-AceЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0519A0F3650773299F58A2EC198A617E48CB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844921   (1050529) от 29.12.2025
+
+Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050529.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Of Ash and Steel сложная, но удобная боевая система. Вы не станете легендарным охотником за головами или истребителем чудищ в самом начале игры. Нет, нужно освоить механику боя: научиться управлять выносливостью, рассчитывать время атак и парирований, подобрать стойку и тип оружия, которые Вам подходят. Это требует времени и практики, но чем больше Вы играете, (   Читать дальше...   )Тип издания: RepackРазработчик: Fire & FrostЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196EC2F222BF876EB87011E2A04F9812B11863F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845102   (1050515) от 29.12.2025
 
 SKALD: Against the Black Priory (2024) [Ru/En] (1.0.7e/dlc) Repack Let'sРlay
@@ -6,7 +110,7 @@ SKALD: Against the Black Priory (2024) [Ru/En] (1.0.7e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050515.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Ru/Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050365.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ ENDER LILIES: Quietus of the Knights (2021) [Ru/Multi] (1.1.6_13932) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050327.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050326.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980.0/dlc) Repack seleZen [Game of the Year Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050076.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (build 85239/dlc) Repack seleZ
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049664.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Realmz (1999) [En] (7.1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1049563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049563.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Chaos Galaxy II (2) (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049094.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179951/dlc) Repack HardwareMining [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1049060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049060.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Three Kingdom: The Journey (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048540.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Anima Gate of Memories: I&II Remaster (2025) [Multi] (20722096) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048490.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048387.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack HardwareMining 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048047.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.3.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047925.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047319.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047298.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (12101/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047218.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.96) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1047066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047066.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ UnReal World (1992) [En] (3.86.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046865.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046862.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046861.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Geneforge 3 (2005) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046856.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Geneforge 3 - это приключенческая ролевая инди-иг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839716   (1046834) от 30.11.2025
-
-Shin Megami Tensei III Nocturne HD Remaster (2021) [Multi] (20657000/dlc) Repack Necros
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый обычный день в Токио обернулся апокалипсисом, инициированным внеземными силами. Остатки мира погрузились в хаос, а в разрушенном городе свирепствует демоническая революция. Вы оказываетесь в гуще битвы между богами и демонами и можете решать вопросы жизни, перерождения и смерти, а также влиять на исход развернувшейся борьбы.Тип издания: RepackРазработчик: ATLUSЖанр: Японская ролевая играЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский, Французский и другиеЯзык интерфейса: Английский, Японский, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329852A6C1AE07A9182222FB6AA98E0787050DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839189   (1046817) от 30.11.2025
-
-Eschalon: Book (2007-2014) [Ru] (1.06/1.05/1.021/dlc) Repack Nelex [Трилогия]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eschalon: Book III - финальная часть трилогии, в которой игрок узнает конец истории. Сюжет классический - таинственные и недоброжелательные создания некой расы собирают Магические камни Кракс. Эти существа задумали неладное, поэтому герой просто обязан им помешать. Протагонист узнает свое прошлое, которое он забыл, и сможет раскрыть истинную личность Оракура. Как (   Читать дальше...   )Тип издания: RepackРазработчик: Basilisk GamesЖанр: Ролевые игрыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5A79C084DFA0CDA740C76571EF41A1FB8934FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839627   (1046705) от 02.12.2025
-
-Shana priestess of Tona (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay [Deluxe Edition] [18+]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shana - Priestess of Tona - это 18+ автобатлер-рогалик, где ты играешь за доминантную жрицу, которая побеждает врагов не только силой, но и своими сексуальными способностями. Сражайся с монстрами, соблазняй капитанов, провоцируй боссов и наслаждайся каждым сладким моментом победы. Таинственные чудовища из подземелий начали заполонять Линдерию.Тип издания: RepackРазработчик: Lustration TeamЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AD08556C3405D048106C123C18FEB4D213797B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839477   (1046674) от 29.11.2025
-
-Quartet (2025) [En] (1.2.20251019.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quartet погружает в мир, в котором вас ждут невероятные приключения и незабываемые битвы. Начните свой путь в мире полном загадок, скрытых правительственных интриг и мощной магии. В этой увлекательной и олдскульной RPG вы можете выбрать одну из четырех историй и пройти их в любом порядке, раскрывая тайны мира Quartet. Серия поездных ограблений, таинственная колода (   Читать дальше...   )Тип издания: LicenseРазработчик: Something Classic Games LLCЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EB41F83A1AFD2EF0F620338F8B1AF8095C5F26
 ```
 
 https://mybot314.ru/tekegram_catalog/

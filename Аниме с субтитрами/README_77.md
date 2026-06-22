@@ -1,3 +1,29 @@
+###  Публикация: 1236505   (414987) от 02.10.2018
+
+High Score Girl | Девчонка не промах [2018, TV, 12] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414987.jpg" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются в 1991 году, когда 2D-файтинги пользовались широкой популярностью среди молодежи. Главный герой – Харуо Ягучи, ученик шестого класса, чья жизнь сосредоточена только на видеоиграх. Он ничем не привлекательный парень, вовсе не обладающий чувством юмора, не имеющий друзей среди сверстников. Единственное, что получается у него лучше всего – убивать (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: комедияРежиссер: Ямакава ЁсикиПеревод: RisensTeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DE7167302ED0D0009E25A7D07450401356F989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167581   (414546) от 21.09.2017
 
 Kuroshitsuji: Book of the Atlantic | Black Butler: Book of the Atlantic | Тёмный дворецкий: Глава об Атлантике [2017, MV] BDrip 1080p 10bit raw
@@ -6,7 +32,7 @@ Kuroshitsuji: Book of the Atlantic | Black Butler: Book of the Atlantic | Тём
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414546.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Hero Mask | Маска героя [2018, Web, 15] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414326.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Hero Mask (2019) | Маска героя (2019) [2019, Web, 9] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414324.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Interlude / Интерлюдия [2004, OVA, 3 ep] DVDrip 576p raw Hi10P
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414113.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413778.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Kikou Soseiki Mospeada | Genesis Climber Mospeada | Моспида - оружи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413605.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ The God of High School | Царь горы [2020, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413152.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Soba e | Рядом с тобой [2019, Web] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412717.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Madoromi no Vevara | Vevara in Your Dream | Вевара из мира дрём�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412591.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Joshi Kausei | Joshikausei | Беспечные старшеклассницы [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412560.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ Keppeki Danshi! Aoyama-kun | Cleanliness Boy! Aoyama-kun | Чистюля! Ао�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_412126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412126.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411975.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Burn the Witch | Сжечь ведьму [2020, Movie] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411334.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Idolmaster: Cinderella Girls Second Series  / Идолмастер: Золушк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410803.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] WEB-DL 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410647.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_410640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410640.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Planet With | Планета Уит [2018, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408955.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Hulaing Babies | Flying Babies | Летающие крошки [2019, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408697.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Circlet Princess | Диадема принцессы [2019, TV, 12 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408694.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ Tsurezure Children | Tsuredure Children | Малолетние бездельн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408336.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | К звер
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408316.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ Bartender | Бармен [2006, TV, 11 из 11] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408212.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408190.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Koi to Producer: Evol x Love | Mr Love: Queen's Choice | Продюсер и л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407886.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ Shokugeki no Souma: Gou no Sara | Food Wars! The Fifth Plate | Кулинарн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407848.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ Shokugeki no Souma: Gou no Sara | Food Wars! The Fifth Plate | Кулинарн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB4BC1258074CC1E1DACA742D897EFE15C36F12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396690   (407839) от 04.10.2020
-
-Gibiate | Джибиэйт [2020, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407839.jpg" />
-</div>
-
-
-###  Подробнее
-
-2030 год. Люди в Японии обращаются в чудовище, чей облик зависит от пола, возраста и расы. Таинственную болезнь прозвали «Джибия», потому что видов монстров так же много, как и диких животных. В опустошённую болезнью Японию переносятся самурай и ниндзя из ранних годов эпохи Эдо. Вместе с врачом они отправляются на поиски лекарства от вируса. Впереди их подстерегают (   Читать дальше...   )Производство: Япония, Lunch BoxЖанр: приключения, фэнтези, ужасы, самурайский боевик, боевые искусстваРежиссер: Комино МасахикоПеревод: struggle & Asedael (Sovetromantica)Язык озвучки: ЯпонскийПродолжительность: 12 эпизодов по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1425B8F795872D30002A5EC6E8275D50344C688
 ```
 
 https://mybot314.ru/tekegram_catalog/

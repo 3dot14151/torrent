@@ -1,3 +1,109 @@
+###  Публикация: 1065837   (416007) от 24.10.2016
+
+Виктор Калашников | Серия «Русь Легендарная» [4 книги] (2006-2011) [PDF, DjVu]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416007.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной Серии находятся только 4 книги из 5-ти.
+Серия с большим количеством цветных иллюстраций, рассказывающих о тайнах и загадках русской истории. Прочитав эти книги, вы узнаете о захватывающих событиях из славной истории русского народа.Жанр: Познавательная историческая литератураФормат: PDF, DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA773027508E57C5E8FB8031FEBB7B41FF046812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947778   (415842) от 18.10.2015
+
+Анатолий Карпов | Сестра моя Каисса (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга многократного чемпиона мира по шахматам - книга воспоминаний. Острые не только шахматные, но и житейские ситуации, столкновения характеров, портреты великих шахматистов написаны поистине с мастерством писателя. О замечательных спортсменах, об их человеческих достоинствах и недостатках, пристрастиях и чудачествах узнают читатели этой книги.
+Эта книга вышла в (   Читать дальше...   )Жанр: Шахматы , воспоминания.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758A33667C646CC958F51D66565019090EB9449B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167673   (415184) от 21.09.2017
+
+М. Рубинштейн | Экономическое соревнование двух систем (1939) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно, насколько похожи Российская Империя и нынешняя Российская Федерация. Проблемы одни и те же: "насквозь прогнившее царское самодержавие, прочно укоренившиеся остатки крепостничества, крайняя отсталость сельского хозяйства, политическое бесправие народных масс, полнейшая зависимость русского капитализма от западноевропейского капитала" - все то (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB08949839D3A28E170A32FBACE0DD93F47D71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065963   (414758) от 25.10.2016
+
+С. О. Загорский | В интересах ли рабочего класса захват фабрик и заводов (1917) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того, чтобы вся производимая рабочими масса продуктов доставалась всему обществу, нужно, чтобы все орудия производства в промышленности принадлежали не отдельным лицам или группам лиц, а всему обществу в лице высшей его организации — государства. Это возможно только в том случае, если частная собственность на орудия производства будет отменена, если эти орудия (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE739C65FB10E5016246E53D0D88E0B8D8C45E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066116   (414307) от 25.10.2016
 
 В. П. Полонский | Русский революционный плакат (1925) [PDF]
@@ -6,7 +112,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_414307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414307.jpg" />
 </div>
 
 
@@ -35,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413850.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413504.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413501.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_413176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413176.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411487.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411384.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_411176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411176.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_409651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409651.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408894.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408891.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408844.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408379.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408236.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408205.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408139.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408052.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408049.jpg" />
 </div>
 
 
@@ -486,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_408042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408042.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407940.jpg" />
 </div>
 
 
@@ -538,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_407151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407151.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_406328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406328.jpg" />
 </div>
 
 
@@ -577,110 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC906C5594EE0E35650F7E660D5B29C0F3F5C35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168744   (405053) от 25.09.2017
-
-В. И. Ленин | Задачи союзов молодежи (1986) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_405053.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании опубликована речь, произнесенная В. И. Лениным на III Всероссийской съезде Коммунистического союза молодежи 2 октября 1920 года. Ленин говорил об основных задачах Союза и об организации молодежи в социалистической республике вообще, акцентируя ведущую роль молодого поколения в создании коммунистического общества.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FAD07583555496EBEDBE2272FC7B38485219C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168748   (404999) от 25.09.2017
-
-По поводу так называемого «народного капитализма» (1958) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404999.jpg" />
-</div>
-
-
-###  Подробнее
-
-На расширенном заседании редакционной коллегии журнала «Международная жизнь» 18 и 19 апреля 1957 года состоялось обсуждение вопросов, связанных с теорией так называемого «народного капитализма», получившей ныне широкое распространение в США и некоторых других странах Запада. В обсуждении приняли участие ученые, журналисты и лекторы по международным вопросам.Жанр: История, политология, экономика, журналистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0933640413046E7ED01295FEC69E88FBFADC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563257   (404751) от 21.10.2012
-
-Книжная серия | «Реликвии и сокровища мира» [2010-2011] [FB2, djvu]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название серии «Реликвии и сокровища мира» говорит само за себя. Даже искушенный читатель найдет для себя много интересного в книгах этой серии. Сокровища потерянных цивилизаций и хранилища древних реликвий; реликвии правителей мира и религиозные святыни мира; исчезнувшие сокровища Романовых и клады России, а также: Свитки Мертвого моря и Александрийский кодекс, Библия Гуттенберга и "Апостол" Ивана Федорова… Авторы книг, большей частью профессиональные исследователи, пишут историю — историю реликвий и сокровищ, и людей, которые их создавали, или обладали ими.Формат: FB2, djvu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C889AE4AC26D3C791347B3D9140DF54299A7D422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563050   (404692) от 21.10.2012
-
-Григорий Кваша | Теория войн [2011] [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_404692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга Григория Кваши "Теория войн" беспрецедентна и не имеет аналогов. Жалкие попытки создания теоретической истории другими авторами - это, как правило, пустые рассуждения о том, что все катится в тартарары. Главное достоинство книги - это превращение истории в такую же точную науку, как физика или механика.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77EDA1183E09895236727C6F476C8A78561A1298
 ```
 
 https://mybot314.ru/tekegram_catalog/

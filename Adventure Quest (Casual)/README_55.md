@@ -1,3 +1,159 @@
+###  Публикация: 1652225   (206654) от 10.08.2023
+
+Connection of Worlds 2: Star Riddle (2023) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агентство "Следопыт миров" снова в деле! Следуйте за всемирно известными детективами, присоединяйтесь к расследованию серии краж звезд из разных уголков Вселенной! Выследите таинственного короля Джотара. Допросите коварного злодея, чтобы выяснить, кто и зачем его нанял, а затем отправляйтесь в приключение по множеству миров в поисках истинного организатора! (   Читать дальше...   )Тип издания: UnofficialРазработчик: Relax GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3DE47700CDEAB3E1A1287699042C02168C1C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653947   (206030) от 18.08.2023
+
+Royal Romances 4: Endless Winter / Королевские романы 4: Вечная зима (2023) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр Royal Romances. На королевство опустилась вечная зима, а холод и голод вынудили людей покинуть свои дома в поисках убежища. Как долго это может продолжаться, пока в лесу никого не останется? В эти беспокойные дни, когда хранительнице леса становится особенно сложно следить за благополучием земель, находящихся под ее опекой, эльфийка (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653684   (206014) от 17.08.2023
+
+It Happened Here 2: Beacon of Truth / Это случилось здесь 2: Свет правды (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективной серии игр It Happened Here. Лауреат премии в области правдивых преступлений Эмили Смит собирается ввязаться в дело века! К ней обращается ее близкая подруга Кэтрин с просьбой расследовать смерть ее мужа десятилетней давности. Эмили берется за дело и вскоре погружается в историю маленького городка и загадочного маяка, о котором ходят недобрые (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7266720CE967C8E2E11256F349CBDF5EE2CDF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830774   (205708) от 27.10.2025
+
+Halloween Stories 9: The Death Card / Хеллоуинские истории 9: Карта смерти (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии страшилок Halloween Stories. Кристина с мужем Марком и друзьями приезжают в родной город, чтобы возродить любимую традицию из детства - провести ночь на Хэллоуин в «доме ведьмы», который, по словам местных жителей, когда-то принадлежал настоящей ведьме. Но этот Хэллоуин будет совсем не таким, как обычно, ведь на их вечеринке появится (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7F9F339CF7063825404B12F93622D2899F42E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656569   (203249) от 31.08.2023
+
+City Legends 3: Ghost of Misty Hill / Городские легенды 3: Призрак Мисти Хилл (2023) [Ru/Multi] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мистической серии игр City Legends. В жизни вашего старого друга, писателя Майкла Ринга, наступил трудный период. Перед смертью его мать попросила сына обратиться в лечебный центр Мисти-Хилл, чтобы взять перерыв. Однако вскоре вы получаете загадочное сообщение от Майкла, в котором он умоляет вас о помощи. Неужели жуткие слухи о лечебном центре всё-таки (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8921EDCC2DCAA6C66E3609537F0F72301BDAD080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293865   (202315) от 21.08.2023
+
+Sherlock Holmes and The Hound of the Baskervilles / Шерлок Холмс и собака Баскервилей (2010) [Ru] (1.0) Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте героем нового увлекательного приключения, основанного на знаменитом произведении Артура Конан Дойля. На этот раз легендарных сыщиков посетил сэр Генри Баскервиль и рассказал загадочную историю о том, что по территории графства Девоншир вот уже много лет бродит огромная собака и не дает покоя обитателям Баскервиль-холла. Генри рассказал, что его предки, начиная (   Читать дальше...   )Тип издания: UnofficialРазработчик: Frogwares Game Development StudioЖанр: Quest, Adventure, Hidden ObjectЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D3B8DEB7B3A7C57E01199481B35038EC02E1D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629262   (199214) от 26.04.2023
 
 Rendezvous (2023) [En] (1.1.0.2) Scene Tenoke
@@ -6,7 +162,7 @@ Rendezvous (2023) [En] (1.1.0.2) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_199214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199214.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Magic City Detective 3: Rage Under Moon / Волшебный город 3: Яр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198280.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Twin Mind 4: Nobody's Here / Двуединое Сознание 4: Здесь �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_198233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198233.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Secrets of Worlds 2: Mystery Agency / Тайны миров 2: Детектив�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_198018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198018.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Mystery Case Files 25: The Dalimar Legacy / За семью печатями 25:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196760.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Crossroads 3: What Was Lost (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196703.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Dark City 8: Kyiv / Мрачный город 8: Киев (2023) [Ru] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194349.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Sugar Sweet Temptation (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194246.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Lost Lands 8: Sand Captivity / Затерянные земли 8: Песчаны
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193823.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Lady Mabel Mysteries: Death on Board (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193470.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Criminal Archives 2: Alphabetic Murders / Криминальные архивы 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192948.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Myth or Reality 2: Mystery of the Lake (2023) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_192636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192636.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Dark City 7: International Intrigue / Мрачный город 7: Междун�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191968.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Royal Romances: Battle of the Woods (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_191586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191586.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Unsolved Case 4: Above the Law (2023) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190474.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Reflections of Life 11: Spindle of Fate (2022) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189692.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ New York Mysteries 5: Power of Art / Загадки Нью-Йорка 5: Сил�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189638.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Immortal Love 9: True Treasure / Бессмертная любовь 9: Наст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189294.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Unsolved Case: Fatal Clue (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187747.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187731.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Reflections of Life 11: Spindle of Fate / Отражения жизни 11: Ве
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C534F0CBA9A120ADDA2BDE5185D60BE92A719C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591108   (187475) от 17.11.2022
-
-Twin Mind 4: Nobody's Here (2022) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_187475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение детективных расследований детективов-близнецов. Детективы-близнецы Рэндалл и Элеонора Джонс снова в деле! Всемирно известный ученый найден мертвым в своей лаборатории, что власти называют случайной смертью. Ребекка, сотрудница лаборатории и подруга близнецов, не уверена в этом. Она подозревает, что ее коллега был убит, и беспокоится, что следующей может (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64B567FF2EB2A9B252361677899E7A54728E3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663503   (186545) от 22.09.2023
-
-Myth or Reality 2: Mystery of the Lake / Мифы или реальность 2: Тайна озера (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в отель "Лох-Несс"! Для нас большая честь принимать у себя автора таких популярных статей о загадочных происшествиях. Мы рады, что вы приняли наше приглашение расследовать тайну Лох-Несского чудовища. Однако будьте осторожны, так как в последнее время он нападает на туристов! Пожалуйста, обратите внимание, что отель не несет ответственности (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819F2681D9993D30CDA4C25171FFC8948CDAD4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663573   (186537) от 22.09.2023
-
-Knight Cats: Leaves on the Road / Коты-рыцари: Листья на дороге (2023) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую увлекательную игру. Каждый котёнок знает, что нельзя ходить в Тёмный лес: оттуда всё ещё не изгнаны куницы - извечные противников котов. Когда гвардеец Кошкополиса Шаван отправляется на поиски племянницы губернатора, он обнаруживает кровавые следы заговора. Кот не знает, кому может доверить информацию, пока не вычислит, кто перешел на сторону врага. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A570AC83117C33A530E2DD99D68A2427984F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663834   (186390) от 23.09.2023
-
-Knight Cats 2: Waves on the Water (2023) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_186390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной серии игр Knight Cats. На Кэтстаун совершено нападение! Пираты собираются разграбить город, но охотятся они не только за товарами. Пропал агент под прикрытием, который занимался расследованием контрабанды. Только такой храбрый рыцарь, как вы, может его отыскать. Однако все не так, как кажется поначалу, когда речь заходит о семи морях. Вам (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E248E1CB8FD3422BBFAD07AC1AA3248F354D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426602   (186041) от 25.11.2020
-
-Mystery Case Files 22: Crossfade (2020) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_186041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективу предстоит вернуться к своим прежним расследованиям, чтобы восстановить шкалу времени и спасти мир. Он должен снова встретиться лицом к лицу со злодеями и получить помощь от старых друзей. Какое будущее настанет после того, как все будет сказано и сделано? Есть только один способ это выяснить!Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA481C3B79FFDFB70675658EE2D46513701CA748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426588   (185899) от 25.11.2020
-
-Pride and Prejudice. Blood Ties / Гордость и предубеждение. Кровные узы (2020) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_185899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элизабет Беннет получает пугающее письмо от своей младшей сестры Лидии. Утверждая, что она страшно больна, а врачи лишь разводят руками, та прощается со своими близкими. Дав строгий наказ не ехать за ним, Фицуильям Дарси, возлюбленный Элизабет, отправляется в имение Розингс-Парк, намереваясь выяснить, что же произошло с девушкой. Но вскоре и от него перестают поступать (   Читать дальше...   )Тип издания: UnofficialРазработчик: TellTale GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C030D3F8D394C291303A8030BCB840770DB206
 ```
 
 https://mybot314.ru/tekegram_catalog/

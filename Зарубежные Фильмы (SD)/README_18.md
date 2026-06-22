@@ -1,3 +1,133 @@
+###  Публикация: 1611104   (1041614) от 10.02.2023
+
+Бей в кость / Play It to the Bone (1999) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винс и Цезарь - профессиональные боксёры, подававшие в прошлом большие надежды и однажды упустившие свой шанс. У обоих за плечами немало выигранных поединков, а сейчас, ведя обыкновенную, размеренную жизнь, они еле сводят концы с концами и не ждут перемен. Однако в глубине души обоих ещё живёт надежда на прорыв, подогреваемая юношеской мечтой о большом спорте. И (   Читать дальше...   )Производство: США, Play It Inc., Shanghai'd Films, Touchstone PicturesЖанр: драма, комедия, спортРежиссер: Рон ШелтонАктеры: Антонио Бандерас, Вуди Харрельсон, Лолита Давидович, Том Сайзмор, Люси Лью, Роберт Вагнер, Ричард Мейсер, Уилли Гарсон, Силк КозартПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB41A36F3E3C6443E1B42BBDFAAF459A719D549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611145   (1041559) от 10.02.2023
+
+Слепой мужчина, который не хотел смотреть «Титаник» / Sokea mies joka ei halunnut nahda Titanicia (2021) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яакко и Сирпа никогда не встречались, но каждый день разговаривают по телефону. Узнав об ухудшающемся здоровье девушки, Яакко решает поехать к ней в другой город.Производство: Финляндия /  It's Alive Films, Wacky Tie FilmsЖанр: триллер, драма, мелодрама, комедияРежиссер: Теэму НиккиАктеры: Петри Пойколайнен, Марьяна Майяла, Самули Яскио, Ханнамайя Никандер, Lassi Poikolainen, Kimmo Vehviläinen, Suvi Hartlin, Минтту Мустакалио, Туомас Ууситало, Нийна ВиртаненПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BFF90E4D7CFE8FB4CDB3DFC9B0A8B01E2AC55C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437843   (1041547) от 06.01.2021
+
+Глубокое погружение (Ломая поверхность) / Breaking Surface (2020) BDRip [H.265] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Накануне Рождества две сестры Ида и Тува отправляются на зимний дайвинг. Но то, что должно было стать традиционным семейным развлечением превращается в отчаянную борьбу за выживание, когда одна из девушек оказывается в ловушке на глубине тридцати метров на дне океана. Кислород на исходе, связь потеряна, до ближайшего жилья километры заснеженной пустыни… Спасти друг (   Читать дальше...   )Производство: Швеция, Норвегия, Бельгия / Way Feature Films, Umedia, Film i SkåneЖанр: Триллер, драмаРежиссер: Йоахим ХеденАктеры: Муа Гаммель, Мадлен Мартин, Трине Вигген, Джитсе Джонатан Буитник, Реми Алашкар, Алессио Баррето, Има Дженни Холлберг, Лена Хоуп, Томас Хой, Эль КорсПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 01:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414771AD1FBDBC3520E6407B37E679DB274C1259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611002   (1041526) от 10.02.2023
+
+Волк-викинг / Vikingulven / Viking wolf (2022) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041526.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-летняя Тале Берг, недавно переехала со своей семьей в небольшой городок Нюбо после того, как ее мать устроилась на работу в местную полицию. На пляжной вечеринке с местной молодежью зверски убит студент, а Тале становится ключевым свидетелем по делу. Кто или что стоит за убийством? Есть много признаков того, что это могло быть нападение животного. В ходе расследования (   Читать дальше...   )Производство: Норвегия / Filmkameratene A/S, REinvent StudiosЖанр: ужасы, триллерРежиссер: Стиг СвендсенАктеры: Лив Мяёнес, Элли Рианнон Мюллер Осборн, Артур Хакалахти, Сьюр Ватне Бреан, Видар Магнуссен, Каспер Антонсен, Мариус Лиен, Øyvind Brandtzæg, Ívar Örn Sverrisson, Jon StensbyПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, английский, норвежскийСубтитры: русские, английские (forced, full, SDH), украинскиеПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1245A8320247A4E0658B6B00F9E450E0EBDFED82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611072   (1041522) от 10.02.2023
+
+Астрал: Потомство / Leave (2022) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая американка едет в Европу на поиски своих биологических родителей. В младенчестве ее бросили на кладбище, завернув в ткань с сатанинскими символами. По мере того, как она приближается к ответам, кто и откуда ее родители, некий дух все настойчивее предупреждает ее уехать.Производство: Норвегия / AudioCue Tonlabor, Duper Post Punks, Duper StudioЖанр: ужасы, триллерРежиссер: Алекс ХерронАктеры: Алисия фон Риттберг, Герман Томмераас, Стиг Р. Амдам, Эллен Доррит Петерсен, Мортен Хольст, Грю М. Даль, Кристин Донлон, Alicia M. Eidesund, Питер Форде, Рагнхильд ГудбрандсенПеревод: Дублированный (Велес)Язык озвучки: РусскийСубтитры: Русские, Датские, Финские, Норвежские, ШведскиеПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AE1F1948F98AE8E98745B7275FDD0731CF99BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610764   (1041518) от 10.02.2023
 
 Сила мечты / True Spirit (2023) WEB-DLRip [H.264] [DVO]
@@ -6,7 +136,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041518.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041517.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041363.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041316.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041273.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041247.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041055.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041053.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041025.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040983.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040849.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040781.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040724.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040717.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040696.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040681.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040670.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040664.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040544.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040531.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040528.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD0ACED4186ABC863F5BD173EB120996BCA430EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612022   (1040437) от 14.02.2023
-
-Чтение / The Reading (2023) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмма Лиден, потерявшая семью после инцидента с вторжением в ее дом сверхъестественной силы, пишет книгу, в которой делится своим тяжелым опытом. Чтобы привлечь внимание прессы, Эмма соглашается, чтобы в ее новом доме, защищенном от нечистой силы, состоялись постановочные чтения. Когда 19-летняя Скай Браун приступает к чтению, в доме появляется новое потустороннее (   Читать дальше...   )Производство: США / AWW Entertainment, Courtney GlaudeЖанр: триллерРежиссер: Courtney GlaudeАктеры: Моник, Шарнель Браун, Сара Элави, Courtney Glaude, Lisa Alavi, Chasity Sereal, Cooper Helm, Denisha Hardeman, Ian Haywood, Mcauley TetersПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60773B35CCF7F635A30F4AFF0FAC9B93D082D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438965   (1040412) от 10.01.2021
-
-Крестная мама (Наркомама) / La Daronne / Mama Weed (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливая переводчица работает в полиции, помогая раскрывать преступления. Однажды ей становится известно о крупной партии наркотиков. Соблазн изменить жизнь слишком велик. И вот она превращается в НаркоМаму, которая строит свою империю. Теперь вся полиция охотится за ней.Производство: Франция / Les Films du Lendemain, La Boétie Films, Le PacteЖанр: Драма, комедия, криминалРежиссер: Жан-Поль СаломеАктеры: Изабель Юппер, Ипполит Жирардо, Фарида Ушани, Лилиан Ровер, Ирис Бри, Надя Нгуйен, Ребекка Мардер, Рашид Гуэллаз, Мурад Будауд, Юссеф СарауиПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02939428DC4114E9096BA171936C2A63F3D3B74F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438864   (1040411) от 10.01.2021
-
-Ночной конвой / Police (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парижские полицейские Виржини, Эрик и Аристид вынуждены принять необычное задание — вернуть мигранта на границу. По дороге в аэропорт Виржини понимает, что по возвращении на родину их подопечному грозит смерть. Столкнувшись с этим испытанием совести, она пытается убедить коллег позволить ему сбежать.Производство: Франция, Бельгия, Китай / F Comme Film, Ciné@, StudioCanalЖанр: Драма, криминалРежиссер: Анн ФонтенАктеры: Омар Си, Виржини Эфира, Грегори Гадебуа, Пейман Моаади, Элиза Ласовски, Эмманюэль Барруйе, Анн-Паскаль Клермбур, Анна-Гаэль Журден, Сесиль Реббоа, Седрик ВиейраПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90663A5C9648B07FC6548274A03F34BEF7DB7135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612483   (1040309) от 15.02.2023
-
-Кое-что о Генри / Regarding Henry (1991) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генри Тернер - преуспевающий, но бессердечный нью-йоркский адвокат, готовый добиваться успеха любой ценой, даже за счёт своих жены и дочери. Но однажды случается несчастье, которое обрывает стремительную карьеру Генри. Он оказывается недееспособным и, к тому же, полностью теряет все воспоминания о своей прошлой жизни. Необходимо начинать всё заново. И Генри постепенно (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: драма, мелодрамаРежиссер: Майк НиколсАктеры: Харрисон Форд, Аннетт Бенинг, Билл Нанн, Ребекка Миллер, Брюс Олтмен, Камиан Аллен, Элизабет Уилсон, Дональд Моффет, Джеймс Ребхорн, Робин БартлеттПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC4200E82D14CC5BC8E4D642826BCCD5FB3CA0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429369   (1040292) от 11.01.2021
-
-Цена молока / The Price of Milk (2000) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люсинда, Роб и их 117 коров ведут заколдованное существование в волшебной стране. Боясь потерять страсть в отношениях, Люсинда принимает совет подруги и пытается заставить Роба сердиться. Но она заходит слишком далеко. Любуясь на обручальное кольцо, Люсинда сбивает на дороге пожилую женщину. Обычный несчастный случай становится первым звеном в цепи таинственных событий, (   Читать дальше...   )Производство: Новая Зеландия / John Swimmer Productions, New Zealand FilmЖанр: фэнтези, драма, мелодрама, комедия, магический реализмРежиссер: Гарри СинклерАктеры: Даниэль Кормак, Карл Урбан, Уилла О’Нилл, Майкл Лоуренс, Ранги Моту, Лоуренс Макор, Кристофер Грэхэм, Рэй Бишоп, Той Ити, Бобби ТауПеревод: Многоголосый профессиональныйЯзык озвучки: русскийСубтитры: Русские отдельным файломПродолжительность: 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C96AAC0249D0E39243CCEBDC5A855E40EB4619
 ```
 
 https://mybot314.ru/tekegram_catalog/

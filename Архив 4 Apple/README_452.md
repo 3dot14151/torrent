@@ -1,3 +1,58 @@
+###  Публикация: 1333156   (305620) от 24.10.2019
+
+A Better Finder Rename 11 v11.02 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305620.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2019Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D90A6689F826D803E8920F154AC446E56A36AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333223   (305619) от 24.10.2019
+
+Downie 3 v3.8.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 18.10.2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23DEE45173CA402141877A1B1ACA67B71961B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333141   (305617) от 24.10.2019
 
 MWeb: Markdown writing, note taking, static blog generator 3.3.2 [Multi]
@@ -6,7 +61,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305617.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Viper FTP 5.4 (build 54051) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305615.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ Tooth Fairy 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305542.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ AppLocker Pro (Password lock apps) 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305541.jpg" />
 </div>
 
 
@@ -118,7 +173,7 @@ DVD-Cloner 2019 6.30.713 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305528.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ Swinsian 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305527.jpg" />
 </div>
 
 
@@ -173,7 +228,7 @@ Antivirus Zap Pro 3.8.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305524.jpg" />
 </div>
 
 
@@ -199,7 +254,7 @@ Movist Pro 2.2.10 (131) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305522.jpg" />
 </div>
 
 
@@ -227,7 +282,7 @@ WinX HD Video Converter for Mac 6.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305519.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ JixiPix Rip Studio Pro 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305515.jpg" />
 </div>
 
 
@@ -279,7 +334,7 @@ Adguard 2.1.6 (630) nightly (CL - 1.5.94) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305509.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ DxO PhotoLab 3 ELITE Edition 3.0.0 (build 21) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305408.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ Stacks (RapidWeaver plugin) 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305407.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ Audio Hijack 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305398.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ Tayasui Sketches Pro 4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305396.jpg" />
 </div>
 
 
@@ -413,7 +468,7 @@ Pixelmator 3.8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305271.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ Wondershare PDFelement Pro 7.5.1.2758 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305264.jpg" />
 </div>
 
 
@@ -465,7 +520,7 @@ Mate Translate 6.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305262.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ SwitchResX 4.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305260.jpg" />
 </div>
 
 
@@ -522,7 +577,7 @@ InstaBro | Instagram Browser 5.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305255.jpg" />
 </div>
 
 
@@ -550,7 +605,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305133.jpg" />
 </div>
 
 
@@ -576,7 +631,7 @@ Corel AfterShot Pro 3.6.0.380 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305129.jpg" />
 </div>
 
 
@@ -605,7 +660,7 @@ Magnet Pro 2.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305121.jpg" />
 </div>
 
 
@@ -631,7 +686,7 @@ DaisyDisk 4.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305111.jpg" />
 </div>
 
 
@@ -643,63 +698,6 @@ DaisyDisk 4.3.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0589C45C62CBE2D046681CAC19F4952F60F7CE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078015   (305101) от 29.11.2016
-
-Forecast Bar 2.8.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
-
-Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
-- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Real Casual Games, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-* показания прогноза погоды можно сделать на русском (в настройках программы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519CE8BE543442B3F0D6CBB3D2D8CCA4F0E1EBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261341   (305051) от 10.11.2018
-
-iMazing 2.8.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_305051.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMazing: отличная альтернатива iTunes
-Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAE31C72BF82B1A2292C993B66117CE309D5212
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 720213   (623539) от 19.06.2015
+
+NG. Бушующие миры. Космический ветер / Storm Worlds. Alien wind (2010) HDTVRip [H.264/720p] (серия 1 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623539.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некоторых частях нашего мира погода бросается в крайности. Там бушуют дикие грозы и тайфуны, причиняющие огромные убытки и уносящие жизни около 12 тыс. человек каждый год. Но в нашей вселенной, существуют миры, где погода бушует в гораздо больших масштабах. Космические бури. Может быть они и кажутся знакомыми, но размеры и сила их не сравнятся ни с чем. И погодные (   Читать дальше...   )Производство: Великобритания, Yap Films, Canwest, National Geographic ChannelЖанр: Документальный, научно-популярный, космосПеревод: Одноголосый профессиональный, студия компании АРК-ТВ)Продолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:854136D0A297EA466FEBBC1E9FD9CD026197DD6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295118   (622348) от 11.04.2019
+
+Мир дикой природы / World of the Wild (2016) HDTV [H.264/1080i/1080p] (серии 1-13 из 13)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы внимательно изучим важнейшую для планеты хрупкую взаимосвязь между животным миром и окружающей средой.Производство: Австралия, WildBear Entertainment & KM Records a.s., Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Макс Серио, Беттина ДалтонПеревод: Одноголосый закадровый, профессиональный (Велес, Ксения Бржезовская)Субтитры: отсутствуют
+
+Серии 1-10Продолжительность: серии x ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C30ED752C5774243AC1D76B5EDAE09D762A189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910597   (621561) от 20.06.2015
+
+NG. Осушить Бермудский треугольник / Drain the Bermuda Triangle (2015) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эхолокационные съемки позволят нам заглянуть в глубины легендарного Бермудского треугольника и узнать, что же скрыто на его дне.Телекомпания: NGC HDЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF57EF5B443754FAB3D68A42CE4869753D29E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036011   (621008) от 20.07.2016
 
 NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
@@ -6,7 +86,7 @@ NG: Штормовой год / Year Of The Storm (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_621008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621008.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ NG: Когда сталкиваются континенты / When Continents C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620928.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ NG. Погружение в лабиринт / Diving The Labyrinth (Blue Holes)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_620738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620738.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ NG: В пещере кристаллов / Into the Crystal Cave (2010) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619502.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ NG.Запреты: Экстремальное лечение / NG.Taboo: Freaky 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_619126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619126.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ NGW: Первобытный бойцовский клуб / The Original Fight C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618968.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ NGW: Там, где встречаются океаны / Where Oceans Collide (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618964.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_618345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618345.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_617815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617815.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_616957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616957.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616842.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ NG: Осушить океан: глубокое погружение. Сабот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616834.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ NGW: Акула против тунца / Shark vs Tuna (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616830.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_616778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616778.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ NG: С точки зрения науки: Магнитное поле Земл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_615934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615934.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ NGW: Самые опасные животные Африки: Ботсвана /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614928.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_614916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614916.jpg" />
 </div>
 
 
@@ -448,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613841.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_613064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613064.jpg" />
 </div>
 
 
@@ -500,7 +580,7 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_612432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612432.jpg" />
 </div>
 
 
@@ -526,7 +606,7 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610436.jpg" />
 </div>
 
 
@@ -552,7 +632,7 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_610433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610433.jpg" />
 </div>
 
 
@@ -578,7 +658,7 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_610028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610028.jpg" />
 </div>
 
 
@@ -589,84 +669,6 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294637   (609930) от 18.04.2019
-
-NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_609930.jpg" />
-</div>
-
-
-###  Подробнее
-
-В период после 6 июня союзники начали проникать в Европу через пляжи Нормандии. Нацисты тщательно охраняли свои морские военные базы в оккупированной Европе. Это истории отчаянных боев, которые велись за освобождение Европы от нацистского ярма.Производство: Канада, Parallax Film Productions, National GeographicЖанр: Документальный, война, история, исследованияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAE5E22933D9B365AD9FDEA652EAC26EAE7B35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296920   (608274) от 19.04.2019
-
-NG: Египет с высоты птичьего полета / Egypt from Above (2019) HDTVRip (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_608274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Египет - древняя страна, знаменитая своими пирамидами, храмами и гробницами. В свое время, на месте современного Египта располагалась одна из самых мощных и передовых империй в мире. Сериал расскажет вам во время восхитительного воздушного путешествия по этой стране историю развития современного динамичного Египта из его столь драматичного прошлого.Производство: Великобритания, Windfall Films LTD, National GeographicЖанр: Документальный, путешествия, историяРежиссер: Мэтт КеррингтонПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 2 x ~00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B4D000444CDD9D68F92112D47EBB26F158013C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805401   (607640) от 16.07.2014
-
-Космос: Пространство и время / Cosmos: A SpaceTime Odyssey (2014) BDRemux [H.264/1080p] (сезон 1, серии 1-13 из 13)
-
->>След.
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_607640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал рассказывает о последних научных открытиях, которые были сделаны в области астронавтики, астрофизики и других наук. Сериал «Космос: Путешествие во времени» является продолжением научно-популярной серии фильмов «Космос: Персональное путешествие с Карлом Саганом» и отражает события последних трех десятилетий. Астрофизик Нил Деграсс Тайсон с соавторами (   Читать дальше...   )Производство: США / Cosmos Studios, Fuzzy Door Productions, National Geographic Channel, Six Point Harness, Syon MediaЖанр: Документальный, наука, космосРежиссер: Брэннон Брага, Энн Драйэн, Билл ПоупПеревод: Профессиональный одноголосый (студия Арк-ТВ)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12620574694346A72DA66B2A801AEEDDD27845F
 ```
 
 https://mybot314.ru/tekegram_catalog/

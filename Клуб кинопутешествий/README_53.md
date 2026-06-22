@@ -1,3 +1,29 @@
+###  Публикация: 1424554   (227594) от 17.11.2020
+
+Крымские дачи (2015-2016) DVBRip (21 эпизод)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дачи бывают разные - скромные садовые домики на шести сотках, или настоящие дворцы и произведения искусства, у самого синего моря.... Дорогостоящие, как Воронцовский дворец, узнаваемые, как Ласточкино гнездо, исключительные, как Ливадийский дворец - в былые годы все это крымские дачи для великих и знаменитых, теперь же для нас - настоящие дворцы и дома-музеи, чудом (   Читать дальше...   )Производство: Россия, Телеканал: УсадьбаЖанр: Документальный, архитектура, история, туризмРежиссер: Юлия РябининаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: серии x ~00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A364F80B00E010E598980F299C35A4440C6C743F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513436   (225401) от 28.11.2021
 
 Обитаемый остров. Лисьи острова / The Island Diaries. Fox Islands (2021) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_225401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225401.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_223798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223798.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_222070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222070.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221248.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_221041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221041.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220971.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220847.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220772.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_220438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220438.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218856.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218502.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_218390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218390.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_218306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218306.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_215597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215597.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_214340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214340.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Discovery. Долгий путь вокруг Земли / Long Way Round (2004)
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213891.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213618.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_213613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213613.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ RTG. Прогулка по Петропавловску-Камчатскому (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_212082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212082.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211991.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_211889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211889.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211843.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ RTG. Путешествие по Валдайскому краю (2014) HDTV [H.
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211829.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211795.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_211166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211166.jpg" />
 </div>
 
 
@@ -642,33 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D205170F92A8A46BC506B1BC2A861026C005D80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641995   (210534) от 25.06.2023
-
-Жизнь других с Жанной Бадоевой. Эквадор  (25.06.2023)  SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_210534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эквадор — государство на северо-западе Южной Америки, расположенное по обе стороны экватора между Тихим океаном, Андами и джунглями Амазонии. В этой стране есть все: бананы и манго на любой цвет и вкус, самый разнообразный шоколад и 25 сортов шпината. А в ресторанах здесь подают свежайших червей!
-Жанна Бадоева прогулялась по столице Эквадора — городу Кито — и узнала, (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, ВидовойСубтитры: нетПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BA4E23CD86745ADBA7D1E6785966BDAEF5B295
 ```
 
 https://mybot314.ru/tekegram_catalog/

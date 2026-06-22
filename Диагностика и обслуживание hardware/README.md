@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1876481   (1073296) от 
+
+IObit Smart Defrag Pro 11.4.0.508 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F45D04E96B43F2FD9AEB9FFB3ACB160708363F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876209   (1073073) от 
+
+IObit Smart Defrag Pro 11.4.0.508 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEFB588A1C768DDFCC5A637F56D287664804D045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1876099   (1073020) от 
+
+OCCT 16.1.11 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE9C84320214A4615F4990CCAA95844CB22906E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875816   (1072795) от 
 
 AOMEI Partition Assistant Technician 10.11.0 (Repack & Portable) by elchupacabra [Multi/Ru]
@@ -7,7 +85,7 @@ AOMEI Partition Assistant Technician 10.11.0 (Repack & Portable) by elchupacabra
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072795.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ AOMEI Partition Assistant Technician Edition 10.11.0 Portable by 7997
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072670.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ UL (Futuremark) 3DMark 2.32.8871 for Enterprise RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072629.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ AOMEI Partition Assistant Technician Edition 10.11.0 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072572.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ CPU-Z 2.20. Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072392.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ CPU-Z 2.20.2 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072135.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ AlbusBit NTFS Permissions Auditor Pro 26.6.3 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072017.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Macrorit Partition Expert 8.9.2 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071739.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ NIUBI Partition Editor 10.3.2 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071731.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ NIUBI Partition Editor 10.3.2 Technician Edition Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071227.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Macrorit Partition Expert 8.9.2 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071028.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ CrystalDiskMark 9.0.3 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070856.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ CrystalDiskInfo 9.9.1 Final + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070855.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ NIUBI Partition Editor 10.3.2 Free | Enterprise | Professional | Server | Techni
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070658.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ CPU-Z 2.20.1 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070617.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ CPU-Z 2.20.1 Portable [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070602.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ HWiNFO 8.48 Build 5990 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070544.jpg" />
 </div>
 
 
@@ -444,6 +522,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872079   (1070223) от 20.05.2026
+
+IsMyLcdOK 6.21 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1070223.jpg" />
+</div>
+
+
+###  Подробнее
+
+IsMyLcdOK - небольшая бесплатная программа для обнаружения битых или поврежденных пикселей на LCD мониторах. Программа проста в эксплуатации, обладает интуитивным интерфейсом и не требует инсталляции, что позволяет пользоваться ей с различных съемных носителей.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCD2BEF087C0702002837FE1224A7E24840D007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1871781   (1069938) от 18.05.2026
 
 CrystalDiskInfo 9.9.0 Final + Portable [Multi/Ru]
@@ -452,7 +556,7 @@ CrystalDiskInfo 9.9.0 Final + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069938.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ PulseMonitor 1.1.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069771.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ Quick CPU Pro 6.4.1 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069769.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ AppControl 1.3.0.335b [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069718.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ Memtest86+ 8.10 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069691.jpg" />
 </div>
 
 
@@ -572,113 +676,6 @@ Memtest86+ — это автономная программа для тести�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CF01E14801A916CEFD9B2FFB41CA452ADD7A5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871271   (1069607) от 16.05.2026
-
-USBDeview 3.10 + Portable [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069607.jpg" />
-</div>
-
-
-###  Подробнее
-
-USBDeview — это небольшая утилита, которая отображает список всех USB-устройств, подключенных к вашему компьютеру в данный момент, а также всех USB-устройств, которые вы использовали ранее. Для каждого USB-устройства отображается расширенная информация: имя/описание устройства, тип устройства, серийный номер (для устройств хранения данных), дата/время добавления (   Читать дальше...   )Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C6E2469F8147CD591F8750F0FBEB03D800E291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871290   (1069598) от 16.05.2026
-
-HWdetails 1.0 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069598.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWdetails — это бесплатная утилита для Windows, которая отображает подробную информацию об оборудовании вашего компьютера, операционной системе, устройствах, сети и конфигурации системы.
-
-Краткий обзор всего аппаратного обеспечения ПК.
-Подробная информация о Windows и операционной системе, включая обновления и версии .NET.(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C78106F163B726B3B106F38DAA44747B0AAE526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871079   (1069422) от 15.05.2026
-
-SIV (System Information Viewer) 5.87 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069422.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D8455FB5D6F8D04FA7A8ECB9E263ADEE986B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1871112   (1069316) от 15.05.2026
-
-OCCT 16.1.10 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для проведения синтетических тестов на стабильность работы компьютера. OCCT Perestroika позволяет проводить парное тестирование: процессор - память и отдельную проверку стабильной работы центрального процессора и оперативной памяти. Результаты проверки выводятся в виде информативных графиков. Программа поддерживает работу с современными многоядерными процессорами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4DC8EBE82F6374FF56EF58DA72D400FCBD9892
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1053008   (489352) от 21.09.2016
+
+Журнал | Chip [Россия] №10 (октябрь 2016) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3699363BEF3C5668F010BAA7E1709E8DF09F7062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 249671   (488485) от 08.09.2012
+
+Подшивка журналов | Digital Arts (2008-2012) [EN] [PDF] [Обновлен 07.09.2012]
+
+>>След.
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Arts предлагает творческим людям идеи и вдохновение в работе над дизайном. В журнале рассматриваются новые возможности последних разработок софта и железа для работы с графическим дизайном, 3D анимацией, вебом, цифровым видео и мультимедией. К каждому выпуску журнала прилагается CD с примерами, фотографиями, шрифтами и др. В релизе прилагаются  файлы для выполнения (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B23CCE2DB1C74FA568172C121CFD3E710222F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544955   (485256) от 10.09.2012
+
+Журнал | HWM (Singapore) [сентябрь 2012] [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "HWM" (известен также как "HardwareMag") предлагает обзоры электронных новинок в различных сферах. В текущем номере - тест спортивных гаджетов и сравнение 78 графических карт.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA699F7FB72FA6F4850D8C8FA96A5C10FFFC637B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545560   (484963) от 10.09.2012
+
+Журнал | iPad & iPhone User № 66 [октябрь 2012] [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированный журнал для пользователей мобильных устройств от компании Apple. В каждом номере представлен обзор технических и программных новинок для этих устройств, групповы тесты "железа".Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7941BBC540FBB71EE7C8424800424A0DB29BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822143   (484251) от 16.09.2014
+
+Журнал | Computerworld [Россия] №21 (838) (сентябрь 2014) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484251.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Computerworld» - ведущий международный еженедельник, посвященный информационным технологиям. В журнале вы найдете обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технология.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419B9DBF0C5000D08EF7AE9C489CBEDB78D3FEA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244129   (483949) от 31.08.2018
+
+Журнал | UPgrade №13 (817) (август 2018) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483949.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPgrade – журнал о компьютерах и компьютерных технологиях, который стал первопроходцем на рынке массовых изданий о высоких технологиях. Cегодня издание – признанный лидер в своем медиасегменте. UPgrade – первое издание для широкого круга читателей, которых интересует не только сам по себе апгрейд компьютера, но и все, что так или иначе связано с миром IT.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD19CC46BDBBF60E1341BFC61F068258367462E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545967   (483343) от 11.09.2012
 
 Журнал | PC World №10 (USA) [октябрь 2012] [PDF] [En]
@@ -6,7 +162,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483343.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_482829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482829.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481812.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481751.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481708.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_481148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481148.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_480345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480345.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478843.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_478039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478039.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_477905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477905.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476905.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_476720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476720.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475949.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475839.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_473327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473327.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472149.jpg" />
 </div>
 
 
@@ -427,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472027.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_472011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472011.jpg" />
 </div>
 
 
@@ -479,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471944.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471860.jpg" />
 </div>
 
 
@@ -519,162 +675,6 @@ Practical Photoshop - это журнал, для креативных фото�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9EE587DF66FB0727CDBE2141E3CE7A68F826A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702023   (471756) от 20.09.2013
-
-Журнал | Chip [Украина] №10 (октябрь 2013) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_471756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip – ежемесячный компьютерный журнал. Издание охватывает весь спектр компьютерных тем. Это обзор событий и анализ тенденций мирового компьютерного рынка. Информация о компьютерах и комплектующих. Современные интернет-технологии и ресурсы. Новые программы, обзоры программных продуктов для различных операционных систем. Помощь в решении практических задач. Результаты (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984AB2F5B1FE5234717E3A78654E8BFB720C1A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567836   (470184) от 04.08.2022
-
-Журнал | IT News №7 (321) (июль 2022) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470184.jpg" />
-</div>
-
-
-###  Подробнее
-
-«IT News» — издание отражает события, происходящие в таких секторах рынка информационных технологий, как телекоммуникации, программное обеспечение, системная интеграция, развитие компьютерных сетей и другие направления.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46480A93A2F9381B3ED8F8C88DD938767D5044FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406671   (470026) от 05.09.2020
-
-Журнал | Хакер №7 (256) (июль 2020) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_470026.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Хакер" — журнал, рассказывающий о компьютерах, программном обеспечении, железе, технологиях, играх и, конечно же, о хакерах. Но этим всё не ограничивается. Часто в журнале публикуются материалы о стиле жизни, о каких-то абсолютно жизненных вещах, о здоровье, о том, как провести свободное время. Издание отличается от других, наверное, в первую очередь манерой (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D5FA0A3693E885262B9346E81682FE0FD3D9E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940376   (468665) от 24.09.2015
-
-Журнал | Мир ПК №10 (октябрь 2015) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_468665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский журнал, освещающий широкий спектр вопросов развития аппаратного и программного обеспечения персональных компьютеров, серверов и рабочих станций, и их применения как в потребительских условиях, так и на предприятиях. Ориентирован на читателей различной квалификации. Публикует новости рынка информационных технологий, аналитические статьи, сообщения о крупнейших (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A47A975D92DD44C4B68A47831EB895C3A00C440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940602   (466744) от 25.09.2015
-
-Журнал | UPgrade №32 (737) (сентябрь 2015) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466744.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPgrade – самый популярный еженедельный компьютерный журнал России. В нем рассматривается самые интересные новинки компьютерного железа, даются многочисленные полезные советы и рекомендации, как сделать работу на компьютере удобной и эффективной. Искрометный юмор авторов не даст вам заскучать, даже читая о сложных вещах!Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A22402AC96C1DFFD47E854D7600AC2168A15736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568041   (465897) от 06.08.2022
-
-Журнал | UPgrade №870 (июль 2022) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465897.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPgrade – журнал о компьютерах и компьютерных технологиях, который стал первопроходцем на рынке массовых изданий о высоких технологиях. Cегодня издание – признанный лидер в своем медиасегменте. UPgrade – первое издание для широкого круга читателей, которых интересует не только сам по себе апгрейд компьютера, но и все, что так или иначе связано с миром IT.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80872F11FEEC0604641A914F7D4599F4B1931308
 ```
 
 https://mybot314.ru/tekegram_catalog/

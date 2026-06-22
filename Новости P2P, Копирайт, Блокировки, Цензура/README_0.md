@@ -1,57 +1,3 @@
-###  Публикация: 902976   (657778) от 31.05.2015
-
-В Австралии готовят "налог Netflix", но его можно обойти с помощью VPN
-
->>Поговорим
->>Новости P2P, Копирайт, Блокировки, Цензура
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_657778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство Австралии хочет распространить действие налога с поставки товаров и услуг на электронные сервисы. То есть любые покупки в iTunes, Netflix и даже платежи Uber вырастут на 10%.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904137   (655120) от 02.06.2015
-
-Федеральная комиссия по связи представила план субсидирования Интернет-подключений
-
->>След.
->>Новости P2P, Копирайт, Блокировки, Цензура
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_655120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федеральная комиссия по связи США недавно объявила о плане, ранее известном под названием Lifeline, поддержки пользователей Интернет с низкими доходами на $1.7 миллиарда.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904441   (654314) от 03.06.2015
 
 Один из основателей Pirate Bay, Фредрик Нейдж, вышел из тюрьмы
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654314.jpg" />
 </div>
 
 
@@ -87,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654139.jpg" />
 </div>
 
 
@@ -114,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_654064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654064.jpg" />
 </div>
 
 
@@ -140,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_651112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_651112.jpg" />
 </div>
 
 
@@ -167,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_649264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649264.jpg" />
 </div>
 
 
@@ -194,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_645232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645232.jpg" />
 </div>
 
 
@@ -221,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_637867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_637867.jpg" />
 </div>
 
 
@@ -248,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_635857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635857.jpg" />
 </div>
 
 
@@ -275,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_634440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_634440.jpg" />
 </div>
 
 
@@ -301,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_630013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630013.jpg" />
 </div>
 
 
@@ -328,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_625677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625677.jpg" />
 </div>
 
 
@@ -355,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_623948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623948.jpg" />
 </div>
 
 
@@ -382,7 +328,7 @@ Google будет платить за обнаружение ошибок в And
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_621909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621909.jpg" />
 </div>
 
 
@@ -409,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_619715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_619715.jpg" />
 </div>
 
 
@@ -436,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_615943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_615943.jpg" />
 </div>
 
 
@@ -463,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_604942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_604942.jpg" />
 </div>
 
 
@@ -490,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598668.jpg" />
 </div>
 
 
@@ -517,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_598349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598349.jpg" />
 </div>
 
 
@@ -544,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_596284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596284.jpg" />
 </div>
 
 
@@ -571,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_591851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591851.jpg" />
 </div>
 
 
@@ -598,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_590982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_590982.jpg" />
 </div>
 
 
@@ -625,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_589922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_589922.jpg" />
 </div>
 
 
@@ -652,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_589565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_589565.jpg" />
 </div>
 
 
@@ -678,13 +624,67 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_589051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_589051.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Из-за своей децентрализованной природы Bitcoin часто упоминается в одном ряду с BitTorrent. Теперь инновационное решение, предложенное технологической компанией, ставит целью отслеживание утечек музыки и видео, превращая пиратов в доносчиков за оплату.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917658   (588590) от 13.07.2015
+
+Chrome блокирует крупные торрент-сайты из-за "вредоносного ПО"
+
+>>Поговорим
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_588590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Браузер Google Chrome начал блокировать прямой доступ к нескольким крупным торрент-сайтам, включая KickassTorrents, Torrentz, ExtraTorent и RARBG. По мнению Google данные сайты содержать "вредоносного ПО", но владельцы сайтов не понимают в чем может быть проблема.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918111   (587935) от 14.07.2015
+
+Nintendo потребовала отключения браузерной версии эмулятора Game Boy
+
+>>Поговорим
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие фанаты видеоигр любят играть в старые игры для консолей в браузерных эмуляторах, но Nintendo не рада проектам поклонников. На этой неделе компания добилась отключения написанного на JavaScript эмулятора  Game Boy Advance, содержащего десятки предустановленных игр, заявив о нарушении авторских прав.
 (   Читать дальше...   )
 
 ## Скачать торент

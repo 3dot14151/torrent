@@ -6,7 +6,7 @@ EVERSPACE™ v1.3.2.36168 (22808) (2016) [Multi] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_491543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491543.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Slay the Spire v2.3  (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_490020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490020.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DiRT Showdown 1.0.3 (2014) [Multi] [OS X Native Game] [AppStore]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489868.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Descent 2 v2.1.0.13 (1996) [En] [macOS DOSbox]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489839.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wargame: Red Dragon v.1.0 (2014) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489381.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Desperados: Wanted Dead or Alive (2001-2015) [Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489375.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Buoyancy v3.0.0815 (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_489256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489256.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Oddworld: New 'n' Tasty v.1.0.7 (2015) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_487905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487905.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Offworld Trading Company (2016) [Multi/Ru]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_483101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483101.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Tiny Troopers (2012) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_479912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479912.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Forgotton Anne (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_475639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475639.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Bastion v1.50436 (2011) [Multi] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469593.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Banner Saga 1 v2.49.02-Y2.20 (2014) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_469580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469580.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Banner Saga 2 v2.48.10-Y1.41 (2016) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_467441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467441.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Empire: Total War - Gold Edition - 1.5.0 [Multi + Ru] [Native]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_466173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466173.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Hybrid Wars (24.09.2016) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465802.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Munin 1.7.2  [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_465479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465479.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Invisible, Inc. v281021.22860 GOG (2015) [En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_458835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458835.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ The Gateway Trilogy v1.1 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457676.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Warcraft: Orcs and Humans (1994) [En] [macOS DOSbox]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_457350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457350.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Human Resource Machine v1.0.31924.23192 (2015) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_456646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456646.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ SOMA v. 2.1.0.3 (0) (2015) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_455144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455144.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Shadow of the Tomb Raider: Definitive Edition 1.0.4 (2018) [Multi/Ru] [macOS Nat
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454924.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Megaquarium v.1.0.3 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_454648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454648.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Armikrog 2.1.0.2 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_450659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450659.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Nevermind v. 1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446648.jpg" />
 </div>
 
 

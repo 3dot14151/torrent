@@ -1,3 +1,530 @@
+###  Публикация: 1251921   (410963) от 04.10.2018
+
+VA - Country Covers (2018) [MP3|320 Kbps] <Country, Pop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willie Nelson - A Song for You
+02. Angela Hacker - I Can't Make You Love Me
+03. Buck Owens - When I Need You
+04. Tamra Rosanes - Always On My Mind(   Читать дальше...   )Жанр: Country, Pop, FolkПродолжительность: 01:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E5E5ADFF64474DED1CF10156E6BEE3AD373E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168007   (410511) от 23.09.2017
+
+Angus Gill - Nomad (2017) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Country Bloke, City Driving (2:48)
+02 - Roadworks (3:30)
+03 - Nomad (3:06)
+04 - Rusty Machines (3:39)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDC32186E2F789E0BA35507A07023372BCBAA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066755   (409912) от 27.10.2016
+
+Kami Thompson - Love Lies (2011) [MP3|320 Kbps] <Folk, Pop-Rock, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Boy Blue   (04:12) 
+  02. 4,000 Miles   (02:18) 
+  03. Nice Cars   (02:18) 
+  04. Gotta Hold On   (04:09) (   Читать дальше...   )Жанр: Folk, Pop-Rock, WorldПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CFBB2B59A93334E08AEE55B7504FA95C46CE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067080   (387256) от 29.10.2016
+
+Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psychedelic Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Only a River   (05:28) 
+  02| Cottonwood Lullaby   (03:40) 
+  03| Gonesville   (04:09) 
+  04| Lay My Lily Down   (03:57) (   Читать дальше...   )Жанр: Folk Rock, Country Rock, Psychedelic RockПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E207E2D444520A2540E4CA205347A445861DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174154   (387235) от 14.10.2017
+
+Стары Ольса - Medieval Classic Rock (2016) [MP3|320 Kbps] <Folk, Folk rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стары Ольса - группа средневековой белорусской музыки, существующая с 1999 года. Создатель и руководитель - Дмитрий Сосновский, состав - 6 человек. Название - от ручья в западной Могилёвщине. В репертуаре группы - белорусские народные баллады и воинские песни, белорусские народные танцы, произведения белорусских композиторов эпохи Ренессанса, композиции из белорусских (   Читать дальше...   )1. Highway to Hell (AC_DC cover) (3:24)
+ 2. Another Brick in the Wall, Pt. 2 (Pink Floyd cover) (4:11)
+ 3. Californication (Red Hot Chili Peppers cover) (4:14)
+ 4. A Hard Day's Night (The Beatles cover) (2:34)(   Читать дальше...   )Жанр: Folk, Folk rockПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0371CA8AC29B3FFC448883A649200629C904D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175007   (383003) от 16.10.2017
+
+Немного Нервно - Сны о Земле. Глава 4 (2017) [MP3|320 Kbps] <Folk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383003.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Микеланджело
+2. Ритуал
+3. Витражи
+4. Santa Maria(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576BD06B45BEB90F2B4B51DC707D6644616483FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 33144   (375013) от 12.11.2012
+
+Music of the Shamans (Музыка шаманов)
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Shamanic Way (Путь шамана) 18:50
+02 Forest Spirit (Дух леса) 12:27
+03 La Bruja de la Cura 11:31
+04 Rain Dance (Танец дождя) 9:38Жанр: Музыка шамановПродолжительность: 52:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951570   (363304) от 29.10.2015
+
+Celtic Woman - Destiny (2015) [MP3|320 кб/с]<Celtic, New Age, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Land
+02. Siuil a Run
+03. Ride On
+04. The Whole Of The Moon(   Читать дальше...   )Жанр: Celtic, New Age, WorldПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061B1B8E506F0F8B4F59C63F8F982B74141FBA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 723663   (355312) от 18.11.2013
+
+Хелависа & Лазерсон и друзья - Новые Ботинки (2013) [MP3|320 кб/с]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355312.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sgt. Early's Dream/Rectory Reel
+2. Nead na Lachan
+3. An Spealadóir/Brògan Ùra
+4. Cowboi-2013
+5. Y Ddau Farch
+6. The Brown and the Yellow Ale
+7. Alasdair Mhic Cholla Ghasda
+8. M'Fhearann Saidhbhi
+9. Hùg Air A' Bhonaid Mhòir
+10. Coisich, A Ruin(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCCCF0BFEB9198311AFC019A35CF9E7E8AA6900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468609   (348244) от 24.10.2020
+
+ТІК - 4 альбома (2007-2020) [MP3|320 кб/с] <Народная, поп, данс-поп, рок, фолк-рок>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SOSюра
+2. Вчителька
+3. Олені
+4. АЛКОголізм(   Читать дальше...   )Жанр: Народная, поп, данс-поп, рок, фолк-рокПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A95D1552413BDFD543AAFC74990B3387E65132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578342   (343387) от 24.09.2022
+
+Треустье (Treustye) - 4 Albums, 3 EP (2010-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Neo Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Беспокойный сон Франца Кафки [00:02:06]
+02. Кошмар Джойса [00:03:35]
+03. Сон Мо Яня [00:02:29]Жанр: Dark Folk, Neo FolkПродолжительность: 7 CD, 02:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BA93337A6467813089B1F02469A949F685F2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954328   (339972) от 08.11.2015
+
+Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's the Door (04:08)
+02. Gonna Give You a Try (03:13)
+03. Ain't Looking Back (02:41)
+04. Forget to Remember (03:36)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3B492148AD46443FE328F04850A16F482A2210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956041   (331148) от 13.11.2015
+
+Saulius Petreikis & The Unit 7 Allstars - Lowlands (2014) [OGG| 405-493 кб/с]<World, Folk, African, Celtic, Persian Classical, Relax>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lowlands
+02. Breaking The Ice
+03. Ei Vaka
+04. Duduk(   Читать дальше...   )Жанр: World, Folk, African, Celtic, Persian Classical, RelaxПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1ACD7FB917919EF4C247B2E0E4AEEE00C87056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956707   (328419) от 16.11.2015
+
+Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bred To Buck (feat. Lee Kernaghan)
+02. Horsepower (feat. Adam Brand)
+03. The Thrill Of It All
+04. Rodeo Moon(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB55BC33EDFB0D2227E2495F5830AEF9AC03ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580796   (325436) от 07.10.2022
+
+группа Сокол (Степан и Валентина Нестеровы) - В роще вчерашнего дня (2022) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Горлинка [00:05:05]
+02 - Комарик [00:03:34]
+03 - Ночь по рощице [00:05:06]
+04 - Как на гори [00:03:28](   Читать дальше...   )Жанр: FolkПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A8E046C378CE116C122ED10ABEBA091F2E489B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075029   (323436) от 21.11.2016
+
+Loretta Lynn - White Christmas Blue (2016) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Christmas Blue (02:48)
+02. Country Christmas (02:25)
+03. Winter Wonderland  (02:25)
+04. Away in a Manger (02:51)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F32076F80DE26CCAED3720F6CDB768DF8B91A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259200   (323050) от 02.11.2018
+
+Отава Ё - Любишь ли ты (2018) [MP3|320 Kbps] <Neo-Folk, Post-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323050.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Как на горке, на горе
+2. Ой, Дуся, ой, Маруся
+3. Метёлки
+4. Посеяли девки лён(   Читать дальше...   )Жанр: Neo-Folk, Post-FolkПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D428DBF8A7834DA64DF0BBD139AD97FCA7AA9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104666   (322985) от 07.11.2017
+
+VA - Dark Country (Extreme Music) (2012-2017) 6 альбомов [MP3|320 Kbps] <Rock, Dark Country, Blues>
+
+>>След.
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Ryan Murphy, Anthony Sanudo, Jared Palomar & Eric Serna - The Devil Inside
+02. Raphael Lake, Mark Greenwood & John Wheatley - Forgotten Souls
+03. TJ Stafford, Michael Smith & Nineoneone - Coming With the Hellfire
+04. TJ Stafford, Michael Smith & Nineoneone - I'm a Bad Man(   Читать дальше...   )Жанр: Rock, Dark Country, BluesПродолжительность: 03:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B68ADFFED9CF544B0897F9D190D768B88F3E785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958193   (319135) от 23.11.2015
 
 Ярмарка - Фолк-шоу группа (1999) [MP3|320 кб/с]<Pop, Folk>
@@ -6,7 +533,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_319135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319135.jpg" />
 </div>
 
 
@@ -35,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313808.jpg" />
 </div>
 
 
@@ -64,7 +591,7 @@ Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_313694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313694.jpg" />
 </div>
 
 
@@ -93,7 +620,7 @@ Senyawa - Sujud (2018) [MP3|320 Kbps] <World, Other, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_312026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312026.jpg" />
 </div>
 
 
@@ -122,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301941.jpg" />
 </div>
 
 
@@ -151,7 +678,7 @@ Monica Pereira - Mulher Do Sol (2017) [MP3|320 Kbps] <World, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_301369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301369.jpg" />
 </div>
 
 
@@ -180,7 +707,7 @@ The Irish Rovers (The Rovers) - 18 релизов (1995 – 2016) [MP3|192 kbps]
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_298045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298045.jpg" />
 </div>
 
 
@@ -209,7 +736,7 @@ Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_297157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297157.jpg" />
 </div>
 
 
@@ -223,537 +750,6 @@ Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F8ED73B9EA8A6781BB8D15B4618B390996489E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960388   (296796) от 03.12.2015
-
-Бряц-Band - 2 альбома (2005-2008) [MP3|320 кб/с]<Folk, Rock, Instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_296796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Boney M
-02 Тарантіноманія
-03 Реальні мультики
-04 Искала тебя(   Читать дальше...   )Жанр: Folk, Rock, InstrumentalПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80F5A6F227E70C31A68F7E3E613D3C75FCA6C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262763   (293326) от 16.11.2018
-
-Glen Campbell - Sings For The King (2018) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_293326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Call On Him
-02. Easy Come, Easy Go
-03. Any Old Time
-04. Anyone Can Play (Rock Version)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2CE294F0ACF3814D391BDEFD40A52913E4BB1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241716   (279117) от 24.11.2018
-
-Иван Ребров - Kalinka (1999) [MP3|320 kbps]<Vocal, Classic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_279117.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Kalinka MalinkaЖанр: Vocal, Classic, FolkПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E055CCC5B8CDE1F4C4F6F356CB4FFEDE9F586936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082350   (278529) от 12.12.2016
-
-Atlantida Project - Bezdna (2016) [MP3|320 Kbps] <Cyberfolk / Electronic / Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бездна (02:54)
-02. Бхавани дайани (05:04)
-03. Красная королева (03:35)
-04. Ничего нового (feat. Noize MC) (04:31)(   Читать дальше...   )Жанр: Cyberfolk / Electronic / Ethnic / RockПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EE5F6404BBE81043050313A939AB055AD56ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272752   (278284) от 19.12.2010
-
-Goran Bregovic - Discography (1989..2008) [MP3|320 kbps]<Balkan Ethno, World Music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_278284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Balkan Ethno, World MusicПродолжительность: 16:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249B7FD2ED0003BD3C953234B57C6EE9D92675A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 673034   (277574) от 25.11.2018
-
-Gipsy Kings - 16 альбомов (1982-2006) [MP3|320 кб/с]<Rumba - Flamenco>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_277574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-1982 - Allegria (переиздан 1990)
-1983 - Luna De Fuego (переиздан 1990)
-1988 - Gipsy Kings(   Читать дальше...   )Жанр: Rumba - FlamencoПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8E111045CA3ABB411E79F581A52CBDC5AF82A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 88140   (272862) от 29.11.2018
-
-Мартин Казарян - Поет дудук (2003) [MP3|256]<Classic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_272862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Армянская народная мелодия
-2. Армянская народная мелодия
-3. Караван
-4. Армянская народная мелодия(   Читать дальше...   )Жанр: Classic, FolkПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B624D9B66FC9C0CFA25D3008A71ACD48B020277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214334   (271777) от 30.11.2018
-
-Iron Horse - Fade to Bluegrass: The Bluegrass Tribute to Metallica 1-2 (2003, 2006) [MP3|192 кб/с]<Bluegrass>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_271777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master of Puppets - 04:53
-02. The Thing That Should Not Be - 04:40
-03. Memory Remains - 03:28
-04. Creeping Death - 03:54(   Читать дальше...   )Жанр: BluegrassПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAC0C01FC634932478A3FEED8ACF86BC110D96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499255   (270685) от 01.12.2018
-
-Геннадий Заволокин - Играй, Гармонь! - 12 альбомов (1994 - 2002) [MP3|224 кб/с]<Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_270685.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 90-х годов, американский миллионер Джим Роджерс, случайно став свидетелем съёмок передачи "Играй,гармонь!" в Находке, был потрясён этим инструментом и назвал Заволокина "русским Элвисом Пресли". Впоследствии он приезжал к нему и на дачу в Новосибирск, а затем пригласил Заволокина в Америку на фестиваль кантри-музыки в штат Алабама.Жанр: FolkПродолжительность: 13:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8263A2D7C966129913B3647B35926F84D07B0FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338516   (269736) от 15.11.2019
-
-Faun - Marchen & Mythen (2019) [MP3|320 Kbps] <Folk, Medievol>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_269736.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Es war einmal...
-2. Rosenrot
-3. Seemann
-4. Hagazussa(   Читать дальше...   )Жанр: Folk, MedievolПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D30D6C4B8803FC3C82F27D5B042075A9E58A3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190938   (265090) от 12.12.2017
-
-Летеница - Берегиня (2017) [MP3|320 Kbps] <Folk Rock, Neofolk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_265090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Твой голос
-02. Утро зорями восходило
-03. Нить его судьбы
-04. Младый месяц(   Читать дальше...   )Жанр: Folk Rock, NeofolkПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A19DA9CB5C1536CCD0AFA260CCCDA3223C6885E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191717   (263819) от 15.12.2017
-
-Jozef Van Wissem - Nobody Living Can Ever Make Me Turn Back (2017) [MP3|320 Kbps] <Dark Folk, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_263819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virium Illarum
-02. Golden Bells Ring In The Ears Of Earths Inhabitants
-03. Your Days Gone Like A Shadow
-04. The Empty Cup Of Suffering(   Читать дальше...   )Жанр: Dark Folk, ExperimentalПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7EAD49B9D5C1ED6AFF53D294D6CDB4D429227B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500727   (258503) от 26.05.2012
-
-Багренье - Ты раздольице мое широкое (2003) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk Казачья песняПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751BF11E08C2AE9B98C3B36E16DD244A742ADFC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501216   (258342) от 25.05.2012
-
-Willie Nelson - The Very Best Of Willie Nelson (2008) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258342.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.On The Road Again - 2:32
-2.If You've Got The Money I've Got The Time - 2:03
-3.Blue Eyes Crying In The Rain - 2:18
-4.Angel Flying Too Close To The Ground (Willie Nelson & Family) - 4:28
-5.The Pilgrim: Chapter 33 - 3:33
-6.I'm Movin' On	 - 2:43
-7.Big River	 (Waylon Jennings, Willie Nelson, Johnny Cash, Kris Kristofferson) - 2:46
-8.Georgia On My Mind - 4:19
-9.If You Can Touch Her At All (Waylon Jennings & Willie Nelson) - 3:00
-10.Something To Brag About (Willie Nelson & Mary Kay Place) - 2:02(   Читать дальше...   )2008Жанр: CountryПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8231BA27DF0AEA1947DB7D07B4CED57325FBFCF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500643   (258083) от 24.05.2012
-
-Православный Дон - Авторский сборник (2005) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk Казачья песняПродолжительность: 01:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953DA6B7C89098FB2F3BE1F60D8480CBFD00DE7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500658   (258074) от 24.05.2012
-
-Новая Азия - Зов предков (2006) [MP3|320 кб/с]<Этно-электроника, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_258074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зов предков
-02. Перевалы Алтая
-03. Шаман и Змея
-04. Песни пастуха
-05. Старый орёл
-06. Лошадь
-07. Легенда о воинах
-08. Весёлый охотник
-09. Завоеватели
-10. Укок(   Читать дальше...   )2006Жанр: Этно-электроника, FolkПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE851397AC72C5BEF0E12CA68C8617D3937AE8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500892   (257453) от 24.05.2012
-
-Ненецкий народный ансамбль Маймбава - Вынгы Сё (2006) [MP3|320 кб/с]<Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_257453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Три моих ручных оленёнка
-02-Колыбельная Едэя Хасавы
-03-Тепло материнских рук
-04-Песня Обских рыбаков
-05-Ловля оленей
-06-Оленёнок
-07-Весенняя песня
-08-Снежинки
-09-Мой отец оленевод
-10-Песня шамана(   Читать дальше...   )2006Жанр: Ethnic, FolkПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997D4D58511514CBBD8613771CA8E0E2F1A5B5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499853   (256923) от 22.05.2012
-
-Кубанцы - Авторский сборник  (1995) [MP3|160 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_256923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За Кубанью огни горят (1:20)
-02. Атаман (6:27)
-03. Каким ты был (3:01)
-04. Сказал казак через долину (1:42)
-05. Ой, у вышнэвому саду (3:33)
-06. Ой, ты, Галя (2:51)
-07. Любо, братцы, любо (3:22)
-08. Ой, мий мылый варэнычкив хоче (2:06)
-09. Батько Атаман (2:06)
-10. Мисяць на нэби (3:04)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

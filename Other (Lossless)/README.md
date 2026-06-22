@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1876191   (1073037) от 
+
+VA - The Orient Collective: Roots & Relics (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avet, Tibetania - East Dance (3:49)
+02. La'Dell, Tibetania - Get Oriented (4:54)
+03. Tamer ElDerini, Tibetania - Lafta (5:50)
+04. Idin Gorji, Sheenubb, Tibetania - Falak (4:58)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C1D873E18901B5ABDABA2D1CDB065681AA7C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1875711   (1072742) от 
 
 VA - The Orient Collective: Rituals of the Sunfire (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -7,7 +36,7 @@ VA - The Orient Collective: Rituals of the Sunfire (2026) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1072742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1072742.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ VA - The Orient Collective: Sacred Stories (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071681.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ VA - The Orient Collective: Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <World, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1070335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1070335.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ VA - The Orient Collective: Voices of the Ancients (2026) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069605.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ VA - The Orient Collective: Between Dust & Clouds (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068509.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ VA - The Orient Collective: Ash & Amber (2026) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1067681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067681.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066971.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ VA - The Orient Collective: Tales From the Sand (2026) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065850.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065092.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ VA - The Orient Collective: Ancestors Still Speak (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065081.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ VA - The Orient Collective: Tribal Horizons (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063728.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ VA - The Orient Collective: Where Earth Meets Sky (2026) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063477.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1061238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061238.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050748.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1050661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050661.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030590.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030589.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030581.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030578.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030401.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030368.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Ins
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030357.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030334.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030107.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1030098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030098.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ CD-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3305912B8F3626BB94760A626A1C71174EBFE56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412904   (1029932) от 21.02.2021
-
-The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|image + .cue] <Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1029932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перси Фейт (англ. Percy Faith; 7 апреля 1908 - 9 февраля 1976) — канадский музыкант, композитор, руководитель эстрадного оркестра. Известность ему принесли пышные оркестровые аранжировки популярных песен. Его часто считают создателем "легкой музыки" или "музыки настроения": его оркестр, в отличие от биг-бэндов 1940-50-х гг., опирался на классический (   Читать дальше...   )01.  Theme From A Summer Place (02:45)
-02.  Love Theme From Romeo & Juliet (A Time For Us) (03:08)
-03.  Laras Theme From Dr Zhivago (03:20)
-04.  A Man And A Woman (02:18)(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CA83A0DD93D638AB24FFBE31F160DBE6355CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

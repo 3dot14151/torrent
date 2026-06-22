@@ -1,3 +1,29 @@
+###  Публикация: 1730611   (28222) от 09.02.2025
+
+Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Immortals of Aveum, сочетающая в себе шутер от первого лица и элементы магии в оригинальной фэнтезийной вселенной, рассказывает о боевом маге Джаке, который присоединяется к элитной группе магов Lucium, чтобы раскрыть секреты Авеума - загадочного мира, находящегося на грани уничтожения. В игре представлен кинематографический режим кампании, который обещает подарить (   Читать дальше...   )Тип издания: RepackРазработчик: Ascendant StudiosЖанр: Action, Shooter, First-personЯзык озвучки: Английский, Французский, Итальянский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3FD21A2DD8004FB489ECA85B608DEF388EA49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745422   (28217) от 09.02.2025
 
 DOOM + DOOM II (2024) [Ru/Multi] (2676) Repack Decepticon
@@ -6,7 +32,7 @@ DOOM + DOOM II (2024) [Ru/Multi] (2676) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28217.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Only Lead Can Stop Them (2024) [Ru/Multi] (1.16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28205.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.512) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_28112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28112.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.12b/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27993.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.110917.0/dlc) Repack FitGirl [Dwarven
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27852.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Far Cry New Dawn (2019) [Ru/En] (1.0.5/dlc) Repack xatab [Deluxe Edition] (об�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_27687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27687.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (build 9473356/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27255.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_27249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27249.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.512) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26832.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack EXROW [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26649.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Quake - Квадрология (1996-2021) [Ru/Multi] (1.0/5971/1.32/1.4.3/dlc) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26540.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Hands of Necromancy (2022) [Ru/Multi] (18.2.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26527.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Hands of Necromancy II (2) (2024) [Ru/Multi] (18.2.25) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26514.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Generation Zero (2019) [Ru/Multi] (2925040/dlc) Repack Let'sРlay [Ultimate Bund
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_26513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26513.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26188.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26136.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_26019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26019.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25933.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_25885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25885.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Isla de la Muerte (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25376.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Devilated (2021) [Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25340.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25289.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Borderlands 3 (2019) [Ru/Multi] (Build 15245523/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25072.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.7/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25041.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Sons of the Forest (2023) [Ru/Multi] (53951) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/001//save_picture_25024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25024.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Sons of The Forest - многопользовательский хоррор о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9293F0819EBF8F1C787588254587E2415BC76999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391199   (24649) от 15.03.2025
-
-Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_24649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Берите верный револьвер и отправляйтесь на помощь другу в атмосферной и энергичной игрушке roguelike. Colt Canyon - двухмерный шутер с пиксельной графикой. Вы управляете ковбоем или одним из многих других открываемых персонажей - и спешите на помощь другу, которого похитили подлые бандиты. Берите пушку и динамит и готовьтесь к опасному путешествию через каньон, где (   Читать дальше...   )Тип издания: LicenseРазработчик: RetrificЖанр: Экшны, Приключение, RoguelikeЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE105CB2C2C1979A8E109F6567AC3DFCBC34DD46
 ```
 
 https://mybot314.ru/tekegram_catalog/

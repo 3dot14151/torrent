@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157421.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157215.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Eisbrecher - Schock Live (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157124.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_157054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157054.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156808.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_156800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156800.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ DJ Tiesto in Concert 2003 (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_156516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156516.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Europakonzert 2015 from Athens BDRip [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_156189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156189.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155933.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155903.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ MTV Video Music Awards 2015 (2015) HDTVRip[H.264-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155867.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155774.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155605.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155480.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_155134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155134.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154525.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Unheilig - Lichter Der Stadt Live (2012) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154382.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_154335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154335.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VK под шубой (2022) WEBRip [H.246/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153708.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_153577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153577.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Hammerfall - Live! Against The World (2020) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152960.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152850.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_152256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152256.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149205.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_149185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149185.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_148835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148835.jpg" />
 </div>
 
 

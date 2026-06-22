@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1876623   (1073444) от 
+
+Microsoft .Net Packages AIO 09.06.26 RePack by xetrin [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1073444.jpg" />
+</div>
+
+
+###  Подробнее
+
+.NET Framework - платформа для разработки, развертывания и запуска Web-сервисов и приложений. Она предоставляет высокопроизводительную, основанную на стандартах, многоязыковую среду, которая позволяет интегрировать существующие приложения с приложениями и сервисами следующего поколения, а также решать задачи развертывания и использования интернет-приложений.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AA33CBA437EE2AB1F0CAEA34878E85BE2415B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873940   (1071475) от 30.05.2026
 
 f.lux 4.141 [En]
@@ -7,7 +33,7 @@ f.lux 4.141 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071475.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ FontViewOK 9.33 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069508.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ EarthView 7.16.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068996.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ EarthView 7.16.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1068261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068261.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ FontViewOK 9.31 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1066592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066592.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Exportizer Enterprise 10.3.2.479 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065071.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ ORTMANN Cross Stitch Designer 7.8.4.777 [En/De]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1065063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065063.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ FontViewOK 9.23 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1064132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064132.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ EarthView 7.15.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1063368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063368.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Lively Wallpaper 2.2.1.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1062550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062550.jpg" />
 </div>
 
 
@@ -260,6 +286,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861433   (1062485) от 25.03.2026
+
+AI Text To Image Generator Pro 1.2.2 RePack [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/011/save_picture_1062485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свой творческий потенциал с помощью AI Text to Image Generator — лучшего приложения для ПК, которое превращает ваши слова в потрясающие высококачественные изображения. Независимо от того, являетесь ли вы цифровым художником, дизайнером или просто увлекаетесь творчеством, наш мощный генератор изображений на базе ИИ предоставляет вам прямой доступ к передовым (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AC6377B8F101640F447307566970E2F4B4DBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860742   (1062003) от 22.03.2026
 
 EarthView 7.15.1 RePack (& Portable) by elchupacabra [Ru/En]
@@ -268,7 +320,7 @@ EarthView 7.15.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1062003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062003.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ EarthView 7.15.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/009//save_picture_1060250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060250.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ EarthView 7.14.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1058169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058169.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ ADB AppControl 1.8.6 Extended + portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055656.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ FontViewOK 9.21 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053855.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ FontViewOK 9.19 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1047738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047738.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ VanDyke SecureCRT 9.3.1 build 2929 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046380.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Visual C++ Runtimes AIO 2023 v1.0 x86-x64 RePack by ivandubskoj [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040240.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Game WideScreener 2.0.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014618.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Active PKiller 1.6 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1010097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010097.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Advanced Find and Replace 7.8.1 [Multi/Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_997350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997350.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ PlayMemories Home 2.0 [Русский / Английский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_996553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996553.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ DesktopEarth 3.2.42 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_982804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982804.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ ArtMoney SE 7.40.4 [Мульти / Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_980458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980458.jpg" />
 </div>
 
 
@@ -618,68 +670,6 @@ ArtMoney SE 7.40.4 [Мульти / Русский]
 Artmoney (Артмани) предназначена для редактирования параметров в компьютерных играх, для получения бесконечных игровых денег, игровых жизней, игровых патронов и т.п.
 
 Artmoney (Артмани) умеет сканировать память или файлы игры для поиска каких-то определенных значений (игровые деньги, игровые ресурсы и т.д.). Таких значений может быть много и надо выбрать нужные, поэтому поиск разделяется на два этапа - поиск значений и отсев ненужных значений. В итоге получаем адреса, в которых находятся числа, и их можно изменить на нужные. Специальные методы позволяют обмануть даже игры, в которых нет числовых видимых значений (например графическая полоска жизни) или игры, которые кодируют свои данные. Artmoney (Артмани) 7.33.2 кряк не работает в режиме сетевой игры ( т.е. в онлайн играх), поскольку игровые деньги могут дублироваться на нескольких компьютерах, и изменение игровых денег на одном (на вашем ) не приводит к успеху, хотя и тут есть исключения.Название программы: ArtMoney SEЯзык интерфейса: Мульти / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355635   (977447) от 31.01.2020
-
-Brocade FabricOS (версии с v5.1.0 по v8.2.1a)[En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_977447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник всех версий FabricOS которые были обнаружены. С v5.1.0 по v8.2.1a включая промежуточные.
-v5.1.0 - v5.2.3 - v5.3.2c - v6.0.1a - v6.1.2c - v6.2.0e - v6.2.2f9 - v6.2.2g - v6.3.0d - v6.3.2e - v6.4.2b - v6.4.3g - v6.4.3h - v7.0.2e - v7.0.2e1 - v7.1.0cb - v7.1.1a - v7.1.1c - v7.1.1c1 - v7.1.2 - v7.1.2a - v7.1.2b - v7.1.2b1 - v7.2.0a - v7.2.0b - v7.2.0c - v7.2.0d (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1284E4F4137BE5BA88C1B9430FD16F2A3BCF9F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280175   (953350) от 08.01.2011
-
-Uloader 8.0.0.0 [ENG]
-
->>След.
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_953350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uloader-простой,удобный и практичный активатор Win 7 или Vista
-В версию 8.0.0.0 добавлены:
-* Поддержка 32-разрядных (x86)
-* Поддержка 64-разрядных (x64)
-* Возможность изменения ключа продукта даже после активации
-* Простой и удобный
-* Доступно несколько загрузчиков
-* Обновлен мастер-ключей OEM
-* Система отображения информации
-* Простой и удобный графический интерфейс(   Читать дальше...   )Язык интерфейса: ENG
 
 ## Скачать торент
 ```bash

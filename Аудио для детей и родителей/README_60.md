@@ -1,3 +1,84 @@
+###  Публикация: 962781   (355058) от 21.10.2020
+
+VA - Детскотека – Танцевальные хиты (2015) [MP3|192 кб/с]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Детский Хор "Великан" - Бим-бом
+2. Джинсовые мальчики - Самый! Самый!
+3. Детский ансамбль "Гномы" - Танцуй со мной
+4. Фиксики - Помогатор(   Читать дальше...   )Жанр: Детские песниПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC4C811AADDC5AB60A2552E51E7088155383FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417951   (353680) от 22.10.2020
+
+Анастасия Попандопуло | Космические коты. Планета сияющего неба (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экипаж корабля «Летучая мышь» отправляется на скучнейшее задание и оказывается в центре невероятных событий: следы страшной катастрофы и затерянная планета, боги и таинственные пещеры, извержение вулкана и дары древних могущественных рас – вот что ожидает отважных путешественников. Капитан ВасьВась, механик Хвост, юнга Котенька и кок Мямлик столкнутся с обманом и (   Читать дальше...   )Жанр: Детская литература, ФантастикаПродолжительность: 02:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E54D2D84A15AC1BBCD1FB19997E86F65418FB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 408910   (353379) от 10.11.2011
+
+Графиня де Сегюр | Волшебные сказки [2011] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Графиня де Сегюр (урождённая Софья Ростопчина) (1799-1874 гг.) - одна из известных и читаемых детских писательниц Франции. Книги графини вышли общим тиражом свыше 20 миллионов экземпляров и остаются популярными в наши дни. Часть произведений экранизирована. В России её сказки и романы были широко известны и регулярно издавались вплоть до 1917 года. Как пишет о ней (   Читать дальше...   )Жанр: Детская литература, сказкиИздательство: МедиаКнигаПродолжительность: 03:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C16C3AD511F79D375085332ED9CAB03A19A3D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087215   (353252) от 22.10.2020
 
 Джеймс Хэрриот и др. | Зимняя сказка [Сборник] (2013) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_353252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353252.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_352981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352981.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351982.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351350.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351230.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_351221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351221.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350488.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_350117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350117.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_349983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349983.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348396.jpg" />
 </div>
 
 
@@ -278,7 +359,7 @@ VA - Волшебные голоса природы: Малыш в саду (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348391.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348250.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348115.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_348071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348071.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_347521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347521.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346693.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346566.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ VA - Кукабарра. Гайтана та діти світла (2008) [MP3|1
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_346422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346422.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_345582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345582.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344699.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344198.jpg" />
 </div>
 
 
@@ -589,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_344087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344087.jpg" />
 </div>
 
 
@@ -615,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_342863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342863.jpg" />
 </div>
 
 
@@ -626,86 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:380B24E801D059909777259084407B5A9F92670F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082558   (341867) от 27.10.2020
-
-Илья Ильин | Ёлка (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлые зимние рассказы от главного редактора журнала «Ералаш»Жанр: Детские аудиорассказыПродолжительность: 01:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B1F113979397CAAF14DA282A9B030B0180AD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081647   (341762) от 27.10.2020
-
-Люк Бессон | Артур и война двух миров (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер фантазии, иллюзии, головокружительных сюжетов, Люк Бессон, режиссер «Пятого элемента», «Никиты», «Голубой бездны» и других замечательных кинофильмов, создает новую сказку. Это его дебют в детской литературе, и в этой сказочной повести есть все ? тайны, загадки, погони, клады, волшебство...
-Какие дьявольские планы собирается осуществить Урдалак, чтобы завоевать (   Читать дальше...   )Жанр: сказка, детская литератураПродолжительность: 08:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03278FA99B84979FAE4DBC1882903265F4E1B3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519984   (341637) от 27.10.2020
-
-Евгений Шварц | Сказка о потерянном времени. Обыкновенное чудо (2010) [MP3, Олег Мартьянов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_341637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верность. Благородство. Умение любить. Эти прекрасные человеческие качества везде и всегда нужны: и в будни, и в праздники, и в жизни, и в сказке. "Обожаю, обожаю эти волшебные чувства, которым никогда, никогда не придет конец!" - так говорит один из героев Евгения Львовича Шварца.
-Герои сказок этого замечательного писателя смелы, великодушны и очень сообразительны. (   Читать дальше...   )Жанр: СказкаИздательство: Нигде не купишьПродолжительность: 03:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D1B4BA5070B298AF59592CFC8488DF4AB05E73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1038424   (606054) от 28.07.2016
+
+Человек дождя / Rain Man (1988) BDRip [H.265/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606054.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Чарли, грубоватого и эгоистичного молодого повесы, в наследство от отца остались лишь розовые кусты да «Бьюик» 49-го года. Внезапным «сюрпризом» для него стало открытие того, что львиная доля наследства оставлена отцом его больному аутизмом брату Раймонду. Задавшись целью отобрать свою «справедливую долю» семейного достояния, Чарли похищает старшего брата и держит (   Читать дальше...   )Производство: США / Guber-Peters Company, United ArtistsЖанр: ДрамаРежиссер: Барри ЛевинсонАктеры: Дастин Хоффман, Том Круз, Валерия Голино, Джералд Р. Молен, Джек Мёрдок, Майкл Д. Робертс, Ральф Сеймур, Люсинда Дженни, Бонни Хант, Ким РобиллардПеревод: Многоголосый закадровый, профессиональный (Blu-ray CEE)Язык субтитров: Итальянский, английский, русскийПродолжительность: 02:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FD507C32ED924BA2D76741277196FB41B07292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908708   (604869) от 29.06.2015
+
+Африканская королева / The African Queen (1951) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604869.jpg" />
+</div>
+
+
+###  Подробнее
+
+1914 год, Восточная Африка. Пропахший джином капитан Чарли приплывает на своем пароходике в деревню, где находится христианская миссия преподобного Сэмюэла и его незамужней сестры Розы, которые среди диких африканских джунглей ведут себя так, будто по-прежнему находятся в старой доброй Англии. Но война докатывается и до Африки.
+Ворвавшиеся в миссию немецкие солдаты (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Мелодрама, Приключения, ВоенныйРежиссер: Джон ХьюстонАктеры: Хамфри Богарт, Кэтрин Хепберн, Роберт Морли, Питер Булл, Теодор Бикел, Уолтер Готелл, Питер Суонуик, Ричард Марнер, Эррол Джон, Джералд ОннПеревод: Двуголосый закадровыйПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4641569A24E7764D06DF13C9FEE27D61AE153E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908674   (604861) от 29.06.2015
 
 Как стать швейцарцем / Die Schweizermacher (1978) BDRip [H.264/720p-LQ]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604861.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604580.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604205.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_604167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604167.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603838.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603794.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603647.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603537.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603381.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_603279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603279.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602419.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_602009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602009.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_601811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601811.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_600168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600168.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_599991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599991.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598975.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598754.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598022.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_598009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598009.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597777.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597542.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_597165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597165.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596795.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596536.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9EEA5E4922E5B4145ECA1C268386911189FDADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546140   (596180) от 04.05.2022
-
-Рожденная свободной / Born Free (1965) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_596180.jpg" />
-</div>
-
-
-###  Подробнее
-
-История львицы Эльсы, ещё детенышем попавшей к супругам Адамсон. Они не только спасают малышку от неминуемой гибели, но и, вырастив её, возвращают назад в дикую природу, потому что она была рождена свободной.Производство: Великобритания / Open Road Films, Atlas, HighroadЖанр: приключения, семейный, драмаРежиссер: Джеймс Хилл, Том МакГоунАктеры: Вирджиния МакКенна, Билл Треверс, Джеффри Кин, Питер Лукойе, Омар Чамбати, Билл Годден, Брайан Эпсом, Роберт Читэм, Роберт С. Янг, Джеффри БестПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C040FF634216345B4997DC095E1D929CA2FB0021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526480   (595463) от 25.07.2012
-
-Дикая банда / Кровавая банда / The Wild Bunch (1969) [1080p]BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_595463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 1913-й. Мир на грани Первой мировой, и давно состарившийся Дикий Запад ощущает себя уходящей натурой. Вместе с ним на покой собралась шайка грабителей, "дикая банда", шестеро ловцов удачи, слишком старых для дерзких налетов. Но они готовы еще тряхнуть стариной, и на излете легендарной карьеры порох в пороховницах этих бандолерос обернется последней (   Читать дальше...   )Жанр: Вестерн, Боевик, ДрамаРежиссер: Сэм Пекинпа / Sam PeckinpahАктеры: Уильям Холден, Эрнест Боргнайн, Роберт Райан, Эдмонд О’Брайен, Уоррен Оутс, Хайме Санчес, Бен Джонсон, Эмилио Фернандес, Стразер Мартин, Л. К. ДжонсПеревод: профессиональный (многоголосый закадровый), профессиональный (двухголосый закадровый)Язык субтитров: Русские, Английские, Французские, НемецкиеПродолжительность: 02:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544309EAE3D9EA0681DF9A9E4EAB58974A542DA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

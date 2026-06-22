@@ -1,3 +1,29 @@
+###  Публикация: 1397615   (739828) от 21.07.2020
+
+Сокровища Европы. Италия / Tresors D'Europe. Italie (2017) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Италия - одна из колыбелей европейской цивилизации. Здесь родились такие важные художественные и философские направления, как Возрождение и Гуманизм. Здесь средневековые деревни и тысячелетние города стоят в окружении виноградников и оливковых рощ - пейзажи, известные человеку еще со времен античности. Спрятанные позади дома или на склоне холма, на венецианских улочках (   Читать дальше...   )Производство: Франция, Roche ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Жульен БурПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4E3AD3DB8D1DE698E7B90C8D24B8CBE829BB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397644   (739819) от 21.07.2020
 
 Сокровища Европы. Португалия / Tresors D'Europe. Portugal (2017) HDTVRip [H.264/720p]
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_739819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739819.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_738130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738130.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736155.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736152.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC. Нью-Йорк - самый большой город США / New York: A
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736123.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_736114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736114.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_735662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735662.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734432.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_734428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734428.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ HD Suisse - Швейцария / HD Suisse: Swiss View (2007) HDTV [H.264/720p] 
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_733117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733117.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732874.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732714.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_732496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732496.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_731625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731625.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730030.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730028.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_730025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730025.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729967.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729963.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729861.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729804.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729745.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_729396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729396.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726703.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726670.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB9570F21E90BD074547BDF0804FD2466A39DE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023048   (726613) от 04.06.2016
-
-Орел и решка. Шопинг (2016.05.30) WEBRip [H.264] (cезон 4: Минск)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_726613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущие пройдутся по самым популярным заграничным шопинг-маршрутам. Дорогие бутики и блошиные рынки, новые имена в индустрии моды и раритетные винтажные вещицы — ведущие проинспектируют все. Эта программа — настоящий кладезь полезной информации для шопоголиков. Ведущие посетят: Гонконг, Майами, Канкун, Мехико, Сингапур, Ханой, Куала-Лумпур и многие другие города. (   Читать дальше...   )Телекомпания: ИНТЕР & ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D4A0A0A7E370124302BE410F66CD63DB60D912
 ```
 
 https://mybot314.ru/tekegram_catalog/

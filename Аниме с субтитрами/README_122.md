@@ -1,3 +1,29 @@
+###  Публикация: 1670514   (59447) от 17.04.2024
+
+Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights of the Apocalypse | Семь смертных грехов: Четыре всадника Апокалипсиса [2023, TV, 24 эп.] WEBRip 1080 raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59447.jpg" />
+</div>
+
+
+###  Подробнее
+
+5ый сезон Семи смертных грехов с новыми героямиПроизводство: студия Telecom Animation Film / テレコム・アニメーションフィルムЖанр: приключения, фэнтeзи, комедияРежиссер: Кодайра МакиПеревод: Anilibria(Манипулятор)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E97729C7DFC1DD1E2A65DD53083E6FE6F783F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717982   (58897) от 22.04.2024
 
 Mugen Shinshi: Bouken Katsugeki Hen | Джентльмен из грёз: Скандальное приключение [1987, OVA] LDRip 480p 10-bit raw
@@ -6,7 +32,7 @@ Mugen Shinshi: Bouken Katsugeki Hen | Джентльмен из грёз: Ска
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_58897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58897.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57410.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57403.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57393.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_57390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57390.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56881.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56878.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56877.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Mother: Saigo no Shoujo Eve | Глаза Марса [1993, Movie] VHSRip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56795.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56665.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ TWD Express Rolling Takeoff | TWD-Экспресс: Плавный взлёт [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56659.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Kurokami The Animation / Темная богиня [2009, TV,   23 серий] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56516.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Kuroi Ame ni Utarete | Жертвы чёрного дождя [1984, Movie] DVDR
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56346.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Campione! Matsurowanu Kamigami to Kami Koroshi no Maou | Чемпион! ~Шко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_56298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56298.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Touken Ranbu Kai: Kyoden Moyuru Honnouji | Танец мечей: Лабирин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55865.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55303.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55219.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Garouden: The Way of the Lone Wolf | Легенда о голодных волк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_55120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55120.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Omamori Himari / Защитница Химари [2010, TV, 12 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_54622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54622.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katt
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53775.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53498.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. / Studio Apartment, Good Lighting, Angel
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53253.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53166.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Jii-san Baa-san Wakagaeru / Grandpa and Grandma Turn Young Again / Дедушк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53157.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Mahou Shoujo ni Akogarete | Gushing over Magical Girls | Становясь во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53137.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Mahou Shoujo ni Akogarete | Gushing over Magical Girls | Становясь во
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8493A0F6CA0DBA7D445DCC24032DB8984974EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712092   (53074) от 17.06.2024
-
-Re:Monster | Перерождение: Монстр [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_53074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каната Томокуи, обладающий экстрасенсорными способностями, погибает от рук сталкерши. Но жизнь ещё не окончена! Он перерождается в мире меча и магии в виде низкоуровневого гоблина. Гобуро, так теперь зовут героя, будет использовать свои новые физические способности и старые навыки по поглощению способностей всего съеденного (будь то живые существа, яды или камни (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: приключения, фэнтезиРежиссер: Инагаки ТакаюкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Multi-SubПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F79F12101A492935D21A0EEA319DD189C1291E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

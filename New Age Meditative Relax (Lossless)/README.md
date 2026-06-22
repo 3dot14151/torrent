@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1875979   (1073190) от 
+
+Enigma - 1991-Best-1996 (1996) Compilation, Unofficial [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1073190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Voice Of Enigma - 2:10
+02 - Sadeness - 4:18
+03 - Find Love - 4:52
+04 - Sadeness (reprize) - 2:51(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B823160ADCC37AE5AEA5E367F2BAECE5907ABB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1873596   (1071290) от 29.05.2026
 
 ERA - ERA VIII (2026) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -7,7 +36,7 @@ ERA - ERA VIII (2026) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/010//save_picture_1071290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/010/save_picture_1071290.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ Govi - Cuchama (1993) [FLAC|Lossless|tracks + .cue] <Latin Jazz, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1069154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1069154.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1055606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055606.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Y
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045731.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045672.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1041524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041524.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040616.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Offerings to the Ganges - Spiritual Tantric Energy: Enjoy Valentines Day (2023) 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040435.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ John Weider - Intervals In Sunlight (1987) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1040421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040421.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Chinmaya Dunster - The Akasha Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037276.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenc
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036933.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Gabriella Quevedo - Acoustic Cover Songs, Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036880.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Gabriella Quevedo - Gabriella’s Acoustic Arrangements (2020) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036870.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ David Arkenstone - Celtic Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036101.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ DJ Chill del Mar - Fresh Mix Chillout 2021 [FLAC|Lossless|WEB-DL|tracks] <New ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036009.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ VA-Enigmatica II / DJ Fact`ry volume 2 (2001) [FLAC|Lossless|tracks + .cue] <Eni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034913.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Relax Time Zone - Bathroom Wellbeing Relax with Calm Piano (2023) [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1034797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034797.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Yakuro - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033969.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Flaer Smin - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033513.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Flaer Smin - Karma (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033506.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Yakuro - My Space (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033495.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Baran Yildiz - Interbeing (2019) [FLAC|Lossless|WEB-DL|tracks] <Handpan, World, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033396.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1033234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033234.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1032507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032507.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031654.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33FC095A18B9D74CDB8ABEA5203A10421FE7D0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447777   (1031010) от 16.02.2021
-
-Sina Vodjani - Священный Будда (1998) Правительство Звука, 2002 [FLAC|Lossless|tracks + .cue] <World, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1031010.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот альбом Sina Vodjani вдохновили духовные наставники Мата Амританандамай и Его Святейшество, 17 Кармапа. "Эти люди изменили мою жизнь, - говорит музыкант. - Своей музыкой я всегда пытался донести до людей свет, мир, надежду и благословение. Выпуская компакт-диски, я также могу оказывать материальную поддержку тем, кто в ней нуждается, делать пожертвования (   Читать дальше...   )01. Straight to the Heart (8:10)
-02. Om Mani Padme Hung (5:47)
-03. Milarepa (5:38)
-04. Dorje Chang (3:35)(   Читать дальше...   )Жанр: World, New AgeПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48B3DA59F5DEBE29265FDC46C3D4E41FFDA297C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1749327   (43575) от 14.09.2024
+
+Нерв / Nerve (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поддавшись на уговоры одноклассниц, тихоня Ви открывает для себя мир популярной онлайн-игры «Нерв», где участники выполняют задания разной степени сложности, которые придумывают для них другие пользователи. В случае успеха игроки получают очень неплохие деньги. Ви проявляет неожиданную для самой себя смелость и отсутствие комплексов, и в очередном раунде знакомится (   Читать дальше...   )Производство: США, Гонконг / Lionsgate Films, TIK Films, Allison Shearmur ProductionsЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Генри Джуст, Эриель ШульманАктеры: Эмма Робертс, Дэйв Франко, Эмили Мид, Майлс Хейзер, Джульетт Льюис, Кимико Гленн, Марк Джон Джеффрис, Колсон Бэйкер, Брайан «Сене» Марк, Эд СквайрПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344D7D123E6CDA235FF74C9FC29FDFFB1AC981BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749228   (43488) от 15.09.2024
 
 Семь / Se7en (1995) BDRip [H.265/1080p] [10-bit] [Open Matte] [hand made AI]
@@ -6,7 +32,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43488.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43474.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43449.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43385.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43383.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43288.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43277.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43261.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43257.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43208.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43203.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43103.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43076.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43053.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43052.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42986.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42976.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42974.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42966.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42948.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42942.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42940.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42889.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42854.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42804.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62163DE7CFC895DD6B132EBD396CF1EAC21B9954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745782   (42761) от 22.09.2024
-
-Воровка книг / The Book Thief (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германия, канун Второй мировой войны. Смерть готовится начать свою жатву. Девятилетняя Лизель переезжает в Мюнхен к своим приемным родителям и с их помощью учится читать. С каждым днем чтение становится ее жизненной потребностью, и Лизель начинает воровать книги — единственную отраду ее жизни. Все, что она узнает из них, помогает ей понять события, происходящие вокруг (   Читать дальше...   )Производство: Германия, США, Великобритания / Fox 2000 Pictures, Ingenious Film Partners, Studio Babelsberg, Sunswept Entertainment, The Blair Partnership, TSG EntertainmentЖанр: драма, военныйРежиссер: Брайан ПерсивалАктеры: Софи Нелисс, Джеффри Раш, Эмили Уотсон, Бен Шнетцер, Нико Лирш, Роджер Аллам, Барбара Ауэр, Карина Визе, Оливер Штоковски, Райнер БокПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, hardsub на непереведенную речь), английскиеПродолжительность: 02:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDBD9EE262056C94A54F13B9AC2B1A91469D13E
 ```
 
 https://mybot314.ru/tekegram_catalog/

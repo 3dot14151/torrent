@@ -1,3 +1,61 @@
+###  Публикация: 1185433   (791949) от 25.01.2018
+
+Сборник клипов - Русские 2000-2016 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот сборник я включил самые достойные и хитовые поп клипы от музыкантов с постсоветского пространства с 2000 по 2016 год. Это 2 часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Интро
+061 Валерий Меладзе - Иностранец
+062 Ани Лорак - Обними меня
+063 Группа 101 - Дай мне время(   Читать дальше...   )Жанр: PopПродолжительность: 03:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32EF177AF121F36BBA49F79F32F8B2A22ED94300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202378   (790354) от 28.01.2018
+
+Сборник клипов - Hard Rock and Metal от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 4)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790354.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+151 Def Leppard - Let's Get Rocked
+152 Offspring - Gotta Get Away
+153 Bonfire - Sweet Obsession(   Читать дальше...   )Жанр: Rock, MetalФормат: MKVПродолжительность: 03:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A949033D46F89CAE3086CBFA53A9062AF511AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204342   (784828) от 05.02.2018
 
 Сборник клипов - Русский Рок от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 5)
@@ -6,7 +64,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_784828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784828.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_783038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783038.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_780169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780169.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/006//save_picture_778460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778460.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ Everest of Rock - 1 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777212.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Wax Audio - Mashopolos (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777139.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_777078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777078.jpg" />
 </div>
 
 
@@ -204,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776783.jpg" />
 </div>
 
 
@@ -230,7 +288,7 @@ VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776740.jpg" />
 </div>
 
 
@@ -259,7 +317,7 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776704.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776353.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776301.jpg" />
 </div>
 
 
@@ -343,7 +401,7 @@ VA - Весенний марафон № 229: (Новые Лучшие Зару�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_776273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776273.jpg" />
 </div>
 
 
@@ -372,7 +430,7 @@ Everest of Rock - 2 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_775680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775680.jpg" />
 </div>
 
 
@@ -401,7 +459,7 @@ Bon Jovi - Music Video (51 клип) (1985-2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774197.jpg" />
 </div>
 
 
@@ -427,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_774037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774037.jpg" />
 </div>
 
 
@@ -456,7 +514,7 @@ Everest of Rock - 3 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771350.jpg" />
 </div>
 
 
@@ -485,7 +543,7 @@ Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_771275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771275.jpg" />
 </div>
 
 
@@ -513,7 +571,7 @@ VA - Весенний марафон № 163 / Видеоклипы (Заруб�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_770671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770671.jpg" />
 </div>
 
 
@@ -543,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_769165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769165.jpg" />
 </div>
 
 
@@ -570,7 +628,7 @@ Everest of Rock - 4 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_762638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762638.jpg" />
 </div>
 
 
@@ -597,7 +655,7 @@ Lindsey Stirling ft. Lzzy Hale - Shatter Me (2014) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_759480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759480.jpg" />
 </div>
 
 
@@ -623,7 +681,7 @@ Coldplay - Higher Power (2021) WEBRip [VP9/1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758536.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ VA - Official UK Top 40 Video Chart (Febr, 2019) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_758347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758347.jpg" />
 </div>
 
 
@@ -663,61 +721,6 @@ VA - Official UK Top 40 Video Chart (Febr, 2019) WEB-DL [1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB078AF30001E02BACA2EA9730BDE5735E6AEE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522958   (754658) от 09.01.2022
-
-Сборник видеоклипов (2021) WEBRip [H.264/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_754658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.1.Ava Max - Everytime I Cry
-2.Becky G, Natti Natasha - Sin Pijama
-3.Benny Benassi feat. Gary Go - Let This Last Forever
-4.BLACKPINK - How You Like That(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136207894285ADDFCF0AE349466AFC0106DE61A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781851   (752390) от 30.04.2014
-
-Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_752390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, Dubstep, RockПродолжительность: 00:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14BDC628A3586FB50B706A059D48F9873B71A63
 ```
 
 https://mybot314.ru/tekegram_catalog/

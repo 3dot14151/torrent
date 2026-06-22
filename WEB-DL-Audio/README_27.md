@@ -6,7 +6,7 @@ Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113623.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ngguitarboy - Woolabaloola (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113616.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113485.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113482.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113457.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113364.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kid Kapichi - There Goes The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113363.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Smooth Jazz Music Club, Chilled Jazz Masters - Erotic Jazz Bar: Sexy Evening wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113344.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Irene Dresel - Rose Fluo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Tech
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113326.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Zhu - Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Bas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113293.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113273.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113249.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113248.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Rebel Saints - The Rebel Saints (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113245.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Coil - Moon's Milk (In Four Phases) (2002) 5CD Boxset, 2024, Dais Records[FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113230.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bossa Cafe en Ibiza, Bossanova, Instrumental Jazz School, Marco Rinaldo - Sensua
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113170.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Forsaken - Isolated from the Birthland (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113151.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Manntra - Live in Leipzig (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113143.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Cornelia Nilsson - Where Do You Go (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113139.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Harlem Jazz Guitar Quartet - Rock Jazz Fusion (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113133.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113131.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113130.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113125.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113124.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113118.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_113117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113117.jpg" />
 </div>
 
 

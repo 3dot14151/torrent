@@ -6,7 +6,7 @@ CG Cookie, Wayne Dixon | Управление камерой в Blender 2.83 и 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180616.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180592.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Dream&Draw, Анастасия Козлова | Клуб "Мечтай и рис
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_180574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180574.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ FlippedNormals, Emiel Sleegers | Создание научно-фантасти�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_180466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180466.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ CG Cookie, Kent Trammell | Искусство скульптинга в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179843.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ CG Cookie, Kent Trammell | Моделирование реалистичных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179743.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ FlippedNormals, Chunck Trafagander | Создание тримов для игр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179607.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Enterclass, Татьяна Анисимова | Натюрморт с фрукт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179501.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_179470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179470.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Enterclass, Сергей Курбатов | Зеленый цвет в пейз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179377.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ education.iyaaar | Марафон стикеров. Тариф мужские (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179337.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Max Twain | Workshop - Создание серии артов в нейросе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_179221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179221.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ CG Cookie, Kent Trammell | Рендеринг и финишная анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178140.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ CG Cookie, Wayne Dixon | Учебный лагерь по анимации в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178103.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Lynda, David Andrade | Создание законченной анимации 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_178061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178061.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176398.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Arrimus | Arrimus Ultimate 3D Modeling Course (2022) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176384.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_175781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175781.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ CG Cookie, Jonathan Lampel | Основы динамической симуля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175765.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Udemy, Darrin Lile | Blender 2.83 и захват движения / Blender 2.8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175722.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ ArtStation, Rico Cilliers | Введение в скульптинг в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_175612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175612.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Gumroad, Evolving CG | Создание малыша Йоды / Creating Baby Yo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174907.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Skillshare, Simon Van Den Hende| Основы скриптинга на Python �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174873.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174789.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Tolkovoprod, Анастасия Мазуровская | I am designer. Тари
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_174788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174788.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Schoolism, Bobby Chiu | Цифровое рисование с Бобби Чу /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_174712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174712.jpg" />
 </div>
 
 

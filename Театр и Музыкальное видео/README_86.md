@@ -1,3 +1,437 @@
+###  Публикация: 388575   (458069) от 17.09.2011
+
+Legends Disco Star-80 (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступления звёзд дискотек 80х: Sandra, Thomas Anders, C.С. Catch, Samantha Fox, Chris Norman, Europe, Sabrina, Bad Boys Blue, Opus
+хркъSandra:
+Maria Magdalena
+The Night is Still Young
+ForeverЖанр: Музыкальное видео, клипыПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306E5501764217F58C6D943866D58D2EFD984FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321700   (456558) от 25.08.2019
+
+Жара в Баку - Хиты 90 х (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот вечер посвящен музыке 1990-х. В ту эпоху рождались самые безудержные музыкальные хиты, которые и сегодня никого не оставят равнодушными.
+Концерт посвященный юбилею Любэ и самым ярким ХИТАМ 90-Х! Для вас выступят Валерия, Николай Басков, Филипп Киркоров, Фабрика, Леонид Агутин, Отпетые Мошенники, Григорий Лепс, EMIN, Алёна Свиридова, НА-НА, Александр Буйнов, (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87C488AB26534F779DA23FC1525591F953A7A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321667   (456447) от 25.08.2019
+
+Сборник клипов - Golden Hits 90s Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые и фишкастые клипы лихих 90х. Ремастеринг видео и звука. Это 1я часть. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Golden Hits 90s - Intro
+01. La Bouche - Be My Lover
+02. Backstreet Boys - Everybody
+03. Haddaway - Who Do You Love(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC64B7979DA0FC84CB11D2A8BCAD4E57EE403C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694859   (456154) от 27.09.2013
+
+LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маргарэт Лиэнн Раймс (Margaret LeAnn Rimes, род. 28 августа 1982 года) — американская исполнительница в стиле кантри, которая известна тем, что начала серьёзную музыкальную карьеру уже в 11 лет, а в 14 лет выиграла свою первую «Грэмми».
+Трек - (Не Можешь Биться с Лунным светом), саунтрек к фильму «Бар „Гадкий койот“»Жанр: PopПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA435889FAD4151E93E3021B9E4469BAB16A2B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389049   (456112) от 18.09.2011
+
+ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456112.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Could you believe” — отражает нынешнее состояние музыканта, чувства, стиль. Прошлогодняя пластинка была наполнена легкой печалью с грусть, в этом году атмосфера сместилась в сторону летнего хауса, который напоминает большую сладкую вату розового цвета, также свой отпечаток оставляет слащавый голосок. Андре всего умел красиво обработать вокал: агрессивно, эротично, (   Читать дальше...   )Производство: Kontor Records (Германия)Жанр: TranceПродолжительность: 00:03:40 (Official Video HQ) / 00:05:17 (Live @ Club Rain Palms - Las Vegas)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF885A3CD5FB8E4C75993E8697CA519642B67925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388766   (455837) от 18.09.2011
+
+Foreigner - Rockin' At The Ryman (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живой концерт ветеранов рока Foreigner 16 марта 2010 в Ryman Theatre - Nashville, USA01. Double Vision
+ 02. Head Games
+ 03. Cold As Ice
+ 04. In Pieces(   Читать дальше...   )Жанр: Концерт, Melodic RockПродолжительность: 01:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819A84CAD8434560A606EC3E24431EF66B8C310B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388947   (455669) от 18.09.2011
+
+Группа Нэнси - Дым сигарет с ментолом - 15 лет (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный сборник группы Нэнси01. Дым сигарет с ментолом (Live exclusive show)
+02. Чистый лист (Видеоклип)
+03. Отель (Видеоклип)
+04. Свадьба знатная (Live exclusive show)
+05. Светлана (Live exclusive show)
+06. Туман-туман (Live exclusive show)
+07. Горько плакала ива (Видеоклип)
+08. Дым сигарет с ментолом (Видеоклип)
+09. Ты далеко (Видеоклип)
+10. Деловой человек (Live exclusive show)Жанр: Музыкальное видеоПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1D66BB6CF300486423EBBD6E365C7B88FE6A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942224   (455158) от 30.09.2015
+
+Rammstein - In Amerika (2015) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein выпустили DVD «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18 000 человек на сцене Madison Square Garden в Нью-Йорке. Спустя пятилетие, 25 сентября этого года концерт под названием «Live From Madison Square Garden» получит официальный релиз на DVD и Blu-ray стараниями лейбла Island Records и Universal Music Enterprises. (   Читать дальше...   )01. Rammlied
+02. B********
+03. Waidmanns Heil
+04. Keine Lust(   Читать дальше...   )Производство: Германия | Island Records, Universal Music EnterprisesЖанр: Industrial Metal, Hard Rock, NDHРежиссер: Ханнес РоссачерПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12E512B86569337603EDFCECBCEF857AC589F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550793   (455017) от 23.09.2012
+
+Слэйд / Slade The Complete Video Collection (1971-1982) (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455017.jpg" />
+</div>
+
+
+###  Подробнее
+
+На данной видео коллекции  Slade - редкие видео выступлений группы в телевизионных передачах 70-х годов:
+  - Beat-Club
+  - Musikladen
+  - Disco
+  - Top Of The Pops
+(в хорошем качестве VH1)Slade 71-82
+
+1. Get Down And Get With It (promo) (1971)
+2. Coz I Luv You (Top Of The Pops, 1971)
+3. Hear Me Calling (Beat-Club, 28.11.71)
+4. Look Wot You Dun (promo) (1972)
+5. Mama Weer All Crazee Now (Disco, 09.12.72)
+6. Gudbye T’Jane (TOPPOP, 1972)
+7. Bangin’ Man (Disco, 26.10.74)
+8. Far Far Away (Disco, 01.02.75)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Classic RockПеревод: ОтсутствуетПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060386   (454721) от 07.10.2016
+
+Гудгора. Концерт Вячеслава Бутусова (03.12.2015) HDRip [H.265/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы "Ю-Питер" в Питере, в БКЗ "Октябрьский", 3 декабря 2015 года.01. Апокалиптическая
+02. Возьми меня с собой
+03. Чёрная птица-белые крылья
+04. Одинокая птица(   Читать дальше...   )Жанр: МузыкаАктеры: Вячеслав БутусовПродолжительность: 01:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E7E010729BB43618257D5B7C3EAF767226E27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704629   (454126) от 28.09.2013
+
+The Bacon Brothers - No Food Jokes Tour (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman's Got a Mind to Change
+02. Getting There
+03. Grace
+04. Sooner Or Later(   Читать дальше...   )Жанр: Country Rock, RockРежиссер: Майкл Драмм / Michael Drumm
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3662D14F61D5BF0735A14E59D4BAF610BB78AD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389409   (453773) от 19.09.2011
+
+Миша Маваши - Среди высоток и аллей (2011) [720p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Миша МавашиПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B33EAB2A34808E042CD1A6040C428671E1BE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389423   (453750) от 19.09.2011
+
+Миша Маваши - Помнить должен (2011) [720p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Миша МавашиАктеры: Миша МавашиПродолжительность: 00:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0001AE56E6F55B2FD71870EEA9D2247AB3921D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389457   (453574) от 19.09.2011
+
+Звёзды шансона в Лужниках (2011.09.18) (2011) IPTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт с участием звезд русского шансона в Лужниках, посвящённый Дню города.Жанр: КонцертПродолжительность: ~ 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C200170A415161FD95C5BD3F8CD0028B423843C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551393   (453457) от 24.09.2012
+
+Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D736EF05D0FA48817BF1443B358D8F602FF5644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551385   (453324) от 24.09.2012
 
 Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
@@ -6,7 +440,7 @@ Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453324.jpg" />
 </div>
 
 
@@ -32,7 +466,7 @@ Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453319.jpg" />
 </div>
 
 
@@ -58,7 +492,7 @@ Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453317.jpg" />
 </div>
 
 
@@ -84,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453283.jpg" />
 </div>
 
 
@@ -110,7 +544,7 @@ Booba - Caramel (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453120.jpg" />
 </div>
 
 
@@ -136,7 +570,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_453100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453100.jpg" />
 </div>
 
 
@@ -165,7 +599,7 @@ Heaven And Hell - Live from Radio City Music Hall (2007) [H.264] BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_452981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452981.jpg" />
 </div>
 
 
@@ -194,7 +628,7 @@ Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451422.jpg" />
 </div>
 
 
@@ -220,7 +654,7 @@ Yes - Symphonic Live (2011) [ 1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_451421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_451421.jpg" />
 </div>
 
 
@@ -255,7 +689,7 @@ C.C.Catch - Catch The Hits - Ultimate video collection (2005) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451413.jpg" />
 </div>
 
 
@@ -281,7 +715,7 @@ Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451408.jpg" />
 </div>
 
 
@@ -292,414 +726,6 @@ Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B9C9E62A2AA1B1AA402B0CCCE0588F40F1728A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942906   (451364) от 02.10.2015
-
-VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 02 октября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе использованы официальные видеоролики.01. Justin Bieber - What Do You Mean  (4:58)
-03. R. City - Locked Away ft. Adam Levine  (4:25)
-04. Calvin Harris & Disciples - How Deep Is Your Love  (4:21)
-05. The Weeknd - Can t Feel My Face  (3:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD40758EADD23E0671FFDD593EFFF1ABB53EEA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942985   (451185) от 02.10.2015
-
-Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple объявили о выпуске двух концертных фильмов, снятых на Wacken и в Японии. To The Rising Sun (в Wacken) был снят на девять HD камер и отмечается что в первый раз Deep Purple выпустит 3D-фильм.01. Apres Vous
-02. Into The Fire
-03. Hard Lovin‘ Man
-04. Strange Kind Of Woman(   Читать дальше...   )Жанр: Rock,  Hard RockПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBA7C6DD11DF4FD5CC662251ABFFDD187097003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247640   (451085) от 16.09.2018
-
-Квартирник на НТВ у Маргулиса. L’one (09.15.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_451085.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту субботу в гости к Евгению Маргулису пришел знаменитый рэпер L’one. Он рассказал зрителям историю своего псевдонима и обсудил с ведущим дуэты и записанные совместно с Варварой Визбор песни. Также музыкант признался, что он ни разу до этого не играл на квартирниках. Рэпер поделился историями о жизни в Якутске, где играл в двух командах КВН: «Якутские первооткрыватели», (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F2D341D2F35823AB5ADE3A86443EC25039032F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705572   (449051) от 30.09.2013
-
-Архив русского рока (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_449051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Телевизор "Твой Папа — Фашист"
-02. Аквариум "Рыба"
-03. Егор Летов "Всё Идёт По Плану"
-04. Ноль "Я Люблю Буги-Вуги"(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50D93A0F64797AC0977B0A40D67D0DD05F4C230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389050   (448936) от 21.09.2011
-
-Вячеслав Полунин. Снежное шоу / Slava's Snowshow (2010) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слава Полунин представит не просто прекрасный спектакль, а наверное уже самое узнаваемое шоу - "CНЕЖНОЕ ШОУ". Смешное и фантастичное, увлекающее, трогательное и само собой незабываемое путешествие в мир тайн, в мир праздника, в мир снов и детства. Шоу Полунина - это успех на все сто процентов и этот успех практически невозможно повторить. Более того, этот успех не возможно и пережить без смешанных чувств и эмоций. Вот почему шоу собирает супераншлаги из года в год на всех представлениях, во всех странах и на всех континентах.Там где ОН появляется, его сопровождают восторг и восхищение, слезы радости и улыбки сопереживания героям, созданные непревзойденным талантом великого режиссера и артиста. Снежное шоу Славы Полунина - это действо состоит из ряда миниатюр, которые знает и любит не только российская публика. Здесь есть и Асисяй - смешной и трогательный человечек в желтом комбинезоне и красных лохматых тапочках. Нежный, поэтичный и несомненно задумчивый персонаж, характер которого вобрал в себя поэтическую (   Читать дальше...   )Жанр: КлоунадаРежиссер: Рустам ДубинниковПеревод: Не требуетсяПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FDACEA88A7B1C39B7F5962731D56C24B2AA1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551914   (448413) от 26.09.2012
-
-Cinnamon Chasers (2009-2011) [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectronicПродолжительность: 00:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B412144D340C5E69A01ECA5EA823799774CABE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705206   (448358) от 30.09.2013
-
-На дне (2 части) (1972) DVDRip (Современник)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Фильм-спектакль, экранизацияРежиссер: Галина ВолчекАктеры: Евгений Евстигнеев, Игорь Кваша, Андрей Мягков, Валентин Никулин, Лилия Толмачева, Валерий Хлевинский, Алла Покровская, Нина Дорошина, Григорий Острин, Владимир Земляникин, Рогволд Суховерко, Елена Миллиоти, Авангард Леонтьев, Людмила Иванова, Виктор Сергачев, Олег Табаков, Петр ЩербаковПродолжительность: 01:34:46 + 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C2BAE6A84BDB980C50491FAFBE4D90AF1C15E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552162   (448163) от 26.09.2012
-
-Альборада Дель Инка / Alborada Del Inka - Восход Инков (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_448163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень красивая этническая музыка на фоне природы запада Южной Америки (Перу). Приятно как посмотреть так и просто пустить фоном. Ребята весьма талантливы!Жанр: Folk/Panflute/InstrumentalПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B490202F7D72A090FD608189B73250C686D5B66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551598   (447722) от 26.09.2012
-
-Андреа Бочелли: Концерт iTunes Festival в Лондоне 2012 - Andrea Bocelli: Live at iTunes Festival London 2012 (2012) WEBRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_447722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андреа Бочелли - Концерт на iTunes Фестивале в Лондоне 18 cентября 2012 года... «Почему музыка? Потому что мы любим музыку», — сказал Стив Джобс на презентации в 2001 году. В 2007-м любовь получила прекрасное воплощение: в насквозь музыкальном Лондоне прошёл первый iTunes Festival. С тех пор он проводился каждый год, в июле, а принимал его в последние три года концертный зал The Roundhouse. В 2012-м англичанам вновь представился шанс послушать любимых исполнителей вживую. Музыкальный фестиваль iTunes Festival (   Читать дальше...   )Жанр: Концерт, Классическая музыка, вокал, кроссоверПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0359246FEFA3DCE66784D629EDC35091CCD70EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943489   (446910) от 04.10.2015
-
-Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный бирмингемский музыкант Джефф Линн совершил триумфальный камбэк в виде первого полноценного шоу на британской земле впервые почти за 30 лет. Сопровождаемый BBC Concert Orchestra и штатным клавишником ELO Ричардом Тэнди, Джефф порадовал своих поклонников великолепным 80-минутным концертом, состоявшимся 14 сентября 2014 года в лондонском Гайд-Парке в рамках (   Читать дальше...   )Треклист:
-01. All Over the World
-02. Evil Woman
-03. Ma-Ma-Ma Belle(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2EF4EF27A88E3F56CA9BFAE733B6C5F70C09AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175198   (446721) от 03.10.2014
-
-Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_446721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Avril Lavigne в Calgary Alberta (Canada) 2 апреля 2007.01. Girlfriend
-02. I Can Do Better
-03. Sk8er Boi
-04. My Happy Ending(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390809   (446661) от 22.09.2011
-
-Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D6EF8360E953AF7C9E6C62AF3BC0820146EB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552688   (446413) от 27.09.2012
-
-Barillo - Dust (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3284B7ACEFBFD2B12301C91AE02C3208F78FE8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553018   (446222) от 27.09.2012
-
-KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F031211E2AB7E8D94BEAE1982DB6A21B7FDF1456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248092   (446177) от 18.09.2018
-
-Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 / 2013) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_446177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт воссоединившейся группы Scorpions, исполнившей свои хиты 22 июня 2000 года в своём родном городе Ганновере с Берлинским филармоническим оркестром.01. Hurricane 2000
-02. Moment Of Glory
-03. You And I
-04. We Don't Own The World(   Читать дальше...   )Производство: США \ Eagle Rock EntertainmentЖанр: Heavy Metal, Hard Rock, Symphonic RockРежиссер: Пит ВайрихСубтитры: ОтсутствуютПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E5F511E9F011E837CD3D4FD2C3F392CEF24B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

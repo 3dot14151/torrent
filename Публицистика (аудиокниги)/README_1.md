@@ -1,3 +1,59 @@
+###  Публикация: 1848539   (1053177) от 20.01.2026
+
+Бао Ли | Китайская культурная революция (2025) [MP3, Евгений Шокин]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему народ поддержал Мао? Зачем потребовался этот социальный эксперимент, полный жестокости и абсурда? Книга предлагает взвешенный взгляд на одно из самых противоречивых явлений XX века, исследуя его истоки, логику и последствия.
+
+Культурная революция часто поражает современных людей степенью жестокости и абсурда. Бесконтрольное уничтожение воробьев, публичные (   Читать дальше...   )Жанр: ИсторияИздательство: Аудиокнига (АСТ)Продолжительность: 06:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D16AC9B6C019A49F77ADE99A65FB20335769D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848562   (1053176) от 20.01.2026
+
+Марк Солонин | Как Советский Союз победил в войне (2021) [MP3, Юрий Белик]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опираясь на рассекреченные в последние годы документы Министерства обороны, автор доказывает, что вся история Великой Отечественной войны – ложь! Что Советский Союз не был невинной жертвой, подвергшейся вероломному нападению, а сам готовил войну. Войну, которая пошла совсем не по советскому плану.
+
+Марк Солонин уверен, что возникший в последние годы жанр «документальных (   Читать дальше...   )Жанр: История, Военное делоИздательство: ЛитРесПродолжительность: 08:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17BA49F1007F958D9E4A2A507D581D50D22F8D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848561   (1053175) от 20.01.2026
 
 Марк Солонин | Нет блага на войне (2021) [MP3, Дмитрий Котовский]
@@ -6,7 +62,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053175.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053167.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053130.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053121.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1053120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053120.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052537.jpg" />
 </div>
 
 
@@ -168,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052536.jpg" />
 </div>
 
 
@@ -194,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052535.jpg" />
 </div>
 
 
@@ -220,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052474.jpg" />
 </div>
 
 
@@ -247,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052430.jpg" />
 </div>
 
 
@@ -273,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051506.jpg" />
 </div>
 
 
@@ -300,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_1048072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048072.jpg" />
 </div>
 
 
@@ -327,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046994.jpg" />
 </div>
 
 
@@ -353,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046797.jpg" />
 </div>
 
 
@@ -379,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1046471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046471.jpg" />
 </div>
 
 
@@ -405,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1045067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045067.jpg" />
 </div>
 
 
@@ -431,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1044707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044707.jpg" />
 </div>
 
 
@@ -458,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1043601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043601.jpg" />
 </div>
 
 
@@ -484,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038355.jpg" />
 </div>
 
 
@@ -510,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038347.jpg" />
 </div>
 
 
@@ -536,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1038343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038343.jpg" />
 </div>
 
 
@@ -562,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1037545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037545.jpg" />
 </div>
 
 
@@ -588,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1036579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036579.jpg" />
 </div>
 
 
@@ -614,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1027518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027518.jpg" />
 </div>
 
 
@@ -625,61 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7EB8D5370FC3FBA872FAE175D99323EC1FBEC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454817   (1026113) от 16.03.2021
-
-Анна Кирьянова | Уютные люди. Истории, от которых на душе тепло (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1026113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда жизнь несется бешеным галопом, а будни мелькают, как спицы в колесе, порой хочется остановиться и выдохнуть. Остаться дома, завернуться в уютный плед и уединиться с любимым напитком и книгой в руках. Это должна быть очень простая, понятная книга о жизни, где все истории – о тебе. Конечно, они будут о разных героях, но ты понимаешь их, сочувствуешь, плачешь (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 14:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C701B87340CAF593557DB4AE666A31B4A6F0B67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457484   (1024390) от 26.03.2021
-
-Катя Мартынова | Исповедь узницы подземелья (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1024390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шокирующая история жертвы «скопинского маньяка».
-
-Читает автор!
-(   Читать дальше...   )Жанр: Биографии и мемуары, Истории из жизниПродолжительность: 02:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DEFCD2A2C4ED92021545F46EE1B73CA1863573
 ```
 
 https://mybot314.ru/tekegram_catalog/

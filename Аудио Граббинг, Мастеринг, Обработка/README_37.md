@@ -1,3 +1,215 @@
+###  Публикация: 1740145   (48270) от 31.07.2024
+
+Excite Audio - Bloom Bundle 2024.7.31 STANTALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Bloom объединяет коллекцию мгновенно вдохновляющих инструментов. Эти инструменты, созданные на основе лупов, ваншотов и фраз, были спроектированы и созданы для обеспечения потрясающего звучания прямо из коробки. Фразы можно запускать, трансформировать и переставлять, чтобы добавить в вашу музыку уникальные элементы — и всё это в тональность и в такт к вашему (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0E2E5E7167E6304D733376B3AD3DA44E70C782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740495   (48061) от 02.08.2024
+
+Producers Vault - Romantic Keys 2.8.4 VSTi 3 (x64) Retail [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Romantic Keys, который создавался десятилетиями, - это воплощение мечты всех тех музыкантов, продюсеров и композиторов, которые любят красивые звуки медленных песен и баллад 1980-х и 1990-х годов.
+Этот плагин мгновенно станет источником вдохновения благодаря своему прекрасному звучанию. Каждый патч и эмуляция инструмента были тщательно обработаны, отредактированы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7197B8384586D2B7D4EAD2F69CEFB972C7C81CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740955   (47859) от 04.08.2024
+
+Kazrog - True Iron 1.4.2 VST, VST 3, AAX (x64) Retail [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47859.jpg" />
+</div>
+
+
+###  Подробнее
+
+True Iron - это плагин, номинированный на премию NAMM TEC, созданный Шейном МакФи (Kazrog) совместно с Девином Пауэрсом (Powers Music Company).
+В состав True Iron входят 6 отличных линейных трансформаторов от самых известных аудио-устройств – UTC 108 X, Malotki E4M - 4001B, Western Electric 111C, Haufe V178, Marinair LO1166/A и UTC O-12.
+Добавьте аналоговой теплоты, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4ABB5D9A84185D9D7E1C66EA2E374EC270D35A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741325   (47676) от 06.08.2024
+
+Sound Normalizer 8.7 (06.08.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sound Normalizer - звуковой нормализатор звука, предназначенный для повышения или восстановления уровня громкости музыкальных WAV и MP3 файлов, причем отдельно по каждому каналу. Уровень громкости отображается в графическом виде с использованием процентного значения. WAV-нормализация выполняются по пиковому уровню(пиковая нормализация), а MP3-нормализация по стандарту (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4621D41EF0D5987729A2D8B9E06A8D3BD54BEEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741881   (47457) от 08.08.2024
+
+Togu Audio Line Instruments Collection 08.2024 VSTi, VSTi 3, AAX, CLAP (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47457.jpg" />
+</div>
+
+
+###  Подробнее
+
+TAL Software GmbH — небольшая компания, основанная примерно в 2000 году и расположенная в Швейцарии. Мы создаем высококачественные инструменты и эффекты с удобным интерфейсом по разумной цене. Известно, что наши эмуляции винтажных синтезаторов очень точны и аутентичны. Программное обеспечение TAL используется популярными продюсерами, музыкантами во всём мире.
+В коллекции (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F380A51EAC1EEF454F02D14326259614BF559B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741756   (47424) от 08.08.2024
+
+Plugin Alliance & Brainworx - bx XL V3 3.0.1 VST, VST 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47424.jpg" />
+</div>
+
+
+###  Подробнее
+
+bx_XL V3 позволяет мастеринг-инженерам создавать громкие миксы без ущерба для четкости звука. Используя технологию mid/side от инновационного эквалайзера Brainworx bx_digital, вы можете разделить канал mid на две полосы (низкие и высокие частоты). Это позволяет управлять тремя отдельными каналами – средне-низким, средне-высоким и боковым, что приводит к увеличению (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A0EB302ACAEE4EA4886062ABB326E7C0561701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741757   (47420) от 08.08.2024
+
+Plugin Alliance & THX - Spatial Creator 1.1.0 VST 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный на технологии THX® Spatial Audio, THX Spatial Creator - это иммерсивный аудио-плагин для музыкантов и создателей контента, использующих цифровые аудиостанции (DAW). Это инструмент позиционного рендеринга звука, который помогает художникам преобразовывать монофонический или стереозвук в невероятный бинауральный звук с обзором на 360 градусов. Микширование, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA840A7324864E3D27E0BD35C00AEB230545D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741955   (47348) от 09.08.2024
+
+Sonible - pure:limit 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47348.jpg" />
+</div>
+
+
+###  Подробнее
+
+pure: limit без особых усилий укрощает пики, уравновешивает динамику и подбирает нужный уровень для вашего микса – и все это одним нажатием кнопки.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB36839354A9FD0C7FDE680C7995C3A45DCC0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742256   (47231) от 10.08.2024
 
 Sonible - pure:EQ 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
@@ -6,7 +218,7 @@ Sonible - pure:EQ 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47231.jpg" />
 </div>
 
 
@@ -32,7 +244,7 @@ Unfiltered Audio - Fault 1.4.1 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47128.jpg" />
 </div>
 
 
@@ -58,7 +270,7 @@ Nomad Factory - Analog Mastering Tools 2.0.0 VST, VST 3, AAX (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47124.jpg" />
 </div>
 
 
@@ -84,7 +296,7 @@ AVS Audio Software 10.5.1.23 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_47029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47029.jpg" />
 </div>
 
 
@@ -110,7 +322,7 @@ Nuro Audio - Pro Vocal Production Bundle 08.2024 VST 3, AAX (x64) RePack by Zom 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46928.jpg" />
 </div>
 
 
@@ -137,7 +349,7 @@ Sonible - pure:comp 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_46918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46918.jpg" />
 </div>
 
 
@@ -163,7 +375,7 @@ Celemony - Melodyne Studio 5.4.1.004 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45967.jpg" />
 </div>
 
 
@@ -189,7 +401,7 @@ Native Instruments Effects Plugins Pack 08.2024 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45661.jpg" />
 </div>
 
 
@@ -215,7 +427,7 @@ Steinberg SpectraLayers Pro 11.0.20.378 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45544.jpg" />
 </div>
 
 
@@ -242,7 +454,7 @@ MAGIX Samplitude Music Studio X8 19.2.0.24218 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_45161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45161.jpg" />
 </div>
 
 
@@ -268,7 +480,7 @@ MAGIX Samplitude Pro X8 Suite 19.2.0.24218 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44849.jpg" />
 </div>
 
 
@@ -295,7 +507,7 @@ MAGIX Samplitude Pro X8 Suite 19.2.0.24218 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44828.jpg" />
 </div>
 
 
@@ -322,7 +534,7 @@ MAGIX Samplitude Music Studio X8 19.2.0.24218 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44812.jpg" />
 </div>
 
 
@@ -348,7 +560,7 @@ Kazrog - True Dynamics 1.2.3 VST, VST3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44532.jpg" />
 </div>
 
 
@@ -375,7 +587,7 @@ IK Multimedia - TONEX MAX 1.7.5 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44106.jpg" />
 </div>
 
 
@@ -403,7 +615,7 @@ u-he - ACE 1.4.3 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44093.jpg" />
 </div>
 
 
@@ -429,7 +641,7 @@ u-he - Hive 2.1.2 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44078.jpg" />
 </div>
 
 
@@ -455,7 +667,7 @@ u-he - Diva 1.4.8 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_44070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44070.jpg" />
 </div>
 
 
@@ -466,217 +678,6 @@ Diva отражает дух аналоговых синтезаторов, вы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55AFD20653A3DB3B73FBC0877C99A5A99317D80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748716   (43922) от 11.09.2024
-
-IK Multimedia - AmpliTube 5 MAX V2 5.8.2 STANDALONE, VST, VST 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение для моделирования усилителей и гитарных/басовых механизмов
-Amplitube 5 MAX v2 включает в себя 18 коллекций брендов/исполнителей для более чем 430 моделей оборудования.
-Ведущее программное обеспечение для моделирования усилителей и эффектов от IK Multimedia делает гигантский шаг вперед с выпуском AmpliTube 5 MAX v2. Серия AmpliTube точно передает (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7F997AB74AB29A5314297979DFBC89E90CA4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748993   (43807) от 12.09.2024
-
-iZotope - Plasma 1.0.1 VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайте вашим трекам именно то, что им нужно, именно там и тогда, когда им это нужно. В отличие от традиционных сатураторов, которые применяют статический эффект, новаторская технология Flux Saturation от Plasma анализирует ваш звук и применяет динамическую обработку, добавляя точную теплоту, глубину и характер, чтобы выявить лучшее в ваших миксах и мастерах.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD4672E663C89161706413617736FEE83114E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749694   (43456) от 15.09.2024
-
-Cradle - The God Particle 1.2.4 VST 3, AAX (x64) RePack by SEnki [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не позволяйте гипнотическим визуальным эффектам The God Particle обмануть вас, под поверхностью работает сложная вселенная.
-Избавляя от целого ряда технических хлопот, God Particle позволяет музыкантам, продюсерам и микшерам сосредоточиться на своем творческом процессе без ограничений по скорости.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BF33FDECF085FC5CD1A92F8C6EB47252E8273B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750202   (43186) от 18.09.2024
-
-Wave Alchemy - Triaz 1.1.1 VSTi 3, AAX + Full Content (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите свою музыку на новый уровень с Triaz, инновационным драм-движком, разработанным для создания непревзойденных битов. Благодаря молниеносной полиритмической последовательности, расширенному наложению барабанов, инструментам динамического микширования и интеллектуальной рандомизации Triaz переопределяет искусство создания барабанов. Испытайте создание битов, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E2DBEBD2545192859DC6EADC7E3450C963BCD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750149   (43158) от 18.09.2024
-
-Heavyocity - Punish 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_43158.jpg" />
-</div>
-
-
-###  Подробнее
-
-От едва заметной теплоты до экстремального драйва и компрессии, плагин мультиэффект PUNISH от Heavyocity привносит характер и остроту в любой микс или инструментальный трек. Это тот же PUNISH, который вы знаете и любите, просто больше и лучше.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45673C71CE96FDAE89FD419969FFE2AA41E6C8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750829   (42713) от 22.09.2024
-
-Kid3 3.9.6 Audio Tagger Portable (x64) [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kid3 — бесплатный инструмент, позволяющий редактировать теги аудиофайлов. Данная версия программы предназначена для работы в операционной среде Windows и для того, чтобы приступить к редактированию тегов, не потребуется даже инсталляция приложения. Приложение может быть запущено из любой директории, является портативным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BDD244DC05C4559F68020CD52DE540D4FEA385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751144   (42630) от 23.09.2024
-
-LANDR - LANDR Guitar 1.1.5 VSTi 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_42630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавляйте гитарные риффы, записанные гитаристами мирового класса, в свою музыку с помощью этого интуитивно понятного виртуального гитарного инструмента. Специально подобранные лупы, украшения и эффекты подходят для широкого спектра жанров и стилей игры и позволяют вам легко находить и аранжировать идеальные гитарные партии для вашего трека.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563621EBFA75C4E8D8D6994EBEC86FAE05F6A849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753574   (41369) от 05.10.2024
-
-Three Body Tech - SpecCraft 1.0.0 VST, VST 3, AAX (x64) RePack by SEnki  [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_41369.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpecCraft - это динамический подавитель резонансов нового поколения, спектральный компрессор и интеллектуальный эквалайзер. Он специализируется на устранении главного врага вашего микширования - нежелательных резонансов. Будь то резкие вопли или приглушенные раскаты грома, SpecCraft распознает их все и динамически применяет соответствующее подавление к каждому звуковому (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574516D878224989EE0920BFB133604A12C5ED32
 ```
 
 https://mybot314.ru/tekegram_catalog/

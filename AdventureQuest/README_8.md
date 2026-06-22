@@ -1,3 +1,81 @@
+###  Публикация: 1463677   (1020230) от 19.04.2021
+
+Don't Be Afraid (2020) [Ru/Multi] (1.002) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас зовут Дэвид, вам 11 лет... и вашему безмятежному детству пришел конец. Вы очнулись в темной холодной комнате и безуспешно пытаетесь осмотреться. Место совершенно незнакомо. Отовсюду доносятся пугающие звуки, чувство беспомощности переполняет вас. Вы слишком напуганы, чтобы сделать шаг вперед... но иного выбора нет. А самое худшее заключается в том, что за вами (   Читать дальше...   )Тип издания: RepackРазработчик: Hydra Games S.A., Limo Games, Broken Arrow GamesЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10297881FACC2D15B9CD4DA1A75663CD8D0E7677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464446   (1019726) от 22.04.2021
+
+The Shattering (2020) [Ru/Multi] (1.1.8/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019726.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Shattering — психологический квест от первого лица, затрагивающий непосредственно тему психического здоровья, одиночества, детских травм и любви. Возьмите на себя роль писателя Джона Эванса (John Evans), которому предстоит пройти лечение, чтобы восстановить память. The Shattering помещает вас в сознание Джона Эванса, где вы изо всех сил пытаетесь собрать воедино (   Читать дальше...   )Тип издания: RepackРазработчик: Super Sexy SoftwareЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4F2F99F716D76D7F44A49DB2F4AA9A6962AC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377428   (1019358) от 24.04.2021
+
+Help Will Come Tomorrow (2020) [Ru/Multi] (1.1.2/2.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019358.jpg" />
+</div>
+
+
+###  Подробнее
+
+На заре Октябрьской Революции группе пассажиров, переживших крушение поезда на Транссибирской магистрали, предстоит бороться за существование в бескрайней сибирской тайге. Перед лицом множества угроз, собственных слабостей и, более всего, собственных предрассудков им предстоит научиться справляться с ледяным холодом, надеясь на скорое спасение. Выходцы из разных (   Читать дальше...   )Тип издания: LicenseРазработчик: Arclight CreationsЖанр: Adventure, Simulator, StrategyЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E8124D06C617BDD5B8913040B80137868C73E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465750   (1018669) от 28.04.2021
 
 S.W.A.N.: Chernobyl Unexplored (2021) [Ru/Multi] (1.0.1160.0) Repack Other s
@@ -6,7 +84,7 @@ S.W.A.N.: Chernobyl Unexplored (2021) [Ru/Multi] (1.0.1160.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018669.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Maid of Sker (2020) [Ru/Multi] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018662.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Falconeer (2020) [Ru/Multi] (1.4.0.1/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1018480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018480.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Beholder (2016) [Ru/Multi] (1.6.0.12741/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017969.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Signifier (2020) [Ru/Multi] (1.101) License GOG [Director's Cut Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1017965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017965.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016856.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016630.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Inherit the Earth: Quest for the Orb (1994) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016525.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.71/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016477.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Papetura (2021) [Graphic] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016340.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1016054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016054.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Tohu (2021) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014305.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Essays on Empathy (2021) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1014285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014285.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Rainswept (2019) [En] (1.1.5a/1.1.4a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013948.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Larger Than Light (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013655.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Company Man (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013612.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Little Misfortune (2019) [Ru/Multi] (1.0) License GOG [Fancy Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013453.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Creepy Tale (2020) [Ru/Multi] (1.0.2b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013444.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Retro Machina (2021) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013442.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20210422/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013436.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Bad Dream: Coma (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013330.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Bad Dream: Fever (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013314.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Room 54 (2021) [Multi] (1.0) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013296.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Room 54 (2021) [Multi] (1.0) License DOGE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0705B67CF40A7AB7CDDD45DCC3A810DEC8F2760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474097   (1013163) от 01.06.2021
-
-Ultreïa / Ultreia (2021) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1013163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький робот Нимо, подпитываемый большой потерей, становится паломником и решает пересечь дикий мир, чтобы найти смысл жизни и смерти. У него также есть загадочная цель: отомстить за смерть отца. Ultreïa - это мистический мир, населённый роботами. Под покровом пейзажа скрываются пещеры, заполненные огромными существами, живущими в темноте. Путешествие проведёт (   Читать дальше...   )Тип издания: LicenseРазработчик: Olivier De RopЖанр: Adventure, QuestЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D820BDBF55652D21261191F8AB6B1EC62566F8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474346   (1012995) от 02.06.2021
-
-Rusty Lake Paradise (2018) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Якоб, старший сын семьи Эйландеров, возвращается на Райский остров после смерти матери. Со времен её таинственной кончины остров находится под гнётом десяти бедствий. Найдите скрытые воспоминания матери и примите участие в странных семейных ритуалах, чтобы положить конец испытаниям. Rusty Lake Paradise - третья отличная игра в жанре point-and-click adventure от Rusty (   Читать дальше...   )Тип издания: LicenseРазработчик: Rusty LakeЖанр: Adventure, Puzzle, Quest, SurrealismЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Датский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Датский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E10529E9ECEC3D6BE684CC7B700D7969A6A6335A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474343   (1012994) от 02.06.2021
-
-Rusty Lake Hotel (2016) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/007//save_picture_1012994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пригласите наших гостей в Rusty Lake Hotel  и сделайте так, чтобы они остались довольны. На этой неделе будет 5 ужинов. Убедитесь, что за каждый ужин стоит умереть! Rusty Lake Hotel - это уникальная игра-головоломка с сюрреалистической странной обстановкой, вдохновлённая сериалом Дэвида Линча "Твин Пикс".Тип издания: LicenseРазработчик: Rusty LakeЖанр: Adventure, Puzzle, Quest, SurrealismЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F7F6D14E3A21204B2C7EE4AD249A5A97409C45
 ```
 
 https://mybot314.ru/tekegram_catalog/

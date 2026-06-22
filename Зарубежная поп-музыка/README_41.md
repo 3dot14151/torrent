@@ -6,7 +6,7 @@ Teach In - The Best of the Best (2012) [MP3|320 кб/с]<Disco, Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574739.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574341.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Adriano Celentano - The Best (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_574306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574306.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573794.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573752.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Inna - Body and the Sun (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573643.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Elohim - Elohim (2018) Deluxe Edition [Explicit] [MP3|320 Kbps] <Synthpop, Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_573085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573085.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572887.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - 80's Chillout. The Ultimate Collection of Chilled 80's Music (2017) [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572441.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Bad Boys Blue - Greatest Hits (2009) [MP3|320 кб/с]<Euro Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_572398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572398.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Sophie Marceau - Certitude (1985) [MP3|192 кб/с]<French Pop, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571691.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - 40 Tubes Ete (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_571024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571024.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Czerwone gitary / Червоны Гитары - 16 альбомов (1966-2007) 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570405.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Chris Rea - Greatest Hits (2007) [MP3|320 кб/с]<Pop, Rock, Blues>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_570157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570157.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ricchi E Poveri - Allegro Italiano (1992) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_569734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569734.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Yulduz Usmanova (Usmonova) - 17 Albums (1993-2014) [MP3|128-320 Kbps] <Pop, Ethn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568438.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bea Miller - Not An Apology (2015) [OGG|474-539 кб/с]<Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568217.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Madonna - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568199.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Kristine - Kristine (2015) [MP3|320 кб/с]<80's Retrowave, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_568175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568175.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Kiki Dee - 3 Albums (1977-1981) Reissue CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567357.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Disco Sound (Hits In Instrumentalfassung) (1978) LP [MP3|320 Kbps] <Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_567303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567303.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - The Dome Summer (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565998.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Michelle - Tabu (Deluxe) (2018) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565918.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Christina Aguilera - Aguilera (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565477.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_565338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565338.jpg" />
 </div>
 
 
@@ -766,7 +766,7 @@ Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_564925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564925.jpg" />
 </div>
 
 

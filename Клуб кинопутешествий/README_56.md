@@ -1,3 +1,29 @@
+###  Публикация: 1428263   (180667) от 01.12.2020
+
+Есть на свете тихий уголок. Вашингтон / Where the Wild Men Are with Ben Fogle (2016) HDTV [H.264/1080i] (сезон 5, серия 1)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом эпизоде отправимся в глухие леса Вашингтона, здесь живёт американо-британская Агафья Лыкова.., почти...Производство: Великобритания, Renegade Pictures, GroupM Entertainment, Channel 5 Television,Жанр: Документальный, познавательный, путешествияРежиссер: Натали ВилкинсонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F7B2228DFFF1CA435B0334098BCE56809F6D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667185   (177540) от 07.10.2023
 
 Поедем, поедим! Санкт-Петербург: суперэксклюзив из Петропавловской крепости и знаменитая шаверма (07.10.2023) WEBRip [H.264/720p]
@@ -6,7 +32,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_177540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177540.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_176131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176131.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_173228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173228.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_171922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171922.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170915.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170381.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170317.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170259.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170192.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_170155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170155.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_169317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169317.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167818.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ RTG. Река Нева (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167778.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_167689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167689.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_166937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166937.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165781.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_165684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165684.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164433.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164378.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164373.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_164323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164323.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_163528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163528.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162590.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_162391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162391.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160629.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EAC25D7F792502B1C82D344A66476EF8C3D50B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599088   (160141) от 22.12.2022
-
-Удивительные путешествия. Исландия / Ultimate Wild Journeys. Iceland (2010) IPTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/002//save_picture_160141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исландия. Дикая и прекрасная страна. Там можно увидеть одни из самых удивительных и уникальных пейзажей на планете, дикую природу отдаленного острова, где человек веками борется с силами природы, пользуясь ее богатствами и мощью. Это страна контрастов, где огонь встречается со льдом, а древние традиции сталкиваются с новейшими технологиями. Поездка в Исландию подарит (   Читать дальше...   )Производство: Исландия, США, Profilm, Parthenon Entertainment Ltd.Жанр: документальный, природа, путешествияРежиссер: Йоханн СигфуссонПеревод: дублированный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04965D8C86AD3F3EE47623F6317789FB5D1F26CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

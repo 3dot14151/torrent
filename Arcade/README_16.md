@@ -1,3 +1,55 @@
+###  Публикация: 1137204   (722826) от 09.04.2018
+
+Impact Winter (2017) [Ru/Multi] (2.0.10) Repack R.G. Механики
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помощь придет через 30 дней... Таинственное радиосообщение гласит: спасатели уже в пути. Вы - Джейкоб Соломон, лидер группы людей, переживших опустошительное падение астероида. Мир изменился, и теперь он погребен под толщей снега. Выжить 30 дней: ваши действия могут сократить время до спасения. От вас зависят жизни людей: ищите ресурсы и используйте свои навыки, (   Читать дальше...   )Тип издания: RepackРазработчик: Mojo BonesЖанр: Adventure, Action (Survival), Top-DownЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503E50C10B062637C766FEE449A76801C3E2A895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241085   (722099) от 15.02.2022
+
+Death's Gambit: Afterlife (2018) [Ru/Multi] (1.1.6/dlc) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Death's Gambit: Afterlife — это новое и расширенное издание оригинального хардкорного 2D-платформера в жанре RPG. Станьте мастером отзывчивой боевой системы, используя широкий спектр оружия и способностей, чтобы противостоять ужасам, которые скрываются в Сирадоне. Исследуйте таинственный, не прощающий ошибок мир и узнайте истинную цену бессмертия.Тип издания: RepackРазработчик: White RabbitЖанр: Action, Arcade (Platform), RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5249970571999BD5C4C0EB15D63282C520E4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129382   (721934) от 28.04.2017
 
 BlazBlue: Centralfiction (2017) [Multi] (1.0) License CODEX
@@ -6,7 +58,7 @@ BlazBlue: Centralfiction (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721934.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Adele: Following the Signs (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_721583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721583.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_719310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719310.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.21/1.0.8) Repack R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_714450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714450.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ HeartZ: Co-Hope Puzzles (2016) [En/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_713401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713401.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fimbul (2019) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712496.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Gold Rush! 2 (2017) [En/De] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_712022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712022.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Distrust (2017) [Ru/Multi] (1.1.4/Upd4) Repack Other s [Cruise Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_711106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711106.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710604.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710449.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710362.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Monster Slayers (2017) [En] (1.1.8) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_710205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710205.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ LEGO Marvel's Avengers / LEGO Marvel Мстители (2016) [Ru/Multi] (1.0.0.2
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_707201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707201.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Impact Winter (2017) [Ru/Multi] (3.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705754.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_705274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705274.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ The King of Fighters XIV (2017) [Multi] (1.19) License CODEX [Steam Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703874.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Trials of the Blood Dragon (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_703404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703404.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Ruin of the Reckless (2017) [En/Fr] (1.0.1b) License GOG [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_702287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702287.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Roguelands (2015) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_701716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701716.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Steampunk Tower 2 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_700043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700043.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2018) [Ru/Multi] (0.96) License PL
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_698259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698259.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License DEFA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697700.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ War Truck Simulator (2016) [Ru/Multi] (1.20) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_697567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697567.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ The Gift / Подарочек (2000) [Ru] (1.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_696131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696131.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ The Gift / Подарочек (2000) [Ru] (1.0) License
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133519   (694767) от 12.05.2017
-
-Moccasin (2017) [Ru/En] (1.0) Repack R.G. Механики
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_694767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты веселый горный житель, ты гордый и сильный как скала, а также модный и стильный как Гуччи. Уничтожай всех кто встречается на твоем пути. Собирай красивую красную обувь, покупай крутое оружие и мочи всех вокруг. Красочный платформер с интересным сюжетом и неповторимой графикой.Тип издания: RepackРазработчик: YarGriЖанр: Action, Adventure, IndieЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF5C5F190DE17DA7000F1DA563AA29AF366BE26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221570   (692797) от 25.04.2018
-
-The Swords of Ditto (2018) [Ru/Multi] (1.0.4.01-108) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_692797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swords of Ditto — незамысловатая игра в жанре Action RPG. Играя за разных персонажей, вы станете героем удивительных событий, сражаясь против коварной колдуньи Мормо! В этом красочном мире опасности таятся на каждом шагу; вам предстоит храбро сражаться в подземельях, улучшать своего героя в зачарованных деревнях и найти источник зла, оскверняющий остров! Доставайте (   Читать дальше...   )Тип издания: LicenseРазработчик: onebitbeyondЖанр: Adventure, Action, RPGЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF11896F2F320CDD89A356455AD7F25A31CA7216
 ```
 
 https://mybot314.ru/tekegram_catalog/

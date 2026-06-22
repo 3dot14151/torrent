@@ -1,3 +1,55 @@
+###  Публикация: 644421   (867127) от 17.04.2013
+
+Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Горизонтальная анаморфная стереопара 3D]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрывайтесь по-полной в 3d-клипе с «Gangnam Style»  — синглом южнокорейского исполнителя и автора песен PSY! Песня в 2012 году стала первой в рейтинге Gaon Chart, а её видеоклип на YouTub сделал певца миллионером. В 3d ролике  комически танцующий PSY,  в двух местах в Каннамгу (район в Сеуле) и в восьми, которые находятся в Инчхоне и провинции Кёнгидо. В 3д-видеоклипе PSY задействовано много корейских актёров, а девушка – корейская певица Хёна.Жанр: Музыка, Dance, PopПеревод: ОтсутствуетПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B42D7985B869CC4A45DEB4BCBED6FF2B1A97BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766413   (867087) от 16.03.2014
+
+Демонстрационный DVD-Video диск #2. Dolby Digital 6.1, DTS Multichannel Sound 6.1 [DVD5]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDA5F313A85175D4B1C3F56BEFA9CDDEB97EE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375037   (867033) от 13.04.2020
 
 Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
@@ -6,7 +58,7 @@ Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_867033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867033.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_866889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866889.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865656.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_865575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865575.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_864656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864656.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ We Blame The Empire - Updraft (2020) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863867.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863763.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863761.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863609.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_863534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863534.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_861692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861692.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Meta
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860380.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860370.jpg" />
 </div>
 
 
@@ -364,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_860364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860364.jpg" />
 </div>
 
 
@@ -391,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857505.jpg" />
 </div>
 
 
@@ -420,7 +472,7 @@ ABBA - The Definitive Collection (1974-1982) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_857390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857390.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Sara Tunes - VIP (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855438.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Marty - Suddenly (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855371.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Chase The Ace - California (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_855285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855285.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_854167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854167.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_848067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848067.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842926.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Supermax - Rhythm Of Live (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_842116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842116.jpg" />
 </div>
 
 
@@ -641,7 +693,7 @@ Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840860.jpg" />
 </div>
 
 
@@ -656,61 +708,6 @@ Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFECF279058125DFF9085CB6619ADC0A6871869A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379380   (840685) от 28.04.2020
-
-Вика Старикова - Три желания (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_840685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклип Виктории Стариковой — «Три желания».
-Русская версия небезызвестной детской песенки — «Лягушка и три желания»
-Автор – Фрэнсис Лемарк (Francis Lemarque).
-Русский текст - Самюил Болотин.Производство: Serghey Grey ProductionЖанр: ПопРежиссер: Serghey GreyАктеры: Виктория СтариковаПродолжительность: 00:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BFC578AB563C01F17C5B505BD37D83A63D06E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193789   (839910) от 19.04.2010
-
-Дискотека Авария - Лето всегда! (OST ''Любовь в большом городе 2'')  (2010) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/008//save_picture_839910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:04:32
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

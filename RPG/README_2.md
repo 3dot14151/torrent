@@ -1,3 +1,107 @@
+###  Публикация: 1849273   (1053415) от 22.01.2026
+
+Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Юмия: Алхимик воспоминаний и Земля Грёз (2025) [Ru/Multi] (1.0.4.2/dlc) Repack seleZen [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то на одном континенте процветала Арадисская империя. Она достигла выдающихся успехов благодаря алхимии, которая держала другие нации на расстоянии. Однако империя рухнула из-за внезапного и таинственного катаклизма. Время шло. Несколько веков спустя алхимия стала считаться опасным ремеслом, что несет разрушение. Алхимия - зло и табу.Тип издания: RepackРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F700C02E9488E2B7BE70DF204E8BD9129A834256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849283   (1053406) от 22.01.2026
+
+Night Swarm (2025) [Ru/Multi] (1.1.0.1) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Night Swarm - это вампирский roguelite RPG в жанре bullet heaven, где вы играете за молодого и грозного Лорда-Вампира, стремящегося к власти. Собирайте верных союзников, раскрывайте разрушительные способности и сражайтесь с беспощадными ордами оборотней, угрожающими поглотить ночь.Тип издания: RepackРазработчик: Fubu GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523570F5585062F04F8E6FCFC69BE4207764389F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848520   (1052999) от 17.01.2026
+
+The Stone of Madness (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay [Special Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052999.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Stone of Madness – тактическая стелс-игра в реальном времени, действие которой разворачивается в испанском монастыре XVIII века. Этот расположенный в Пиренеях потрепанный временем иезуитский монастырь служит домом призрения душевнобольных и тюрьмой инквизиции. Пятеро заключенных, страдающих от жестоких наказаний, безумия и отчаяния, объединяют свои навыки и ресурсы, (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3203EB23A5D6EA0996E612A6D35AB30781A2CCBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848641   (1052958) от 18.01.2026
+
+Dreamscaper (2020) [Ru/Multi] (1.1.7.4) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamscaper - это бесконечно реиграбельный экшен-рогалик с циклом геймплея «бодрствование/сновидение». Ночью погрузитесь в глубины своего подсознания, сталкиваясь с кошмарами в постоянно меняющемся мире, наполненном уникальными предметами, способностями и испытаниями. Днём исследуйте город Редхейвен, стройте отношения и открывайте постоянные улучшения, чтобы с ещё (   Читать дальше...   )Тип издания: RepackРазработчик: indie.io, Maple Whispering LimitedЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55C38FDCA0E8555F7F2181063B38969A395BAD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848664   (1052943) от 18.01.2026
 
 Swordhaven: Iron Conspiracy (2024) [Multi] (1.0.4/dlc) Repack Let'sРlay
@@ -6,7 +110,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052943.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Sacred 2 Remaster (2025) [Ru/Multi] (CL16601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052917.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Persona 5 Royal (2022) [Ru/Multi] (1.03B) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052915.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Chronicon (2020) [Multi] (1.54.1/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052843.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Len's Island (2021) [Ru/Multi] (1.1.43/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052782.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ CENTUM (2025) [Ru/Multi] (2.4445.1138) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052747.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052344.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ UnderRail (2015) [Ru/En] (1.3.0.17/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052240.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.5.1/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052052.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.1.3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1052046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052046.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dragon Ruins (2024) [Multi] (251206) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051978.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Salt and Sanctuary (2016) [Ru/Multi] (1.0.2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051958.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Salt and Sacrifice (2023) [Ru/Multi] (2.0.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051957.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Dreamed Away (2025) [Ru/Multi] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051759.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051683.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Paranoia: Happiness is Mandatory (2023) [Ru/Multi] (Build 12698814) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051593.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051586.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Drakensang: The Dark Eye (2008) [En] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051374.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051372.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051371.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.11.18.994fa78/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051074.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ UltraGirl Alters (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1051053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051053.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ UltraGirl Alters (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FED87E5F2310A2BD0B7A9FA6F11CCFB2C0B5451C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845674   (1050929) от 02.01.2026
-
-Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack CoronerLemur [Game of the Year Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fallout 4 - это продолжение знаменитой постапокалиптической серии, события которой развиваются спустя несколько лет после окончания Fallout 3. Протагонистом игры становится единственный выживший из Убежища 111, которое находилось неподалеку от Бостона. Волей судьбы главному герою предстоит покинуть свой дом, чтобы пуститься в полное опасностей приключение, где на (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67A911FE57133696463A31C810C456CAAED39A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845746   (1050906) от 03.01.2026
-
-Lovely Lady RPG (2025) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lovely Lady RPG начинается с пробуждения героини по имени Призрак под пробитым потолком, с космической сферой в груди и полным отсутствием воспоминаний. События разворачиваются в альтернативной версии Первой мировой войны, где ее будни посвящены попыткам выстроить жизнь заново с этой странной отправной точки. Повествование следует за ней во время странствий и взаимодействия (   Читать дальше...   )Тип издания: SceneРазработчик: DAS POPPY UND MIA KUNSTKOLLEKTIVЖанр: Инди, Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9122F261FAB1F002C3C2C79813B6B8E3C2F3397F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845282   (1050580) от 30.12.2025
-
-STAR OCEAN THE DIVINE FORCE (2022) [Ru/Multi] (01.01 Build 23063/dlc) Repack Let'sРlay [Digital Deluxe]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Ocean: The Divine Force - это JRPG с элементами экшена от разработчиков Tri-Ace и издателя Square Enix, шестая часть основной серии, вышедшая в 2022 году, которая предлагает динамичные трехмерные бои и исследование открытого мира с возможностью летать, а также затрагивает темы фэнтези и научной фантастики, сосредотачиваясь на приключениях двух героев, встретившихся (   Читать дальше...   )Тип издания: RepackРазработчик: Square Enix, tri-AceЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0519A0F3650773299F58A2EC198A617E48CB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844921   (1050529) от 29.12.2025
-
-Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/005//save_picture_1050529.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Of Ash and Steel сложная, но удобная боевая система. Вы не станете легендарным охотником за головами или истребителем чудищ в самом начале игры. Нет, нужно освоить механику боя: научиться управлять выносливостью, рассчитывать время атак и парирований, подобрать стойку и тип оружия, которые Вам подходят. Это требует времени и практики, но чем больше Вы играете, (   Читать дальше...   )Тип издания: RepackРазработчик: Fire & FrostЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196EC2F222BF876EB87011E2A04F9812B11863F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

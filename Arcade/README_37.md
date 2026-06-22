@@ -1,3 +1,55 @@
+###  Публикация: 1641173   (196785) от 21.06.2023
+
+SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (1.0.4) Repack dixen18
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте за Спанч-Боба и его друзей, и покажите злобному Планктону, что преступления оплачиваются еще меньше, чем работа у Мистера Крабса. Хотите спасти Бикини Боттом от толп ползучих машин с помощью своих могучих пузырей? Конечно, хотите! Готовы к прыжку с тарзанки? Почему бы и нет? Мечтаете вступить в войска в совершенно новом многопользовательском режиме? Битва (   Читать дальше...   )Тип издания: RepackРазработчик: Purple Lamp StudiosЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2D4A5126D3014A3E5A67CAADA62AF4A5E5E3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641944   (196633) от 25.06.2023
+
+Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безумный экшен с видом сверху, в котором вы будете играть за Николу Тесла, человека, лабораторию которого уничтожили страшные монстры легендарного Лавкрафта… Сюжет игры вращается вокруг противостояния изобретения Лавкрафта и Николы Тесла. Долгое время ученый сидел в своей лаборатории и изготавливал самые разные штуки, включая и мощное энергетическое оружие. Но внезапно (   Читать дальше...   )Тип издания: LicenseРазработчик: 10tons LtdЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88295A086D94E99268C17A05580B81983827370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641951   (196607) от 25.06.2023
 
 JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
@@ -6,7 +58,7 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196607.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Fireball Wizard (2023) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196534.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_196258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196258.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_196038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196038.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195826.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195798.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Cave (2013) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_195390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195390.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ape Out (2019) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_195133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195133.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ ANVIL (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194526.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ TailQuest Defense (2023) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194524.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Pinball FX3 (2017) [Multi] (1.0.26.0/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194396.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Mail Time (2023) [Multi] (1.00.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_194309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194309.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_194087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194087.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193979.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193400.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193366.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_193307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193307.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Hell Pie (2022) [Ru/Multi] (1.1.5) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_193045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193045.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192507.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_192440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192440.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ SIGNALIS (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191173.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/004//save_picture_191165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191165.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Diary of Lucie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_190434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190434.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Little Witch Nobeta (2022) [Ru/Multi] (1.1.0/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189958.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Little Witch Nobeta - трехмерная экшен рпг уже как тр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D10385089991E069035EE7AAAA1C0511E7DF4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660229   (189139) от 13.09.2023
-
-Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidrow
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_189139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потрясающая приключенческая игра, основанная на замечательной серии графических романов Girl Genius™ авторов Фила и Кайи Фолио. Откройте для себя отмеченный наградами фэнтезийный мир «Girl Genius™»! Познакомьтесь с историей Агаты Гетеродин, пока она путешествует по враждебным коридорам, катакомбам и кухням дома своих предков, замка Гетеродин. Как Потерянная наследница (   Читать дальше...   )Тип издания: SceneРазработчик: Rain GamesЖанр: Экшны, ПриключениеЯзык субтитров: Английский, НорвежскийЯзык интерфейса: Английский, Норвежский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677FA7B913C35F56A196DE9208E46B96B01582C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661140   (188697) от 14.09.2023
-
-Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/picture_torrent/003//save_picture_188697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Над Верхнелевоземьем сгущаются тени, и Гномье королевство под угрозой. Полчища монстров на подходе, и они готовы погрузить весь мир в пучину трезвости. Дайте отпор супостатам и защитите живительную жидкость, которая бежит по трубам родной пивоварни. Хватай молоток, наполняй кружку до краев - и марш за дело. Защитим родное пиво. Гномы не привыкли наблюдать за битвами (   Читать дальше...   )Тип издания: LicenseРазработчик: Dama Dama GamesЖанр: Экшны, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5145399FDD56A1BDF15FBD9DCDFECF751A7EDC3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
